@@ -1,0 +1,14 @@
+title: Margaret Furr
+url: "https://margaretmf.github.io/"
+baseurl: ""
+
+markdown: kramdown
+kramdown:
+  input: GFM
+  syntax_highlighter: rouge
+
+tracking_id: #
+
+sass:
+    style: compressed
+    sass_dir: _sass
