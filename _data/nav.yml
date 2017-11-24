@@ -1,0 +1,11 @@
+- name: "Contact"
+  link: "contact"
+
+- name: "Reading"
+  link: "reading"
+
+- name: "Resume"
+  link: "resume"
+
+- name: "About"
+  link: "/"
