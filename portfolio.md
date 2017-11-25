@@ -66,7 +66,7 @@ In the summer of 2016, I worked with a team to brainstorm how to provide a tool 
 
 <img class="picture" src="aware.jpg">
 
-[See pitch deck ppt presentation](http://margaretmf.github.io/aware.pdf).
+[See pitch deck ppt presentation](http://margaretmf.github.io/aware.pptx).
 
 <br>
 
