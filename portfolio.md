@@ -6,7 +6,7 @@ layout: default
 
 ## UVA Health Care System - Predicting Severe Sepsis
 
-<img class="picture" src="predicting-severe-sepsis.jpg">
+<img class="picture" src="predicting-severe-sepsis.png">
 
 I worked on a team of 4 using data coming from UVA's Health Care System. Severe sepsis is the leading cause of deaths in adult ICUs. Severe sepsis is defined as a syndrome of organ dysfunction in the setting of infection (blood culture acquisition) and high lactate (>4 mmol/L). Early intervention can lead to better patient outcomes, so we worked to predict which patients would experience severe sepsis using 4 modeling approaches: (1) logistic regression, (2) support vector machines, (3) logistic model trees, and (4) random forest. I worked heavily on the logistic regression and random forest models after splitting the data into a control cohort and a target cohort and working on feature selection. I also supported applying a cross-validation on the models and evaluation approaches with 5 metrics: Sensitivity, specificity, PPV, NPV, and AUC. These models can be applied in a clinical setting to support helping patients that are at greatest risk. Some of my code for the project is [here](https://github.com/margaretmf/Classwork/blob/master/ControlGroup.R), where I create the control group, and [here](https://github.com/margaretmf/Classwork/blob/master/LMT.R), where I work on the logistic model tree.
 
