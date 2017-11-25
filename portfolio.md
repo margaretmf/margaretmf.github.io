@@ -6,7 +6,7 @@ layout: default
 
 ## UVA Health Care System - Predicting Severe Sepsis
 
-<iframe src="predicting-severe-sepsis.ppt" style="width:600px; height:500px;" frameborder="0"></iframe>
+<iframe src="predicting-severe-sepsis.pps" width="800px" heigt="600px"></iframe>
 
 <br> 
 
