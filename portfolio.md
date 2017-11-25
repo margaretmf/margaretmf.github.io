@@ -24,5 +24,12 @@ I specifically worked on the [Homefire per Tract Risk Indicator](https://github.
 
 <img class="picture" src="home-fire-risk-map.jpg">
 
+<br>
+
+## Clarity Campaign Labs - Free Trump Scoring for National Voters in 5 Primary States
+
+I worked to use national voter file data as well as Purpose Labs' free trump score critiera to develop maps for 5 primary states. This is a [blog](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d) that Purpose Labs wrote on the final results.
+
+<img class="picture" src="free-trump-score.jpg">
 
 
