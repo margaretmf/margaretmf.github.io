@@ -10,7 +10,7 @@ I worked on a team of 4 using data coming from UVA's Health Care System. Severe 
 
 I worked heavily on the logistic regression and random forest models after splitting the data into a control cohort and a target cohort and working on feature selection. I also supported applying a cross-validation on the models and evaluation approaches with 5 metrics: Sensitivity, specificity, PPV, NPV, and AUC. Some of my code for the project is [here](https://github.com/margaretmf/Classwork/blob/master/ControlGroup.R), where I create the control group, and [here](https://github.com/margaretmf/Classwork/blob/master/LMT.R), where I work on the logistic model tree. 
 
-[See full ppt presentation](http://margaretmf.github.io/predicting-severe-sepsis.key).
+[See full ppt presentation](http://margaretmf.github.io/predicting-severe-sepsis.pptx).
 
 <img class="picture" src="predicting-severe-sepsis.jpg">
 
