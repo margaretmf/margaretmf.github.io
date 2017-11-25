@@ -92,6 +92,14 @@ In the summer of 2016, I worked with a team to brainstorm how to provide a tool 
 
 <br>
 
+## Compass and Jubilee Jumpstart - March Research
+
+I worked on the data analysis on a strategic alignment project for Jubilee Jumpstart. I created many maps during this project. I really enjoyed using R programming language to create two maps to understand people in DC. This helped with understanding the neighborhoods to which the preschool center might be able to expand.
+
+<img class="picture" src="jubilee-jumpstart-dc-market.jpg">
+
+
+
                                         
                   
                                                         
