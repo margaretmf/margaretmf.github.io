@@ -7,5 +7,5 @@
 - name: "Resume"
   link: "resume"
 
-- name: "About"
-  link: "/"
+- name: "Portfolio"
+  link: "portfolio"
