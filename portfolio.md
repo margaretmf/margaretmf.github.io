@@ -2,4 +2,9 @@
 layout: default
 ---
 
-This page is a work in progress. It will be used for my portfolio.
+<br>
+
+## DataKind DC and American Red Cross Project
+
+<img class="picture" src="home-fire-risk-map.jpg">
+
