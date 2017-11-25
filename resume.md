@@ -2,10 +2,6 @@
 layout: default
 ---
 
-[PDF](http://margaretmf.github.io/margaret-furr.pdf)
-
-<br>
-
 ---
 
 
