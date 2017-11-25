@@ -23,7 +23,7 @@ August 2010 - May 2014
 
 ## RELEVANT WORK EXPERIENCE
 
-###EVERFI
+### EVERFI
 Data Analyst
 April 2016 - Present
 * Clustering data
@@ -32,37 +32,37 @@ April 2016 - Present
 * Developing quantiative insights for white papers
 * Enjoying work with engineers
 
-###DataKind Corps
+### DataKind Corps
 Data Ambassador
 October 2016 - Present
 
-###Clarity Campaign Labs
+### Clarity Campaign Labs
 Analyst Fellow
 January 2016 - April 2016
 * Results of final analysis on national voting: [What does Donald Trump think of voters in Tuesday's primary states?](https://www.linkedin.com/in/margaret-furr-1567b062/detail/treasury/position:771912109/?entityUrn=urn%3Ali%3Afs_treasuryMedia%3A(ACoAAA1Jr9IBcbODSfDhZqb7EuRSFxQYgmBHmi0%2C51163099))
 
-###BluestoneLogic
+### BluestoneLogic
 Systems Analyst and Designer Intern
 December 2015 - January 2016
 * Results of final chatbot solution prototyped and presented to company to support streamlining business processes: [These are, in fact, the bots we were looking for...](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2)
 
 ## LEADERSHIP AND CONSULTING EXPERIENCE
 
-###Byte Back
+### Byte Back
 Next Gen Council Member
 June 2016 - Present
 
-###DataKind DC and DataKind Corps
+### DataKind DC and DataKind Corps
 Data Science Volunteer, Data Ambassador
 January 2016 - Present
 * Clients: American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
 
-###Compass Pro Bono
+### Compass Pro Bono
 Strategic Alignment Consultant
 October 2016 - Present
 * Clients: Jubilee Jumpstart, Homeless Children's Playtime Project 
 
-###White House Hack the Pay Gap
+### White House Hack the Pay Gap
 Product Designer
 * Results: [How we Hacked the Gender Pay Gap](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950)
 
