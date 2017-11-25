@@ -11,6 +11,8 @@ layout: default
 ## PROFILE 
 Data and Information scientist with a strong math background and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Interested in systems design and strategy and operations.
 
+<br>
+
 ## EDUCATION
 
 ### University of Virginia
@@ -42,16 +44,24 @@ April 2016 - Present
 ### DataKind Corps
 Data Ambassador
 October 2016 - Present
+* Collaborate to develop a foster care case complexity score and a case manager route recommendation system
+* Manage communication with Community-Based Care Florida
 
 ### Clarity Campaign Labs
 Analyst Fellow
 January 2016 - April 2016
-* Results of final analysis on national voting: [What does Donald Trump think of voters in Tuesday's primary states?](https://www.linkedin.com/in/margaret-furr-1567b062/detail/treasury/position:771912109/?entityUrn=urn%3Ali%3Afs_treasuryMedia%3A(ACoAAA1Jr9IBcbODSfDhZqb7EuRSFxQYgmBHmi0%2C51163099))
+* Analyzed data on political candidates and their platforms, which led to political campaign strategy development
+* Taught staff how to implement a regression analysis, which strengthened the firm’s research
+* Created maps of national voter scores to support a key client, which resulted in a Medium blogpost, [What does Donald Trump think of voters in Tuesday's primary states?](https://www.linkedin.com/in/margaret-furr-1567b062/detail/treasury/position:771912109/?entityUrn=urn%3Ali%3Afs_treasuryMedia%3A(ACoAAA1Jr9IBcbODSfDhZqb7EuRSFxQYgmBHmi0%2C51163099))
 
 ### BluestoneLogic
 Systems Analyst and Designer Intern
 December 2015 - January 2016
-* Results of final chatbot solution prototyped and presented to company to support streamlining business processes: [These are, in fact, the bots we were looking for...](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2)
+* Applied a systems methodology to support defining a problem of poor integration of workflow tools
+* Interviewed users to gather and specify project management system requirements
+* Brainstormed, tested, and designed project management system ideas, which resulted in a prototyped solution for a task management chatbot aligned with requirements
+* Presented the final solution, which enabled the firm to engineer a [workflow solution](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2)
+* Completed ISO 9001 Quality Management Systems training
 
 <br>
 
