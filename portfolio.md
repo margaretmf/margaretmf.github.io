@@ -50,6 +50,16 @@ See some of my code [here](https://github.com/margaretmf/Crime-Data-Project/blob
 
 <br>
 
+# UVA Computer Science Class - Urbanization in G20 Members
+
+The World Bank has as Development Indicators database from 2010. Using Python and SQL, I was able with a team to answer 4 questions: (1) how does urbanization increase or decrease with economic development? (2) how does urbanization increase or decrease with labor structure? (3) how does urbanization increase or decrease with power consumption? (4) how does urbanization increase or decrease with trade openness?
+
+To answer such questions, I created tables using data from the database using a sql connector in [Python](https://github.com/margaretmf/Classwork/blob/master/G20.py). Conclusions from the analysis are that (1) high urbanization shows stronger economic development, (2) high urbanization leads to a labor structure heavy in service employment, (3) high urbanization shows more power usage, and (4) high urbanization is associated with highly closed economies.
+
+[See full ppt presentation](http://margaretmf.github.io/urbanization-g20-members.pptx).
+
+<br>
+
 ## DataKind DC - Foster Care Mobility Data Exploration + Random Forest
 
 In fall and winter 2017, I attended as a volunteer a DataKind DC data dive. Here I worked with Foster Care Mobility data and explored how a random forest model worked on the data. The random forest model helped us find important features, including reason children were removed from home, age children enter child services, duration in a spell, and number of placements, for predicting how stable or mobile a foster care case is.
