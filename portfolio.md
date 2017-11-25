@@ -10,7 +10,7 @@ I worked on a team of 4 using data coming from UVA's Health Care System. Severe 
 
 I worked heavily on the logistic regression and random forest models after splitting the data into a control cohort and a target cohort and working on feature selection. I also supported applying a cross-validation on the models and evaluation approaches with 5 metrics: Sensitivity, specificity, PPV, NPV, and AUC. Some of my code for the project is [here](https://github.com/margaretmf/Classwork/blob/master/ControlGroup.R), where I create the control group, and [here](https://github.com/margaretmf/Classwork/blob/master/LMT.R), where I work on the logistic model tree. 
 
-[See full ppt presentation](http://maria-antoniak.github.io/predicting-severe-sepsis.pdf).
+[See full ppt presentation](http://margaretmf.github.io/predicting-severe-sepsis.pdf).
 
 <img class="picture" src="predicting-severe-sepsis.jpg">
 
@@ -60,6 +60,15 @@ In January 2017, after Trump became the President of the US, women came to DC to
 
 <br>
 
+## Hack the Pay Gap - Aware
+
+In the summer of 2016, I worked with a team to brainstorm how to provide a tool to employers so that they can help to hack the pay gap. We designed and prototyped a survey analytics platform for employers to use, and we presented it at the [White House](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950#.86x).
+
+<img class="picture" src="aware.jpg">
+
+[See pitch deck ppt presentation](http://margaretmf.github.io/aware.pdf).
+
+<br>
 
                                                           
                   
