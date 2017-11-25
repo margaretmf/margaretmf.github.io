@@ -7,9 +7,9 @@ Data and Information scientist with a strong math background and experience with
 
  <br>
  
- ## EDUCATION
+## EDUCATION
  
- ### University of Virginia
+### UNIVERSITY OF VIRGINIA
  MS in [Data Science](https://dsi.virginia.edu/)  
  July 2014 - December 2015
  * Capstone Advisor: Laura Barnes  
@@ -24,7 +24,7 @@ Data and Information scientist with a strong math background and experience with
  
  <br>
  
- ## RELEVANT WORK EXPERIENCE
+## RELEVANT WORK EXPERIENCE
  
  ### EVERFI
  Data Analyst
