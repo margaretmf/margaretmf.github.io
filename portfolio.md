@@ -42,11 +42,24 @@ In statistics, kernel density estimation (KDE) is a non-parametric way to estima
 
 I used KDE to understand hotspots of and forecast crime in Chicago. For this, h (the smoothing paraemter) = 200m. When h is larger, there's more bias, and when h is smaller, there's more variance. Using the best h, then we can build a model for predicting crime based on other spatial factors like liquor licensed locations and use AUC to evaluate the model across time.
 
+See some of my code [here](https://github.com/margaretmf/Crime-Data-Project/blob/master/CrimePrediction.R).
+
 <img class="picture" src="crime-data-feb-oct-kde-plots.jpg">
                                                           
 <img class="picture" src="crime-data-feb-oct-auc-plots.jpg">  
 
 <br>
+
+## Data for Democracy - Women's Marches around the States
+
+In January 2017, after Trump became the President of the US, women came to DC to march and women marched in other cities around the states. I became interested in patterns of who marched, where people marched, and the sentiments of the marchers. I started a data project by creating a map to visualize where women marched. There is much more to work on here, as I've done further research on [women's issues and the status of women](https://statusofwomendata.org). [Here](https://github.com/margaretmf/DataForDemocracy-DataExploration/tree/master/CrowdEstimatesExploration) is where I began work to explore march-related data.
+
+<img class="picture" src="womens-marches-us.jpg">
+
+<img class="picture" src="womens-marches-world.jpg">
+
+<br>
+
 
                                                           
                   
