@@ -2,6 +2,12 @@
 layout: default
 ---
 
+[PDF](http://margaretmf.github.io/margaret_furr.pdf)
+
+<br>
+
+---
+
 ## PROFILE 
 Data and Information scientist with a strong math background and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Interested in systems design and strategy and operations.
 
