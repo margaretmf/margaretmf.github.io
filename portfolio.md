@@ -32,4 +32,23 @@ I worked to use national voter file data as well as Purpose Labs' free trump sco
 
 <img class="picture" src="free-trump-score.jpg">
 
+<br>
+
+## UVA Data Mining Class - Crime Modeling
+
+Crime is a big issue in Chicago, and there is open data on where crime occurs in Chicago. There is also other open spatial data.
+
+In statistics, kernel density estimation (KDE) is a non-parametric way to estimate the probability density function of a random variable, like crime and where crime occurs. Kernel density estimation is a fundamental data smoothing problem where inferences about the population are made, based on a finite data sample.
+
+I used KDE to understand hotspots of and forecast crime in Chicago. For this, h (the smoothing paraemter) = 200m. When h is larger, there's more bias, and when h is smaller, there's more variance. Using the best h, then we can build a model for predicting crime based on other spatial factors like liquor licensed locations and use AUC to evaluate the model across time.
+
+<img class="picture" src="crime-data-feb-oct-kde-plots.jpg">
+                                                          
+<img class="picture" src="crime-data-feb-oct-auc-plots.jpg">  
+
+<br>
+
+                                                          
+                  
+                                                        
 
