@@ -12,7 +12,7 @@ I worked heavily on the logistic regression and random forest models after split
 
 [See full ppt presentation](http://maria-antoniak.github.io/predicting-severe-sepsis.pdf).
 
-<img class="picture" src="predicting-severe-sepsis.png">
+<img class="picture" src="predicting-severe-sepsis.jpg">
 
 <br> 
 
