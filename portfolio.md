@@ -56,6 +56,10 @@ The World Bank has as Development Indicators database from 2010. Using Python an
 
 To answer such questions, I created tables using data from the database using a sql connector in [Python](https://github.com/margaretmf/Classwork/blob/master/G20.py). Conclusions from the analysis are that (1) high urbanization shows stronger economic development, (2) high urbanization leads to a labor structure heavy in service employment, (3) high urbanization shows more power usage, and (4) high urbanization is associated with highly closed economies.
 
+<img class="picture" src="urbanization-g20-members.jpg">
+
+<img class="picture" src="urbanization-g20-members2.jpg">
+
 [See full ppt presentation](http://margaretmf.github.io/urbanization-g20-members.pptx).
 
 <br>
