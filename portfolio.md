@@ -6,7 +6,7 @@ layout: default
 
 ## UVA Health Care System - Predicting Severe Sepsis
 
-<object src="predicting-severe-sepsis.pps">
+<object src="predicting-severe-sepsis.ppt">
 
 <br> 
 
