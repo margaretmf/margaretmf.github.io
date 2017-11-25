@@ -50,6 +50,14 @@ See some of my code [here](https://github.com/margaretmf/Crime-Data-Project/blob
 
 <br>
 
+## DataKind DC - Foster Care Mobility Data Exploration + Random Forest
+
+In fall and winter 2017, I attended as a volunteer a DataKind DC data dive. Here I worked with Foster Care Mobility data and explored how a random forest model worked on the data. The random forest model helped us find important features, including reason children were removed from home, age children enter child services, duration in a spell, and number of placements, for predicting how stable or mobile a foster care case is.
+
+[See full ppt presentation](http://margaretmf.github.io/foster-care-mobility.pptx).
+
+<br>
+
 ## Data for Democracy - Women's Marches around the States
 
 In January 2017, after Trump became the President of the US, women came to DC to march and women marched in other cities around the states. I became interested in patterns of who marched, where people marched, and the sentiments of the marchers. I started a data project by creating a map to visualize where women marched. There is much more to work on here, as I've done further research on [women's issues and the status of women](https://statusofwomendata.org). [Here](https://github.com/margaretmf/DataForDemocracy-DataExploration/tree/master/CrowdEstimatesExploration) is where I began work to explore march-related data.
@@ -70,7 +78,7 @@ In the summer of 2016, I worked with a team to brainstorm how to provide a tool 
 
 <br>
 
-                                                          
+                                        
                   
                                                         
 
