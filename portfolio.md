@@ -28,7 +28,9 @@ I specifically worked on the [Homefire per Tract Risk Indicator](https://github.
 
 ## Clarity Campaign Labs - Free Trump Scoring for National Voters in 5 Primary States
 
-I worked to use national voter file data as well as Purpose Labs' free trump score critiera to develop maps for 5 primary states. This is a [blog](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d) that Purpose Labs wrote on the final results.
+In the spring of 2016, I spent time doing analytical work to support understanding gubernatorial and senatorial candidates and their political platforms. Most of the research done included supporting all stages of the polling process and extracting data on what voters think of candidates and issues through SQL servers from DNC, TargetSmart, and other clients.
+
+One of my final projects was a little different given the nature of the 2016 presidential primaries. I worked to use the same national voter file data as well as Purpose Labs' free trump score critiera to calculate how Trump views voters, with how much he views them as being "very good" or "very bad" and criteria coming from ways Trump talked during the debates. Using the scores I calculated, I developed maps for 5 primary states. This is a [blog](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d) that Purpose Labs wrote on the final results.
 
 <img class="picture" src="free-trump-score.jpg">
 
