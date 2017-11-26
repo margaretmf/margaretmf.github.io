@@ -18,7 +18,7 @@ July 2014 - December 2015
  
 BA in [History](http://as.virginia.edu)
 August 2010 - May 2014
-* Advisor: Sofia Rosenfeld
+* Advisor: Sophia Rosenfeld
 * Thesis: History of Children's Play in the Victorian Era
 * Relevant Classwork: Computer Science, Statistics, Calculus II, Linear Algebra, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
  
@@ -54,7 +54,7 @@ December 2015 - January 2016
 * Applied a systems methodology to support defining a problem of poor integration of workflow tools
 * Interviewed users to gather and specify project management system requirements
 * Brainstormed, tested, and designed project management system ideas, which resulted in a prototyped solution for a task management chatbot aligned with requirements
-* Presented the final solution, which enabled the firm to engineer a [workflow solution](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2)
+* Presented the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
 * Completed ISO 9001 Quality Management Systems training
  
 <br>
