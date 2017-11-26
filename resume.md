@@ -45,7 +45,7 @@ October 2016 - Present
 Analyst Fellow
 January 2016 - April 2016
 * Analyzed data on political candidates and their platform, which supported political campaign strategy development
-* Taught staff how to implement a regression analysis, which strengthened firm's research
+* Taught staff how to conduct a regression analysis, which strengthened firm's research
 * Created maps of national voter scores to support a key client, which resulted in a Medium blogpost, [What does Donald Trump think of voters in Tuesday's primary states?](https://www.linkedin.com/in/margaret-furr-1567b062/detail/treasury/position:771912109/?entityUrn=urn%3Ali%3Afs_treasuryMedia%3A(ACoAAA1Jr9IBcbODSfDhZqb7EuRSFxQYgmBHmi0%2C51163099))
  
 ### BluestoneLogic
