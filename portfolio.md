@@ -86,7 +86,9 @@ In January 2017, after Trump became the President of the US, women came to DC to
 
 ## Hack the Pay Gap - Aware
 
-In the summer of 2016, I worked with a team to brainstorm how to provide a tool to employers so that they can help to hack the pay gap. We designed and prototyped a survey analytics platform for employers to use, and we presented it at the [White House](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950#.86x).
+Addressing the gender pay gap was an initiative of the Obamas, and with US Digital Services, they led an initative to hack the pay gap. The initiatve with people in DC started off with a hack day at 1776, and then continued with a final visit to the White House in the summer of 2016.
+
+In the summer of 2016, after going to the hack day where I started applying some of my systems analysis skills learned at UVA and in a systems engineering internship, I worked with a team to brainstorm how to provide a tool to employers so that they can help to hack the pay gap. With my team I designed and prototyped a survey analytics platform for employers to use, and my team members and I persisted on working on the problem until the end, leading to our being able to present our work at the [White House](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950#.86x).
 
 <img class="picture" src="aware.jpg">
 
@@ -96,7 +98,7 @@ In the summer of 2016, I worked with a team to brainstorm how to provide a tool 
 
 ## Compass and Jubilee Jumpstart - March Research
 
-I worked on the data analysis on a strategic alignment project for Jubilee Jumpstart. I created many maps during this project. I really enjoyed using R programming language to create two maps to understand people in DC. This helped with understanding the neighborhoods to which the preschool center might be able to expand.
+As someone passionate about spatial data, I had the opportunity to work on the data analysis pieace of a strategic alignment project for Jubilee Jumpstart as the nonprofit explored expanding. I created many maps during this project. I really enjoyed using the R programming language to create two maps to understand people in DC. This helped with understanding the neighborhoods to which the preschool center might be able to expand.
 
 <img class="picture" src="jubilee-jumpstart-dc-market.jpg">
 
