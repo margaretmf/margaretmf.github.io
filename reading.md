@@ -28,4 +28,5 @@ layout: default
 * [Data Quality in the era of A.I.: How to establish high quality data stores and processing pipelines](https://towardsdatascience.com/data-quality-in-the-era-of-a-i-d8e398a91bef) by George Krasadakis
 * [Day of Data analyzes role of data in society](https://yaledailynews.com/blog/2017/12/04/day-of-data-analyzes-role-of-data-in-society/) by Amy Xiong
 * [Three Marks Of Real Data Science](https://techcrunch.com/2014/09/06/three-marks-of-real-data-science/) by Michael Howard
+
 <br>
