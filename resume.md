@@ -31,7 +31,7 @@ Data Analyst
 April 2016 - Present
 * Clustering data
 * Using a statistical approach to creating high quality educational assessments
-* Streamlining reporting processes with R functions and packages
+* Streamlining reporting processes by writing R functions and packages
 * Developing quantiative insights for white papers
 * Enjoying work with engineers
  
