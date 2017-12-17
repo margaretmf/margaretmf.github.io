@@ -5,7 +5,6 @@ layout: default
 ## 2017
 
 ### Books
-
 * [The Information: A History, A Theory, A Flood](https://www.amazon.com/Information-History-Theory-Flood/dp/1400096235) by James Gleick
 * [Sensemaking: The Power of the Humanities in the Age of the Algorithm](https://www.amazon.com/Sensemaking-Power-Humanities-Age-Algorithm/dp/031639324X) by Christian Madsbjerg
 * [The Fuzzy and the Techie: Why the Liberal Arts Will Rule the Digital World](https://www.amazon.com/Fuzzy-Techie-Liberal-Digital-World/dp/0544944771/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=22V0FMC7ZMQAYA7X3D27) by Scott Hartley 
@@ -13,6 +12,9 @@ layout: default
 * [Algorithms to Live By: The Computer Science of Human Decisions](https://www.amazon.com/Algorithms-Live-Computer-Science-Decisions/dp/1627790365) by Brian Christian and Tom Griffiths
 * [The Moment of Clarity: Using the Human Sciences to Solve Your Toughest Problems](https://www.amazon.com/Moment-Clarity-Sciences-Toughest-Business/dp/1422191907) by Mikkel B. Rasmussen
 * [The Master Switch: The Rise and Fall of Information Empires](https://www.amazon.com/Master-Switch-Rise-Information-Empires/dp/0307390993) by Tim Wu
+* [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315) by Daniel J. Levitin
+* [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
+* [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
 
 ### Online Articles
