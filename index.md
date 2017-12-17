@@ -26,7 +26,7 @@ Quantifying, modeling, structuring, ideating, strategizing, integrating, humaniz
 
 Data Science: classification, regression, clustering, feature engineering, social network analysis, geospatial analysis, survey analysis, natural language processing, hypothesis testing and confidence intervals, principal component analysis and dimensionality reduction, systems analysis, business analysis; familiar with time series analysis and probabilistic record linkage
 
-Software and Programming Languages: R (primary), Python (want to be primary), SQL, ArcGIS, QGIS, Tableau, Periscope; familiar with MapReduce, AWS, linux, Java, SAS
+Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, SQL, ArcGIS, QGIS, Tableau, Periscope; familiar with MapReduce, AWS, linux, Java, SAS
 
 Consulting: cross-functional teamwork, knowledge management, strategic alignment, facilitation, requirements gathering, interviewing, international teamwork, report writing
 
