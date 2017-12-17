@@ -14,6 +14,6 @@ After saving the json file linked to the maps of [metro station entrances](https
 
 <img class="picture" src="where-are-the-metro-stations-code.jpg">
 
-Now our team has data to answer the question, "where are the DC metro stations?".
+Now our team has [data](https://github.com/margaretmf/DCMetros) to answer the question, "where are the DC metro stations?".
 
 <br>
