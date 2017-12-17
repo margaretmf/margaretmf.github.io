@@ -12,6 +12,7 @@ layout: default
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Algorithms to Live By: The Computer Science of Human Decisions](https://www.amazon.com/Algorithms-Live-Computer-Science-Decisions/dp/1627790365) by Brian Christian and Tom Griffiths
 * [The Moment of Clarity: Using the Human Sciences to Solve Your Toughest Problems](https://www.amazon.com/Moment-Clarity-Sciences-Toughest-Business/dp/1422191907) by Mikkel B. Rasmussen
+* [The Master Switch: The Rise and Fall of Information Empires](https://www.amazon.com/Master-Switch-Rise-Information-Empires/dp/0307390993) by Tim Wu
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
 
 ### Online Articles
@@ -26,7 +27,6 @@ layout: default
 * [Why can’t San Francisco’s tech culture solve the city’s social problems?](https://www.ft.com/content/262e2b2c-d423-11e7-8c9a-d9c0a5c8d5c9) by Tom Braithwaite 
 * [Tools for Systems Thinkers: Designing circular systems](https://medium.com/disruptive-design/tools-for-systems-thinkers-designing-circular-systems-2c54cbf9cb43) by Leyla Acaroglu
 * [Data Quality in the era of A.I.: How to establish high quality data stores and processing pipelines](https://towardsdatascience.com/data-quality-in-the-era-of-a-i-d8e398a91bef) by George Krasadakis
-* [Day of data analyzes role of data in society](https://yaledailynews.com/blog/2017/12/04/day-of-data-analyzes-role-of-data-in-society/) by Amy Xiong
 * [Three marks Of real data science](https://techcrunch.com/2014/09/06/three-marks-of-real-data-science/) by Michael Howard
 * [AI is now so complex its creators can’t trust why it makes decisions](https://qz.com/1146753/ai-is-now-so-complex-its-creators-cant-trust-why-it-makes-decisions/) by Dave Gershgorn
 
