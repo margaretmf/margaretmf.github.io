@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## BLOG
-In this blog, I want to start sharing my journey through [the age of the algorithm](https://www.ipsos.com/sites/default/files/2017-06/Ipsos_Connect_The_Age_of_the_Algorithm_June_2017.pdf) and take the time publish some of the ways in which I work with data in my day to day life.
+In this blog, I want to start sharing my journey through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/) and take the time publish some of the ways in which I work with data in my day to day life.
 
 ### Where are the metro stations? 
 With [Compass Pro Bono](http://compassprobono.org), I'm working on another strategic alignment project to support an adjustment in [Homeless Children's Playtime Project's](https://www.playtimeproject.org) services, operations, and locations, as they move to new sites. One way I'm supporting the project is by collecting and analyzing data in a way that informs the organiation as the nonprofit make adjustments. 
