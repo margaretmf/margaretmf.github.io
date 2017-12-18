@@ -18,6 +18,7 @@ First, I import [tweepy](http://www.tweepy.org), a Python module/library that su
 <img class="picture" src="getting-tweets.jpg">
 
 Some examples of the tweets in the csv file written out are the following: 
+
 <br>
 (1) "RT @dpatil: This is what I mean when I say data scientists are the new first responders -- new tech to help those in need and augment the t‰Û_"
 <br>
@@ -31,14 +32,24 @@ Some examples of the tweets in the csv file written out are the following:
 <br>
 (6) "studying the humanities is necessary - we need both stem and humanities to be strong thinkers in 21st c. #highered http://t.co/64gyoZBCMR"
 <br>
+
 3 of the tese are retweets, and 3 of them are tweets.
 
 With all 2,529 datapoints, I have some questions: 
+
+<br>
 (1) how many of the tweets are retweets? 
+<br>
 (2) what are patterns in twitter behavior over time? 
+<br>
 (3) what is the most likely time that I'll next tweet? 
+<br>
 (4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
+<br>
+
 These are all questions I'd like to answer over the next few weeks.
+
+<br>
 
 
 ### Where are the metro stations? (written on 12/16/2017)
