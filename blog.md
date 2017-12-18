@@ -18,12 +18,19 @@ First, I import [tweepy](http://www.tweepy.org), a Python module/library that su
 <img class="picture" src="getting-tweets.jpg">
 
 Some examples of the tweets in the csv file written out are the following: 
+<br>
 (1) "RT @dpatil: This is what I mean when I say data scientists are the new first responders -- new tech to help those in need and augment the t‰Û_"
+<br>
 (2) "RT @UVADSI: Data scientists are changing the nature of employment, and the meaning of employability @ftdata https://t.co/WFl2tKCWnG"
+<br>
 (3)"I published some #thoughts &amp; #questions "My Journey from History to Data Science‰Û https://t.co/Sh9rzqOONC #Humanity #Data #Tech #Kindness"
+<br>
 (4) "#Year2017 love life, and life will love you back"
+<br>
 (5) "RT @HillaryClinton: ‰ÛÏWay too many dreams die in the parking lots of banks. In America, if you can dream it, you should be able to do it.‰Û ‰ÛÓ‰Û_"
+<br>
 (6) "studying the humanities is necessary - we need both stem and humanities to be strong thinkers in 21st c. #highered http://t.co/64gyoZBCMR"
+<br>
 3 of the tese are retweets, and 3 of them are tweets.
 
 With all 2,529 datapoints, I have some questions: 
