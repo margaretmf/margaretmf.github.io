@@ -12,7 +12,6 @@ Today, I started out by collecting and storing my twitter data.
 
 First, I import [tweepy](http://www.tweepy.org), a Python module/library that supports gaining access to twitter data. I use a function defined by someone else online, shared on [git](https://gist.github.com/yanofsky/5436496), and pull the most recent data and am able to pull over 2,529 going back to February 22, 2015.
 
-<img class="picture" src="@megmfurr-tweets-import-libraries.jpg">
 <img class="picture" src="get-all-tweets.jpg">
 <img class="picture" src="getting-tweets.jpg">
 
