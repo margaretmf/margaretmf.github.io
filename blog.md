@@ -13,7 +13,6 @@ Today, I started out by collecting and storing my twitter data.
 First, I import [tweepy](http://www.tweepy.org), a Python module/library that supports gaining access to twitter data. I use a function defined by someone else online, shared on [git](https://gist.github.com/yanofsky/5436496), and pull the most recent data and am able to pull over 2,529 going back to February 22, 2015.
 
 <img class="picture" src="get-all-tweets.jpg">
-<img class="picture" src="getting-tweets.jpg">
 
 With this data, I have some questions: (1) how my tweets are retweets? (2) what are patterns in twitter behavior over time? (3) what is the most likely time that I'll next tweet? (4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? These are all questions I'd like to answer over the next few weeks.
 
