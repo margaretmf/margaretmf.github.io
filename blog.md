@@ -5,8 +5,10 @@ layout: default
 ## BLOG
 In this blog, I want to start sharing my journey through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/) and take the time to publish some of the ways in which I work with data in my day to day life.
 
+<br>
+
 ### What have I been tweeting? (written on 12/17/2017)
-I've been [tweeting](https://twitter.com/megmfurr) since February 2015 when I was in [UVA's Data Science Institute](https://dsi.virginia.edu) when the Rolling Stone article was published. Recently, with my twitter data, I've been wanting to do data science work.
+I've been [tweeting](https://twitter.com/megmfurr) since February 2015 when I was in [UVA's Data Science Institute](https://dsi.virginia.edu). Recently, with my twitter data, I've been wanting to do data science work.
 
 Today, I started out by collecting and storing my twitter data.
 
@@ -15,7 +17,7 @@ First, I import [tweepy](http://www.tweepy.org), a Python module/library that su
 <img class="picture" src="get-all-tweets.jpg">
 <img class="picture" src="getting-tweets.jpg">
 
-With this data, I have some questions: (1) how my tweets are retweets? (2) what are patterns in twitter behavior over time? (3) what is the most likely time that I'll next tweet? (4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? These are all questions I'd like to answer over the next few weeks.
+With this data, I have some questions: (1) how many of the tweets are retweets? (2) what are patterns in twitter behavior over time? (3) what is the most likely time that I'll next tweet? (4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? These are all questions I'd like to answer over the next few weeks.
 
 
 ### Where are the metro stations? (written on 12/16/2017)
