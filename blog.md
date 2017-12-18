@@ -26,7 +26,12 @@ Some examples of the tweets in the csv file written out are the following:
 (6) "studying the humanities is necessary - we need both stem and humanities to be strong thinkers in 21st c. #highered http://t.co/64gyoZBCMR"
 3 of the tese are retweets, and 3 of them are tweets.
 
-With all 2,529 datapoints, I have some questions: (1) how many of the tweets are retweets? (2) what are patterns in twitter behavior over time? (3) what is the most likely time that I'll next tweet? (4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? These are all questions I'd like to answer over the next few weeks.
+With all 2,529 datapoints, I have some questions: 
+(1) how many of the tweets are retweets? 
+(2) what are patterns in twitter behavior over time? 
+(3) what is the most likely time that I'll next tweet? 
+(4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
+These are all questions I'd like to answer over the next few weeks.
 
 
 ### Where are the metro stations? (written on 12/16/2017)
