@@ -127,7 +127,7 @@ In the summer of 2016, after going to the hack day where I started applying some
 
 <br>
 
-## Compass and Jubilee Jumpstart - March Research
+## Compass and Jubilee Jumpstart - Resarch
 
 As someone passionate about spatial data, I had the opportunity to work on the data analysis pieace of a strategic alignment project for Jubilee Jumpstart as the nonprofit explored expanding. I created many maps during this project. I really enjoyed using the R programming language to create two maps to understand people in DC. This helped with understanding the neighborhoods to which the preschool center might be able to expand.
 
