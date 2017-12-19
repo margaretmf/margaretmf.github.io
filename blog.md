@@ -33,7 +33,7 @@ Some examples of the tweets in the csv file written out are the following:
 (6) "studying the humanities is necessary - we need both stem and humanities to be strong thinkers in 21st c. #highered http://t.co/64gyoZBCMR"
 <br>
 
-3 of the tese are retweets, and 3 of them are tweets.
+3 of the these are retweets, and 3 of them are tweets.
 
 With all 2,529 datapoints, I have some questions: 
 
