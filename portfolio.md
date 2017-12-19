@@ -30,9 +30,9 @@ I worked heavily on the logistic regression and random forest models after split
 I worked on a team of 50 volunteers using 
 
 <br> 
-(1) open data from the American Community Survey and the American Housing Survey
-(2) data aggregated and collected by the Enigma smoke-signals project
-(3) data from the National Fire Incident Reporting System
+(1) open data from the American Community Survey and the American Housing Survey,
+(2) data aggregated and collected by the Enigma smoke-signals project,
+(3) data from the National Fire Incident Reporting System,
 and (4) Red Cross home fire preparedness and response data, to help build this tool for identifying high-risk areas in cities and towns across the United States. 
 <br>
 
@@ -72,9 +72,22 @@ See some of my code [here](https://github.com/margaretmf/Crime-Data-Project/blob
 
 # UVA Computer Science Class - Urbanization in G20 Members
 
-The World Bank has as Development Indicators database from 2010. Using Python and SQL, I was able with a team to answer 4 questions: (1) how does urbanization increase or decrease with economic development? (2) how does urbanization increase or decrease with labor structure? (3) how does urbanization increase or decrease with power consumption? (4) how does urbanization increase or decrease with trade openness?
+The World Bank has as Development Indicators database from 2010. Using Python and SQL, I was able with a team to answer 4 questions: 
 
-To answer such questions, I created tables using data from the database using a sql connector in [Python](https://github.com/margaretmf/Classwork/blob/master/G20.py). Conclusions from the analysis are that (1) high urbanization shows stronger economic development, (2) high urbanization leads to a labor structure heavy in service employment, (3) high urbanization shows more power usage, and (4) high urbanization is associated with highly closed economies.
+<br>
+(1) how does urbanization increase or decrease with economic development? 
+(2) how does urbanization increase or decrease with labor structure? 
+(3) how does urbanization increase or decrease with power consumption? 
+(4) how does urbanization increase or decrease with trade openness?
+<br>
+
+To answer such questions, I created tables using data from the database using a sql connector in [Python](https://github.com/margaretmf/Classwork/blob/master/G20.py). Conclusions from the analysis are that 
+
+<br>
+(1) high urbanization shows stronger economic development, 
+(2) high urbanization leads to a labor structure heavy in service employment, 
+(3) high urbanization shows more power usage, and 
+(4) high urbanization is associated with highly closed economies.
 
 <img class="picture" src="urbanization-g20-members.jpg">
 
