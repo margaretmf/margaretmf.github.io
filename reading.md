@@ -31,5 +31,6 @@ layout: default
 * [Data Quality in the era of A.I.: How to establish high quality data stores and processing pipelines](https://towardsdatascience.com/data-quality-in-the-era-of-a-i-d8e398a91bef) by George Krasadakis
 * [Three marks Of real data science](https://techcrunch.com/2014/09/06/three-marks-of-real-data-science/) by Michael Howard
 * [AI is now so complex its creators can’t trust why it makes decisions](https://qz.com/1146753/ai-is-now-so-complex-its-creators-cant-trust-why-it-makes-decisions/) by Dave Gershgorn
+* [How Aristotle created the computer: The philosophers he influenced set the stage for the technological revolution that remade our world](https://www.theatlantic.com/technology/archive/2017/03/aristotle-computer/518697/) by Chris Dixon
 
 <br>
