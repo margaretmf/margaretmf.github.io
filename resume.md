@@ -29,7 +29,7 @@ August 2010 - May 2014
 ### EVERFI
 Data Analyst
 April 2016 - Present
-* Clustering data
+* Clustering data, evaluating clusters with validation metrics, and characterizing clusters
 * Using a statistical approach to creating high quality educational assessments
 * Streamlining reporting processes by writing R functions and packages
 * Developing quantiative insights for white papers
