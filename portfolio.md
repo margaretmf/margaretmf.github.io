@@ -19,7 +19,7 @@ These models can be applied in a clinical setting to support helping patients th
 
 I worked heavily on the logistic regression and random forest models after splitting the data into a control cohort and a target cohort and working on feature selection. I also supported applying a cross-validation on the models and evaluation approaches with 5 metrics: Sensitivity, specificity, PPV, NPV, and AUC. Some of my code for the project is [here](https://github.com/margaretmf/Classwork/blob/master/ControlGroup.R), where I create the control group, and [here](https://github.com/margaretmf/Classwork/blob/master/LMT.R), where I work on the logistic model tree. 
 
-[See full ppt presentation](http://margaretmf.github.io/predicting-severe-sepsis.pptx).
+Download full ppt presentation [here](http://margaretmf.github.io/predicting-severe-sepsis.pptx).
 
 <img class="picture" src="predicting-severe-sepsis.jpg">
 
@@ -93,7 +93,7 @@ To answer such questions, I created tables using data from the database using a 
 
 <img class="picture" src="urbanization-g20-members2.jpg">
 
-[See full ppt presentation](http://margaretmf.github.io/urbanization-g20-members.pptx).
+Download full ppt presentation [here](http://margaretmf.github.io/urbanization-g20-members.pptx).
 
 <br>
 
@@ -101,7 +101,7 @@ To answer such questions, I created tables using data from the database using a 
 
 In fall and winter 2017, I attended as a volunteer a DataKind DC data dive. Here I worked with Foster Care Mobility data and explored how a random forest model worked on the data. The random forest model helped us find important features, including reason children were removed from home, age children enter child services, duration in a spell, and number of placements, for predicting how stable or mobile a foster care case is.
 
-[See full ppt presentation](http://margaretmf.github.io/foster-care-mobility.pptx).
+Download full ppt presentation [here](http://margaretmf.github.io/foster-care-mobility.pptx).
 
 <br>
 
@@ -123,7 +123,7 @@ In the summer of 2016, after going to the hack day where I started applying some
 
 <img class="picture" src="aware.jpg">
 
-[See pitch deck ppt presentation](http://margaretmf.github.io/aware.pptx).
+Download pitch deck ppt presentation [here](http://margaretmf.github.io/aware.pptx).
 
 <br>
 
