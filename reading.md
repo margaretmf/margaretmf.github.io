@@ -15,6 +15,7 @@ layout: default
 * [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315) by Daniel J. Levitin
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
+* [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
 
 ### Online Articles
@@ -32,5 +33,10 @@ layout: default
 * [Three marks Of real data science](https://techcrunch.com/2014/09/06/three-marks-of-real-data-science/) by Michael Howard
 * [AI is now so complex its creators can’t trust why it makes decisions](https://qz.com/1146753/ai-is-now-so-complex-its-creators-cant-trust-why-it-makes-decisions/) by Dave Gershgorn
 * [How Aristotle created the computer: The philosophers he influenced set the stage for the technological revolution that remade our world](https://www.theatlantic.com/technology/archive/2017/03/aristotle-computer/518697/) by Chris Dixon
+* [Machine-learning system finds patterns in materials 'recipes,' even when training data is lacking](https://techxplore.com/news/2017-12-machine-learning-patterns-materials-recipes-lacking.html) by Larry Hardesty
+* [5G will enable a new era of opportunity, says David Bader](https://blogs.timesofindia.indiatimes.com/breaking-shackles/5g-will-enable-a-new-era-of-opportunity-says-david-bader/) by Dr. Deepak Garg
+* [Data Science Must Work In Concert With Human Professionals](http://www.huffingtonpost.co.uk/entry/data-science-must-work-in-concert-with-human-professionals_uk_5a3cc922e4b025f99e162ce4) by Michael Sanders
+* [‘Bit by Bit’: Author discusses new book on social science research in era of big data](https://www.insidehighered.com/news/2017/12/22/author-discusses-new-book-social-science-research-era-big-data) by Lindsay McKenzie
+
 
 <br>
