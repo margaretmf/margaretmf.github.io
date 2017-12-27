@@ -45,5 +45,6 @@ layout: default
 * [Data mining and the discourse on discrimination[ (https://dataethics.github.io/proceedings/DataMiningandtheDiscourseOnDiscrimination.pdf) by Solon Barocas
 * [A non-programming introduction to computer science via NLP, IR, and AI](http://www.cs.cornell.edu/home/llee/papers/cs172.pdf) by Lillian Lee
 * [Tie-breaker: Using language models to quantify gender bias in sports journalism](http://www.cs.cornell.edu/~liye/tennis.html) by Liye Fu, Cristian Danescu-Niculescu-Mizil, and Lillian Lee
+* [Where are human subjects in big data research? The emerging ethics divide](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2779647) by Jacob Metcalf, Kate Crawford
 
 <br>
