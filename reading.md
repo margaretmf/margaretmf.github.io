@@ -2,18 +2,6 @@
 layout: default
 ---
 
-## 2017
-
-### Academic Works
-* [Machine learning and demcocracy: some problems in collective decision-making](http://istec.colostate.edu/pdf/activities/distinguished_lectures/Distinguished-Lecture-Sanjeev-Kulkarni.pdf) by Tiance Wang, Paul Cuff
-* [Discrimination by database](https://cyber.jotwell.com/discrimination-by-database/) by Solon Barocas & Andrew D. Selbst
-* [Data and discrimination: collected essays](https://s3.amazonaws.com/www.newamerica.org/downloads/OTI-Data-an-Discrimination-FINAL-small.pdf) edited by Seeta Pena Gangadharan with Virginia Eubanks and Solon Barocas
-* [Governing algorithms](http://governingalgorithms.org)
-* [The price of precision: voter microtargeting and its potential harms to the democratic process](https://dl.acm.org/citation.cfm?doid=2389661.2389671) by Solon Barocas
-* [Data mining and the discourse on discrimination[ (https://dataethics.github.io/proceedings/DataMiningandtheDiscourseOnDiscrimination.pdf) by Solon Barocas
-* [A non-programming introduction to computer science via NLP, IR, and AI](http://www.cs.cornell.edu/home/llee/papers/cs172.pdf) by Lillian Lee
-* [Tie-breaker: Using language models to quantify gender bias in sports journalism](http://www.cs.cornell.edu/~liye/tennis.html) by Liye Fu, Cristian Danescu-Niculescu-Mizil, and Lillian Lee
-
 ### Books
 * [The Information: A History, A Theory, A Flood](https://www.amazon.com/Information-History-Theory-Flood/dp/1400096235) by James Gleick
 * [Sensemaking: The Power of the Humanities in the Age of the Algorithm](https://www.amazon.com/Sensemaking-Power-Humanities-Age-Algorithm/dp/031639324X) by Christian Madsbjerg
@@ -48,5 +36,14 @@ layout: default
 * [Data Science Must Work In Concert With Human Professionals](http://www.huffingtonpost.co.uk/entry/data-science-must-work-in-concert-with-human-professionals_uk_5a3cc922e4b025f99e162ce4) by Michael Sanders
 * [‘Bit by Bit’: Author discusses new book on social science research in era of big data](https://www.insidehighered.com/news/2017/12/22/author-discusses-new-book-social-science-research-era-big-data) by Lindsay McKenzie
 
+### Academic Works
+* [Machine learning and demcocracy: some problems in collective decision-making](http://istec.colostate.edu/pdf/activities/distinguished_lectures/Distinguished-Lecture-Sanjeev-Kulkarni.pdf) by Tiance Wang, Paul Cuff
+* [Discrimination by database](https://cyber.jotwell.com/discrimination-by-database/) by Solon Barocas & Andrew D. Selbst
+* [Data and discrimination: collected essays](https://s3.amazonaws.com/www.newamerica.org/downloads/OTI-Data-an-Discrimination-FINAL-small.pdf) edited by Seeta Pena Gangadharan with Virginia Eubanks and Solon Barocas
+* [Governing algorithms](http://governingalgorithms.org)
+* [The price of precision: voter microtargeting and its potential harms to the democratic process](https://dl.acm.org/citation.cfm?doid=2389661.2389671) by Solon Barocas
+* [Data mining and the discourse on discrimination[ (https://dataethics.github.io/proceedings/DataMiningandtheDiscourseOnDiscrimination.pdf) by Solon Barocas
+* [A non-programming introduction to computer science via NLP, IR, and AI](http://www.cs.cornell.edu/home/llee/papers/cs172.pdf) by Lillian Lee
+* [Tie-breaker: Using language models to quantify gender bias in sports journalism](http://www.cs.cornell.edu/~liye/tennis.html) by Liye Fu, Cristian Danescu-Niculescu-Mizil, and Lillian Lee
 
 <br>
