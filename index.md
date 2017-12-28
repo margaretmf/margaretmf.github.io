@@ -26,9 +26,9 @@ Quantifying, modeling, structuring, ideating, strategizing, integrating, humaniz
 
 Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, natural language processing, systems analysis, business analysis; familiar with time series analysis and interested in probabilistic record linkage
 
-Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, SQL, ArcGIS, QGIS, Tableau, Periscope; familiar with MapReduce, AWS, linux, Java, SAS
+Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Tableau, Periscope, Git/Github; familiar with MapReduce, AWS, linux, Java, SAS
 
-Soft: cross-functional teamwork, knowledge management, strategic alignment, facilitation, requirements gathering, interviewing, international teamwork, report writing
+Soft: cross-functional teamwork, knowledge management, strategic alignment, facilitation, requirements gathering, interviewing, international teamwork, report writing; familiar with Spanish language
 
 <br>
 
