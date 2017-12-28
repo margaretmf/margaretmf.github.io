@@ -51,7 +51,7 @@ January 2016 - April 2016
 ### BluestoneLogic
 Systems Analyst and Designer Intern
 December 2015 - January 2016
-* Applied a systems methodology to support defining a problem of poor integration of workflow tools
+* Applied a systems methodology based in MECE principles to support defining a problem of poor integration of workflow tools
 * Interviewed users to gather and specify project management system requirements
 * Brainstormed, tested, and designed project management system ideas, which resulted in a prototyped solution for a task management chatbot aligned with requirements
 * Presented the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
