@@ -1,20 +1,26 @@
 ---
 layout: default
 ---
+
+## 2018
+
+### Books
+* [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
+* [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
+* [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
+* [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
+* [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
+
 ## 2017 
 
 ### Books
 * [The Information: A History, A Theory, A Flood](https://www.amazon.com/Information-History-Theory-Flood/dp/1400096235) by James Gleick
 * [Sensemaking: The Power of the Humanities in the Age of the Algorithm](https://www.amazon.com/Sensemaking-Power-Humanities-Age-Algorithm/dp/031639324X) by Christian Madsbjerg
 * [The Fuzzy and the Techie: Why the Liberal Arts Will Rule the Digital World](https://www.amazon.com/Fuzzy-Techie-Liberal-Digital-World/dp/0544944771/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=22V0FMC7ZMQAYA7X3D27) by Scott Hartley 
-* [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Algorithms to Live By: The Computer Science of Human Decisions](https://www.amazon.com/Algorithms-Live-Computer-Science-Decisions/dp/1627790365) by Brian Christian and Tom Griffiths
 * [The Moment of Clarity: Using the Human Sciences to Solve Your Toughest Problems](https://www.amazon.com/Moment-Clarity-Sciences-Toughest-Business/dp/1422191907) by Mikkel B. Rasmussen
 * [The Master Switch: The Rise and Fall of Information Empires](https://www.amazon.com/Master-Switch-Rise-Information-Empires/dp/0307390993) by Tim Wu
 * [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315) by Daniel J. Levitin
-* [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
-* [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
-* [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
 
 ### Online Articles
@@ -38,14 +44,18 @@ layout: default
 * [‘Bit by Bit’: Author discusses new book on social science research in era of big data](https://www.insidehighered.com/news/2017/12/22/author-discusses-new-book-social-science-research-era-big-data) by Lindsay McKenzie
 
 ### Academic Works
-* [Machine learning and demcocracy: some problems in collective decision-making](http://istec.colostate.edu/pdf/activities/distinguished_lectures/Distinguished-Lecture-Sanjeev-Kulkarni.pdf) by Tiance Wang, Paul Cuff
-* [Discrimination by database](https://cyber.jotwell.com/discrimination-by-database/) by Solon Barocas & Andrew D. Selbst
+* [Machine learning and demcocracy: some problems in collective decision-making](http://istec.colostate.edu/pdf/activities/distinguished_lectures/Distinguished-Lecture-Sanjeev-Kulkarni.pdf) by Tiance Wang and Paul Cuff
+* [Discrimination by database](https://cyber.jotwell.com/discrimination-by-database/) by Solon Barocas and Andrew D. Selbst
 * [Data and discrimination: collected essays](https://s3.amazonaws.com/www.newamerica.org/downloads/OTI-Data-an-Discrimination-FINAL-small.pdf) edited by Seeta Pena Gangadharan with Virginia Eubanks and Solon Barocas
 * [Governing algorithms](http://governingalgorithms.org)
 * [The price of precision: voter microtargeting and its potential harms to the democratic process](https://dl.acm.org/citation.cfm?doid=2389661.2389671) by Solon Barocas
 * [Data mining and the discourse on discrimination](https://dataethics.github.io/proceedings/DataMiningandtheDiscourseOnDiscrimination.pdf) by Solon Barocas
 * [A non-programming introduction to computer science via NLP, IR, and AI](http://www.cs.cornell.edu/home/llee/papers/cs172.pdf) by Lillian Lee
 * [Tie-breaker: Using language models to quantify gender bias in sports journalism](http://www.cs.cornell.edu/~liye/tennis.html) by Liye Fu, Cristian Danescu-Niculescu-Mizil, and Lillian Lee
-* [Where are human subjects in big data research? The emerging ethics divide](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2779647) by Jacob Metcalf, Kate Crawford
+* [Where are human subjects in big data research? The emerging ethics divide](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2779647) by Jacob Metcalf and Kate Crawford
+* [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
+* [A path to understanding the effects of algorithm awareness](http://social.cs.uiuc.edu/papers/pdfs/paper188.pdf) by Kevin Hamilton, Karrie Karahalios, Christian Sandvig, and Motahhare Eslami
+* [Situating methods in the magic of big data and artificial intelligence](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=3040201) by M. C. Elish and danah boyd
+* [The rise of the social algorithm](http://science.sciencemag.org/content/348/6239/1090) by David Lazer
 
 <br>
