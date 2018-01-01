@@ -42,5 +42,6 @@ layout: default
 * [5G will enable a new era of opportunity, says David Bader](https://blogs.timesofindia.indiatimes.com/breaking-shackles/5g-will-enable-a-new-era-of-opportunity-says-david-bader/) by Dr. Deepak Garg
 * [Data Science Must Work In Concert With Human Professionals](http://www.huffingtonpost.co.uk/entry/data-science-must-work-in-concert-with-human-professionals_uk_5a3cc922e4b025f99e162ce4) by Michael Sanders
 * [‘Bit by Bit’: Author discusses new book on social science research in era of big data](https://www.insidehighered.com/news/2017/12/22/author-discusses-new-book-social-science-research-era-big-data) by Lindsay McKenzie
+* [The 3 things about data you probably don’t know, but need to](https://towardsdatascience.com/the-3-things-about-data-you-probably-dont-know-but-need-to-9a316060eb2f) by Greg Satell
 
 <br>
