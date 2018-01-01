@@ -32,6 +32,7 @@ Some examples of the tweets in the csv file written out are the following:
 (6) "studying the humanities is necessary - we need both stem and humanities to be strong thinkers in 21st c. #highered http://t.co/64gyoZBCMR"
 <br>
 
+
 3 of the these are retweets, and 3 of them are tweets.
 <br> 
 
@@ -39,6 +40,7 @@ With all 2,529 datapoints, I have begun to answer some questions:
 * Roughly 2/3 of the tweets are retweets (1,633 are and 895 are not)
 * 438 have something to do with #DataScience, and roughly 3/4 of them are retweets
 <br>
+
 
 Though, I over the next few weeks I hope still to answer some other questions:
 <br>
