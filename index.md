@@ -24,7 +24,7 @@ Quantifying, modeling, structuring, ideating, strategizing, integrating, humaniz
 
 ## Skills
 
-Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, natural language processing, systems analysis, business analysis; familiar with time series analysis and interested in probabilistic record linkage
+Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, natural language processing, systems analysis, business analysis; familiar with time series analysis and interested in probabilistic record linkage and information integration
 
 Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Tableau, Periscope, Git/Github; familiar with MapReduce, AWS, linux, Java, SAS
 
