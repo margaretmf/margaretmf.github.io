@@ -18,8 +18,6 @@ First, I import [tweepy](http://www.tweepy.org), a Python module/library that su
 <img class="picture" src="getting-tweets.jpg">
 
 Some examples of the tweets in the csv file written out are the following: 
-
-<br>
 (1) "RT @dpatil: This is what I mean when I say data scientists are the new first responders -- new tech to help those in need and augment the t‰Û_"
 <br>
 (2) "RT @UVADSI: Data scientists are changing the nature of employment, and the meaning of employability @ftdata https://t.co/WFl2tKCWnG"
@@ -37,15 +35,12 @@ Some examples of the tweets in the csv file written out are the following:
 <br> 
 
 With all 2,529 datapoints, I have begun to answer some questions: 
-<br>
 * Roughly 2/3 of the tweets are retweets (1,633 are and 895 are not)
 * 438 have something to do with #DataScience, and roughly 3/4 of them are retweets
 
 <br>
 
 Though, I over the next few weeks I hope still to answer some other questions:
-
-<br>
 (1) what are patterns in twitter behavior over time? 
 <br>
 (2) how likely is my next tweet or retweet going to have anything to do with #DataScience?
