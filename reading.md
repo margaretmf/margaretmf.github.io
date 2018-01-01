@@ -17,6 +17,8 @@ layout: default
 * [AI is all hype if we don't have access to the right data](https://business.newsfactor.com/news/story.xhtml?story_id=103001SWUL04) by 
 * [Women of Washington: Data science and machine learning in government](https://federalnewsradio.com/sponsored-content/2017/08/women-of-washington-data-science-and-machine-learning-in-government/slide/1/) by Steff Thomas
 * [Creating a better economy with data science](https://ssir.org/articles/entry/creating_a_better_economy_with_data_science) by Martin Whittaker and Tianhui Michael Li 
+* [Big data lessons from Netflix](https://www.wired.com/insights/2014/03/big-data-lessons-netflix/) by Phil Simon
+* [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza and Kendra L. Smith 
 
 ## 2017 
 
