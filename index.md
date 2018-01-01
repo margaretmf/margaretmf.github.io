@@ -24,7 +24,7 @@ Quantifying, modeling, structuring, ideating, strategizing, integrating, humaniz
 
 ## Skills
 
-Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, natural language processing, systems analysis, business analysis; familiar with time series analysis and interested in probabilistic record linkage and information integration
+Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, natural language processing, systems analysis, business analysis; familiar with time series analysis and interested in probabilistic record linkage 
 
 Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Tableau, Periscope, Git/Github; familiar with MapReduce, AWS, linux, Java, SAS
 
@@ -34,7 +34,7 @@ Soft: cross-functional teamwork, knowledge management, strategic alignment, faci
 
 ## Interests
 
-digital ecosystems, interactions between technology and humans, participatory design, systems design, financial services, the future of higher ed, public infrastructure, urban analytics, impact investing, sustainable development goals, effective information flow, learning organizations, theory of emergence, tech policy, network science, creative process, future of work and learning, STEM & empathy, data and tech strategies for social innovation
+digital ecosystems, interactions between technology and humans, participatory design, systems design, financial services, the future of higher ed, public infrastructure, urban analytics, impact investing, sustainable development goals, effective information flow, learning organizations, theory of emergence, tech policy, network science, creative process, future of work and learning, STEM & empathy, data and tech strategies for social innovation, information integration, metadata best practices
 
 <br>
 
