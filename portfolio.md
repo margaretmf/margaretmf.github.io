@@ -48,7 +48,7 @@ I specifically worked on the [Homefire per Tract Risk Indicator](https://github.
 
 In the spring of 2016, I spent time doing analytical work to support understanding gubernatorial and senatorial candidates and their political platforms. Most of the research done included supporting all stages of the polling process and extracting data on what voters think of candidates and issues through SQL servers from DNC, TargetSmart, and other clients.
 
-One of my final projects was a little different given the nature of the 2016 presidential primaries. I worked to use the same national voter file data as well as Purpose Labs' free trump score critiera to calculate how Trump views voters, with how much he views them as being "very good" or "very bad" and criteria coming from ways Trump talked during the debates. Using the scores I calculated, I developed maps for 5 primary states. This is a [blog](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d) that Purpose Labs wrote on the final results.
+One of my final projects was a little different given the nature of the 2016 presidential primaries. I worked to use the same national voter file data as well as Purpose Labs' free trump score critiera to calculate how Trump views voters, with how he views them being on a scale between "very good" and "very bad" and with criteria coming from ways Trump talked during the debates. Using the scores I calculated, I developed maps for 5 primary states. This is a [blog](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d) that Purpose Labs wrote on the final results.
 
 <img class="picture" src="free-trump-score.jpg">
 
@@ -56,7 +56,7 @@ One of my final projects was a little different given the nature of the 2016 pre
 
 ## UVA Data Mining Class - Crime Modeling
 
-Crime is a big issue in Chicago, and there is open data on where crime occurs in Chicago. There is also other open spatial data.
+Crime is an issue in Chicago, and there is open data on where crime occurs in Chicago. There is also other open spatial data.
 
 In statistics, kernel density estimation (KDE) is a non-parametric way to estimate the probability density function of a random variable, like crime and where crime occurs. Kernel density estimation is a fundamental data smoothing problem where inferences about the population are made, based on a finite data sample.
 
