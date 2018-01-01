@@ -37,20 +37,21 @@ Some examples of the tweets in the csv file written out are the following:
 
 <br> 
 
-With all 2,529 datapoints, I have some questions: 
+With all 2,529 datapoints, I have begun to answer some questions: 
 
 <br>
-(1) how many of the tweets are retweets? 
-* roughly 2/3 of them are - 1,633 are retweets and 895 are not
-<br>
-(2) what are patterns in twitter behavior over time? 
-<br>
-(3) is my next tweet going to have anything to do with #DataScience?
-<br>
-(4) how is a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
+* Roughly 2/3 of the tweets are retweets (1,633 are and 895 are not)
+* 438 have something to do with #DataScience, and roughly 3/4 of them are retweets
 <br>
 
-These are all questions I'd like to answer over the next few weeks.
+Though, I over the next few weeks I hope still to answer some other questions:
+
+(1) what are patterns in twitter behavior over time? 
+<br>
+(2) how likely is my next tweet or retweet going to have anything to do with #DataScience?
+<br>
+(3) how is a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
+<br>
 
 <br>
 
