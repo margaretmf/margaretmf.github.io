@@ -38,7 +38,7 @@ Some examples of the tweets in the csv file written out are the following:
 With all 2,529 datapoints, I have some questions: 
 
 <br>
-(1) how many of the tweets are retweets? 
+(1) how many of the tweets are retweets? (roughly 2/3 of them are - 1,633 are retweets and 895 are not)
 <br>
 (2) what are patterns in twitter behavior over time? 
 <br>
