@@ -38,7 +38,6 @@ Some examples of the tweets in the csv file written out are the following:
 <br> 
 
 With all 2,529 datapoints, I have begun to answer some questions: 
-
 <br>
 * Roughly 2/3 of the tweets are retweets (1,633 are and 895 are not)
 * 438 have something to do with #DataScience, and roughly 3/4 of them are retweets
