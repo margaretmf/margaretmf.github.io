@@ -48,7 +48,7 @@ Over the next few weeks I hope still to answer some other questions:
 <br>
 (2) how likely is my next tweet or retweet going to have anything to do with #DataScience?
 <br>
-(3) how is a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
+(3) what are other trends in word counts and how can MapReduce be applied on this Twitter data? 
 <br>
 
 <br>
