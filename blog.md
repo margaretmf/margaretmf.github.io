@@ -45,6 +45,7 @@ With all 2,529 datapoints, I have begun to answer some questions:
 
 Though, I over the next few weeks I hope still to answer some other questions:
 
+<br>
 (1) what are patterns in twitter behavior over time? 
 <br>
 (2) how likely is my next tweet or retweet going to have anything to do with #DataScience?
