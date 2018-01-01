@@ -11,6 +11,13 @@ layout: default
 * [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 
+### Online Articles
+* [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
+* [Data scientists mine government data for evidence of historical events](https://www.upi.com/Science_News/2017/12/29/Data-scientists-mine-government-data-for-evidence-of-historical-events/5381514578683/?spt=rrs&or=4) by Brooks Hays
+* [AI is all hype if we don't have access to the right data](https://business.newsfactor.com/news/story.xhtml?story_id=103001SWUL04) by 
+* [Women of Washington: Data science and machine learning in government](https://federalnewsradio.com/sponsored-content/2017/08/women-of-washington-data-science-and-machine-learning-in-government/slide/1/) by Steff Thomas
+* [Creating a better economy with data science](https://ssir.org/articles/entry/creating_a_better_economy_with_data_science) by Martin Whittaker and Tianhui Michael Li 
+
 ## 2017 
 
 ### Books
