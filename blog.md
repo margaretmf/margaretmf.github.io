@@ -41,7 +41,7 @@ With all 2,529 datapoints, I have some questions:
 
 <br>
 (1) how many of the tweets are retweets? 
- * roughly 2/3 of them are - 1,633 are retweets and 895 are not
+* roughly 2/3 of them are - 1,633 are retweets and 895 are not
 <br>
 (2) what are patterns in twitter behavior over time? 
 <br>
