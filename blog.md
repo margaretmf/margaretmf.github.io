@@ -42,7 +42,7 @@ With all 2,529 datapoints, I have begun to answer some questions:
 <br>
 
 
-Though, I over the next few weeks I hope still to answer some other questions:
+Over the next few weeks I hope still to answer some other questions:
 <br>
 (1) what are patterns in twitter behavior over time? 
 <br>
