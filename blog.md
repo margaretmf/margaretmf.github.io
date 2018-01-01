@@ -44,7 +44,7 @@ With all 2,529 datapoints, I have some questions:
 <br>
 (3) is my next tweet going to have anything to do with #DataScience?
 <br>
-(4) how does a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
+(4) how is a supervised classifier able to classify tweets into tweets or retweets based on the text in them? 
 <br>
 
 These are all questions I'd like to answer over the next few weeks.
