@@ -7,6 +7,17 @@ In this blog, I want to start sharing my journey through [the age of the algorit
 
 <br>
 
+### Understanding Social Networks (written on 1/2/2018)
+Psychologists, sociologists, and anthropologists are some of the first to study a branch of “mathematical” social science to understand social structures through [social network analysis]( http://moreno.ss.uci.edu/91.pdf). Since the early days, computational networks have been developed. Facebook, a social media site that many people in my generation (generation y) grew up using, is a notorious example of a social network whose data representing the network is stored in a graph database, a database for data structures with nodes, properties of nodes, and relationships between nodes, is used in algorithms. An example of data from the Facebook workplace social network might include the following the data:
+
+<img class="picture" src="social_network_data.jpg">
+
+<img class="picture" src="facebook_workplace_social_network.jpg">
+
+<br>
+
+<br>
+
 
 ### Creating R Packages and Python Modules (written on 1/1/2018)
 A few weeks ago [Meet the man behind the most important tool in data science](https://qz.com/1126615/the-story-of-the-most-important-tool-in-data-science/) was published in the New York Times on [Pandas, a Python library](http://pandas.pydata.org) that is used for some of the basic data manipulation work in data science. I resonated a lot with some of his story as expressed particularly through the sentence, "McKinney said it became clear to him by the middle of 2012 that Pandas was taking off. He didn’t take much time to bask in its success. The original code was 'inelegant,' he says, so he spent years improving the backbone of the tool, and trying to add features. McKinney attributes Pandas’s prominence, in large part, to his willingness to be vulnerable. 'With any creative project, but particularly with open source, it can be terrifying because you are opening yourself up to criticism from anybody,' he notes. The key is to welcome that criticism, he stressed."
