@@ -53,7 +53,6 @@ In my text network analysis in Python, I’m not pulling data from a graph datab
 <img class="picture" src="texting_network_analysis.jpg">
 
 Later in basketball season, I hope to do more work with networkx to understand basketball teams (See [NFL-Social-Network-Analysis]( https://github.com/Mooseburger1/NFL-Social-Network-Analysis), the source of inspiration).
-
 <br>
 
 <br>
