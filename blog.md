@@ -48,7 +48,7 @@ Now that I’ve shared some background interest in graph databases and social ne
 
 <img class="picture" src="network_transivity.jpg">
 
-<img class="picture" src="texting_network_analysis.jpg">
+<img class="picture" src="texting_network_analysis2.jpg">
 
 Later in basketball season, I hope to do more work with networkx to understand basketball teams (See [NFL-Social-Network-Analysis]( https://github.com/Mooseburger1/NFL-Social-Network-Analysis), the source of inspiration).
 <br>
