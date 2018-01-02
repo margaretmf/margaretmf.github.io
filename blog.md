@@ -41,12 +41,10 @@ To remove bots (anyone that forwards a certain # of messages):
 
 In all of these queries, data is being queried where data is matching a specific relational pattern. The first node provided is an anchoring point, and then with that anchoring node, data are matched to those with the provided information on relationships. Like when querying from other databases, it’s possible to run mathematical functions like count, run subqueries, and return data. See more explanations about querying [here]( http://neo4j.com/docs/developer-manual/current/cypher/), and see more examples [here](https://neo4j.com/developer/?ref=home-2).
 
-Now that I’ve shared some background interest in graph databases and social networks, I’ve decided to analyze networks within my text messages. 
-
-In my text network analysis in Python, I’m not pulling data from a graph database in this case; rather I’m using structured nodes and edge data. 
-* Recently, I’ve been texting with 76 connections, and there are texts directed towards me and the connection. 
+Now that I’ve shared some background interest in graph databases and social networks, I’ve decided to analyze networks within my text messages. In my text network analysis in Python, I’m not pulling data from a graph database in this case; rather I’m using structured nodes and edge data that I've created using information on who I've recently been texting with.
 * Sometimes, I’m in group texts, so through the group text data, I’m able to visualize interesting social structures and confirm the interesting social structure with a relatively high transitivity score (0.58), which means that people are often triangulated.
-* Additionally, I can find brokers in the network who stand in between people well and can connect people, meaning that they can influence and give the network cohesion.
+* I can find brokers in the network who stand in between people well and can connect people, meaning that they can influence and give the network cohesion.
+* This is a weighted, directed graph, so in visualizing larger arrows, I can see who is sending the most text messages to each other.
 
 <img class="picture" src="network_transivity.jpg">
 
