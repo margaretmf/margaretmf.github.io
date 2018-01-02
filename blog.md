@@ -14,6 +14,64 @@ Psychologists, sociologists, and anthropologists are some of the first to study 
 
 <img class="picture" src="facebook_workplace_social_network.jpg">
 
+See [Graph Databases 101]( https://www.cray.com/blog/graph-databases-101/) for more details on graph data structures.
+
+Use cases of graph databases include the following:
+
+(1)	[fraud detection]( https://neo4j.com/use-cases/fraud-detection/)- anti money laundering, ecommerce fraud, first-party bank fraud, insurance fraud, link analysis. Relationships between accounts, individuals, devices, and IP addresses are important in detecting financial crimes.
+(2)	[knowledge graph]( https://neo4j.com/use-cases/knowledge-graph/)- asset management, content management, work flow processes. Relationships between digital assets are important in developing capabilities for searching products, services, content and knowledge catalogs.
+(3)	[master data management]( https://neo4j.com/use-cases/master-data-management/)- cross reference business objects, data ownership, organizational hierarchies, master data. Relationships are important to gain a 360 degree view of master data and shared metadata.
+(4)	[social media networks]( https://neo4j.com/use-cases/social-network/)- community cluster analysis, influencer analysis, sharing & collaboration, social recommendations, friend-of-friend recommendations. Relationships are important for understanding and leveraging social structures and social behaviors.
+
+Because of the increasing demand for graph data structures, Amazon Redshift has introduce [Netptune]( https://aws.amazon.com/nosql/graph/) during an age when it is normal for multiple database types to be used in one application.
+
+Querying from a postgres or mysql database is much different from querying from a graph database because the relationships are different. The relationships between nodes with properties are interesting though, so it’s fun to learn how to write graph database queries. Some [examples]( https://neo4j.com/graphgist/finding-influencers-in-a-social-network) are the following:
+
+To query all users that have sent a message:
+MATCH path=(User)-[:SENT]->(Message)
+RETURN path
+
+To find the influencers in the network and query the number of followers for users:
+MATCH (follower:User)-[:FOLLOWS]->(targetUser:User)-[:FOLLOWS]->(following:User)
+RETURN targetUser as targetUser
+COUNT(DISTINCT follower) as #ofFollowersOfTargetUser
+COUNT(DISTINCT following) as #targetUserIsFollowing 
+
+To understand tweet behavior of active users:
+MATCH (p:User)-[:SENT]->(tweet:Message)
+RETURN p.id as activeUser,
+COUNT(tweet) as #ofTweetsMessaged
+
+To remove bots (anyone that forwards a certain # of messages):
+MATCH (p:User)-[s:SENT]->(tweet:Message)-[retweet:FORWARD]->(tweet1:Message),
+(p:User)-[s2:SENT]->(tweet2:Message)
+WITH p,
+COUNT(DISTINCT tweets) as forwards,
+COUNT(DISTINCT tweet2) as messages
+WITH p, COUNT(DISTINCT tweet) as forwards, 
+COUNT(DISTINCT tweet2) as messages
+WHERE (forwards*1.00)/messages < 0.8
+WITH p
+MATCH (p)-[s:SENT]->(tweet:Message)-[rt:FORWARD]->(tweet1:Message)<-[:SENT]-(p1:User)
+RETURN p1.id AS USER, COUNT(tweet) AS ‘Retweeted Messages’
+ORDER BY COUNT(tweet)
+DESC LIMIT 15
+
+In all of these queries, data is being queried where data is matching a specific relational pattern. The first node provided is an anchoring point, and then with that anchoring node, data are matched to those with the provided information on relationships. Like when querying from other databases, it’s possible to run mathematical functions like count, run subqueries, and return data. See more explanations about querying [here]( http://neo4j.com/docs/developer-manual/current/cypher/), and see more examples [here](https://neo4j.com/developer/?ref=home-2).
+
+Now that I’ve shared some background interest in graph databases and social networks, I’ve decided to analyze networks within my text messages. 
+
+In my text network analysis in Python, I’m not pulling data from a graph database in this case; rather I’m using structured nodes and edge data. 
+* Recently, I’ve been texting with 76 connections, and there are texts directed towards me and the connection. 
+* Sometimes, I’m in group texts, so through the group text data, I’m able to visualize interesting social structures and confirm the interesting social structure with a relatively high transitivity score (0.58), which means that people are often triangulated.
+* Additionally, I can find brokers in the network who stand in between people well and can connect people, meaning that they can influence and give the network cohesion.
+
+<img class="picture" src="network_transivity.jpg">
+
+<img class="picture" src="texting_network_analysis.jpg">
+
+Later in basketball season, I hope possibly to do more work with networkx to understand basketball teams (See [NFL-Social-Network-Analysis]( https://github.com/Mooseburger1/NFL-Social-Network-Analysis), the source of inspiration).
+
 <br>
 
 <br>
