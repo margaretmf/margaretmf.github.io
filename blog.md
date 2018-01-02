@@ -8,7 +8,7 @@ In this blog, I want to start sharing my journey through [the age of the algorit
 <br>
 
 ### Understanding Social Networks (written on 1/2/2018)
-Psychologists, sociologists, and anthropologists are some of the first to study a branch of “mathematical” social science to understand social structures through [social network analysis]( http://moreno.ss.uci.edu/91.pdf). Since the early days, computational networks have been developed. Facebook, a social media site that many people in my generation (generation y) grew up using, is a notorious example of a social network whose data representing the network is stored in a graph database, a database for data structures with nodes, properties of nodes, and relationships between nodes, is used in algorithms. An example of data from the Facebook workplace social network might include the following the data:
+Psychologists, sociologists, and anthropologists are some of the first to study a branch of “mathematical” social science to understand social structures through [social network analysis]( http://moreno.ss.uci.edu/91.pdf). Since the early days, computational networks have been advanced. Facebook, a social media site that many people in my generation (generation y) grew up using, is a notorious example of a computational social network whose data representing the network is stored in a graph database, a database for data structures with nodes, properties of nodes, and relationships between nodes. An example of data from the Facebook workplace social network might include the following data:
 
 <img class="picture" src="social_network_data.jpg">
 
@@ -23,7 +23,7 @@ Use cases of graph databases include the following:
 (3)	[master data management]( https://neo4j.com/use-cases/master-data-management/)- cross reference business objects, data ownership, organizational hierarchies, master data. Relationships are important to gain a 360 degree view of master data and shared metadata.
 (4)	[social media networks]( https://neo4j.com/use-cases/social-network/)- community cluster analysis, influencer analysis, sharing & collaboration, social recommendations, friend-of-friend recommendations. Relationships are important for understanding and leveraging social structures and social behaviors.
 
-Because of the increasing demand for graph data structures, Amazon Redshift has introduce [Netptune]( https://aws.amazon.com/nosql/graph/) during an age when it is normal for multiple database types to be used in one application.
+Because of the increasing demand for graph data structures, Amazon Redshift has introduced [Netptune]( https://aws.amazon.com/nosql/graph/) during an age when it is normal for multiple database types to be used in one application.
 
 Querying from a postgres or mysql database is much different from querying from a graph database because the relationships are different. The relationships between nodes with properties are interesting though, so it’s fun to learn how to write graph database queries. Some [examples]( https://neo4j.com/graphgist/finding-influencers-in-a-social-network) are the following:
 
@@ -41,7 +41,7 @@ To remove bots (anyone that forwards a certain # of messages):
 
 In all of these queries, data is being queried where data is matching a specific relational pattern. The first node provided is an anchoring point, and then with that anchoring node, data are matched to those with the provided information on relationships. Like when querying from other databases, it’s possible to run mathematical functions like count, run subqueries, and return data. See more explanations about querying [here]( http://neo4j.com/docs/developer-manual/current/cypher/), and see more examples [here](https://neo4j.com/developer/?ref=home-2).
 
-Now that I’ve shared some background interest in graph databases and social networks, I’ve decided to analyze networks within my text messages. In my text network analysis in Python, I’m not pulling data from a graph database in this case; rather I’m using structured nodes and edge data that I've created using information on who I've recently been texting with.
+Now that I’ve shared some background interest in graph databases and social networks, I’ve decided to analyze networks within my text messages. In my text network analysis with [Python networkx](https://programminghistorian.org/lessons/exploring-and-analyzing-network-data-with-python), I’m not pulling data from a graph database in this case; rather I’m using structured nodes and edge data that I've created using information on who I've recently been texting with.
 * Sometimes, I’m in group texts, so through the group text data, I’m able to visualize interesting social structures and confirm the interesting social structure with a relatively high transitivity score (0.58), which means that people are often triangulated.
 * I can find brokers in the network who stand in between people well and can connect people, meaning that they can influence and give the network cohesion.
 * This is a weighted, directed graph, so in visualizing larger arrows, I can see who is sending the most text messages to each other.
