@@ -56,6 +56,32 @@ Later in basketball season, I hope to do more work with networkx to understand b
 <br>
 
 
+### Machine Learning
+I once read, "machine learning is to the 21st century what excel is to the 20th century." Machine learning and AI are not new concepts; people have been thinking about AI since early in the 20th century, but now with ubiquitous computing, easier access to data, and the potential for higher quality datasets, there's more potential for AI.
+
+I'm interfacing with machine learning applications on a daily basis:
+* when using LinkedIn, machine learning algorithms predict who I should connect with
+* when searching on Google, machine learning algorithms classify me as a certain user type based on what I search
+* when a large percentage of the population buy supplies from a store, the store might be deploy a machine learning algorithm to predict when a storm is coming 
+
+How are choices about what machine learning algorithms are used? I've encountered some good visualizations recently, and there are [many](https://becominghuman.ai/cheat-sheets-for-ai-neural-networks-machine-learning-deep-learning-big-data-678c51b4b463).
+
+To summarize two of them, I think it's helpful to break down learning problems into two things:
+(1) unsupervised learning (there is no training data or ground truth) and supervised learning (there is training data or ground truth)
+(2) regression and classification or clustering
+
+Types of learning depend on the type of data being predicted and whether there are labeled data, to be used as ground truth, or not. If categorical data are being predicted, then the problem is a classification one; if there is labeled data, then classification algorithms can be used, but if there is no labeled data, then clustering algorithms can be used. If quantities are being predicted, then the problem is a regression one. And if structural components or dimensions within the dataset need to be examined, then dimensionality reduction mehtods are used. There are more choices that should be made, and these depend on number of samples, type of data, and number of features.
+
+<img class="picture" src="scikit-learn_algorithm_cheat-sheet.jpg">
+
+<img class="picture" src="machine_learning_algorithms_cheat_sheet.jpg">
+
+<img class="picture" src="python_data_science_cheat_sheet.jpg">
+<br>
+
+<br>
+
+
 ### Creating R Packages and Python Modules 
 A few weeks ago [Meet the man behind the most important tool in data science](https://qz.com/1126615/the-story-of-the-most-important-tool-in-data-science/) was published in the New York Times on [Pandas, a Python library](http://pandas.pydata.org) that is used for some of the basic data manipulation work in data science. I resonated a lot with some of his story as expressed particularly through the sentence, "McKinney said it became clear to him by the middle of 2012 that Pandas was taking off. He didn’t take much time to bask in its success. The original code was 'inelegant,' he says, so he spent years improving the backbone of the tool, and trying to add features. McKinney attributes Pandas’s prominence, in large part, to his willingness to be vulnerable. 'With any creative project, but particularly with open source, it can be terrifying because you are opening yourself up to criticism from anybody,' he notes. The key is to welcome that criticism, he stressed."
 
