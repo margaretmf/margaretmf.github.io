@@ -3,11 +3,11 @@ layout: default
 ---
 
 ## BLOG
-In this blog, I want to start sharing my journey through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/) and take the time to publish some of the ways in which I work with data in my day to day life.
+Currently, we are living through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/), with this blog, I hope to take the time to publish some of the ways in which I work with data in my day to day life.
 
 <br>
 
-### Understanding Social Networks (written on 1/2/2018)
+### Understanding Social Networks 
 Psychologists, sociologists, and anthropologists are some of the first to study a branch of “mathematical” social science to understand social structures through [social network analysis]( http://moreno.ss.uci.edu/91.pdf). Since the early days, computational networks have been advanced. Facebook, a social media site that many people in my generation (generation y) grew up using, is a notorious example of a computational social network whose data representing the network is stored in a graph database, a database for data structures with nodes, properties of nodes, and relationships between nodes. An example of data from the Facebook workplace social network might include the following data:
 
 <img class="picture" src="social_network_data.jpg">
@@ -56,7 +56,7 @@ Later in basketball season, I hope to do more work with networkx to understand b
 <br>
 
 
-### Creating R Packages and Python Modules (written on 1/1/2018)
+### Creating R Packages and Python Modules 
 A few weeks ago [Meet the man behind the most important tool in data science](https://qz.com/1126615/the-story-of-the-most-important-tool-in-data-science/) was published in the New York Times on [Pandas, a Python library](http://pandas.pydata.org) that is used for some of the basic data manipulation work in data science. I resonated a lot with some of his story as expressed particularly through the sentence, "McKinney said it became clear to him by the middle of 2012 that Pandas was taking off. He didn’t take much time to bask in its success. The original code was 'inelegant,' he says, so he spent years improving the backbone of the tool, and trying to add features. McKinney attributes Pandas’s prominence, in large part, to his willingness to be vulnerable. 'With any creative project, but particularly with open source, it can be terrifying because you are opening yourself up to criticism from anybody,' he notes. The key is to welcome that criticism, he stressed."
 
 Often, I've discovered over the past years that when analyzing or modeling data in the practice of data science and engineering, functions and methods must be written. With my company, I've been writing functions to turn [code that a biologist might write](https://nicercode.github.io/guides/functions/before.html) into [code that a data scientist might write](https://nicercode.github.io/guides/functions/after.html). Many of my functions depend on functions from other libraries like [dplyr](http://dplyr.tidyverse.org), but because analysis is more complicated, I enjoy the art and science of creating my own on top, making code progressively more elegant, and testing the applicability of them. While tools like dplyr and pandas exist already, sometimes more code has to be written, and developing the ability to write good code and contribute it to open source communities, even when criticism may be waiting, is fundamental to the practice of data science. Writing higher quality code and opening myself up to criticism along the way has supported transforming a longer process into one that is more enjoyable and involves more analytical problem solving.
@@ -69,7 +69,7 @@ As I start to move on to using Python more, it's great to learn from [those crea
 <br>
 
 
-### What have I been tweeting? (written on 12/17/2017)
+### What have I been tweeting? 
 I've been [tweeting](https://twitter.com/megmfurr) since February 2015 when I was in [UVA's Data Science Institute](https://dsi.virginia.edu). Recently, with my twitter data, I've been wanting to do data science work.
 
 Today, I started out by collecting and storing my twitter data.
@@ -116,7 +116,7 @@ Over the next few weeks I hope still to answer some other questions:
 <br>
 
 
-### Where are the metro stations? (written on 12/16/2017)
+### Where are the metro stations? 
 With [Compass](http://compassprobono.org), I'm working on another strategic alignment project to support an adjustment in [Homeless Children's Playtime Project's](https://www.playtimeproject.org) services, operations, and locations, as they move to new sites. One way I'm supporting the project is by collecting and analyzing data in a way that informs the organiation as the nonprofit make adjustments. 
 
 Today,to support Homeless Children's Playtime Project, I started collecting data on the locations of homeless shelters, homeless services, metro stations, and bus stations. Most of the data I was collecting comes from [DC Open Data](http://opendata.dc.gov) but metro data came from [Ben Balter's dc-maps git repo](https://github.com/benbalter/dc-maps), so instead of just downloading the file with Lat and Lon, I enjoyed working on manipulating some of the data.
