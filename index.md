@@ -8,7 +8,7 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
-I'm Margaret Furr, and I'm becoming a data and information scientist. As a curious problem solver who loves to connect the dots and intellectualize, I also have interests in data engineering, organizational strategy, and applied sensemaking. 
+I'm Margaret Furr, and I'm becoming a future-oriented problem solver and long-term thinker with an interest in impacts of data science and information science. As a curious professional who loves to connect the dots and intellectualize, I also have interests in information integration, social networks, organizational strategy, and applied sensemaking. 
 
 Currently, I'm working as a Data Analyst with EVERFI, an expanding, edtech company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Data Ambassador with [DataKind Corps/NY](http://www.datakind.org). 
 
