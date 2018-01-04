@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## BLOG
-Currently, we are living through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/), and in this blog are published words on the data I choose to explore in addition to the thoughts around the social impact of data.
+Currently, we are living through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/), and in this blog are published words on the data I choose to explore in addition to the thoughts about data's social impact. 
 
 <br>
 
