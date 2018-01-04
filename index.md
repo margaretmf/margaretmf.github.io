@@ -12,7 +12,7 @@ I'm Margaret Furr, and I'm becoming a future-oriented problem solver and long-te
 
 Currently, I'm working as a Data Analyst with EVERFI, an expanding, edtech company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Data Ambassador with [DataKind Corps/NY](http://www.datakind.org). 
 
-During my free time, one can find me running, reading, dancing, or asking questions about the world with an interest in the intersection of business and data science.
+During my free time, one can find me running, reading, dancing, or preparing for the future.
 
 <br>
 
