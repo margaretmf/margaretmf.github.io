@@ -19,6 +19,7 @@ layout: default
 * [Creating a better economy with data science](https://ssir.org/articles/entry/creating_a_better_economy_with_data_science) by Martin Whittaker and Tianhui Michael Li 
 * [Big data lessons from Netflix](https://www.wired.com/insights/2014/03/big-data-lessons-netflix/) by Phil Simon
 * [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza and Kendra L. Smith 
+* [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success)
 
 ## 2017 
 
