@@ -10,6 +10,7 @@ layout: default
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
 * [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
+* [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 
 ### Online Articles
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
@@ -19,7 +20,7 @@ layout: default
 * [Creating a better economy with data science](https://ssir.org/articles/entry/creating_a_better_economy_with_data_science) by Martin Whittaker and Tianhui Michael Li 
 * [Big data lessons from Netflix](https://www.wired.com/insights/2014/03/big-data-lessons-netflix/) by Phil Simon
 * [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza and Kendra L. Smith 
-* [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success)
+* [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success) by Eric T. Anderson and Florian Zettelmeyer
 
 ## 2017 
 
