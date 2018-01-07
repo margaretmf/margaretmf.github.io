@@ -58,6 +58,7 @@ layout: default
 * [The Master Switch: The Rise and Fall of Information Empires](https://www.amazon.com/Master-Switch-Rise-Information-Empires/dp/0307390993) by Tim Wu
 * [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315) by Daniel J. Levitin
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
+* [Thank You for Being Late: An Optimist's Guide to Thriving in the Age of Accelerations](https://www.amazon.com/Thank-You-Being-Late-Accelerations/dp/0374273537) by Thomas L. Friedman
 
 ### Online Articles
 * [Meet the man behind the most important tool in data science](https://qz.com/1126615/the-story-of-the-most-important-tool-in-data-science/) by Dan Kopf
