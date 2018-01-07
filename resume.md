@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Data and Information scientist with a strong math background and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Demonstrated interest in strategy and operations. Possess strong foresight.
+Data and Information scientist with a background in systems thinking and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Demonstrated interest in strategy and operations. Possess strong foresight.
 
  <br>
  
