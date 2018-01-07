@@ -11,6 +11,22 @@ layout: default
 * [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
+* [The Structure of Scientific Revolutions](https://www.amazon.com/Structure-Scientific-Revolutions-50th-Anniversary/dp/0226458121) by Thomas Kuhn
+* [Flowers for Algernon](https://www.amazon.com/Flowers-Algernon-Daniel-Keyes/dp/015603008X) by Daniel Keyes
+* [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
+* [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
+* [Team Genius: The New Science of High-Performing Organizations](https://www.amazon.com/Team-Genius-Science-High-Performing-Organizations/dp/006230254X/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=006230254X&pd_rd_r=HV0PA3TPHGH4DRQF8MCF&pd_rd_w=UX892&pd_rd_wg=KsbpF&psc=1&refRID=HV0PA3TPHGH4DRQF8MCF) by Rich Karlgaard
+* [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
+* [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab Patricia Albere 
+* [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
+* [The Second Machine Age: Work, Progress, and Prosperity in Time of Brilliant Technologies](https://www.amazon.com/Second-Machine-Age-Prosperity-Technologies/dp/0393350649/ref=pd_sim_14_2?_encoding=UTF8&pd_rd_i=0393350649&pd_rd_r=EBBM9HBRBQ5JWG3DQ5K7&pd_rd_w=lLJep&pd_rd_wg=bSvxQ&psc=1&refRID=EBBM9HBRBQ5JWG3DQ5K7) by Erik Brynjolfsson
+* [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
+* [The Question Concerning Technology, and Other Essays](https://www.amazon.com/Question-Concerning-Technology-Perennial-Thought/dp/0062290703/ref=asap_bc?ie=UTF8) by Martin Heidegger
+* [Poetry, Language, Thought](https://www.amazon.com/Poetry-Language-Thought-Harper-Perennial/dp/0060937289/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=0060937289&pd_rd_r=4AS9HXV0A42C6TP1R2RT&pd_rd_w=AxibB&pd_rd_wg=GbkL8&psc=1&refRID=4AS9HXV0A42C6TP1R2RT) by Martin Heidegger
+* [The Dynamics of Transformation: Tracing an Emerging World View](https://www.amazon.com/dp/B01MXXXUOM/ref=sspa_dk_detail_2?psc=1&pd_rd_i=B01MXXXUOM&pd_rd_wg=Oetcf&pd_rd_r=62MZ3GZD0XYWZQF6RGPD&pd_rd_w=igPI5) by Grant Maxwell
+* [Evolutionary Relationships: Unleashing the Power of Mutual Awakening](https://www.amazon.com/Evolutionary-Relationships-Unleashing-Mutual-Awakening-ebook/dp/B075RCDJ8P/ref=pd_sim_351_2?_encoding=UTF8&psc=1&refRID=PS0A2R9MS9W69A8MRMGF) by Patricia Albere 
+* [Paradigm Shifting: Guiding Evolution from the Inside](https://www.amazon.com/Paradigm-Shifting-Guiding-Evolution-Inside-ebook/dp/B07721N865/ref=pd_sim_351_1?_encoding=UTF8&psc=1&refRID=SXN2V6P0KV2B47R19FFN) by Jeff Carreira
+* [The Religion of Tomorrow: A Vision for the Future of the Great Traditions - More Inclusive, More Comprehensive, More Complete](https://www.amazon.com/Religion-Tomorrow-Traditions-Inclusive-MoreComprehensive-ebook/dp/B01MQZIOV3/ref=pd_sim_351_3?_encoding=UTF8&psc=1&refRID=NY4KMWYTMAWVBXNM0ARE) by Ken Wilber
 
 ### Online Articles
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
@@ -21,6 +37,9 @@ layout: default
 * [Big data lessons from Netflix](https://www.wired.com/insights/2014/03/big-data-lessons-netflix/) by Phil Simon
 * [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza and Kendra L. Smith 
 * [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success) by Eric T. Anderson and Florian Zettelmeyer
+* [The Fourth Industrial Revolution: what it means, how to respond](https://www.weforum.org/agenda/2016/01/the-fourth-industrial-revolution-what-it-means-and-how-to-respond/) by Klaus Schwab
+* [The nature of revolution](https://isreview.org/issue/77/nature-revolution) by Duncan Hallas
+* [10 things children born in 2018 will probably never experience](https://futurism.com/10-things-children-born-2018-will-never-experience/) by Kristin Houser and Patrick Caughill
 
 ## 2017 
 
