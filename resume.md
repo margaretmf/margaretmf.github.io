@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Data and Information scientist with a background in systems thinking and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Demonstrated interest in strategy and operations. Possess strong foresight.
+Versatile data science professional with a background in systems thinking and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Demonstrate interest in strategy and operations. Aspire to move into data strategy or product strategy roles. Possess strong foresight.
 
  <br>
  
