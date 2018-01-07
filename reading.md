@@ -41,7 +41,7 @@ layout: default
 * [Learning to code will eventually be as useful as learning ancient Greek](https://work.qz.com/1135017/learning-to-code-will-eventually-be-as-useful-as-learning-ancient-greek/) by Robert C. Wolcott
 * [Five lessons on innovation and the institution](https://ssir.org/articles/entry/five_lessons_on_innovation_and_the_institution?platform=hootsuite) by Asha Curran & Henry Timms 
 * [Can A.I. be taught to explain itself?](https://www.nytimes.com/2017/11/21/magazine/can-ai-be-taught-to-explain-itself.html) by Cliff Kuang
-* [Inside Baidu’S bid to lead the AI revolution](https://www.wired.com/story/inside-baidu-artificial-intelligence/?mbid=social_twitter) by Jessi Hempel
+* [Inside Baidu’s bid to lead the AI revolution](https://www.wired.com/story/inside-baidu-artificial-intelligence/?mbid=social_twitter) by Jessi Hempel
 * [The Art of Questioning: The most important skill for 21st-century students is the discipline to say “no”](https://qz.com/1129849/whats-the-most-important-skill-to-learn-as-a-student-the-discipline-to-say-no/) by Lauren Alix Brown
 * [Why can’t San Francisco’s tech culture solve the city’s social problems?](https://www.ft.com/content/262e2b2c-d423-11e7-8c9a-d9c0a5c8d5c9) by Tom Braithwaite 
 * [Tools for Systems Thinkers: Designing circular systems](https://medium.com/disruptive-design/tools-for-systems-thinkers-designing-circular-systems-2c54cbf9cb43) by Leyla Acaroglu
