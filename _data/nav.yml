@@ -6,9 +6,13 @@
 
 - name: "Resume"
   link: "resume"
+
+- name: "Shaping the Future"
+  link: "futureshaping"
   
 - name: "Experimenting with Data"
   link: "dataexperiments"
 
-- name: "Showcase"
-  link: "showcase"
+- name: "Portfolio"
+  link: "portfolio"
+  
