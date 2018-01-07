@@ -21,6 +21,7 @@ August 2010 - May 2014
 * Advisor: Sophia Rosenfeld
 * Thesis: History of Children's Play in the Victorian Era
 * Relevant Classwork: Computer Science, Statistics, Calculus II, Linear Algebra, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
+* Award: International Residential College Leadership
  
 <br>
  
