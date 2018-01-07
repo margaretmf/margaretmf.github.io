@@ -1,14 +1,14 @@
 - name: "Contact"
   link: "contact"
 
-- name: "Reading"
-  link: "reading"
+- name: "Reading List"
+  link: "readinglist"
 
 - name: "Resume"
   link: "resume"
   
-- name: "Blog"
-  link: "blog"
+- name: "Experimenting with Data"
+  link: "dataexperiments"
 
-- name: "Portfolio"
-  link: "portfolio"
+- name: "Showcase"
+  link: "showcase"
