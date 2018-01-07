@@ -27,6 +27,9 @@ layout: default
 * [Evolutionary Relationships: Unleashing the Power of Mutual Awakening](https://www.amazon.com/Evolutionary-Relationships-Unleashing-Mutual-Awakening-ebook/dp/B075RCDJ8P/ref=pd_sim_351_2?_encoding=UTF8&psc=1&refRID=PS0A2R9MS9W69A8MRMGF) by Patricia Albere 
 * [Paradigm Shifting: Guiding Evolution from the Inside](https://www.amazon.com/Paradigm-Shifting-Guiding-Evolution-Inside-ebook/dp/B07721N865/ref=pd_sim_351_1?_encoding=UTF8&psc=1&refRID=SXN2V6P0KV2B47R19FFN) by Jeff Carreira
 * [The Religion of Tomorrow: A Vision for the Future of the Great Traditions - More Inclusive, More Comprehensive, More Complete](https://www.amazon.com/Religion-Tomorrow-Traditions-Inclusive-MoreComprehensive-ebook/dp/B01MQZIOV3/ref=pd_sim_351_3?_encoding=UTF8&psc=1&refRID=NY4KMWYTMAWVBXNM0ARE) by Ken Wilber
+* [The Systems Mindset: Managing the Machinery of Your Life](https://www.thesystemsmindset.com/buy-the-book/) by Sam Carpenter
+* [Scale: The Universal Laws of Growth, Innovation, Sustainability, and the Pace of Life in Organisms, Cities, Economies, and Companies](https://www.amazon.com/Scale-Universal-Innovation-Sustainability-Organisms/dp/1594205582/ref=sr_1_1?s=books&ie=UTF8&qid=1515039694&sr=1-1&keywords=scale+by+geoffrey+west) by Geoffrey West
+* [Creative confidence: unleashing the creative potential within us all](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
 
 ### Online Articles
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
@@ -40,6 +43,9 @@ layout: default
 * [The Fourth Industrial Revolution: what it means, how to respond](https://www.weforum.org/agenda/2016/01/the-fourth-industrial-revolution-what-it-means-and-how-to-respond/) by Klaus Schwab
 * [The nature of revolution](https://isreview.org/issue/77/nature-revolution) by Duncan Hallas
 * [10 things children born in 2018 will probably never experience](https://futurism.com/10-things-children-born-2018-will-never-experience/) by Kristin Houser and Patrick Caughill
+* [Can your firm develop a sustainable edge? ask John Hagel and John Seely Brown](http://knowledge.wharton.upenn.edu/article/can-your-firm-develop-a-sustainable-edge-ask-john-hagel-and-john-seely-brown/)
+* [What is it that makes humans unique?](https://singularityhub.com/2017/12/28/what-is-it-that-makes-humans-unique/?utm_source=Singularity+Hub+Newsletter&utm_campaign=5f8ac35b25-Hub_Daily_Newsletter&utm_medium=email&utm_term=0_f0cf60cdae-5f8ac35b25-58252949#sm.00008tp9lpiijdeutj81jpgn1mqtj) by Raya Bidshahri
+* [2018: Booked solid](https://medium.com/@aimeewoodall/2018-booked-solid-5713077835f1) by Jeff Dyer
 
 ## 2017 
 
