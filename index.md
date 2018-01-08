@@ -12,7 +12,7 @@ I'm Margaret Furr, and I'm becoming a future-oriented problem solver and a long-
 
 Currently, I'm working as a Data Analyst with EVERFI, an expanding, edtech company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Data Ambassador with [DataKind Corps/NY](http://www.datakind.org). 
 
-During my free time, one can find me running, reading, dancing, or preparing for the future. And a sentence from Daniel J. Levitin's book, Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload], that inspires me is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
+During my free time, one can find me running, reading, dancing, preparing for the future, or understanding [the power of improv](http://www.bing.com/videos/search?q=the+power+of+improv&view=detail&mid=D6F586BD43DCC62C7AAED6F586BD43DCC62C7AAE&FORM=VIRE) in the 21st century. And a sentence from Daniel J. Levitin's book, Daniel J. Levitin's book[The Organized Mind: Thinking Straight in the Age of Information Overload], that inspires me is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
 <br>
 
