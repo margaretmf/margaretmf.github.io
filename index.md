@@ -18,7 +18,7 @@ During my free time, one can find me running, reading, dancing, preparing for th
 
 ## Passions
 
-Quantifying, modeling, structuring, ideating, strategizing, integrating, humanizing and thoughtfully communicating
+Quantifying, modeling, structuring, ideating, strategizing, integrating, humanizing, thoughtfully communicating, and dialoguing
 
 <br>
 
@@ -34,7 +34,7 @@ Soft: cross-functional teamwork, knowledge management, strategic alignment, faci
 
 ## Interests
 
-digital ecosystems, interactions between technology and humans, participatory design, systems design, financial services, the future of higher ed, public infrastructure, urban analytics, impact investing, sustainable development goals, effective information flow, learning organizations, theory of emergence, tech policy, network science, creative process, future of work and learning, STEM & empathy, data and tech strategies for social innovation, information integration, metadata best practices, graph databases
+digital ecosystems, interactions between technology and humans, participatory design, systems design, financial services, the future of higher ed, public infrastructure, urban analytics, impact investing, sustainable development goals, effective information flow, learning organizations, theory of emergence, tech policy, network science, creative process, future of work and learning, STEM & empathy, data and tech strategies for social innovation, information integration, metadata best practices, graph databases, improv
 
 <br>
 
