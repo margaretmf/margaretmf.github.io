@@ -130,7 +130,7 @@ With all 2,546 datapoints, I have begun to answer some questions:
 * Top words that are not most common English words in my tweets include the following: #DCTech, UVA, #github, @BecomingDataSci, creating, future, @jhagel, #techwithinreach. Based on this, my one can infer that my interests are in technology in DC, a leading Data Scientist, creating the future, and a leading management consultant.
 * 80 of the words are hashtags, and some of them are visualized below.
 
-<img class="picture" src="get-all-tweets.jpg">
+<img class="picture" src="twitter_hashtags.jpg">
 <br>
 
 <br>
