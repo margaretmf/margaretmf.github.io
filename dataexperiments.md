@@ -128,7 +128,7 @@ With all 2,546 datapoints, I have begun to answer some questions:
 * Over 2/3 of the tweets are retweets (1,649 are and 897 are not)
 * 442 have something to do with #DataScience, and roughly 3/4 of them are retweets
 * Top words that are not most common English words in my tweets include the following: #DCTech, UVA, #github, @BecomingDataSci, creating, future, @jhagel, #techwithinreach. Based on this, my one can infer that my interests are in technology in DC, a leading Data Scientist, creating the future, and a leading management consultant.
-* 80 of the words are hashtags, and some of them are visualized below.
+* 80 of the words are hashtags, and some of them are visualized below through a [wordcloud](https://amueller.github.io/word_cloud/index.html).
 
 <img class="picture" src="twitter_hashtags.jpg">
 <br>
