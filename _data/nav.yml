@@ -1,3 +1,12 @@
+- name: "Understanding the Social World"
+  link: "socialunderstanding"
+
+- name: "Shaping the Future"
+  link: "futureshaping"
+  
+- name: "Experimenting with Data"
+  link: "dataexperiments"
+  
 - name: "Contact"
   link: "contact"
 
@@ -7,15 +16,6 @@
 - name: "Resume"
   link: "resume"
   
-- name: "Understanding the Social World"
-  link: "socialunderstanding"
-
-- name: "Shaping the Future"
-  link: "futureshaping"
-  
-- name: "Experimenting with Data"
-  link: "dataexperiments"
-
 - name: "Portfolio"
   link: "portfolio"
   
