@@ -58,6 +58,7 @@ layout: default
 * [That 'useless' liberal arts degree has become tech's hottest ticket](https://www.forbes.com/sites/georgeanders/2015/07/29/liberal-arts-degree-tech/#7995b81c745d) by George Anders
 * [Surfing the 4th Industrial Revolution: Artificial intelligence and the liberal arts](https://www.brookings.edu/blog/brown-center-chalkboard/2017/04/11/surfing-the-4th-industrial-revolution-artificial-intelligence-and-the-liberal-arts/) by Daniel Araya
 * [The Conceptual Age: The importance of higher order thinking](https://www.diygenius.com/higher-order-thinking/) by Sam Brinson
+* [Shakespeare's characters show us how personal growth should happen](https://hbr.org/2017/01/shakespeares-characters-show-us-how-self-development-should-happen) by Declan Fitzsimons
 
 
 ## 2017 
