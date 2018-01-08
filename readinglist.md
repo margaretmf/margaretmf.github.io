@@ -30,8 +30,10 @@ layout: default
 * [The Systems Mindset: Managing the Machinery of Your Life](https://www.thesystemsmindset.com/buy-the-book/) by Sam Carpenter
 * [Scale: The Universal Laws of Growth, Innovation, Sustainability, and the Pace of Life in Organisms, Cities, Economies, and Companies](https://www.amazon.com/Scale-Universal-Innovation-Sustainability-Organisms/dp/1594205582/ref=sr_1_1?s=books&ie=UTF8&qid=1515039694&sr=1-1&keywords=scale+by+geoffrey+west) by Geoffrey West
 * [Creative confidence: unleashing the creative potential within us all](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
+* [The Coming of Post-Industrial Society: A venture in social forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
+* [Education in the creative economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 
-### Online Articles
+### Online Articles/Videos
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
 * [Data scientists mine government data for evidence of historical events](https://www.upi.com/Science_News/2017/12/29/Data-scientists-mine-government-data-for-evidence-of-historical-events/5381514578683/?spt=rrs&or=4) by Brooks Hays
 * [AI is all hype if we don't have access to the right data](https://business.newsfactor.com/news/story.xhtml?story_id=103001SWUL04) by 
@@ -46,6 +48,13 @@ layout: default
 * [Can your firm develop a sustainable edge? ask John Hagel and John Seely Brown](http://knowledge.wharton.upenn.edu/article/can-your-firm-develop-a-sustainable-edge-ask-john-hagel-and-john-seely-brown/)
 * [What is it that makes humans unique?](https://singularityhub.com/2017/12/28/what-is-it-that-makes-humans-unique/?utm_source=Singularity+Hub+Newsletter&utm_campaign=5f8ac35b25-Hub_Daily_Newsletter&utm_medium=email&utm_term=0_f0cf60cdae-5f8ac35b25-58252949#sm.00008tp9lpiijdeutj81jpgn1mqtj) by Raya Bidshahri
 * [2018: Booked solid](https://medium.com/@aimeewoodall/2018-booked-solid-5713077835f1) by Jeff Dyer
+* [Why creativity is the new economy](https://www.youtube.com/watch?v=VPX7gowr2vE) by Richard Florida
+* [The rise of the creative class](https://www.youtube.com/watch?v=iLstkIZ5t8g) by Richard Florida
+* [Education and underemployment in the age of machine intelligence](https://www.brookings.edu/blog/brown-center-chalkboard/2016/01/11/education-and-underemployment-in-the-age-of-machine-intelligence/) by Daniel Araya
+* [Why are there still so many jobs? the history and future of workplace automation](http://economics.mit.edu/files/10865) by David H. Autor
+* [Creativity and learning for the conceptual age](https://www.brookings.edu/blog/brown-center-chalkboard/2016/03/14/creativity-and-learning-for-the-conceptual-age/) by Daniel Araya
+* [Technology and people: the great job-creating machine](https://www2.deloitte.com/content/dam/Deloitte/uk/Documents/finance/deloitte-uk-technology-and-people.pdf) by Ian Stewart, Debapratim, and Alex Cole
+
 
 ## 2017 
 
@@ -60,7 +69,7 @@ layout: default
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
 * [Thank You for Being Late: An Optimist's Guide to Thriving in the Age of Accelerations](https://www.amazon.com/Thank-You-Being-Late-Accelerations/dp/0374273537) by Thomas L. Friedman
 
-### Online Articles
+### Online Articles/Videos
 * [Meet the man behind the most important tool in data science](https://qz.com/1126615/the-story-of-the-most-important-tool-in-data-science/) by Dan Kopf
 * [Machine learning: universities ready students for AI revolution](https://www.timeshighereducation.com/news/broader-four-year-degrees-offered-in-response-to-ai-revolution#survey-answer) by Chris Havergal
 * [How machine learning creates new professions — and problems](https://www.ft.com/content/49e81ebe-cbc3-11e7-8536-d321d0d897a3) by Richard Waters
