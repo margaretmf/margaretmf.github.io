@@ -59,6 +59,8 @@ layout: default
 * [Surfing the 4th Industrial Revolution: Artificial intelligence and the liberal arts](https://www.brookings.edu/blog/brown-center-chalkboard/2017/04/11/surfing-the-4th-industrial-revolution-artificial-intelligence-and-the-liberal-arts/) by Daniel Araya
 * [The Conceptual Age: The importance of higher order thinking](https://www.diygenius.com/higher-order-thinking/) by Sam Brinson
 * [Shakespeare's characters show us how personal growth should happen](https://hbr.org/2017/01/shakespeares-characters-show-us-how-self-development-should-happen) by Declan Fitzsimons
+* [Creating a policy index for the arts](https://ssir.org/articles/entry/creating_a_policy_index_for_the_arts) by Roland J. Kushner & Randy Cohen 
+* [It’s time to break arts philanthropy out of its silo](https://ssir.org/articles/entry/its_time_to_break_arts_philanthropy_out_of_its_silo) by Ian David Moss
 
 
 ## 2017 
