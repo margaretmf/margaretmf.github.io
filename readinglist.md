@@ -31,7 +31,7 @@ layout: default
 * [Scale: The Universal Laws of Growth, Innovation, Sustainability, and the Pace of Life in Organisms, Cities, Economies, and Companies](https://www.amazon.com/Scale-Universal-Innovation-Sustainability-Organisms/dp/1594205582/ref=sr_1_1?s=books&ie=UTF8&qid=1515039694&sr=1-1&keywords=scale+by+geoffrey+west) by Geoffrey West
 * [Creative confidence: unleashing the creative potential within us all](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
 * [The Coming of Post-Industrial Society: A venture in social forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
-* [Education in the creative economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
+* [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 
 ### Online Articles/Videos
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
@@ -54,6 +54,8 @@ layout: default
 * [Why are there still so many jobs? the history and future of workplace automation](http://economics.mit.edu/files/10865) by David H. Autor
 * [Creativity and learning for the conceptual age](https://www.brookings.edu/blog/brown-center-chalkboard/2016/03/14/creativity-and-learning-for-the-conceptual-age/) by Daniel Araya
 * [Technology and people: the great job-creating machine](https://www2.deloitte.com/content/dam/Deloitte/uk/Documents/finance/deloitte-uk-technology-and-people.pdf) by Ian Stewart, Debapratim, and Alex Cole
+* [That 'useless' liberal arts degree has become tech's hottest ticket](https://www.forbes.com/sites/georgeanders/2015/07/29/liberal-arts-degree-tech/#7995b81c745d) by George Anders
+* [Surfing the 4th Industrial Revolution: Artificial intelligence and the liberal arts](https://www.brookings.edu/blog/brown-center-chalkboard/2017/04/11/surfing-the-4th-industrial-revolution-artificial-intelligence-and-the-liberal-arts/) by Daniel Araya
 
 
 ## 2017 
