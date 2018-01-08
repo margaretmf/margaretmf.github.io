@@ -124,19 +124,13 @@ Some examples of the tweets in the csv file written out are the following:
 3 of the these are retweets, and 3 of them are tweets.
 <br> 
 
-With all 2,529 datapoints, I have begun to answer some questions: 
-* Roughly 2/3 of the tweets are retweets (1,633 are and 895 are not)
-* 438 have something to do with #DataScience, and roughly 3/4 of them are retweets
-<br>
+With all 2,546 datapoints, I have begun to answer some questions: 
+* Over 2/3 of the tweets are retweets (1,649 are and 897 are not)
+* 442 have something to do with #DataScience, and roughly 3/4 of them are retweets
+* Top words that are not most common English words in my tweets include the following: #DCTech, UVA, #github, @BecomingDataSci, creating, future, @jhagel, #techwithinreach. Based on this, my one can infer that my interests are in technology in DC, a leading Data Scientist, creating the future, and a leading management consultant.
+* 80 of the words are hashtags, and some of them are visualized below.
 
-
-Over the next few weeks I hope still to answer some other questions:
-<br>
-(1) what are patterns in twitter behavior over time? 
-<br>
-(2) how likely is my next tweet or retweet going to have anything to do with #DataScience?
-<br>
-(3) what are other trends in word counts and how can MapReduce be applied on this Twitter data? 
+<img class="picture" src="get-all-tweets.jpg">
 <br>
 
 <br>
