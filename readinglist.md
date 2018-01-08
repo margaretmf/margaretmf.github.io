@@ -32,6 +32,7 @@ layout: default
 * [Creative confidence: unleashing the creative potential within us all](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
 * [The Coming of Post-Industrial Society: A venture in social forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
+* [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Videos
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
@@ -56,6 +57,7 @@ layout: default
 * [Technology and people: the great job-creating machine](https://www2.deloitte.com/content/dam/Deloitte/uk/Documents/finance/deloitte-uk-technology-and-people.pdf) by Ian Stewart, Debapratim, and Alex Cole
 * [That 'useless' liberal arts degree has become tech's hottest ticket](https://www.forbes.com/sites/georgeanders/2015/07/29/liberal-arts-degree-tech/#7995b81c745d) by George Anders
 * [Surfing the 4th Industrial Revolution: Artificial intelligence and the liberal arts](https://www.brookings.edu/blog/brown-center-chalkboard/2017/04/11/surfing-the-4th-industrial-revolution-artificial-intelligence-and-the-liberal-arts/) by Daniel Araya
+* [The Conceptual Age: The importance of higher order thinking](https://www.diygenius.com/higher-order-thinking/) by Sam Brinson
 
 
 ## 2017 
