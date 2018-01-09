@@ -61,6 +61,7 @@ layout: default
 * [Shakespeare's characters show us how personal growth should happen](https://hbr.org/2017/01/shakespeares-characters-show-us-how-self-development-should-happen) by Declan Fitzsimons
 * [Creating a policy index for the arts](https://ssir.org/articles/entry/creating_a_policy_index_for_the_arts) by Roland J. Kushner & Randy Cohen 
 * [It’s time to break arts philanthropy out of its silo](https://ssir.org/articles/entry/its_time_to_break_arts_philanthropy_out_of_its_silo) by Ian David Moss
+* [Which revolution is more historic: industrial or tech?](https://www.gsb.stanford.edu/insights/which-revolution-more-historic-industrial-or-tech) by Edmund L. Andrews
 
 
 ## 2017 
