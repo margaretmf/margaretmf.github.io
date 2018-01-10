@@ -18,3 +18,6 @@ layout: default
 
 <img class="profile-picture" src="dc_rooftop.jpg">
 
+
+
+<img class="profile-picture" src="womens_march_posters.jpg">
