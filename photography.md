@@ -31,3 +31,12 @@ layout: default
 <img class="profile-picture" src="dc.jpg">
 
 
+
+<img class="profile-picture" src="georgetown.jpg">
+
+
+
+<img class="profile-picture" src="kentucky_landscape.jpg">
+
+
+<b>
