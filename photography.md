@@ -39,4 +39,54 @@ layout: default
 <img class="profile-picture" src="kentucky_landscape.jpg">
 
 
+
+<img class="profile-picture" src="white_house_winter.jpg">
+
+
+
+<img class="profile-picture" src="christmas.jpg">
+
+
+
+<img class="profile-picture" src="dc_rooftop_expanded.jpg">
+
+
+
+<img class="profile-picture" src="kentucky_path.jpg">
+
+
+
+<img class="profile-picture" src="georgetown.jpg">
+
+
+
+<img class="profile-picture" src="academy.jpg">
+
+
+
+<img class="profile-picture" src="washington_dc.jpg">
+
+
+
+<img class="profile-picture" src="redwood_trees.jpg">
+
+
+
+<img class="profile-picture" src="kentucky_truck.jpg">
+
+
+
+<img class="profile-picture" src="cherry_blossoms.jpg">
+
+
+
+<img class="profile-picture" src="womens_march.jpg">
+
+
+
+<img class="profile-picture" src="georgetown_christmas.jpg">
+
+
 <b>
+
+
