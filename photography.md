@@ -14,3 +14,7 @@ layout: default
 
 <img class="profile-picture" src="building_and_windows.jpg">
 
+
+
+<img class="profile-picture" src="dc_rooftop.jpg">
+
