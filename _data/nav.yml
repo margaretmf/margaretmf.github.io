@@ -9,15 +9,18 @@
   
 - name: "Contact"
   link: "contact"
+ 
+- name: "Photography"
+  link: "photography"
 
 - name: "Reading List"
   link: "readinglist"
-
-- name: "Resume"
-  link: "resume"
   
 - name: "Portfolio"
   link: "portfolio"
+  
+- name: "Resume"
+  link: "resume"
   
 
   
