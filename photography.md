@@ -10,3 +10,7 @@ layout: default
 
 <img class="profile-picture" src="boston.jpg">
 
+
+
+<img class="profile-picture" src="building_and_windows.jpg">
+
