@@ -4,29 +4,22 @@ layout: default
 
 <br>
 
+White House Winter
 <img class="profile-picture" src="white_house_winter.jpg">
 <br>
 
+Washington, DC
 <img class="profile-picture" src="washington_dc.jpg">
 <br>
 
+Winter Ice
 <img class="profile-picture" src="winter_ice.jpg">
 <br>
 
-<img class="profile-picture" src="boston.jpg">
+Georgetown Christmas
+<img class="profile-picture" src="georgetown_christmas.jpg">
 <br>
 
-<img class="profile-picture" src="womens_march_posters.jpg">
-<br>
-
-<img class="profile-picture" src="womens_march.jpg">
-<br> 
-
-<img class="profile-picture" src="cherry_blossoms.jpg">
-<br>
-
-<img class="profile-picture" src="georgetown.jpg">
-<br>
-
-<img class="profile-picture" src="dc.jpg">
+Christmas
+<img class="profile-picture" src="christmas.jpg">
 <br>
