@@ -4,92 +4,92 @@ layout: default
 
 <br>
 
-### Winter
+## Winter
 
-## White House
+### White House
 <img class="profile-picture" src="white_house_winter.jpg">
 
 <br>
 
-## Washington, DC
+### Washington, DC
 <img class="profile-picture" src="washington_dc.jpg">
 
 <br>
 
-## Winter Ice
+### Winter Ice
 <img class="profile-picture" src="winter_ice.jpg">
 
 <br>
 
-## Georgetown Christmas
+### Georgetown Christmas
 <img class="profile-picture" src="georgetown_christmas.jpg">
 
 <br>
 
-## Christmas
+### Christmas
 <img class="profile-picture" src="christmas.jpg">
 
 <br>
 
-## Boston
+### Boston
 <img class="profile-picture" src="boston.jpg">
 
 <br>
 
-## Women's March Posters
+### Women's March Posters
 <img class="profile-picture" src="womens_march_posters.jpg">
 
 <br>
 
-## Women's March
+### Women's March
 <img class="profile-picture" src="womens_march.jpg">
 
-### Spring
+## Spring
 
-## Cherry Blossoms in Washington, DC
+### Cherry Blossoms in Washington, DC
 <img class="profile-picture" src="cherry_blossoms.jpg">
 
-# Georgetown
+### Georgetown
 <img class="profile-picture" src="georgetown.jpg">
 
-## Washington, DC
+### Washington, DC
 <img class="profile-picture" src="dc.jpg">
 
-### Summer
+## Summer
 
-## Kentucky Path
+### Kentucky Path
 <img class="profile-picture" src="kentucky_path.jpg">
 
 <br>
 
-## Kentucky Landscape
+### Kentucky Landscape
 <img class="profile-picture" src="kentucky_landscape.jpg">
 
 <br>
 
-## Kentucky Farm
+### Kentucky Farm
 <img class="profile-picture" src="kentucky_farm.jpg">
 
 <br>
 
-## Kentucky Tractor
+### Kentucky Tractor
 <img class="profile-picture" src="kentucky_truck.jpg">
 
 <br>
 
-## Academy
+### Academy
 <img class="profile-picture" src="academy.jpg">
 
 <br>
 
-### Fall
+## Fall
 
-## Building and Windows
+### Building and Windows
 <img class="profile-picture" src="building_and_windows.jpg">
 
 <br>
 
-## DC Rooftop
+### DC Rooftop
 <img class="profile-picture" src="dc_rooftop.jpg">
 
 <br>
@@ -98,17 +98,17 @@ layout: default
 
 <br>
 
-## Door
+### Door
 <img class="profile-picture" src="door.jpg">
 
 <br>
 
-## California
+### California
 <img class="profile-picture" src="california.jpg">
 
 <br>
 
-## Redwood Trees
+### Redwood Trees
 <img class="profile-picture" src="redwood_trees.jpg">
 
 <br>
