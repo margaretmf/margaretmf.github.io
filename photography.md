@@ -26,3 +26,8 @@ layout: default
 
 <img class="profile-picture" src="winter_ice.jpg">
 
+
+
+<img class="profile-picture" src="dc.jpg">
+
+
