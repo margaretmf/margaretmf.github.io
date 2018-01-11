@@ -72,10 +72,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="cherry_blossoms.jpg">
-
-
-
 <img class="profile-picture" src="womens_march.jpg">
 
 
