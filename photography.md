@@ -56,10 +56,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="georgetown.jpg">
-
-
-
 <img class="profile-picture" src="academy.jpg">
 
 
