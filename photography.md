@@ -84,6 +84,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="bookbag.jpg">
+
+
+
 
 <b>
 
