@@ -20,6 +20,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="bookbag.jpg">
+
+
+
 <img class="profile-picture" src="womens_march_posters.jpg">
 
 
@@ -81,10 +85,6 @@ layout: default
 
 
 <img class="profile-picture" src="red_door.jpg">
-
-
-
-<img class="profile-picture" src="bookbag.jpg">
 
 
 
