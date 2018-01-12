@@ -36,11 +36,11 @@ layout: default
 
 
 
+<img class="profile-picture" src="womens_march.jpg">
+
+
+
 <img class="profile-picture" src="door.jpg">
-
-
-
-<img class="profile-picture" src="kentucky_landscape.jpg">
 
 
 
@@ -76,7 +76,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="womens_march.jpg">
+<img class="profile-picture" src="kentucky_landscape.jpg">
 
 
 
