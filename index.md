@@ -18,7 +18,7 @@ During my free time, one can find me running, reading, dancing, preparing for th
 
 ## Passions
 
-Quantifying, modeling, structuring, ideating, strategizing, integrating, humanizing, thoughtfully communicating, and dialoguing
+Quantifying, conceptualizing, modeling, shaping, ideating, strategizing, integrating, humanizing, thoughtfully communicating, and dialoguing
 
 <br>
 
