@@ -40,10 +40,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="door.jpg">
-
-
-
 <img class="profile-picture" src="white_house_winter.jpg">
 
 
@@ -85,6 +81,10 @@ layout: default
 
 
 <img class="profile-picture" src="rugs.jpg">
+
+
+
+<img class="profile-picture" src="door.jpg">
 
 
 
