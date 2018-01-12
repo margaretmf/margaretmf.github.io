@@ -80,7 +80,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography.jpg">
+<img class="profile-picture" src="red_door.jpg">
 
 
 
