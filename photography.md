@@ -60,7 +60,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="washington_dc.jpg">
+<img class="profile-picture" src="door.jpg">
 
 
 
@@ -84,7 +84,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="door.jpg">
+<img class="profile-picture" src="washington_dc.jpg">
 
 
 
