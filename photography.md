@@ -80,6 +80,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography.jpg">
+
+
+
 
 <b>
 
