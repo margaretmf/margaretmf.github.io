@@ -64,7 +64,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="redwood_trees.jpg">
+<img class="profile-picture" src="kentucky_landscape.jpg">
 
 
 
@@ -72,7 +72,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="kentucky_landscape.jpg">
+<img class="profile-picture" src="redwood_trees.jpg">
 
 
 
