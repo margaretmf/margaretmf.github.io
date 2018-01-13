@@ -35,6 +35,7 @@ layout: default
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Videos
+* [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester and Phil Willburn
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
 * [Data scientists mine government data for evidence of historical events](https://www.upi.com/Science_News/2017/12/29/Data-scientists-mine-government-data-for-evidence-of-historical-events/5381514578683/?spt=rrs&or=4) by Brooks Hays
 * [AI is all hype if we don't have access to the right data](https://business.newsfactor.com/news/story.xhtml?story_id=103001SWUL04) by 
@@ -62,7 +63,6 @@ layout: default
 * [Creating a policy index for the arts](https://ssir.org/articles/entry/creating_a_policy_index_for_the_arts) by Roland J. Kushner & Randy Cohen 
 * [It’s time to break arts philanthropy out of its silo](https://ssir.org/articles/entry/its_time_to_break_arts_philanthropy_out_of_its_silo) by Ian David Moss
 * [Which revolution is more historic: industrial or tech?](https://www.gsb.stanford.edu/insights/which-revolution-more-historic-industrial-or-tech) by Edmund L. Andrews
-* [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester and Phil Willburn
 
 
 ## 2017 
