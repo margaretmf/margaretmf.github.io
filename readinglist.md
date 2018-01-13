@@ -62,6 +62,7 @@ layout: default
 * [Creating a policy index for the arts](https://ssir.org/articles/entry/creating_a_policy_index_for_the_arts) by Roland J. Kushner & Randy Cohen 
 * [It’s time to break arts philanthropy out of its silo](https://ssir.org/articles/entry/its_time_to_break_arts_philanthropy_out_of_its_silo) by Ian David Moss
 * [Which revolution is more historic: industrial or tech?](https://www.gsb.stanford.edu/insights/which-revolution-more-historic-industrial-or-tech) by Edmund L. Andrews
+* [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester and Phil Willburn
 
 
 ## 2017 
