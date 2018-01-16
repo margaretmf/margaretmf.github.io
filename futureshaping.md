@@ -9,7 +9,7 @@ and how the future may be shaped.
 ### In Honor of Marting Luther King, Jr. Day - On Strategic Thinking
 Martin Luther King, Jr. delivered at the Lincoln Memorial, Washington, DC the following [words](http://www.americanrhetoric.com/speeches/mlkihaveadream.htm), among many:
 
-* "And so even though we face the difficulties of today and tomorrow, I still have a dream. It is a dream deeply rooted in the American dream. 
+"And so even though we face the difficulties of today and tomorrow, I still have a dream. It is a dream deeply rooted in the American dream. 
 
 I have a dream that one day this nation will rise up and live out the true meaning of its creed: 'We hold these truths to be self-evident, that all men are created equal.'
 
