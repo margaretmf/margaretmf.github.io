@@ -33,7 +33,7 @@ People often throw around the word "strategic thinker", claiming to be one. Thro
 
 It's up to us to continue to live this vision, but I believe that we can continue to shape a world where equality is the norm. We can lift each other up and embed values of freedom, equality, and inclusiveness into our systems - social, data, and technical. How can we do this? There may be ways to measure social freedom, equality, or inclusiveness in organizations. There may be ways to measure how algorithms affect social freeom, social equality, or social inclusiveness. There may be ways to systemically break down mental, physical, or technical barriers to social freedom, equality, or inclusiveness. These are just a few of many - but the dream must continue to be dreamt, and lived.
 
-<b>
+<br>
 
 
 
