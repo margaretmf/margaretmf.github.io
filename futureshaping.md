@@ -6,6 +6,8 @@ layout: default
 Currently, as we are living through a time of [accelerations](https://www.youtube.com/watch?v=Up7K5sRqllw), I write about trends I observe, how I imagine a better world,
 and how the future may be shaped.
 
+<br>
+
 ### In Honor of Marting Luther King, Jr. Day - On Strategic Thinking
 Martin Luther King, Jr. delivered at the Lincoln Memorial, Washington, DC the following [words](http://www.americanrhetoric.com/speeches/mlkihaveadream.htm), among many:
 
