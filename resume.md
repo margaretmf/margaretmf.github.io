@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data science professional with a background in systems thinking and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Demonstrate interest in organizational strategy. Possess strong foresight.
+Versatile data science professional with a background in systems thinking and experience with public data sources. Passionate about solving problems using quantitative and qualitative methods. Demonstrate interest in strategic thinking. Possess strong foresight.
 
  <br>
  
