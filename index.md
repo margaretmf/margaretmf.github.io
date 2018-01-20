@@ -24,11 +24,11 @@ Quantifying, conceptualizing, modeling, structuring, shaping, ideating, strategi
 
 ## Skills
 
-Soft: cross-functional teamwork, knowledge management, strategic alignment, facilitation, requirements gathering, interviewing, international teamwork, report writing; familiar with Spanish language
+Soft: cross-functional teamwork, knowledge management, strategic alignment, facilitating, requirements gathering, interviewing, report writing, international teamwork; familiar with Spanish language
 
-Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, natural language processing, systems analysis, business analysis; familiar with time series analysis and interested in probabilistic record linkage 
+Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality reduction, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with natural language processing, time series analysis and interested in probabilistic record linkage 
 
-Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Tableau, Periscope, Git/Github; familiar with MapReduce, AWS, linux, Java, SAS
+Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Periscope, Git/Github; familiar with Tableau, MapReduce, AWS, linux, Java, SAS
 
 <br>
 
