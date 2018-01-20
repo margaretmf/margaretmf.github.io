@@ -30,9 +30,9 @@ August 2010 - May 2014
 ### EVERFI
 Data Analyst
 April 2016 - Present
+* Streamlining reporting processes by writing R functions and packages for up to 560 data points for 9 online programs
 * Clustering data, evaluating clusters with validation metrics, and characterizing clusters
 * Measuring the quality and difficulty of questions to support standardizing educational assessments
-* Streamlining reporting processes by writing R functions and packages
 * Developing quantitative insights for white papers
 * Enjoying work with engineers
  
@@ -40,7 +40,7 @@ April 2016 - Present
 Data Ambassador
 October 2016 - Present
 * Collaborate to develop a foster care case complexity score and a case manager route recommendation system
-* Manage communication with Community-Based Care Florida
+* Manage communication with Community-Based Care Florida and align work across two workstreams
  
 ### Clarity Campaign Labs
 Analyst Fellow
