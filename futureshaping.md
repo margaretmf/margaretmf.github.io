@@ -17,9 +17,10 @@ In the 21st century, with rapid technological and political change as well incre
 To shape the world beyond these pressures and deal with the complexity of them, one must be adaptable, be rooted in a strong foundation, and have an opinion. Having a liberal arts and sciences education, where skills attained may be broad and cross-disciplinary, from writing to coding, liberates students to see beyond a highly specialized job and into the fluidity of what a job even can be. The education liberates students to question what is most valuable and to influence what could be valued. The education frees students from the fear of what jobs will exist in ten years because students carry the ability to imagine what jobs can become.
 
 The dean at UVA has introduced a new curriculum that facilitates more interdisciplinary studies. When at UVA, critics might accuse that I was scattered taking courses across the drama, history, english, computer science, media studies, and math departments; but by taking classes across the disciplines, I was able to see trends relating to global and technological change, revolutions, entrepreneurship, mental models, and paradigms, as well as develop skills ranging from writing to coding to speaking to modeling that can only enhance one another. While the liberal arts and sciences form of education does not lead to instant gratification professionally in the short term, I think that the ability to see phenomena from multiple perspectives and quickly be able to shift perspectives will be helpful in the long term. Politicians criticize the liberal arts and sciences form of education, but I think that it's form of education will support freedom continuing to ring and America's values continue to sing long into the 22nd century, if supported, also by what's practical.
-
+<br>
 
 <br>
+
 
 ### In Honor of Marting Luther King, Jr. Day - On Strategic Thinking
 Martin Luther King, Jr. delivered, among many, at the Lincoln Memorial, Washington, DC the following [words](http://www.americanrhetoric.com/speeches/mlkihaveadream.htm):
