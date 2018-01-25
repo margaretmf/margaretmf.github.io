@@ -37,7 +37,7 @@ layout: default
 ### Online Articles/Publications/Videos
 * [Engaging the Private Sector to Help Build Peaceful and Inclusive Societies](https://mastercardcenter.org/insights/engaging-private-sector-build-peaceful-inclusive-societies/?utm_campaign=Davos+2018+-+Paid&utm_medium=bitly&utm_source=linkedin)
 * [How to Prepare Children for the Ongoing Technological Explosion and Jobs of the Future with Jonathan Mugan](https://tech2025.com/events/webinar-how-to-prepare-children-for-the-ongoing-technological-explosion-and-jobs-of-the-future-with-jonathan-mugan/?utm_content=buffer061a5&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Jonathan Mugan
-* [Big Brother on wheels: Why your car company may know more about you than your spouse.](Big Brother on wheels: Why your car company may know more about you than your spouse.) by Peter Holley
+* [Big Brother on wheels: Why your car company may know more about you than your spouse.](https://www.washingtonpost.com/news/innovations/wp/2018/01/15/big-brother-on-wheels-why-your-car-company-may-know-more-about-you-than-your-spouse/?utm_term=.0421867f26dd) by Peter Holley
 * [Our Opportunity for More Data-Driven Nonprofit Program Evaluation](https://ssir.org/articles/entry/our_opportunity_for_more_data_driven_nonprofit_program_evaluation) by Tracey Gyateng & Beth Simone Novek
 * [The Big Shift: Why it matters](http://www.johnseelybrown.com/bigshiftwhyitmatters.pdf) by John Hagel III, John Seely Brown, and Lang Davison
 * [Connecting the Dots to the Future of Technology in Higher Education](https://er.educause.edu/articles/2011/7/connecting-the-dots-to-the-future-of-technology-in-higher-education) by Stephen DiFilipo
