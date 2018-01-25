@@ -19,7 +19,7 @@ July 2014 - December 2015
 BA in [History](http://as.virginia.edu)
 August 2010 - May 2014
 * Advisor: Sophia Rosenfeld
-* Thesis: History of Children's Play in the Victorian Era
+* Major Papers: History of Children's Play in the Victorian Era, History of Musicology during the Scientific Revolution
 * Relevant Classwork: Computer Science, Statistics, Calculus II, Linear Algebra, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
  
@@ -47,7 +47,7 @@ Analyst Fellow
 January 2016 - April 2016
 * Analyzed data on political candidates and their platform, which supported political campaign strategy development
 * Taught staff how to conduct a regression analysis, which strengthened firm's research
-* Created maps of national voter scores to support a key client, which resulted in a Medium blogpost, [What does Donald Trump think of voters in Tuesday's primary states?](https://www.linkedin.com/in/margaret-furr-1567b062/detail/treasury/position:771912109/?entityUrn=urn%3Ali%3Afs_treasuryMedia%3A(ACoAAA1Jr9IBcbODSfDhZqb7EuRSFxQYgmBHmi0%2C51163099))
+* Created maps of national voter scores to support a key client, which resulted in a Medium blogpost, [What does Donald Trump think of voters in Tuesday's primary states?](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d)
  
 ### BluestoneLogic
 Systems Analyst and Designer Intern
