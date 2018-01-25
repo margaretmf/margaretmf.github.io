@@ -12,7 +12,7 @@ I'm Margaret Furr, and I'm becoming a creative problem solver and a long-term th
 
 Currently, I'm working as a Data Analyst with EVERFI, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Data Ambassador with [DataKind Corps/NY](http://www.datakind.org). 
 
-During my free time, one can find me running, reading, dancing, preparing for the future, or understanding [the power of improv](http://www.bing.com/videos/search?q=the+power+of+improv&view=detail&mid=D6F586BD43DCC62C7AAED6F586BD43DCC62C7AAE&FORM=VIRE) in the 21st century. And a sentence that inspires me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
+During my free time, one can find me running, reading, dancing, preparing for the future, or understanding [the power of improv](http://www.bing.com/videos/search?q=the+power+of+improv&view=detail&mid=D6F586BD43DCC62C7AAED6F586BD43DCC62C7AAE&FORM=VIRE) in the 21st century. A sentence that inspires me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
 <br>
 
@@ -24,11 +24,11 @@ Quantifying, conceptualizing, modeling, structuring, shaping, ideating, strategi
 
 ## Skills
 
-Soft: cross-functional teamwork, knowledge management, strategic alignment, facilitating, requirements gathering, interviewing, report writing, international teamwork; familiar with Spanish language
+Soft: cross-functional teamwork, international teamwork, knowledge managing, strategic aligning, requirements gathering, interviewing, report writing; familiar with Spanish language
 
-Data Science: hypothesis testing and confidence intervals, principal component analysis and dimensionality reduction, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with natural language processing, time series analysis and interested in probabilistic record linkage 
+Data Science: data visualization, data storytelling,hypothesis testing and confidence intervals, principal component analysis and dimensionality reduction, feature engineering, classification, regression, clustering, social network analysis, geospatial analysis, survey analysis, systems analysis, business analysis, database schema design, conceptual data modeling; familiar with natural language processing, time series analysis and interested in probabilistic record linkage 
 
-Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Periscope, Git/Github; familiar with Tableau, MapReduce, AWS, linux, Java, SAS
+Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Periscope, Git/Github; familiar with Tableau, MapReduce, AWS, command line, Java, SAS
 
 <br>
 
