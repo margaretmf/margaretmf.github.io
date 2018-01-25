@@ -34,7 +34,9 @@ layout: default
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
-### Online Articles/Videos
+### Online Articles/Publications/Videos
+* [The Big Shift: Why it matters](http://www.johnseelybrown.com/bigshiftwhyitmatters.pdf) by John Hagel III, John Seely Brown, and Lang Davison
+* [Connecting the Dots to the Future of Technology in Higher Education](https://er.educause.edu/articles/2011/7/connecting-the-dots-to-the-future-of-technology-in-higher-education) by Stephen DiFilipo
 * [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester and Phil Willburn
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
 * [Data scientists mine government data for evidence of historical events](https://www.upi.com/Science_News/2017/12/29/Data-scientists-mine-government-data-for-evidence-of-historical-events/5381514578683/?spt=rrs&or=4) by Brooks Hays
@@ -78,7 +80,7 @@ layout: default
 * [Self and Soul: A Defense of Ideals](http://www.hup.harvard.edu/catalog.php?isbn=9780674088207) by Mark Edmundson
 * [Thank You for Being Late: An Optimist's Guide to Thriving in the Age of Accelerations](https://www.amazon.com/Thank-You-Being-Late-Accelerations/dp/0374273537) by Thomas L. Friedman
 
-### Online Articles/Videos
+### Online Articles/Publications/Videos
 * [Meet the man behind the most important tool in data science](https://qz.com/1126615/the-story-of-the-most-important-tool-in-data-science/) by Dan Kopf
 * [Machine learning: universities ready students for AI revolution](https://www.timeshighereducation.com/news/broader-four-year-degrees-offered-in-response-to-ai-revolution#survey-answer) by Chris Havergal
 * [How machine learning creates new professions — and problems](https://www.ft.com/content/49e81ebe-cbc3-11e7-8536-d321d0d897a3) by Richard Waters
