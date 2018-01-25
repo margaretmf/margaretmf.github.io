@@ -35,6 +35,7 @@ layout: default
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Publications/Videos
+* [Our Opportunity for More Data-Driven Nonprofit Program Evaluation](https://ssir.org/articles/entry/our_opportunity_for_more_data_driven_nonprofit_program_evaluation) by Tracey Gyateng & Beth Simone Novek
 * [The Big Shift: Why it matters](http://www.johnseelybrown.com/bigshiftwhyitmatters.pdf) by John Hagel III, John Seely Brown, and Lang Davison
 * [Connecting the Dots to the Future of Technology in Higher Education](https://er.educause.edu/articles/2011/7/connecting-the-dots-to-the-future-of-technology-in-higher-education) by Stephen DiFilipo
 * [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester and Phil Willburn
