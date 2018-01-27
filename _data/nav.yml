@@ -16,11 +16,16 @@
 - name: "Reading List"
   link: "readinglist"
   
+- name: "Education"
+  link: "education"
+  
 - name: "Portfolio"
   link: "portfolio"
   
 - name: "Resume"
   link: "resume"
+  
+
   
 
   
