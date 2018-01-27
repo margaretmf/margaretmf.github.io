@@ -35,6 +35,11 @@ layout: default
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Publications/Videos
+* [After Big Data: The coming age of “big indicators”](https://ssir.org/articles/entry/after_big_data_the_coming_age_of_big_indicators) by Andrew Zolli
+* [Can measures change the world?](https://ssir.org/articles/entry/can_measures_change_the_world) by Christopher Nelson, Anita Chandra, and Carolyn Miller
+* [Why companies and universities should forge long-term collaborations](https://hbr.org/2018/01/why-companies-and-universities-should-forge-long-term-collaborations?utm_campaign=hbr&utm_source=twitter&utm_medium=social) by Kenneth R. Lutchen
+* [Universities are not ivory towers. Here's the role they can play today](https://www.weforum.org/agenda/2018/01/why-universities-need-to-win-back-trust?utm_content=buffer145af&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Alice Gast
+* [Podcast: Education for the Fourth Industrial Revolution](https://www.weforum.org/agenda/2018/01/podcast-education-for-the-fourth-industrial-revolution?utm_content=bufferb9254&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Anne Marie Engtoft Larsen
 * [Engaging the Private Sector to Help Build Peaceful and Inclusive Societies](https://mastercardcenter.org/insights/engaging-private-sector-build-peaceful-inclusive-societies/?utm_campaign=Davos+2018+-+Paid&utm_medium=bitly&utm_source=linkedin)
 * [How to Prepare Children for the Ongoing Technological Explosion and Jobs of the Future with Jonathan Mugan](https://tech2025.com/events/webinar-how-to-prepare-children-for-the-ongoing-technological-explosion-and-jobs-of-the-future-with-jonathan-mugan/?utm_content=buffer061a5&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Jonathan Mugan
 * [Big Brother on wheels: Why your car company may know more about you than your spouse.](https://www.washingtonpost.com/news/innovations/wp/2018/01/15/big-brother-on-wheels-why-your-car-company-may-know-more-about-you-than-your-spouse/?utm_term=.0421867f26dd) by Peter Holley
