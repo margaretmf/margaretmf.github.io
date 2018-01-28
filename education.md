@@ -15,3 +15,5 @@ layout: default
 * Auditing Coursera Course [Digital Product Management: Modern Fundamentals](https://www.coursera.org/learn/uva-darden-digital-product-management/)
 * Auditing Coursera Course [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 * Auditing Coursera Course [Model Thinking](https://www.coursera.org/learn/model-thinking)
+* Auditing Coursera Course [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
+* Auditing Coursera Course [Networks Illustrated: Principles without Calculus](https://www.coursera.org/learn/networks-illustrated)
