@@ -5,6 +5,7 @@ layout: default
 ## 2018
 
 ### Books
+* [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
@@ -35,6 +36,7 @@ layout: default
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Publications/Videos
+* [Algorithms are making American inequality worse](https://www.technologyreview.com/s/610026/algorithms-are-making-american-inequality-worse/) by Jacie Snow
 * [After Big Data: The coming age of “big indicators”](https://ssir.org/articles/entry/after_big_data_the_coming_age_of_big_indicators) by Andrew Zolli
 * [Can measures change the world?](https://ssir.org/articles/entry/can_measures_change_the_world) by Christopher Nelson, Anita Chandra, and Carolyn Miller
 * [Why companies and universities should forge long-term collaborations](https://hbr.org/2018/01/why-companies-and-universities-should-forge-long-term-collaborations?utm_campaign=hbr&utm_source=twitter&utm_medium=social) by Kenneth R. Lutchen
