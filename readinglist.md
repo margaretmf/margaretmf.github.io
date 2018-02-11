@@ -39,7 +39,7 @@ layout: default
 ### Online Articles/Publications/Videos
 * [Algorithms are making American inequality worse](https://www.technologyreview.com/s/610026/algorithms-are-making-american-inequality-worse/) by Jacie Snow
 * [After Big Data: The coming age of “big indicators”](https://ssir.org/articles/entry/after_big_data_the_coming_age_of_big_indicators) by Andrew Zolli
-* [Can measures change the world?](https://ssir.org/articles/entry/can_measures_change_the_world) by Christopher Nelson, Anita Chandra, and Carolyn Miller
+* [Can measures change the world?](https://ssir.org/articles/entry/can_measures_change_the_world) by Christopher Nelson, Anita Chandra, & Carolyn Miller
 * [Why companies and universities should forge long-term collaborations](https://hbr.org/2018/01/why-companies-and-universities-should-forge-long-term-collaborations?utm_campaign=hbr&utm_source=twitter&utm_medium=social) by Kenneth R. Lutchen
 * [Universities are not ivory towers. Here's the role they can play today](https://www.weforum.org/agenda/2018/01/why-universities-need-to-win-back-trust?utm_content=buffer145af&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Alice Gast
 * [Podcast: Education for the Fourth Industrial Revolution](https://www.weforum.org/agenda/2018/01/podcast-education-for-the-fourth-industrial-revolution?utm_content=bufferb9254&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Anne Marie Engtoft Larsen
@@ -47,20 +47,20 @@ layout: default
 * [How to Prepare Children for the Ongoing Technological Explosion and Jobs of the Future with Jonathan Mugan](https://tech2025.com/events/webinar-how-to-prepare-children-for-the-ongoing-technological-explosion-and-jobs-of-the-future-with-jonathan-mugan/?utm_content=buffer061a5&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Jonathan Mugan
 * [Big Brother on wheels: Why your car company may know more about you than your spouse.](https://www.washingtonpost.com/news/innovations/wp/2018/01/15/big-brother-on-wheels-why-your-car-company-may-know-more-about-you-than-your-spouse/?utm_term=.0421867f26dd) by Peter Holley
 * [Our Opportunity for More Data-Driven Nonprofit Program Evaluation](https://ssir.org/articles/entry/our_opportunity_for_more_data_driven_nonprofit_program_evaluation) by Tracey Gyateng & Beth Simone Novek
-* [The Big Shift: Why it matters](http://www.johnseelybrown.com/bigshiftwhyitmatters.pdf) by John Hagel III, John Seely Brown, and Lang Davison
+* [The Big Shift: Why it matters](http://www.johnseelybrown.com/bigshiftwhyitmatters.pdf) by John Hagel III, John Seely Brown, & Lang Davison
 * [Connecting the Dots to the Future of Technology in Higher Education](https://er.educause.edu/articles/2011/7/connecting-the-dots-to-the-future-of-technology-in-higher-education) by Stephen DiFilipo
-* [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester and Phil Willburn
+* [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester & Phil Willburn
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
 * [Data scientists mine government data for evidence of historical events](https://www.upi.com/Science_News/2017/12/29/Data-scientists-mine-government-data-for-evidence-of-historical-events/5381514578683/?spt=rrs&or=4) by Brooks Hays
 * [AI is all hype if we don't have access to the right data](https://business.newsfactor.com/news/story.xhtml?story_id=103001SWUL04) by 
 * [Women of Washington: Data science and machine learning in government](https://federalnewsradio.com/sponsored-content/2017/08/women-of-washington-data-science-and-machine-learning-in-government/slide/1/) by Steff Thomas
-* [Creating a better economy with data science](https://ssir.org/articles/entry/creating_a_better_economy_with_data_science) by Martin Whittaker and Tianhui Michael Li 
+* [Creating a better economy with data science](https://ssir.org/articles/entry/creating_a_better_economy_with_data_science) by Martin Whittaker & Tianhui Michael Li 
 * [Big data lessons from Netflix](https://www.wired.com/insights/2014/03/big-data-lessons-netflix/) by Phil Simon
-* [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza and Kendra L. Smith 
-* [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success) by Eric T. Anderson and Florian Zettelmeyer
+* [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza & Kendra L. Smith 
+* [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success) by Eric T. Anderson & Florian Zettelmeyer
 * [The Fourth Industrial Revolution: what it means, how to respond](https://www.weforum.org/agenda/2016/01/the-fourth-industrial-revolution-what-it-means-and-how-to-respond/) by Klaus Schwab
 * [The nature of revolution](https://isreview.org/issue/77/nature-revolution) by Duncan Hallas
-* [10 things children born in 2018 will probably never experience](https://futurism.com/10-things-children-born-2018-will-never-experience/) by Kristin Houser and Patrick Caughill
+* [10 things children born in 2018 will probably never experience](https://futurism.com/10-things-children-born-2018-will-never-experience/) by Kristin Houser & Patrick Caughill
 * [Can your firm develop a sustainable edge? ask John Hagel and John Seely Brown](http://knowledge.wharton.upenn.edu/article/can-your-firm-develop-a-sustainable-edge-ask-john-hagel-and-john-seely-brown/)
 * [What is it that makes humans unique?](https://singularityhub.com/2017/12/28/what-is-it-that-makes-humans-unique/?utm_source=Singularity+Hub+Newsletter&utm_campaign=5f8ac35b25-Hub_Daily_Newsletter&utm_medium=email&utm_term=0_f0cf60cdae-5f8ac35b25-58252949#sm.00008tp9lpiijdeutj81jpgn1mqtj) by Raya Bidshahri
 * [2018: Booked solid](https://medium.com/@aimeewoodall/2018-booked-solid-5713077835f1) by Jeff Dyer
@@ -69,7 +69,7 @@ layout: default
 * [Education and underemployment in the age of machine intelligence](https://www.brookings.edu/blog/brown-center-chalkboard/2016/01/11/education-and-underemployment-in-the-age-of-machine-intelligence/) by Daniel Araya
 * [Why are there still so many jobs? the history and future of workplace automation](http://economics.mit.edu/files/10865) by David H. Autor
 * [Creativity and learning for the conceptual age](https://www.brookings.edu/blog/brown-center-chalkboard/2016/03/14/creativity-and-learning-for-the-conceptual-age/) by Daniel Araya
-* [Technology and people: the great job-creating machine](https://www2.deloitte.com/content/dam/Deloitte/uk/Documents/finance/deloitte-uk-technology-and-people.pdf) by Ian Stewart, Debapratim, and Alex Cole
+* [Technology and people: the great job-creating machine](https://www2.deloitte.com/content/dam/Deloitte/uk/Documents/finance/deloitte-uk-technology-and-people.pdf) by Ian Stewart, Debapratim, & Alex Cole
 * [That 'useless' liberal arts degree has become tech's hottest ticket](https://www.forbes.com/sites/georgeanders/2015/07/29/liberal-arts-degree-tech/#7995b81c745d) by George Anders
 * [Surfing the 4th Industrial Revolution: Artificial intelligence and the liberal arts](https://www.brookings.edu/blog/brown-center-chalkboard/2017/04/11/surfing-the-4th-industrial-revolution-artificial-intelligence-and-the-liberal-arts/) by Daniel Araya
 * [The Conceptual Age: The importance of higher order thinking](https://www.diygenius.com/higher-order-thinking/) by Sam Brinson
@@ -85,7 +85,7 @@ layout: default
 * [The Information: A History, A Theory, A Flood](https://www.amazon.com/Information-History-Theory-Flood/dp/1400096235) by James Gleick
 * [Sensemaking: The Power of the Humanities in the Age of the Algorithm](https://www.amazon.com/Sensemaking-Power-Humanities-Age-Algorithm/dp/031639324X) by Christian Madsbjerg
 * [The Fuzzy and the Techie: Why the Liberal Arts Will Rule the Digital World](https://www.amazon.com/Fuzzy-Techie-Liberal-Digital-World/dp/0544944771/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=22V0FMC7ZMQAYA7X3D27) by Scott Hartley 
-* [Algorithms to Live By: The Computer Science of Human Decisions](https://www.amazon.com/Algorithms-Live-Computer-Science-Decisions/dp/1627790365) by Brian Christian and Tom Griffiths
+* [Algorithms to Live By: The Computer Science of Human Decisions](https://www.amazon.com/Algorithms-Live-Computer-Science-Decisions/dp/1627790365) by Brian Christian & Tom Griffiths
 * [The Moment of Clarity: Using the Human Sciences to Solve Your Toughest Problems](https://www.amazon.com/Moment-Clarity-Sciences-Toughest-Business/dp/1422191907) by Mikkel B. Rasmussen
 * [The Master Switch: The Rise and Fall of Information Empires](https://www.amazon.com/Master-Switch-Rise-Information-Empires/dp/0307390993) by Tim Wu
 * [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315) by Daniel J. Levitin
