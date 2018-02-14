@@ -7,7 +7,7 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 
 <br>
 
-### Virtual Experiences Integrated into Our Business Operations
+### Virtual Experiences Integrated into Our Business Processes
 Data Science is "buzz" right now. Virtual reality will soon be also. The internet once was buzz. So was the telegram, I'm sure also. But I've been recently day dreaming of how virtual experiences will empower our lives for better or for worse.
 
 * Imagine a virtual experience where a student, who is struggling to focus on afternoon homework needs some additional help, can see her teacher providing personalized AI-like support in the room as if she were there in real life.
