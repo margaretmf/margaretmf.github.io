@@ -7,6 +7,24 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 
 <br>
 
+### Virtual Experiences Integrated into Our Business Operations
+Data Science is "buzz" right now. Virtual reality will soon be also. The internet once was buzz. So was the telegram, I'm sure also. But I've been recently day dreaming of how virtual experiences will empower our lives for better or for worse.
+
+* Imagine a virtual experience where a student, who is struggling to focus on afternoon homework needs some additional help, can see her teacher providing personalized AI-like support in the room as if she were there in real life.
+* Imagine a virtual experience where people can learn history in a way so that places in the past appear present.
+* Imagine a virtual experience where instead of getting on a phone call one can have what appears to be a coffee chat.
+* Imagine a virtual experience where nurses and doctors train to take care of patients as if it were happening before a real job.
+* Imagine a virtual experience where someone can try out different internal decorations in a home.
+
+These are examples of ways this new technology could be deployed. There are many more, but the emerging technology and ways businesses will have the opportunity to adopt it will open new horizons.
+
+Why will VR be helpful though? Or will it just be a new gadget, or new buzz? I think that VR will be able to provide people who are distant with more hands on, high touch experiences. I think that VR will also be able to eliminate unnecessary, wasted  resources. There may be unintended consequences to prepare for also with VR. For example, with the rise of social media usage and the interent, people report that teenagers are becoming increasingly anxious and depressed. Will VR have any secondary consequences on mental well-being, and how will this considered along with its deployment?
+
+<br>
+
+<br>
+
+
 ### Liberal Arts and Sciences Thinking
 The classes in a liberal arts and sciences program cover broad topics. In a liberal arts and sciences program, one learns to understand and sense culture, read and think critically, dialogue and debate in writing and orally, as well as study phenomena objectively and scientifically. If one commits to a true liberal arts and sciences education, he or she will take courses across multiple disciplines from painting to classics to astronomy to computer science; and with a broad education, especially if he or she finds common themes that run across the disperse disciplines, he or she might learn to connect the dots across disciplinary boundaries, adapt themselves to different people, thinking styles, and situations, and develop a unique value proposition.
 
