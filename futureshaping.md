@@ -16,7 +16,7 @@ Data Science is "buzz" right now. Virtual reality will soon be also. The interne
 * Imagine a virtual experience where nurses and doctors train to take care of patients as if it were happening before a real job.
 * Imagine a virtual experience where someone can try out different internal decorations in a home.
 
-These are examples of ways this new technology could be deployed. There are many more, but the emerging technology and ways businesses will have the opportunity to adopt it will open new horizons.
+These are examples of ways this new technology may be able to be deployed. There are many more, but the emerging technology and ways businesses will have the opportunity to adopt it will open new horizons. And it will be interesting to continue to learn about the tactics of developing the new technology, deploying it, and understanding its consequences and limitations.
 
 Why will VR be helpful though? Or will it just be a new gadget, or new buzz? I think that VR will be able to provide people who are distant with more hands on, high touch experiences. I think that VR will also be able to eliminate unnecessary, wasted  resources. There may be unintended consequences to prepare for also with VR. For example, with the rise of social media usage and the interent, people report that teenagers are becoming increasingly anxious and depressed. Will VR have any secondary consequences on mental well-being, and how will this considered along with its deployment?
 
