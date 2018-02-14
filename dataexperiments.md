@@ -46,7 +46,7 @@ Now that I’ve shared some background interest in graph databases and social ne
 * I can find brokers in the network who stand in between and connect people well, meaning that they can influence and give the network cohesion.
 * This is a weighted, directed graph, so in visualizing larger arrows, I can see who is sending the most text messages to each other.
 
-<img class="picture" src="network_transivity.jpg">
+<img class="picture" src="network_transitivity.jpg">
 
 <img class="picture" src="texting_network_analysis2.jpg">
 <br>
