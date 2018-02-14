@@ -7,6 +7,8 @@ layout: default
 ### Books
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
+* [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
+* [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
@@ -37,6 +39,12 @@ layout: default
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Publications/Videos
+* [Want more innovation? Try connecting the dots between engineering and humanities](https://theconversation.com/want-more-innovation-try-connecting-the-dots-between-engineering-and-humanities-42800) by Sophia Acord, Kevin S. Jones, & Susan D. Gillespie
+* [Strategy as a wicked problem](https://hbr.org/2008/05/strategy-as-a-wicked-problem) by John C. Camillus
+* [Silicon valley to liberal arts majors: We want you](http://bostonreview.net/science-nature/tom-slee-silicon-valley-liberal-arts-majors-we-want-you) 
+* [Saving the neighborhood](https://ssir.org/articles/entry/saving_the_neighborhood?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Paul Hockenos 
+* [Leading Change: Leadership, organization, and social movements](http://marshallganz.usmblogs.com/files/2012/08/Chapter-19-Leading-Change-Leadership-Organization-and-Social-Movements.pdf) by Marshall Ganz
+* [‘Big data is people!’ The sum of our clickstreams is not an objective measure of who we are, but a personal portrait of our hopes and desires](https://aeon.co/essays/why-big-data-is-actually-small-personal-and-very-human) by Corey S. Powell
 * [Algorithms are making American inequality worse](https://www.technologyreview.com/s/610026/algorithms-are-making-american-inequality-worse/) by Jacie Snow
 * [After Big Data: The coming age of “big indicators”](https://ssir.org/articles/entry/after_big_data_the_coming_age_of_big_indicators) by Andrew Zolli
 * [Can measures change the world?](https://ssir.org/articles/entry/can_measures_change_the_world) by Christopher Nelson, Anita Chandra, & Carolyn Miller
