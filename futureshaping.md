@@ -8,7 +8,7 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 <br>
 
 ### Virtual Experiences Integrated into Business Processes
-Data Science is "buzz" right now. Virtual reality will soon be also. The internet once was buzz. So was the telegram, I'm sure also. But I've been recently day dreaming of how virtual experiences will empower our lives for better or for worse.
+Data Science is a "buzzword" right now. Virtual reality will soon be also. The internet once was a buzzward. So was telegramming, I'm sure also. But I've been recently day dreaming of how virtual experiences will empower our lives for better or for worse.
 
 * Imagine a virtual experience where a student, who is struggling to focus on afternoon homework needs some additional help, can see her teacher providing personalized AI-like support in the room as if she were there in real life.
 * Imagine a virtual experience where people can learn history in a way so that places in the past appear present.
@@ -16,9 +16,9 @@ Data Science is "buzz" right now. Virtual reality will soon be also. The interne
 * Imagine a virtual experience where nurses and doctors train to take care of patients as if it were happening before a real job.
 * Imagine a virtual experience where someone can try out different internal decorations in a home.
 
-These are examples of ways this new technology may be able to be deployed. There are many more, but the emerging technology and ways businesses will have the opportunity to adopt it will open up to new horizons. And it will be interesting to continue to learn about the tactics of developing the new technology, deploying it, and understanding its consequences and limitations.
+These are examples of ways this new technology may be able to be deployed. There are more, but the emerging technology and ways businesses will have the opportunity to adopt it will open up to new horizons. And it will be interesting to continue to learn about the tactics of developing the new technology, deploying it, and understanding its consequences and limitations.
 
-Why will VR be helpful though? Or will it just be a new gadget, or new buzz? I think that VR will be able to provide people who are distant with more hands on, high touch experiences. I think that VR will also be able to eliminate unnecessary, wasted  resources. There may be unintended consequences to prepare for also with VR. For example, with the rise of social media usage and the interent, people report that teenagers are becoming increasingly anxious and depressed. Will VR have any secondary consequences on mental well-being, and how will this considered along with its deployment?
+Why will VR be helpful though? Or will it just be a new gadget? I think that VR will be able to provide people who are distant with more hands on, high touch experiences. I think that VR will also be able to eliminate unnecessary, wasted  resources. There may be unintended consequences to prepare for also with it. For example, with the rise of social media usage and the interent, people report that teenagers are becoming increasingly anxious and depressed. Will VR have any secondary consequences on mental well-being, and how will this considered along with its deployment?
 
 <br>
 
