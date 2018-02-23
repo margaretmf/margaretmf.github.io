@@ -7,6 +7,18 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 
 <br>
 
+### Business and Social Impact
+Leading thinkers have pointed out that people in the millennial generation and generation Z demand more socially conscious behavior than do anyone in other generations. Some people also argue that businesses more efficiently develop and use resources in comparison to organizations in the social or public sectors. If businesses generate all the value and run society through a free market, then how should business stakeholders hold businesses accountable? I think that for the long-term growth of the world, it will be worthwhile for businesses to integrate strategic social impact programs and for people to compare businesses by how they contribute to social goals. 
+
+I envision a world in which goals, like the social development goals, guide business institutions into the future. I envision an ecosystem with intersecting organizations, institutions, and systems contributing to the goals in diverse ways, while being measured on how they're reaching them. I envision a world in which businesses listen to stakeholders. 
+
+Work that supports this vision includes Paul Tudor Jones's [thoughts](https://www.ted.com/talks/paul_tudor_jones_ii_why_we_need_to_rethink_capitalism) on "Why We Need to Rethink Capitalism", and it's exciting to learn about alinear technological development that can further support reaching goals.
+
+<br>
+
+<br>
+
+
 ### Virtual Experiences Integrated into Business Processes
 Data Science is a "buzzword" right now. Virtual reality will soon be also. The internet once was a buzzward. So was telegramming, I'm sure also. But I've been recently day dreaming of how virtual experiences will empower our lives for better or for worse.
 
