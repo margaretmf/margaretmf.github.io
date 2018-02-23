@@ -39,6 +39,9 @@ layout: default
 * [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
 
 ### Online Articles/Publications/Videos
+* [The Paradoxical Power of Narrative](http://edgeperspectives.typepad.com/edge_perspectives/2018/02/the-paradoxical-power-of-narrative.html) by John Hagel
+* [The GANfather: The man who’s given machines the gift of imagination](https://www.technologyreview.com/s/610253/the-ganfather-the-man-whos-given-machines-the-gift-of-imagination/) by Martin Giles
+* [A 202 candidate sounds the alarm about robots and your job](https://www.seattletimes.com/business/a-2020-candidate-sounds-the-alarm-about-robots-and-your-job/) by Kevin Roose
 * [Want more innovation? Try connecting the dots between engineering and humanities](https://theconversation.com/want-more-innovation-try-connecting-the-dots-between-engineering-and-humanities-42800) by Sophia Acord, Kevin S. Jones, & Susan D. Gillespie
 * [Strategy as a wicked problem](https://hbr.org/2008/05/strategy-as-a-wicked-problem) by John C. Camillus
 * [Silicon valley to liberal arts majors: We want you](http://bostonreview.net/science-nature/tom-slee-silicon-valley-liberal-arts-majors-we-want-you) 
