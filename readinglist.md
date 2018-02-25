@@ -5,19 +5,16 @@ layout: default
 ## 2018
 
 ### Books
+* [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
+* [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
+* [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
-* [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
+* [Flowers for Algernon](https://www.amazon.com/Flowers-Algernon-Daniel-Keyes/dp/015603008X) by Daniel Keyes
 * [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
 * [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
-* [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
-* [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
-* [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
-* [The Structure of Scientific Revolutions](https://www.amazon.com/Structure-Scientific-Revolutions-50th-Anniversary/dp/0226458121) by Thomas Kuhn
-* [Flowers for Algernon](https://www.amazon.com/Flowers-Algernon-Daniel-Keyes/dp/015603008X) by Daniel Keyes
-* [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
 * [Team Genius: The New Science of High-Performing Organizations](https://www.amazon.com/Team-Genius-Science-High-Performing-Organizations/dp/006230254X/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=006230254X&pd_rd_r=HV0PA3TPHGH4DRQF8MCF&pd_rd_w=UX892&pd_rd_wg=KsbpF&psc=1&refRID=HV0PA3TPHGH4DRQF8MCF) by Rich Karlgaard
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
@@ -33,10 +30,16 @@ layout: default
 * [The Religion of Tomorrow: A Vision for the Future of the Great Traditions - More Inclusive, More Comprehensive, More Complete](https://www.amazon.com/Religion-Tomorrow-Traditions-Inclusive-MoreComprehensive-ebook/dp/B01MQZIOV3/ref=pd_sim_351_3?_encoding=UTF8&psc=1&refRID=NY4KMWYTMAWVBXNM0ARE) by Ken Wilber
 * [The Systems Mindset: Managing the Machinery of Your Life](https://www.thesystemsmindset.com/buy-the-book/) by Sam Carpenter
 * [Scale: The Universal Laws of Growth, Innovation, Sustainability, and the Pace of Life in Organisms, Cities, Economies, and Companies](https://www.amazon.com/Scale-Universal-Innovation-Sustainability-Organisms/dp/1594205582/ref=sr_1_1?s=books&ie=UTF8&qid=1515039694&sr=1-1&keywords=scale+by+geoffrey+west) by Geoffrey West
-* [Creative confidence: unleashing the creative potential within us all](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
-* [The Coming of Post-Industrial Society: A venture in social forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
+* [Creative confidence: Unleashing the Creative Potential Within Us All](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
+* [The Coming of Post-Industrial Society: A venture in Social Forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
-* [A Whole New Mind: Why right-brainers will rule the future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
+* [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
+* [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
+* [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
+* [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
+* [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
+* [The Structure of Scientific Revolutions](https://www.amazon.com/Structure-Scientific-Revolutions-50th-Anniversary/dp/0226458121) by Thomas Kuhn
+* [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
 
 ### Online Articles/Publications/Videos
 * [The Paradoxical Power of Narrative](http://edgeperspectives.typepad.com/edge_perspectives/2018/02/the-paradoxical-power-of-narrative.html) by John Hagel
