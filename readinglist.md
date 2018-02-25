@@ -43,7 +43,8 @@ layout: default
 * [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
 
 ### Online Articles/Publications/Videos
-* [The Paradoxical Power of Narrative](http://edgeperspectives.typepad.com/edge_perspectives/2018/02/the-paradoxical-power-of-narrative.html) by John Hagel
+* [Thanks, robots! Now these four non-tech job skills are in demand](https://www.fastcompany.com/40533471/thanks-robots-now-these-four-non-tech-job-skills-are-in-demand) by Christian Madsbjerg
+* [The paradoxical power of narrative](http://edgeperspectives.typepad.com/edge_perspectives/2018/02/the-paradoxical-power-of-narrative.html) by John Hagel
 * [The GANfather: The man who’s given machines the gift of imagination](https://www.technologyreview.com/s/610253/the-ganfather-the-man-whos-given-machines-the-gift-of-imagination/) by Martin Giles
 * [A 202 candidate sounds the alarm about robots and your job](https://www.seattletimes.com/business/a-2020-candidate-sounds-the-alarm-about-robots-and-your-job/) by Kevin Roose
 * [Want more innovation? Try connecting the dots between engineering and humanities](https://theconversation.com/want-more-innovation-try-connecting-the-dots-between-engineering-and-humanities-42800) by Sophia Acord, Kevin S. Jones, & Susan D. Gillespie
