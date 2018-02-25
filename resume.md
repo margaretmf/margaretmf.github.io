@@ -33,7 +33,7 @@ April 2016 - Present
 * Streamlining reporting processes by writing R functions and packages for up to 560 data points for 9 online programs
 * Clustering data, evaluating clusters with validation metrics, and characterizing clusters
 * Measuring the quality and difficulty of questions to support standardizing educational assessments
-* Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf)
+* Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf))
 * Enjoying work with engineers
  
 ### DataKind Corps
