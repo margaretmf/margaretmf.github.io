@@ -35,6 +35,7 @@ April 2016 - Present
 * Measuring the quality and difficulty of questions to support standardizing educational assessments
 * Developing quantitative insights for white papers
 * Enjoying work with engineers
+* Download co-authored digital literacy thought leadership [here](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf).
  
 ### DataKind Corps
 Data Ambassador
