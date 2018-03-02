@@ -8,10 +8,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="boston.jpg">
-
-
-
 <img class="profile-picture" src="building_and_windows.jpg">
 
 
@@ -24,14 +20,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="womens_march_posters.jpg">
-
-
-
-<img class="profile-picture" src="winter_ice.jpg">
-
-
-
 <img class="profile-picture" src="dc.jpg">
 
 
@@ -40,15 +28,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="white_house_winter.jpg">
-
-
-
 <img class="profile-picture" src="christmas.jpg">
-
-
-
-<img class="profile-picture" src="dc_rooftop_expanded.jpg">
 
 
 
@@ -60,27 +40,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="door.jpg">
-
-
-
-<img class="profile-picture" src="kentucky_landscape.jpg">
-
-
-
-<img class="profile-picture" src="kentucky_truck.jpg">
-
-
-
 <img class="profile-picture" src="redwood_trees.jpg">
 
 
 
 <img class="profile-picture" src="red_door.jpg">
-
-
-
-<img class="profile-picture" src="rugs.jpg">
 
 
 
