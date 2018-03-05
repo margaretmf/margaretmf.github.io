@@ -26,3 +26,9 @@ Software and Programming Languages: R (primary), Python (want to be primary), An
 
 <br>
 
+### Interests
+
+ecosystems, interactions between technology and humans, participatory design, public infrastrucutre, effective information flow, tech policy and governance; impact investing, sustainable development goals, inclusive economic growth; learning organizations, thoery of emergence, network science, creative process
+
+
+
