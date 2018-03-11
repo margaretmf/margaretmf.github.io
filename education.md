@@ -11,16 +11,16 @@ layout: default
 * Audited [Strategic Planning and Execution](https://www.coursera.org/learn/uva-darden-strategic-planning-execution)
 * Audited [Digital Product Management: Modern Fundamentals](https://www.coursera.org/learn/uva-darden-digital-product-management/)
 * Audited [Designing the Organization: From Strategy to Organizational Structure](https://www.coursera.org/learn/designing-organization)
+* Auditing [The Importance of India](https://www.coursera.org/learn/passport-to-india)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [The Importance of India](https://www.coursera.org/learn/passport-to-india)
 * Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
 * Auditing [Time to Reorganize! Understand Organizations, Act, and Build a Meaningful World](https://www.coursera.org/learn/orgology)
 * Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 * Auditing [Model Thinking](https://www.coursera.org/learn/model-thinking)
-* Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
 * Auditing [Networks Illustrated: Principles without Calculus](https://www.coursera.org/learn/networks-illustrated)
+* Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 
 ### Continuing Education - Interesting Certificates
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
