@@ -17,7 +17,6 @@ layout: default
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
-* [Team Genius: The New Science of High-Performing Organizations](https://www.amazon.com/Team-Genius-Science-High-Performing-Organizations/dp/006230254X/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=006230254X&pd_rd_r=HV0PA3TPHGH4DRQF8MCF&pd_rd_w=UX892&pd_rd_wg=KsbpF&psc=1&refRID=HV0PA3TPHGH4DRQF8MCF) by Rich Karlgaard
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
 * [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab Patricia Albere 
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
@@ -41,6 +40,7 @@ layout: default
 * [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [The Structure of Scientific Revolutions](https://www.amazon.com/Structure-Scientific-Revolutions-50th-Anniversary/dp/0226458121) by Thomas Kuhn
 * [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
+* [Team Genius: The New Science of High-Performing Organizations](https://www.amazon.com/Team-Genius-Science-High-Performing-Organizations/dp/006230254X/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=006230254X&pd_rd_r=HV0PA3TPHGH4DRQF8MCF&pd_rd_w=UX892&pd_rd_wg=KsbpF&psc=1&refRID=HV0PA3TPHGH4DRQF8MCF) by Rich Karlgaard
 
 ### Online Articles/Publications/Videos
 * [The coming trade war over data](https://www.axios.com/the-coming-trade-war-over-data-1513388374-b1d594a1-0760-434f-bb32-d4c78f9e1d47.html) by Kim Hart & Sara Fischer
