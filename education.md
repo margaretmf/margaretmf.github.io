@@ -15,7 +15,6 @@ layout: default
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
-* Auditing [Time to Reorganize! Understand Organizations, Act, and Build a Meaningful World](https://www.coursera.org/learn/orgology)
 * Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 * Auditing [Model Thinking](https://www.coursera.org/learn/model-thinking)
 * Auditing [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
