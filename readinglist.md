@@ -43,6 +43,13 @@ layout: default
 * [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
 
 ### Online Articles/Publications/Videos
+* [The coming trade war over data](https://www.axios.com/the-coming-trade-war-over-data-1513388374-b1d594a1-0760-434f-bb32-d4c78f9e1d47.html) by Kim Hart & Sara Fischer
+* [China aims to become trade and economic giant by 2050](http://www.straitstimes.com/asia/east-asia/china-aims-to-become-trade-and-economic-giant-by-2050) by Chong Koh Ping
+* [Xi cleared to rule indefinitely as China officially scraps term limits](https://www.washingtonpost.com/world/china-approves-plan-to-abolish-presidential-term-limits-clearing-way-for-xi-to-stay-on/2018/03/11/973c7ab2-24f0-11e8-a589-763893265565_story.html?utm_term=.62457484648f) by Emily Rauhala
+* [China's national legislature adopts constitutional amendment](https://gbtimes.com/chinas-national-legislature-adopts-constitutional-amendment) by Xinhua
+* [Trump on China abolishing presidential term limits: 'Maybe we'll give that a shot someday'](http://www.businessinsider.com/trump-china-abolishing-term-limits-maybe-well-give-that-a-shot-someday-2018-3) by Michelle Mark
+* [In a jokey speech, Trump praised China’s Xi for moving to end term limits, saying, ‘Maybe we’ll give that a shot someday’](https://www.washingtonpost.com/news/worldviews/wp/2018/03/04/in-a-jokey-speech-trump-praised-chinas-xi-for-ditching-term-limits-saying-maybe-well-give-that-a-shot-some-day/?utm_term=.43f8f2323954) by Amanda Erickson
+* [China says trade war with U.S. will only bring disaster to global economy](https://www.reuters.com/article/us-usa-trade-china/china-says-trade-war-with-u-s-will-only-bring-disaster-to-global-economy-idUSKCN1GN02V) by Elias Glenn
 * [Thanks, robots! Now these four non-tech job skills are in demand](https://www.fastcompany.com/40533471/thanks-robots-now-these-four-non-tech-job-skills-are-in-demand) by Christian Madsbjerg
 * [The paradoxical power of narrative](http://edgeperspectives.typepad.com/edge_perspectives/2018/02/the-paradoxical-power-of-narrative.html) by John Hagel
 * [The GANfather: The man who’s given machines the gift of imagination](https://www.technologyreview.com/s/610253/the-ganfather-the-man-whos-given-machines-the-gift-of-imagination/) by Martin Giles
