@@ -5,6 +5,7 @@ layout: default
 ## 2018
 
 ### Books
+## In Progress
 * [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
@@ -34,6 +35,8 @@ layout: default
 * [The Coming of Post-Industrial Society: A venture in Social Forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 * [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
+
+## Completed
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
