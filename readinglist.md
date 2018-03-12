@@ -35,6 +35,14 @@ layout: default
 * [The Coming of Post-Industrial Society: A venture in Social Forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 * [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
+* [Our Incorrigible Ontological Relations and Categories of Being: causal and limiting factors of objective knowledge](https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
+* [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
+* [Utopia](https://www.amazon.com/Utopia-Dover-Thrift-Editions-Thomas/dp/0486295834) by Thomas More
+* [The Communist Manifesto](https://www.amazon.com/Communist-Manifesto-Karl-Marx/dp/0717802418) by Karl Marx
+* [The Republic](https://www.amazon.com/Republic-Plato/dp/1613821212) by Plato
+* [The Souls of Black Folk](https://www.amazon.com/Souls-Black-Dover-Thrift-Editions/dp/0486280411) by W. E. B. Du Bois
+* [Narrative of the Life of Frederick Douglass](https://www.amazon.com/Narrative-Life-Frederick-Douglass/dp/0486284999) by Frederick Douglass
+* [Democracy and Education](https://www.amazon.com/Democracy-Education-John-Dewey/dp/0684836319) by John Dewey
 
 #### Complete
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
