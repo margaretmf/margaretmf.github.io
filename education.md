@@ -12,9 +12,9 @@ layout: default
 * Audited [Digital Product Management: Modern Fundamentals](https://www.coursera.org/learn/uva-darden-digital-product-management/)
 * Audited [Designing the Organization: From Strategy to Organizational Structure](https://www.coursera.org/learn/designing-organization)
 * Auditing [The Importance of India](https://www.coursera.org/learn/passport-to-india)
+* Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
 * Auditing [International Leadership and Organizational Behavior](https://www.coursera.org/learn/organizational-behavior)
 * Auditing [International Business I](https://www.coursera.org/learn/international-business)
 * Auditing [International Business II](https://www.coursera.org/learn/international-business-2)
