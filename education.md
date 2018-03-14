@@ -15,7 +15,6 @@ layout: default
 * Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [International Leadership and Organizational Behavior](https://www.coursera.org/learn/organizational-behavior)
 * Auditing [International Business I](https://www.coursera.org/learn/international-business)
 * Auditing [International Business II](https://www.coursera.org/learn/international-business-2)
 * Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
