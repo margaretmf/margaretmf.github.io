@@ -15,15 +15,13 @@ layout: default
 * Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [International Business I](https://www.coursera.org/learn/international-business)
-* Auditing [International Business II](https://www.coursera.org/learn/international-business-2)
+* Auditing [Client Needs and Software Requirements](https://www.coursera.org/learn/client-needs-and-software-requirements)
+* Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 * Auditing [Model Thinking](https://www.coursera.org/learn/model-thinking)
 * Auditing [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
 * Auditing [Networks Illustrated: Principles without Calculus](https://www.coursera.org/learn/networks-illustrated)
-* Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
-* Auditing [Client Needs and Software Requirements](https://www.coursera.org/learn/client-needs-and-software-requirements)
 
 ### Continuing Education - Interesting Certificates
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
