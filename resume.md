@@ -40,7 +40,7 @@ April 2016 - Present
 Data Ambassador
 October 2016 - Present
 * Collaborate to develop a foster care case complexity score and a case manager route recommendation system
-* Manage communication with Community-Based Care Florida and align work across two workstreams
+* Lead communication with Community-Based Care Florida 
  
 ### Clarity Campaign Labs
 Analyst Fellow
