@@ -22,7 +22,6 @@ layout: default
 * [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab Patricia Albere 
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
 * [The Second Machine Age: Work, Progress, and Prosperity in Time of Brilliant Technologies](https://www.amazon.com/Second-Machine-Age-Prosperity-Technologies/dp/0393350649/ref=pd_sim_14_2?_encoding=UTF8&pd_rd_i=0393350649&pd_rd_r=EBBM9HBRBQ5JWG3DQ5K7&pd_rd_w=lLJep&pd_rd_wg=bSvxQ&psc=1&refRID=EBBM9HBRBQ5JWG3DQ5K7) by Erik Brynjolfsson
-* [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
 * [The Question Concerning Technology, and Other Essays](https://www.amazon.com/Question-Concerning-Technology-Perennial-Thought/dp/0062290703/ref=asap_bc?ie=UTF8) by Martin Heidegger
 * [Poetry, Language, Thought](https://www.amazon.com/Poetry-Language-Thought-Harper-Perennial/dp/0060937289/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=0060937289&pd_rd_r=4AS9HXV0A42C6TP1R2RT&pd_rd_w=AxibB&pd_rd_wg=GbkL8&psc=1&refRID=4AS9HXV0A42C6TP1R2RT) by Martin Heidegger
 * [The Dynamics of Transformation: Tracing an Emerging World View](https://www.amazon.com/dp/B01MXXXUOM/ref=sspa_dk_detail_2?psc=1&pd_rd_i=B01MXXXUOM&pd_rd_wg=Oetcf&pd_rd_r=62MZ3GZD0XYWZQF6RGPD&pd_rd_w=igPI5) by Grant Maxwell
@@ -52,6 +51,7 @@ layout: default
 * [The Structure of Scientific Revolutions](https://www.amazon.com/Structure-Scientific-Revolutions-50th-Anniversary/dp/0226458121) by Thomas Kuhn
 * [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
 * [Team Genius: The New Science of High-Performing Organizations](https://www.amazon.com/Team-Genius-Science-High-Performing-Organizations/dp/006230254X/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=006230254X&pd_rd_r=HV0PA3TPHGH4DRQF8MCF&pd_rd_w=UX892&pd_rd_wg=KsbpF&psc=1&refRID=HV0PA3TPHGH4DRQF8MCF) by Rich Karlgaard
+* [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
 
 ### Online Articles/Publications/Videos
 * [The coming trade war over data](https://www.axios.com/the-coming-trade-war-over-data-1513388374-b1d594a1-0760-434f-bb32-d4c78f9e1d47.html) by Kim Hart & Sara Fischer
