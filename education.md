@@ -11,11 +11,11 @@ layout: default
 * Audited [Strategic Planning and Execution](https://www.coursera.org/learn/uva-darden-strategic-planning-execution)
 * Audited [Digital Product Management: Modern Fundamentals](https://www.coursera.org/learn/uva-darden-digital-product-management/)
 * Audited [Designing the Organization: From Strategy to Organizational Structure](https://www.coursera.org/learn/designing-organization)
-* Auditing [The Importance of India](https://www.coursera.org/learn/passport-to-india)
-* Auditing [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
+* Audited [The Importance of India](https://www.coursera.org/learn/passport-to-india)
+* Audited [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
+* Audited [Client Needs and Software Requirements](https://www.coursera.org/learn/client-needs-and-software-requirements)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [Client Needs and Software Requirements](https://www.coursera.org/learn/client-needs-and-software-requirements)
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
