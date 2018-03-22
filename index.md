@@ -9,11 +9,11 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 
-I'm Margaret Furr, and I'm a strategic thinker and intellectually curious problem solver. I am developing expertise in strategic consulting, systems thinking, and data analysis. With an interest in technological change, patterns in data, social networks, and international cultures, I'm a curious and versatile professional who loves to draw from multiple disciplines to understand the world and possibilities for the future.
+I'm Margaret Furr, and I'm an intellectually curious problem solver. I am developing expertise in data analysis and systems thinking. I also have experience in strategic consulting. With an interest in social impact, technological change, patterns in data, social networks, and international cultures, I'm a curious and versatile professional who loves to draw from multiple disciplines to understand the world and possibilities for the future.
 
 Currently, I'm working as a Data Analyst with EVERFI, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Data Ambassador with [DataKind Corps/NY](http://www.datakind.org). 
 
-During my free time, one can find me running, reading, dancing, preparing for the future, or understanding [the power of improv](http://www.bing.com/videos/search?q=the+power+of+improv&view=detail&mid=D6F586BD43DCC62C7AAED6F586BD43DCC62C7AAE&FORM=VIRE) in the 21st century. A sentence that inspires me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
+During my free time, one can find me running, reading, dancing, and preparing for the future in the 21st century. A sentence that inspires me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
 <br>
 
@@ -29,7 +29,7 @@ Software and Programming Languages: R (primary), Python (want to be primary), An
 
 ### Interests
 
-Technology/Information: ecosystems, interactions between technology and humans, participatory design, public infrastrucutre, effective information flow, tech policy and governance
+Technology/Information: ecosystems, interactions between technology and humans, participatory design, public infrastrucutre, effective information flow, data integration, tech policy and governance
 Social Impact: impact investing, sustainable development goals, inclusive economic growth
 Organizations: learning organizations, theory of emergence, network science, creative process
 
