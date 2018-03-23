@@ -14,10 +14,10 @@ layout: default
 * Audited [The Importance of India](https://www.coursera.org/learn/passport-to-india)
 * Audited [Anticipating Your Next Battle, In Business and Beyond](https://www.coursera.org/learn/anticipate/)
 * Audited [Client Needs and Software Requirements](https://www.coursera.org/learn/client-needs-and-software-requirements)
+* Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
-* Auditing [Classical Sociology Theory](https://www.coursera.org/learn/classical-sociological-theory)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 * Auditing [Model Thinking](https://www.coursera.org/learn/model-thinking)
 * Auditing [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
