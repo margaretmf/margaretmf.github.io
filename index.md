@@ -29,12 +29,11 @@ Software and Programming Languages: R (primary), Python (want to be primary), An
 
 ### Interests
 
-#### Technology/Information: 
-ecosystems, interactions between technology and humans, participatory design, public infrastrucutre, effective information flow, data integration, tech policy and governance
-#### Social Impact: 
-impact investing, sustainable development goals, inclusive economic growth, double bottom line
-#### Organizations: 
-learning organizations, theory of emergence, network science, creative process, democratic process
+Technology/Information: ecosystems, interactions between technology and humans, participatory design, public infrastrucutre, effective information flow, data integration, tech policy and governance
+
+Social Impact: impact investing, sustainable development goals, inclusive economic growth, double bottom line
+
+Organizations: learning organizations, theory of emergence, network science, creative process, democratic process
 
 <br>
 
