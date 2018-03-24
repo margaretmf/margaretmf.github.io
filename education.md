@@ -19,7 +19,6 @@ layout: default
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
-* Auditing [Model Thinking](https://www.coursera.org/learn/model-thinking)
 * Auditing [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
 * Auditing [Networks Illustrated: Principles without Calculus](https://www.coursera.org/learn/networks-illustrated)
 
