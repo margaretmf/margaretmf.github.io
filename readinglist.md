@@ -57,7 +57,7 @@ layout: default
 * [Jeffrey Katzenberg: How failure makes a better leader](https://www.gsb.stanford.edu/insights/jeffrey-katzenberg-how-failure-makes-better-leader?linkId=49367317) by Bill Snyder
 * [Tending the digital commons: a small ethics toward the future](http://iasc-culture.org/THR/THR_article_2018_Spring_Jacobs.php) by Alan Jacobs
 * [Securing safe roads: the politics of change](https://www.odi.org/publications/11070-securing-safe-roads-politics-change?utm_source=social&utm_medium=twitter) by Anna Bray Sharpin, Daniel Harris, Helen Dempster, Alina Rocha Menocal
-* Securing safe roads: the politics of change website](https://www.odi.org/features/securing-safe-roads)
+* [Securing safe roads: the politics of change website](https://www.odi.org/features/securing-safe-roads)
 * [The right way to regulate algorithms](https://www.citylab.com/equity/2018/03/the-right-way-to-regulate-algorithms/555998/?utm_source=SFTwitter) by Stephen Goldsmith, Chris Bousquet
 * [The polymath mindset: the art of making something out of something else](https://medium.com/personal-growth/the-polymath-mindset-9df48545b551) by John Gorman
 * [Trump is editing democracy out](https://www.washingtonpost.com/opinions/trump-is-editing-democracy-out/2018/03/15/4b1d98b8-287f-11e8-bc72-077aa4dab9ef_story.html?utm_term=.01d8c5e23fe3) by Christine Emba
