@@ -54,6 +54,18 @@ layout: default
 * [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
 
 ### Online Articles/Publications/Videos
+* [Jeffrey Katzenberg: How failure makes a better leader](https://www.gsb.stanford.edu/insights/jeffrey-katzenberg-how-failure-makes-better-leader?linkId=49367317) by Bill Snyder
+* [Tending the digital commons: a small ethics toward the future](http://iasc-culture.org/THR/THR_article_2018_Spring_Jacobs.php) by Alan Jacobs
+* [Securing safe roads: the politics of change](https://www.odi.org/publications/11070-securing-safe-roads-politics-change?utm_source=social&utm_medium=twitter) by Anna Bray Sharpin, Daniel Harris, Helen Dempster, Alina Rocha Menocal)
+* Securing safe roads: the politics of change website](https://www.odi.org/features/securing-safe-roads)
+* [The right way to regulate algorithms](https://www.citylab.com/equity/2018/03/the-right-way-to-regulate-algorithms/555998/?utm_source=SFTwitter) by Stephen Goldsmith, Chris Bousquet
+* [The polymath mindset: the art of making something out of something else](https://medium.com/personal-growth/the-polymath-mindset-9df48545b551) by John Gorman
+* [Trump is editing democracy out](https://www.washingtonpost.com/opinions/trump-is-editing-democracy-out/2018/03/15/4b1d98b8-287f-11e8-bc72-077aa4dab9ef_story.html?utm_term=.01d8c5e23fe3) by Christine Emba
+* [Global decline in democracy? The lesson from India may be 'Not so fast.'](https://www.csmonitor.com/World/Asia-South-Central/2018/0316/Global-decline-in-democracy-The-lesson-from-India-may-be-Not-so-fast?cmpid=TW&utm_campaign=Echobox&utm_medium=Social&utm_source=Twitter) by Howard LaFranchi
+* [A tour of India's waste mountain](https://www.nature.com/articles/d41586-018-03012-y?utm_source=twt_nnc&utm_medium=social&utm_campaign=naturenews&sf184604872=1) by Subhra Priyadarshini
+* [Putting people at the heart of big data](https://horizon-magazine.eu/article/putting-people-heart-big-data_en.html?utm_campaign=crowdfire&utm_content=crowdfire&utm_medium=social&utm_source=social#.Wq_XM4MAeLE.twitter#2277632947-tw#1521477800090)
+* [How we turned an old gas station into a community hot spot](https://www.ideo.com/blog/how-we-turned-an-old-gas-station-into-a-community-hot-spot?utm_source=The+Octopus&utm_campaign=50bba40778-The_Octopus_Newsletter_2_20_18&utm_medium=email&utm_term=0_5a800eadc1-50bba40778-170275137)
+
 * [The coming trade war over data](https://www.axios.com/the-coming-trade-war-over-data-1513388374-b1d594a1-0760-434f-bb32-d4c78f9e1d47.html) by Kim Hart & Sara Fischer
 * [China aims to become trade and economic giant by 2050](http://www.straitstimes.com/asia/east-asia/china-aims-to-become-trade-and-economic-giant-by-2050) by Chong Koh Ping
 * [Xi cleared to rule indefinitely as China officially scraps term limits](https://www.washingtonpost.com/world/china-approves-plan-to-abolish-presidential-term-limits-clearing-way-for-xi-to-stay-on/2018/03/11/973c7ab2-24f0-11e8-a589-763893265565_story.html?utm_term=.62457484648f) by Emily Rauhala
