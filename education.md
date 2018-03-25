@@ -18,12 +18,11 @@ layout: default
 * Audited [Social Impact Strategy: Tools for Entrepreneurs and Innovators](https://www.coursera.org/learn/social-impact)
 * Audited [Strategic Management](https://www.coursera.org/learn/strategic-management)
 * Audited [On Strategy : What Managers Can Learn from Philosophy](https://www.coursera.org/learn/management-philosophy)
+* Audited [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
-* Auditing [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
-* Auditing [Networks Illustrated: Principles without Calculus](https://www.coursera.org/learn/networks-illustrated)
 
 ### Continuing Education - Interesting Certificates
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
