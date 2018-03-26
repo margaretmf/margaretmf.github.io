@@ -9,7 +9,7 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 
-I'm Margaret Furr, and I'm an intellectually curious problem solver. I am developing expertise in data analysis and systems thinking. I also have experience in strategic consulting. With an interest in social impact, technological change, patterns in data, social networks, and international cultures, I'm a curious and versatile professional who loves to draw from multiple disciplines to understand the world and possibilities for the future.
+I'm Margaret Furr, and I'm an intellectually curious problem solver. I am developing expertise in data analysis and systems thinking. I also have experience in strategic consulting. With an interest in social impact, technological change, patterns in data, data structures, and international cultures, I'm a curious and versatile professional who loves to draw from multiple disciplines to understand the world and solve problems.
 
 Currently, I'm working as a Data Analyst with EVERFI, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Data Ambassador with [DataKind Corps/NY](http://www.datakind.org). 
 
