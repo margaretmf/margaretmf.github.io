@@ -64,6 +64,9 @@ layout: default
 * [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
 
 ### Online Articles/Publications/Videos
+* [Strategic questions: Engaging people's best thinking](https://thesystemsthinker.com/strategic-questions-engaging-peoples-best-thinking/) by Juanita Brown, David Isaacs, Eric Vogt, Nancy Margulies
+* [The future of employement: how susceptible are jobs to computerisation?](https://www.oxfordmartin.ox.ac.uk/downloads/academic/The_Future_of_Employment.pdf) by Carl Frey, Michael Osborne
+* [The third education revolution](https://www.theatlantic.com/education/archive/2018/03/the-third-education-revolution/556091/) by Jeffrey Selingo
 * [Four strategies for large systems change](https://ssir.org/articles/entry/four_strategies_for_large_systems_change) by Steve Waddell
 * [Can corporations inspire social good?](https://ssir.org/articles/entry/can_corporations_inspire_social_good) by Nishant Bagadia 
 * [Creating a data culture](https://ssir.org/articles/entry/creating_a_data_culture) by Kathleen Kelly Janus
