@@ -26,4 +26,12 @@ layout: default
 
 ### Continuing Education - Interesting Certificates
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
+* [Hindi Language, International Language Institute](http://ilidc.com)
+
+
+
+
+
+
+
 
