@@ -64,6 +64,8 @@ layout: default
 * [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
 
 ### Online Articles/Publications/Videos
+* [From direct action to advisory services; A pathway to scale for social entrepreneurs](https://ssir.org/articles/entry/from_direct_action_to_advisory_services_a_pathway_to_scale_for_social_entre?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Sarah Miers, Zach Slobig
+* [Civic participation begins in schools](https://ssir.org/articles/entry/civic_participation_begins_in_schools) by Sylvia Roussea, Scott Warren
 * [Strategic questions: Engaging people's best thinking](https://thesystemsthinker.com/strategic-questions-engaging-peoples-best-thinking/) by Juanita Brown, David Isaacs, Eric Vogt, Nancy Margulies
 * [The future of employement: how susceptible are jobs to computerisation?](https://www.oxfordmartin.ox.ac.uk/downloads/academic/The_Future_of_Employment.pdf) by Carl Frey, Michael Osborne
 * [The third education revolution](https://www.theatlantic.com/education/archive/2018/03/the-third-education-revolution/556091/) by Jeffrey Selingo
