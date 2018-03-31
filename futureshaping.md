@@ -7,6 +7,22 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 
 <br>
 
+### The Importance of Culture
+What is culture? Culture is a set of social behavior and norms. And while fuzzy and soft, culture in this new technological age may serve as a differentiator for those already succeeding at developing modernized infrastructures.
+
+As "software eats the world", every organization is having to think about how techology integrates into daily operations and strategies regardless of whether an organization is a real tech company or not. And for those with the ambition to develop a differentiated set of integrated technologies for a specific goal, the culture around that set may further drive success and drive the shape of the technologies.
+
+How can culture drive the shape of the technologies? In STS, there's a theory in which technology is argued to be embedded in the social world. Technology is a set of tools constructed in a setting to support a set of social behaviors, so a knowledge and conceptualization of social behaviors can influence how the set of tools are constructed.
+
+In a world in which many companies may have the ambition to develop a differentiated set of integrated technologies, it will be the organizations that integrate with bold artistic endeavors, socially-oriented goals, and lively social norms that succeed because they will become multidimensional in a unidirectional way.
+
+With these thoughts, I argue that as "software eats the world", culture is one of the last things to be "eaten". As software automates decisions, curates and recommends content, and drives email, culture has to involve the people creating the software or other products, services, and experiences. And as we head into a world where the market demands superieror experiences, culture will have to lead in creating experiences, whether those experiences are in-person ones or digital ones.
+
+<br>
+
+<br>
+
+
 ### Business and Social Impact
 Leading thinkers have pointed out that people in the millennial generation and generation Z demand more socially conscious behavior than does anyone in other generations. Some people also argue that businesses more efficiently develop and use resources in comparison to organizations in the social or public sectors. If businesses generate the value and run society through a free market, then how should business stakeholders hold businesses accountable? I think that for the world’s long-term growth, it will be worthwhile for businesses to integrate strategic social impact programs and for people to compare businesses by how they contribute to social goals. 
 
