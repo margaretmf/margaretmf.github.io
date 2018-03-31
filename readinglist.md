@@ -53,7 +53,7 @@ layout: default
 * [The Black Swan: Second Edition: The Impact of the Highly Improbable: With a new section: "On Robustness and Fragility"](https://www.amazon.com/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=RZDH4ED0NZQ1BEECWBCF) by Nassim Taleb
 
 
-#### Complete
+#### Completed
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
