@@ -16,7 +16,6 @@ layout: default
 * [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
-* [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
 * [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab Patricia Albere 
@@ -42,16 +41,12 @@ layout: default
 * [The Souls of Black Folk](https://www.amazon.com/Souls-Black-Dover-Thrift-Editions/dp/0486280411) by W. E. B. Du Bois
 * [Narrative of the Life of Frederick Douglass](https://www.amazon.com/Narrative-Life-Frederick-Douglass/dp/0486284999) by Frederick Douglass
 * [Democracy and Education](https://www.amazon.com/Democracy-Education-John-Dewey/dp/0684836319) by John Dewey
-* [Can It Happen Here?: Authoritarianism in America](https://www.amazon.com/Can-Happen-Here-Authoritarianism-America/dp/006269619X) by Cass Sunstein
-* [The Reactionary Mind: Conservatism from Edmund Burke to Sarah Palin](https://www.amazon.com/Reactionary-Mind-Conservatism-Edmund-Burke/dp/0199959110) by Corey Robin
 * [When: The Scientific Secrets of Perfect Timing](https://www.amazon.com/When-Scientific-Secrets-Perfect-Timing/dp/0735210624) by Daniel Pink
 * [The Culture Code: The Secrets of Highly Successful Groups](https://www.amazon.com/Culture-Code-Secrets-Highly-Successful/dp/0804176981/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=W8NGDT4BZR4KMR5XSE6P) by Daniel Coyle
-* [Fire and Fury: Inside the Trump White House](https://www.amazon.com/Fire-Fury-Inside-Trump-White/dp/1250158060) by Michael Wolff
 * [It's Even Worse Than You Think: What the Trump Administration Is Doing to America](https://www.amazon.com/Even-Worse-Than-Think-Administration/dp/1501174169/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=K4KTZ753QXK2CTRJSH2H) by David Johnson
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 * [Skin in the Game: Hidden Asymmetries in Daily Life](https://www.amazon.com/Skin-Game-Hidden-Asymmetries-Daily/dp/042528462X) by Nassim Taleb
 * [The Black Swan: Second Edition: The Impact of the Highly Improbable: With a new section: "On Robustness and Fragility"](https://www.amazon.com/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=RZDH4ED0NZQ1BEECWBCF) by Nassim Taleb
-
 
 #### Completed
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
@@ -62,6 +57,7 @@ layout: default
 * [The Silo Effect: The Peril of Expertise and the Promise of Breaking Down Barriers](https://www.amazon.com/Silo-Effect-Expertise-Breaking-Barriers/dp/1451644736) by Gillian Tett
 * [Team Genius: The New Science of High-Performing Organizations](https://www.amazon.com/Team-Genius-Science-High-Performing-Organizations/dp/006230254X/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=006230254X&pd_rd_r=HV0PA3TPHGH4DRQF8MCF&pd_rd_w=UX892&pd_rd_wg=KsbpF&psc=1&refRID=HV0PA3TPHGH4DRQF8MCF) by Rich Karlgaard
 * [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
+* [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 
 ### Online Articles/Publications/Videos
 * [From direct action to advisory services; A pathway to scale for social entrepreneurs](https://ssir.org/articles/entry/from_direct_action_to_advisory_services_a_pathway_to_scale_for_social_entre?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Sarah Miers, Zach Slobig
