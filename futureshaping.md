@@ -14,9 +14,9 @@ As ["software eats the world"](https://a16z.com/2016/08/20/why-software-is-eatin
 
 How can culture drive the shape of the technologies? In STS, there's a theory in which technology is argued to be embedded in the social world. Technology is a set of tools constructed in a setting to support a set of social behaviors, so a knowledge and conceptualization of social behaviors can influence how the set of tools are constructed.
 
-In a world in which many companies may have the ambition to develop a differentiated set of integrated technologies, it will be the organizations that integrate with bold artistic endeavors, socially-oriented goals, and lively social norms that succeed because they will become multidimensional in a unidirectional way.
+In a world in which many companies may have the ambition to develop a differentiated set of integrated technologies, it will be the organizations that integrate with bold artistic endeavors, socially-oriented goals, deep intellectual rigor, and lively social norms that succeed because they will become multidimensional in a unidirectional and deep way.
 
-With these thoughts, I argue that as "software eats the world", culture is one of the last things to be "eaten". As software automates decisions, curates and recommends content, and drives email, culture has to involve the people creating the software or other products, services, and experiences. And as we head into a world where the market demands superieror experiences, culture will have to lead in creating experiences, whether those experiences are in-person ones or digital ones.
+With these thoughts, I argue that as "software eats the world", culture is one of the last things to be "eaten". As software automates decisions, curates and recommends content, and drives email, culture has to involve the people creating the software or other products, services, and experiences. Unlike artificial intelligence, culture is a manifestation of deep, authentic intellect. And as we head into a world where the market demands superieror experiences, culture will have to lead in creating experiences, whether those experiences are in-person ones or digital, AI-driven ones.
 
 <br>
 
