@@ -60,6 +60,7 @@ layout: default
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 
 ### Online Articles/Publications/Videos
+* [Boundary spanning in practice](https://seniorfellowsandfriends.com/boundary-spanning/) by Adrian Wolfberg, Diane Blumenthal, Kriste Jordan Smith, Kitty Wooley
 * [From direct action to advisory services; A pathway to scale for social entrepreneurs](https://ssir.org/articles/entry/from_direct_action_to_advisory_services_a_pathway_to_scale_for_social_entre?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Sarah Miers, Zach Slobig
 * [Civic participation begins in schools](https://ssir.org/articles/entry/civic_participation_begins_in_schools) by Sylvia Roussea, Scott Warren
 * [Strategic questions: Engaging people's best thinking](https://thesystemsthinker.com/strategic-questions-engaging-peoples-best-thinking/) by Juanita Brown, David Isaacs, Eric Vogt, Nancy Margulies
