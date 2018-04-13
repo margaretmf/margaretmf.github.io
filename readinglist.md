@@ -47,6 +47,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 * [Skin in the Game: Hidden Asymmetries in Daily Life](https://www.amazon.com/Skin-Game-Hidden-Asymmetries-Daily/dp/042528462X) by Nassim Taleb
 * [The Black Swan: Second Edition: The Impact of the Highly Improbable: With a new section: "On Robustness and Fragility"](https://www.amazon.com/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=RZDH4ED0NZQ1BEECWBCF) by Nassim Taleb
+* [Meltdown: Why Our Systems Fail and What We Can Do About It](https://www.amazon.com/Meltdown-Systems-Fail-What-About/dp/0735222630) by Chris Clearfield
+* [Things Fall Apart](https://www.amazon.com/Things-Fall-Apart-Chinua-Achebe/dp/0385474547) by Chinua Achebe
 
 #### Completed
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
@@ -60,6 +62,19 @@ layout: default
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 
 ### Online Articles/Publications/Videos
+* [World Bank sounds the alarm on China's development loans and trade war](https://www.smh.com.au/world/asia/world-bank-sounds-the-alarm-on-china-s-development-loans-and-trade-war-20180412-p4z98x.html) by James Massola, Time Colebatch
+* [India's opportunity and role in shaping the Fourth Industrial Revolution](https://www.weforum.org/agenda/2018/04/india-s-opportunity-and-role-in-shaping-the-fourth-industrial-revolution/) by Borge Brende
+* [Begin with beauty](https://www.aspeninstitute.org/blog-posts/begin-with-beauty/) by Jane Golden
+* [Chase rarely lends to people of color in D.C. — and it’s probably legal](https://www.salon.com/2018/04/03/chase-rarely-lends-to-people-of-color-in-dc-and-it-is-probably-legal_partner/) by Aaron Glantz, Emmanuel Martinez
+* [America’s federally financed ghettos](https://www.nytimes.com/2018/04/07/opinion/sunday/americas-federally-financed-ghettos.html) by Xia Gordon
+* [An educator makes the case that higher learning needs to grow up](https://mobile.nytimes.com/2017/08/23/books/review/cathy-davidson-new-education.html) by Cathy Davidson
+* [With changing students and times, colleges are going back to school](https://mobile.nytimes.com/2018/04/05/education/learning/colleges-adapt-changing-students.html) by Erica Green
+* [The roaming empire](https://www.1843magazine.com/features/the-roaming-empire) by Jonathan Beckman
+* [The role of dignity in social change](http://www.datakind.org/blog/the-role-of-dignity-in-social-change) by DataKind SF
+* [How to clean up student loan mess](https://www.nytimes.com/2018/04/06/business/how-to-clean-up-the-student-loan-mess.html?smid=tw-nytimesbusiness&smtyp=cur) by Susan Dynarski
+* [The student data-mining scandal under our noses](https://www.nationalreview.com/2018/04/the-student-data-mining-scandal-under-our-noses/) by Michelle Malkin
+* [The numbers look good: Big data is brining in the big bucks for India's techies](https://qz.com/1244922/data-and-analytics-experts-are-getting-the-biggest-hikes-among-indian-techies/) by Sushma U N
+* [Human bias is a huge problem for AI. Here’s how we’re going to fix it](https://thenextweb.com/artificial-intelligence/2018/04/10/human-bias-huge-problem-ai-heres-going-fix/) by Tristan Greene
 * [India's women gain consumer clout: Some retailers revamp their strategies as women increasingly make spending decisions on their own](https://www.wsj.com/articles/indias-women-gain-consumer-clout-1522580408?mod=e2tw) by Corinne Abrams
 * [How economic insecurity affects worker innovation: When the economy stumbles, so too does an employee’s interest in thinking outside the box](https://www.gsb.stanford.edu/insights/how-economic-insecurity-affects-worker-innovation?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180401&linkId=49893501) by Matt Villano
 * [Strategic foresight: From theory to practise, methods tools tools and culture](http://www.forschungsnetzwerk.at/downloadpub/LivreblancAgentielle-Strategic_foresight_EN.pdf) by Agentielle
