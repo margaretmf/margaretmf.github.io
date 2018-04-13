@@ -21,6 +21,9 @@ layout: default
 * Audited [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
 
 ### Continuing Education - Coursera Courses Auditing
+* Auditing [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
+* Auditing [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
+* Auditing [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 
