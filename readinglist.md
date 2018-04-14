@@ -62,6 +62,8 @@ layout: default
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 
 ### Online Articles/Publications/Videos
+* [Facebook will go on a hiring spree to get India’s 2019 elections right](https://qz.com/1248162/facebook-will-go-on-a-hiring-spree-to-get-indias-2019-elections-right/) by Ananya Bhattacharya
+* [Schools are missing what matters about learning](https://www.theatlantic.com/amp/article/534573/?__twitter_impression=true) by Scott Kaufman
 * [World Bank sounds the alarm on China's development loans and trade war](https://www.smh.com.au/world/asia/world-bank-sounds-the-alarm-on-china-s-development-loans-and-trade-war-20180412-p4z98x.html) by James Massola, Time Colebatch
 * [India's opportunity and role in shaping the Fourth Industrial Revolution](https://www.weforum.org/agenda/2018/04/india-s-opportunity-and-role-in-shaping-the-fourth-industrial-revolution/) by Borge Brende
 * [Begin with beauty](https://www.aspeninstitute.org/blog-posts/begin-with-beauty/) by Jane Golden
