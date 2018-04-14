@@ -52,6 +52,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="dcwindow.jpg">
+
+
+
 
 <b>
 
