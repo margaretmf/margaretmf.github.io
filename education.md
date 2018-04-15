@@ -19,13 +19,22 @@ layout: default
 * Audited [Strategic Management](https://www.coursera.org/learn/strategic-management)
 * Audited [On Strategy : What Managers Can Learn from Philosophy](https://www.coursera.org/learn/management-philosophy)
 * Audited [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
+* Auditing [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
+* Auditing [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
 * Auditing [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
-* Auditing [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
+* Auditing [Managing Responsibility: Practicing Sustainability, Responsibility and Ethics](https://www.coursera.org/learn/responsible-management)
+* Auditing [Business Metrics for Data-Driven Companies](https://www.coursera.org/learn/analytics-business-metrics)
+* Auditing [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
+* Auditing [Digital Transformation](https://www.coursera.org/learn/bcg-uva-darden-digital-transformation)
+* Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 1](https://www.coursera.org/learn/understanding-china-history-part-1)
+* Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 2](https://www.coursera.org/learn/understanding-china-history-part-2)
+* Auditing [Introductino to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
+* Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
+
 
 ### Continuing Education - Interesting Certificates
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
