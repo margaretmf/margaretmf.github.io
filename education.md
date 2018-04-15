@@ -29,10 +29,9 @@ layout: default
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 * Auditing [Business Metrics for Data-Driven Companies](https://www.coursera.org/learn/analytics-business-metrics)
 * Auditing [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
-* Auditing [Digital Transformation](https://www.coursera.org/learn/bcg-uva-darden-digital-transformation)
 * Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 1](https://www.coursera.org/learn/understanding-china-history-part-1)
 * Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 2](https://www.coursera.org/learn/understanding-china-history-part-2)
-* Auditing [Introductino to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
+* Auditing [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
 * Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
 
 
