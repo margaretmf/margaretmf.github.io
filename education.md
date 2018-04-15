@@ -19,8 +19,8 @@ layout: default
 * Audited [Strategic Management](https://www.coursera.org/learn/strategic-management)
 * Audited [On Strategy : What Managers Can Learn from Philosophy](https://www.coursera.org/learn/management-philosophy)
 * Audited [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
-* Auditing [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
-* Auditing [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
+* Audited [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
+* Audited [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
