@@ -21,12 +21,12 @@ layout: default
 * Audited [Network Dynamics of Social Behavior](https://www.coursera.org/learn/networkdynamics)
 * Audited [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
 * Audited [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
+* Audited [Managing Responsibility: Practicing Sustainability, Responsibility and Ethics](https://www.coursera.org/learn/responsible-management)
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
-* Auditing [Managing Responsibility: Practicing Sustainability, Responsibility and Ethics](https://www.coursera.org/learn/responsible-management)
 * Auditing [Business Metrics for Data-Driven Companies](https://www.coursera.org/learn/analytics-business-metrics)
 * Auditing [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
 * Auditing [Digital Transformation](https://www.coursera.org/learn/bcg-uva-darden-digital-transformation)
