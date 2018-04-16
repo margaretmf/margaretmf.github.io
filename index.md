@@ -23,7 +23,7 @@ Soft: cross-functional teamwork, international teamwork, knowledge managing, str
 
 Data Analysis: data visualization, data storytelling, hypothesis testing and confidence intervals, principal component analysis and dimensionality reduction, classification, regression, clustering, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
 
-Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Periscope, Git/Github; familiar with Tableau, MapReduce, AWS, command line, Java, SAS
+Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Periscope, Tableau, Git/Github; familiar with MapReduce, AWS, command line, Java, SAS
 
 <br>
 
