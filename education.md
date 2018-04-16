@@ -22,13 +22,13 @@ layout: default
 * Audited [Business Intelligence Concepts, Tools, and Applications](https://www.coursera.org/learn/business-intelligence-tools)
 * Audited [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
 * Audited [Managing Responsibility: Practicing Sustainability, Responsibility and Ethics](https://www.coursera.org/learn/responsible-management)
+* Audited [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 * Auditing [Business Metrics for Data-Driven Companies](https://www.coursera.org/learn/analytics-business-metrics)
-* Auditing [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
 * Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 1](https://www.coursera.org/learn/understanding-china-history-part-1)
 * Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 2](https://www.coursera.org/learn/understanding-china-history-part-2)
 * Auditing [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
