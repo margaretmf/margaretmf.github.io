@@ -35,9 +35,14 @@ layout: default
 * Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
 
 
-### Continuing Education - Interesting Certificates
+### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Hindi Language, International Language Institute](http://ilidc.com)
+* [Social Capital Markets](http://socialcapitalmarkets.net)
+* [Business Social Responsibility Conference](https://bsr18.org)
+* [School of International Futures Retreat](https://www.soif.org.uk/retreats/soif2018-summer-retreat-strategic-foresight/)
+* [Scenarios & Strategy, University of Oxford](https://www.sbs.ox.ac.uk/programmes/execed/scenarios)
+
 
 
 
