@@ -64,6 +64,8 @@ layout: default
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 
 ### Online Articles/Publications/Videos
+* [Data samurai: why your business needs a new breed of data analyst](https://www.forbes.com/sites/brentdykes/2018/04/26/data-samurai-why-your-business-needs-a-new-breed-of-data-analyst/2/#428f7a781e35)
+* [GDPR and what it means for your business](https://www.forbes.com/sites/forbestechcouncil/2018/04/25/gdpr-and-what-it-means-for-your-business/#272f36f92d2f)
 * [Fintech for the financially excluded?](https://ssir.org/articles/entry/fintech_for_the_financially_excluded)
 * [Reframing sexual violence: from #MeToo to time’s up](https://ssir.org/articles/entry/reframing_sexual_violence_from_metoo_to_times_up)
 * [Ending teacher shortages with network mapping](https://ssir.org/articles/entry/ending_teacher_shortages_with_network_mapping)
