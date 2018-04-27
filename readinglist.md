@@ -64,6 +64,9 @@ layout: default
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 
 ### Online Articles/Publications/Videos
+* [Fintech for the financially excluded?](https://ssir.org/articles/entry/fintech_for_the_financially_excluded)
+* [Reframing sexual violence: from #MeToo to time’s up](https://ssir.org/articles/entry/reframing_sexual_violence_from_metoo_to_times_up)
+* [Ending teacher shortages with network mapping](https://ssir.org/articles/entry/ending_teacher_shortages_with_network_mapping)
 * [Corporate social responsibility for a data age](https://ssir.org/articles/entry/corporate_social_responsibility_for_a_data_age)
 * [Why your culture matters now more than ever](http://www.thedrum.com/opinion/2018/04/02/why-your-culture-matters-now-more-ever) by Amanda Enayati
 * [Facebook will go on a hiring spree to get India’s 2019 elections right](https://qz.com/1248162/facebook-will-go-on-a-hiring-spree-to-get-indias-2019-elections-right/) by Ananya Bhattacharya
