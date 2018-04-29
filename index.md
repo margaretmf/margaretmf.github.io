@@ -19,11 +19,11 @@ During my free time, one can find me running, reading, dancing, and preparing fo
 
 ## Skills
 
-Soft: cross-functional teamwork, international teamwork, knowledge managing, strategic aligning, requirements gathering, interviewing, report writing; familiar with Spanish language
+Soft: cross-functional teamwork, international teamwork, knowledge management, strategic alignment, requirements gatherment, interviewing, report writing, technical writing; familiar with Spanish language
 
-Data Analysis: data visualization, data storytelling, hypothesis testing and confidence intervals, principal component analysis and dimensionality reduction, classification, regression, clustering, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
+Data Analysis: data visualization, data storytelling, hypothesis testing, principal component analysis and dimensionality reduction, regression analysis, cluster analysis, classifcation, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
 
-Software and Programming Languages: R (primary), Python (want to be primary), Anaconda, Weka, SQL, ArcGIS, QGIS, Periscope, Tableau, Git/Github; familiar with MapReduce, AWS, command line, Java, SAS
+Software and Programming Languages: R (primary), Python (want to be primary), SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github; familiar with Tableau, MapReduce, Java, AWS, SAS 
 
 <br>
 
