@@ -36,13 +36,11 @@ layout: default
 
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
+* [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
+* [Social Capital Markets Conference](http://socialcapitalmarkets.net)
+* [Business Social Responsibility Conference](https://bsr18.org)
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Hindi Language, International Language Institute](http://ilidc.com)
-* [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
-* [Social Capital Markets](http://socialcapitalmarkets.net)
-* [Business Social Responsibility Conference](https://bsr18.org)
-* [School of International Futures Retreat](https://www.soif.org.uk/retreats/soif2018-summer-retreat-strategic-foresight/)
-* [Scenarios & Strategy, University of Oxford](https://www.sbs.ox.ac.uk/programmes/execed/scenarios)
 
 
 
