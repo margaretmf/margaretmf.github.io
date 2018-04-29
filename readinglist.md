@@ -32,7 +32,7 @@ layout: default
 * [The Coming of Post-Industrial Society: A Venture in Social Forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 * [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
-* [Our Incorrigible Ontological Relations and Categories of Being: causal and limiting factors of objective knowledge](https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
+* [Our Incorrigible Ontological Relations and Categories of Being: Causal and Limiting Factors of Objective Knowledge(https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
 * [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Utopia](https://www.amazon.com/Utopia-Dover-Thrift-Editions-Thomas/dp/0486295834) by Thomas More
 * [The Communist Manifesto](https://www.amazon.com/Communist-Manifesto-Karl-Marx/dp/0717802418) by Karl Marx
@@ -64,12 +64,12 @@ layout: default
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 
 ### Online Articles/Publications/Videos
-* [Data samurai: why your business needs a new breed of data analyst](https://www.forbes.com/sites/brentdykes/2018/04/26/data-samurai-why-your-business-needs-a-new-breed-of-data-analyst/2/#428f7a781e35)
-* [GDPR and what it means for your business](https://www.forbes.com/sites/forbestechcouncil/2018/04/25/gdpr-and-what-it-means-for-your-business/#272f36f92d2f)
-* [Fintech for the financially excluded?](https://ssir.org/articles/entry/fintech_for_the_financially_excluded)
-* [Reframing sexual violence: from #MeToo to time’s up](https://ssir.org/articles/entry/reframing_sexual_violence_from_metoo_to_times_up)
-* [Ending teacher shortages with network mapping](https://ssir.org/articles/entry/ending_teacher_shortages_with_network_mapping)
-* [Corporate social responsibility for a data age](https://ssir.org/articles/entry/corporate_social_responsibility_for_a_data_age)
+* [Data samurai: why your business needs a new breed of data analyst](https://www.forbes.com/sites/brentdykes/2018/04/26/data-samurai-why-your-business-needs-a-new-breed-of-data-analyst/2/#428f7a781e35) by Brent Dykes
+* [GDPR and what it means for your business](https://www.forbes.com/sites/forbestechcouncil/2018/04/25/gdpr-and-what-it-means-for-your-business/#272f36f92d2f) by Greg Shepard
+* [Fintech for the financially excluded?](https://ssir.org/articles/entry/fintech_for_the_financially_excluded) by Ximena Escobar de Nogales
+* [Reframing sexual violence: from #MeToo to time’s up](https://ssir.org/articles/entry/reframing_sexual_violence_from_metoo_to_times_up) by Monika Johnson Hostler, Moira O’Neil
+* [Ending teacher shortages with network mapping](https://ssir.org/articles/entry/ending_teacher_shortages_with_network_mapping) by Talia Milgrom-Elcott, Eric L. Berlow
+* [Corporate social responsibility for a data age](https://ssir.org/articles/entry/corporate_social_responsibility_for_a_data_age) by Stefaan G. Verhulst 
 * [Why your culture matters now more than ever](http://www.thedrum.com/opinion/2018/04/02/why-your-culture-matters-now-more-ever) by Amanda Enayati
 * [Facebook will go on a hiring spree to get India’s 2019 elections right](https://qz.com/1248162/facebook-will-go-on-a-hiring-spree-to-get-indias-2019-elections-right/) by Ananya Bhattacharya
 * [Schools are missing what matters about learning](https://www.theatlantic.com/amp/article/534573/?__twitter_impression=true) by Scott Kaufman
