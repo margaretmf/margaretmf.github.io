@@ -32,7 +32,7 @@ layout: default
 * [The Coming of Post-Industrial Society: A Venture in Social Forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
 * [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
-* [Our Incorrigible Ontological Relations and Categories of Being: Causal and Limiting Factors of Objective Knowledge(https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
+* [Our Incorrigible Ontological Relations and Categories of Being: Causal and Limiting Factors of Objective Knowledge](https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
 * [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Utopia](https://www.amazon.com/Utopia-Dover-Thrift-Editions-Thomas/dp/0486295834) by Thomas More
 * [The Communist Manifesto](https://www.amazon.com/Communist-Manifesto-Karl-Marx/dp/0717802418) by Karl Marx
@@ -64,6 +64,16 @@ layout: default
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 
 ### Online Articles/Publications/Videos
+* [Many think capitalism and democracy go together. What if they don't? Exploring the tensions inherent to our liberal framework](https://arcdigital.media/many-think-capitalism-and-democracy-go-together-what-if-they-dont-3fb9e68b16d1)
+* [Finally, a definition of workplace inclusion that's truly actionable](https://work.qz.com/1260780/finally-a-definition-of-workplace-inclusion-thats-truly-actionable/) by Leah Fessler
+* [The university has no purpose: and that's a good thing](https://www.chronicle.com/article/The-University-Has-No-Purpose/243185?key=2K4N4HYtD2aA1V-c_T84pxbXtW-p6xRrWM4P2ImAO5K1FJKhacZR4Q1CH_BLqwncWV9uRHh3dlB6Wlh0MzNTSDNueU91M2lpVml6WFV1VFgzRm1QV1B0c3NJNA) by Elizabeth Corey
+* [The resume of the future will tell employers who you are, and not just what you've done](https://work.qz.com/1232692/the-resume-of-the-future/) by Oliver Staley
+* [How developing countries weave social safety nets](https://www.economist.com/news/finance-and-economics/21740412-more-truly-needy-are-being-caught-they-hit-rock-bottom-how-developing?fsrc=scn/tw/te/bl/ed/howdevelopingcountriesweavesocialsafetynetscastingwider) by Qionghai
+* [Can training eliminate biases? starbucks will test the thesis](https://www.nytimes.com/2018/04/18/business/starbucks-racial-bias-training.html?smid=tw-nytimesbusiness&smtyp=cur) by Noam Scheiber, Rachel Abrams
+* [Data privacy is a human right. Europe is moving toward recognizing that.](https://www.commondreams.org/views/2018/04/20/data-privacy-human-right-europe-moving-toward-recognizing) by Sarah St. Vincent
+* [How will history textbooks of the future judge us? I brought back five of them so you can find out](https://www.salon.com/2018/04/21/how-will-history-textbooks-of-the-future-judge-us-i-brought-back-five-of-them-so-you-can-find-out/) by Andrew O'Hehir
+* [How the human rights movement failed](https://www.nytimes.com/2018/04/23/opinion/human-rights-movement-failed.html) by Samuel Moyn
+* [The reinvention of America: Americans don't realize how fast the country is moving toward becoming a better version of itself](https://www.theatlantic.com/magazine/archive/2018/05/reinventing-america/556856/?utm_source=twb) by James Fallows
 * [Data samurai: why your business needs a new breed of data analyst](https://www.forbes.com/sites/brentdykes/2018/04/26/data-samurai-why-your-business-needs-a-new-breed-of-data-analyst/2/#428f7a781e35) by Brent Dykes
 * [GDPR and what it means for your business](https://www.forbes.com/sites/forbestechcouncil/2018/04/25/gdpr-and-what-it-means-for-your-business/#272f36f92d2f) by Greg Shepard
 * [Fintech for the financially excluded?](https://ssir.org/articles/entry/fintech_for_the_financially_excluded) by Ximena Escobar de Nogales
