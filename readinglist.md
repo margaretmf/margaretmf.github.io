@@ -64,6 +64,7 @@ layout: default
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
 
 ### Online Articles/Publications/Videos
+* [Education systems engineers: encouraging divergent thinking](https://pdfs.semanticscholar.org/28ce/f03495a19388f1b364e9ccae6253ea5501f5.pdf)
 * [College waitlists often waste would-be students' time](https://www.npr.org/sections/ed/2018/04/05/599755974/college-waitlists-often-waste-would-be-students-time)
 * [Many think capitalism and democracy go together. What if they don't? Exploring the tensions inherent to our liberal framework](https://arcdigital.media/many-think-capitalism-and-democracy-go-together-what-if-they-dont-3fb9e68b16d1)
 * [Finally, a definition of workplace inclusion that's truly actionable](https://work.qz.com/1260780/finally-a-definition-of-workplace-inclusion-thats-truly-actionable/) by Leah Fessler
