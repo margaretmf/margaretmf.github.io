@@ -23,9 +23,10 @@ layout: default
 * Audited [Data Warehouse Concepts, Design, and Data Integration](https://www.coursera.org/learn/dwdesign)
 * Audited [Managing Responsibility: Practicing Sustainability, Responsibility and Ethics](https://www.coursera.org/learn/responsible-management)
 * Audited [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
+* Audited [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
+
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 * Auditing [Business Metrics for Data-Driven Companies](https://www.coursera.org/learn/analytics-business-metrics)
@@ -35,11 +36,14 @@ layout: default
 * Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
 
 
+### Continuing Education - Completed Certificates
+* [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
+
+
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
 * [Social Capital Markets Conference](http://socialcapitalmarkets.net)
 * [Business Social Responsibility Conference](https://bsr18.org)
-* [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Hindi Language, International Language Institute](http://ilidc.com)
 
 
