@@ -7,6 +7,7 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 
 <br>
 
+
 ### The Importance of Culture
 What is culture? Culture is a set of social behavior and norms. And while culture is more "fuzzy" to define, nuanced, and something people understand through intuition, culture in this new age may serve as a differentiator for those developing modernized infrastructures.
 
