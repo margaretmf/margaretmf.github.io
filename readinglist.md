@@ -43,7 +43,6 @@ layout: default
 * [When: The Scientific Secrets of Perfect Timing](https://www.amazon.com/When-Scientific-Secrets-Perfect-Timing/dp/0735210624) by Daniel Pink
 * [The Culture Code: The Secrets of Highly Successful Groups](https://www.amazon.com/Culture-Code-Secrets-Highly-Successful/dp/0804176981/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=W8NGDT4BZR4KMR5XSE6P) by Daniel Coyle
 * [It's Even Worse Than You Think: What the Trump Administration Is Doing to America](https://www.amazon.com/Even-Worse-Than-Think-Administration/dp/1501174169/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=K4KTZ753QXK2CTRJSH2H) by David Johnson
-* [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 * [Skin in the Game: Hidden Asymmetries in Daily Life](https://www.amazon.com/Skin-Game-Hidden-Asymmetries-Daily/dp/042528462X) by Nassim Taleb
 * [The Black Swan: Second Edition: The Impact of the Highly Improbable: With a new section: "On Robustness and Fragility"](https://www.amazon.com/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=RZDH4ED0NZQ1BEECWBCF) by Nassim Taleb
 * [Meltdown: Why Our Systems Fail and What We Can Do About It](https://www.amazon.com/Meltdown-Systems-Fail-What-About/dp/0735222630) by Chris Clearfield
@@ -62,6 +61,7 @@ layout: default
 * [Being and Time](https://www.amazon.com/Being-Time-Translation-Contemporary-Continental/dp/1438432763/ref=asap_bc?ie=UTF8) by Martin Heidegger 
 * [Snow Crash](https://www.amazon.com/Snow-Crash-Neal-Stephenson/dp/1491515058) by Neal Stephenson
 * [Invisible Influence: The Hidden Forces that Shape Behavior](https://www.amazon.com/Invisible-Influence-Hidden-Forces-Behavior/dp/1476759693) by Johna Berger
+* [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
 * [Weak Signals in Organizational Futures](http://epub.lib.aalto.fi/pdf/diss/a365.pdf) by Elina Hiltunen
