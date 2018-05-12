@@ -83,11 +83,11 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 * [Why artificial intelligence will shift human innovation into overdrive](https://www.forbes.com/sites/forbestechcouncil/2018/05/10/why-artificial-intelligence-will-shift-human-innovation-into-overdrive/#620d5a6d50b3) by Chad Steelberg
 * [The university has no purpose: and that's a good thing](https://www.chronicle.com/article/The-University-Has-No-Purpose/243185?key=2K4N4HYtD2aA1V-c_T84pxbXtW-p6xRrWM4P2ImAO5K1FJKhacZR4Q1CH_BLqwncWV9uRHh3dlB6Wlh0MzNTSDNueU91M2lpVml6WFV1VFgzRm1QV1B0c3NJNA) by Elizabeth Corey
 * [#MeToo meets China's censors and students learn a tough lesson: government tries to censor student accounts of sexual harassment posted on social media](https://www.wsj.com/articles/chinas-universities-face-a-metoo-moment-1524394801?mod=e2tw) by Te-Ping Chen
-* [Weak Signals in Organizational Futures](http://epub.lib.aalto.fi/pdf/diss/a365.pdf) by Elina Hiltunen
+* [Weak Signals in organizational futures](http://epub.lib.aalto.fi/pdf/diss/a365.pdf) by Elina Hiltunen
 * [Education systems engineers: encouraging divergent thinking](https://pdfs.semanticscholar.org/28ce/f03495a19388f1b364e9ccae6253ea5501f5.pdf) by William H. McCumber
 * [College waitlists often waste would-be students' time](https://www.npr.org/sections/ed/2018/04/05/599755974/college-waitlists-often-waste-would-be-students-time) by Clare Lombardo, Elissa Nadworny
 * [Many think capitalism and democracy go together. What if they don't? Exploring the tensions inherent to our liberal framework](https://arcdigital.media/many-think-capitalism-and-democracy-go-together-what-if-they-dont-3fb9e68b16d1) by Alexander Blum
-* [Data Analytics for Scanning](https://www.houstonforesight.org/wp-content/uploads/2018/04/DataAnalyticsForScanning_Boysen.pdf) by Anne Boysen
+* [Data analytics for scanning](https://www.houstonforesight.org/wp-content/uploads/2018/04/DataAnalyticsForScanning_Boysen.pdf) by Anne Boysen
 * [Finally, a definition of workplace inclusion that's truly actionable](https://work.qz.com/1260780/finally-a-definition-of-workplace-inclusion-thats-truly-actionable/) by Leah Fessler
 * [The university has no purpose: and that's a good thing](https://www.chronicle.com/article/The-University-Has-No-Purpose/243185?key=2K4N4HYtD2aA1V-c_T84pxbXtW-p6xRrWM4P2ImAO5K1FJKhacZR4Q1CH_BLqwncWV9uRHh3dlB6Wlh0MzNTSDNueU91M2lpVml6WFV1VFgzRm1QV1B0c3NJNA) by Elizabeth Corey
 * [The resume of the future will tell employers who you are, and not just what you've done](https://work.qz.com/1232692/the-resume-of-the-future/) by Oliver Staley
