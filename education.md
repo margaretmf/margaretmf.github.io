@@ -36,8 +36,9 @@ layout: default
 * Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
 
 
-### Continuing Education - Completed Certificates
+### Continuing Education - Completed Classes
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
+* [Technical Product Management, General Assembly](https://generalassemb.ly/)
 
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
