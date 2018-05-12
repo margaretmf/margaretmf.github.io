@@ -121,7 +121,17 @@ Addressing the gender pay gap was an initiative of the Obamas, and with US Digit
 
 In the summer of 2016, after going to the hack day where I started applying some of my systems analysis skills learned at UVA and in a systems engineering internship, I worked with a team to brainstorm how to provide a tool to employers so that they can help to hack the pay gap. With my team I designed and prototyped a survey analytics platform for employers to use, and my team members and I persisted on working on the problem until the end, leading to our being able to present our work at the [White House](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950#.86x).
 
-<img class="picture" src="aware.jpg">
+<img class="picture" src="aware-problem1.jpg">
+
+<img class="picture" src="aware-problem2.jpg">
+
+<img class="picture" src="aware-solution1.jpg">
+
+<img class="picture" src="aware-solution2.jpg">
+
+<img class="picture" src="aware-solution3.jpg">
+
+<img class="picture" src="aware-solution4.jpg">
 
 Download pitch deck ppt presentation [here](http://margaretmf.github.io/aware.pptx).
 
