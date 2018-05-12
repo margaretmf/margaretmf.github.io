@@ -64,6 +64,25 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Walmart takes a second shot at the Indian market](https://www.economist.com/news/business-and-finance/21741931-its-16bn-purchase-flipkart-indias-biggest-foreign-acquisition-walmart-takes-second?fsrc=scn/tw/te/bl/ed/walmarttakesasecondshotattheindianmarketbentonvillemeetbangalore)
+* [Chief Kindness Officers?
+Students explore how self-awareness, self-care, and self-understanding can help them become better leaders.](https://www.gsb.stanford.edu/stanford-gsb-experience/news-history/chief-kindness-officers?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180511&linkId=51611150)
+* [It’s time for data ethics conversations at your dinner table](https://www.techatbloomberg.com/blog/time-data-ethics-conversations-dinner-table/?utm_source=dsorg) by Lucy C. Erickson, Natalie Evans Harris, Meredith M. Lee
+* [If your data is bad, your machine learning tools are useless](https://hbr.org/2018/04/if-your-data-is-bad-your-machine-learning-tools-are-useless) by Thomas Redman
+* [Shaping philanthropy](https://www.ubs.com/global/en/wealth-management/uhnw/philanthropy/shaping-philanthropy.html) by Ana Saavedra
+* [American higher education hits a dangerous milestone](https://www.theatlantic.com/politics/archive/2018/05/american-higher-education-hits-a-dangerous-milestone/559457/?utm_source=atltw) by Ronald Brownstein
+* [Will restaurant robots change the industry or sizzle out?](https://www.csmonitor.com/Technology/2018/0504/Will-restaurant-robots-change-the-industry-or-sizzle-out?cmpid=TW&utm_campaign=Echobox&utm_medium=Social&utm_source=Twitter#link_time=1525455224) by Matt O'Brien
+* [The Western elite from a Chinese perspective](https://americanaffairsjournal.org/2017/11/western-elite-chinese-perspective/) by Puzhong Yao
+* [Why are states spending less on higher-ed? Medicaid and lazy rivers could be to blame](https://www.chronicle.com/article/Why-Are-States-Spending-Less/243281) by Julian Wyllie
+* [The race to learn what's really happening in the opioid crisis](https://www.citylab.com/life/2018/04/the-race-to-learn-whats-really-happening-in-the-opioid-crisis/555191/?utm_source=twb) by Linda Poon
+* [The next wave Of tech-for-good companies are being built by women and minorities](https://www.fastcompany.com/40554684/the-next-wave-of-tech-for-good-companies-are-being-built-by-women-and-minorities) by Ben Paynter
+* [5 habits that let emotionally intelligent people adapt to anything](https://www.fastcompany.com/40514381/5-habits-that-help-emotionally-intelligent-people-adapt-to-change) by Harvey Deutschendorf
+* [You cannot win the war on noise](https://www.citylab.com/life/2018/04/you-will-not-win-the-war-on-noise/558527/?utm_source=SFTwitter) by Matthew Jordan
+* [Why college mergers need to be more than just cutting administrators](https://www.chronicle.com/article/Why-College-Mergers-Need-to-Be/243271?key=vSQp-3cf-De7HoC41GBsvlT_VaEhcm7zlW1FniRLucWXuDTc9eKfec7nqTQJya2IVVF5cDV1Q0ZZMW82akprWnEzV0E3NlRPd2NZbkQxbWdKTThzRzFlWjRIbw) by Eric Kelderman
+* [The perks of a play-in-the-mud educational philosophy](https://www.theatlantic.com/education/archive/2018/04/early-childhood-outdoor-education/558959/) by Conor Williams
+* [Why artificial intelligence will shift human innovation into overdrive](https://www.forbes.com/sites/forbestechcouncil/2018/05/10/why-artificial-intelligence-will-shift-human-innovation-into-overdrive/#620d5a6d50b3) by Chad Steelberg
+* [The university has no purpose: and that's a good thing](https://www.chronicle.com/article/The-University-Has-No-Purpose/243185?key=2K4N4HYtD2aA1V-c_T84pxbXtW-p6xRrWM4P2ImAO5K1FJKhacZR4Q1CH_BLqwncWV9uRHh3dlB6Wlh0MzNTSDNueU91M2lpVml6WFV1VFgzRm1QV1B0c3NJNA) by Elizabeth Corey
+* [#MeToo meets China's censors and students learn a tough lesson: government tries to censor student accounts of sexual harassment posted on social media](https://www.wsj.com/articles/chinas-universities-face-a-metoo-moment-1524394801?mod=e2tw) by Te-Ping Chen
 * [Weak Signals in Organizational Futures](http://epub.lib.aalto.fi/pdf/diss/a365.pdf) by Elina Hiltunen
 * [Education systems engineers: encouraging divergent thinking](https://pdfs.semanticscholar.org/28ce/f03495a19388f1b364e9ccae6253ea5501f5.pdf) by William H. McCumber
 * [College waitlists often waste would-be students' time](https://www.npr.org/sections/ed/2018/04/05/599755974/college-waitlists-often-waste-would-be-students-time) by Clare Lombardo, Elissa Nadworny
@@ -147,13 +166,13 @@ layout: default
 * [Can measures change the world?](https://ssir.org/articles/entry/can_measures_change_the_world) by Christopher Nelson, Anita Chandra, & Carolyn Miller
 * [Why companies and universities should forge long-term collaborations](https://hbr.org/2018/01/why-companies-and-universities-should-forge-long-term-collaborations?utm_campaign=hbr&utm_source=twitter&utm_medium=social) by Kenneth R. Lutchen
 * [Universities are not ivory towers. Here's the role they can play today](https://www.weforum.org/agenda/2018/01/why-universities-need-to-win-back-trust?utm_content=buffer145af&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Alice Gast
-* [Podcast: Education for the Fourth Industrial Revolution](https://www.weforum.org/agenda/2018/01/podcast-education-for-the-fourth-industrial-revolution?utm_content=bufferb9254&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Anne Marie Engtoft Larsen
-* [Engaging the Private Sector to Help Build Peaceful and Inclusive Societies](https://mastercardcenter.org/insights/engaging-private-sector-build-peaceful-inclusive-societies/?utm_campaign=Davos+2018+-+Paid&utm_medium=bitly&utm_source=linkedin)
-* [How to Prepare Children for the Ongoing Technological Explosion and Jobs of the Future with Jonathan Mugan](https://tech2025.com/events/webinar-how-to-prepare-children-for-the-ongoing-technological-explosion-and-jobs-of-the-future-with-jonathan-mugan/?utm_content=buffer061a5&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Jonathan Mugan
+* [Podcast: Education for the fourth industrial revolution](https://www.weforum.org/agenda/2018/01/podcast-education-for-the-fourth-industrial-revolution?utm_content=bufferb9254&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Anne Marie Engtoft Larsen
+* [Engaging the private sector to help build peaceful and inclusive societies](https://mastercardcenter.org/insights/engaging-private-sector-build-peaceful-inclusive-societies/?utm_campaign=Davos+2018+-+Paid&utm_medium=bitly&utm_source=linkedin)
+* [How to prepare children for the ongoing technological explosion and jobs of the future with Jonathan Mugan](https://tech2025.com/events/webinar-how-to-prepare-children-for-the-ongoing-technological-explosion-and-jobs-of-the-future-with-jonathan-mugan/?utm_content=buffer061a5&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) by Jonathan Mugan
 * [Big Brother on wheels: Why your car company may know more about you than your spouse.](https://www.washingtonpost.com/news/innovations/wp/2018/01/15/big-brother-on-wheels-why-your-car-company-may-know-more-about-you-than-your-spouse/?utm_term=.0421867f26dd) by Peter Holley
-* [Our Opportunity for More Data-Driven Nonprofit Program Evaluation](https://ssir.org/articles/entry/our_opportunity_for_more_data_driven_nonprofit_program_evaluation) by Tracey Gyateng & Beth Simone Novek
+* [Our opportunity for more data-driven nonprofit program evaluation](https://ssir.org/articles/entry/our_opportunity_for_more_data_driven_nonprofit_program_evaluation) by Tracey Gyateng & Beth Simone Novek
 * [The Big Shift: Why it matters](http://www.johnseelybrown.com/bigshiftwhyitmatters.pdf) by John Hagel III, John Seely Brown, & Lang Davison
-* [Connecting the Dots to the Future of Technology in Higher Education](https://er.educause.edu/articles/2011/7/connecting-the-dots-to-the-future-of-technology-in-higher-education) by Stephen DiFilipo
+* [Connecting the dots to the future of technology in higher education](https://er.educause.edu/articles/2011/7/connecting-the-dots-to-the-future-of-technology-in-higher-education) by Stephen DiFilipo
 * [Analytics for Change: How networks and data science will revolutionize organizational change](https://www.ccl.org/wp-content/uploads/2016/06/AnalyticsForChange.e.pdf) by Kristin Cullen-Lester & Phil Willburn
 * [The social power of algorithms](http://www.tandfonline.com/doi/full/10.1080/1369118X.2016.1216147) by David Beer
 * [Data scientists mine government data for evidence of historical events](https://www.upi.com/Science_News/2017/12/29/Data-scientists-mine-government-data-for-evidence-of-historical-events/5381514578683/?spt=rrs&or=4) by Brooks Hays
@@ -163,7 +182,7 @@ layout: default
 * [Big data lessons from Netflix](https://www.wired.com/insights/2014/03/big-data-lessons-netflix/) by Phil Simon
 * [Big data for social innovation](https://ssir.org/articles/entry/big_data_for_social_innovation) by Kevin C. Desouza & Kendra L. Smith 
 * [How a good analytics strategy can become the victim of its own success](https://insight.kellogg.northwestern.edu/article/how-a-good-analytics-strategy-can-become-the-victim-of-its-own-success) by Eric T. Anderson & Florian Zettelmeyer
-* [The Fourth Industrial Revolution: what it means, how to respond](https://www.weforum.org/agenda/2016/01/the-fourth-industrial-revolution-what-it-means-and-how-to-respond/) by Klaus Schwab
+* [The fourth industrial revolution: What it means, how to respond](https://www.weforum.org/agenda/2016/01/the-fourth-industrial-revolution-what-it-means-and-how-to-respond/) by Klaus Schwab
 * [The nature of revolution](https://isreview.org/issue/77/nature-revolution) by Duncan Hallas
 * [10 things children born in 2018 will probably never experience](https://futurism.com/10-things-children-born-2018-will-never-experience/) by Kristin Houser & Patrick Caughill
 * [Can your firm develop a sustainable edge? ask John Hagel and John Seely Brown](http://knowledge.wharton.upenn.edu/article/can-your-firm-develop-a-sustainable-edge-ask-john-hagel-and-john-seely-brown/)
