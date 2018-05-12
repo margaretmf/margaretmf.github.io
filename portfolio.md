@@ -132,9 +132,6 @@ In the summer of 2016, after going to the hack day where I started applying some
 <img class="picture" src="aware-solution3.jpg">
 
 <img class="picture" src="aware-solution4.jpg">
-
-Download pitch deck ppt presentation [here](http://margaretmf.github.io/aware.pptx).
-
 <br>
 
 ## Compass and Jubilee Jumpstart - Resarch
@@ -142,6 +139,9 @@ Download pitch deck ppt presentation [here](http://margaretmf.github.io/aware.pp
 As someone passionate about spatial data, I had the opportunity to work on the data analysis piece of a strategic alignment project for Jubilee Jumpstart as the nonprofit explored expanding. I created many maps during this project. I really enjoyed using the R programming language to create two maps to understand people in DC. This helped with understanding the neighborhoods to which the preschool center might be able to expand.
 
 <img class="picture" src="jubilee-jumpstart-dc-market.jpg">
+<br>
+
+
 
 
 
