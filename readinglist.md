@@ -53,6 +53,8 @@ layout: default
 #### Completed
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
+* [Transcendence in systems leadership](https://www.heartoftheart.org/?p=1944) by Emma Loftus
+* [Why has Argentina called in the IMF?](https://www.economist.com/blogs/economist-explains/2018/05/economist-explains-7?fsrc=scn/tw/te/bl/ed/) 
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
 * [Bit by Bit: Social Research in the Digital Age](http://www.bitbybitbook.com) by Matthew J. Salganik 
 * [The Structure of Scientific Revolutions](https://www.amazon.com/Structure-Scientific-Revolutions-50th-Anniversary/dp/0226458121) by Thomas Kuhn
@@ -64,6 +66,11 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Music as predictor of social change](https://harvardmagazine.com/2014/04/music-social-change)
+* [Complexity demands new approaches to work](https://ssir.org/articles/entry/complexity_demands_new_approaches_to_work) by Mary Jo Kaplan
+* [What I learned from being laid off](https://www.chronicle.com/article/What-I-Learned-From-Being-Laid/243371) by Phyllis Brust
+* [Starbucks brews a tech-infused future, with help from microsoft](https://www.fastcompany.com/40568165/starbucks-brews-a-tech-infused-future-with-help-from-microsoft?utm_source=t.co&utm_medium=referral) by Harry McCracken
+* [What makes nonprofit digital teams successful today?](https://ssir.org/articles/entry/what_makes_nonprofit_digital_teams_successful_today) by Jason Mogus & Austen Levihn-Coon
 * [Walmart takes a second shot at the Indian market](https://www.economist.com/news/business-and-finance/21741931-its-16bn-purchase-flipkart-indias-biggest-foreign-acquisition-walmart-takes-second?fsrc=scn/tw/te/bl/ed/walmarttakesasecondshotattheindianmarketbentonvillemeetbangalore)
 * [Chief Kindness Officers?
 Students explore how self-awareness, self-care, and self-understanding can help them become better leaders.](https://www.gsb.stanford.edu/stanford-gsb-experience/news-history/chief-kindness-officers?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180511&linkId=51611150)
