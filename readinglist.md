@@ -64,6 +64,14 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Activists urge India to do more for sexual assault victims](https://www.voanews.com/a/activists-urge-india-to-do-more-for-sexual-assault-victims/4393202.html) 
+* [How India can make America great again](http://nationalinterest.org/feature/how-india-can-help-make-america-great-again-23005) by Mir Sadat
+* [Dolls that nurture boys' empathy](https://www.nytimes.com/2018/05/14/well/family/wonder-crew-dolls-boys-empathy.html?action=click&pgtype=Homepage&version=Moth-Visible&moduleDetail=inside-nyt-region-5&module=inside-nyt-region&region=inside-nyt-region&WT.nav=inside-nyt-region) by Emily Popek
+* [The american renaissance is already happening](https://www.nytimes.com/2018/05/14/opinion/the-american-renaissance-is-already-happening.html?action=click&pgtype=Homepage&clickSource=story-heading&module=opinion-c-col-left-region&region=opinion-c-col-left-region&WT.nav=opinion-c-col-left-region) by David Brooks
+* [Trump shifts from trade war threats to concessions in rebuff to hard-liners](https://www.nytimes.com/2018/05/14/business/china-trump-zte.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=first-column-region&region=top-news&WT.nav=top-news) by Ana Swanson, Mark Landler, Keith Bradsher
+* [There's a data crackdown coming. Why it's good for customers and business](https://paidpost.nytimes.com/microsoft/theres-a-data-crackdown-coming.html?tbs_nyt=2018--nytnative_hpmod&cpv_dsm_id=20174233) by Microsoft
+* [Why google wants you to put down the phone](https://www.wsj.com/podcasts/why-google-wants-you-to-put-down-the-phone/9A0CE294-91E4-46AD-9F7C-F59F09419A47.html) by Douglas MacMillan
+* [The future of everything festival: The case for universal basic income](https://www.wsj.com/podcasts/the-future-of-everything-festival-the-case-for-universal-basic-income/4F2F7F81-0AFB-4E0F-A3BD-8BE45461D0A6.html) 
 * [World’s most powerful camera can spot planets drowned by starlight](https://www.futurity.org/darkness-camera-exoplanets-1754252/) by Julie Cohen
 * [Transcendence in systems leadership](https://www.heartoftheart.org/?p=1944) by Emma Loftus
 * [Why has Argentina called in the IMF?](https://www.economist.com/blogs/economist-explains/2018/05/economist-explains-7?fsrc=scn/tw/te/bl/ed/) 
