@@ -12,7 +12,6 @@ layout: default
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
 * [Flowers for Algernon](https://www.amazon.com/Flowers-Algernon-Daniel-Keyes/dp/015603008X) by Daniel Keyes
-* [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
 * [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
@@ -51,6 +50,7 @@ layout: default
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, Margaret J. Wheatley
 
 #### Completed
+* [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
 * [Happy Accidents: The Transformative Power of “Yes, And” at Work and in Life](https://ssir.org/book_reviews/entry/happy_accidents_the_transformative_power_of_yes_and_at_work_and_in_life) by David Ahearn, Frank Ford & David Wilk 
