@@ -66,6 +66,9 @@ December 2015 - January 2016
 Next Gen Council Member
 June 2016 - Present
 
+### America India Foundation
+Event Participant
+
 ### DataKind DC and DataKind Corps
 Data Science Volunteer, Data Ambassador
 January 2016 - Present
