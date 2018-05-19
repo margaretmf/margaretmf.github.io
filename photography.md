@@ -44,10 +44,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="red_door.jpg">
-
-
-
 <img class="profile-picture" src="washington_dc.jpg">
 
 
