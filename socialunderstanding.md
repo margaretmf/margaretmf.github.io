@@ -17,7 +17,7 @@ A black woman was forced to the ground, exposing her breasts, at a Waffle House 
 A black man was choked by a police officer outside of another Waffle House in Warsaw, North Carolina. 
 A white man at a California Coffee Bean location harassed a Muslim customer, asking her, 'Is this Halloween or something?'"
 
-Here I interpret this type of event through [social phenomenology], which, in essence, "is the belief that society is a human construction."
+Here I interpret this type of event through [social phenomenology](https://www.thoughtco.com/phenomenology-sociology-3026630), which, in essence, "is the belief that society is a human construction."
 
 Under social phenomenology, "people depend upon language and the 'stock of knowledge' they have accumulated to enable social interaction." For centuries, people have developed a language that denigrates black people, or more broadly, non-Caucasian people. The attack towards the diverse people represent one "stock of knowledge" that lead to certain types of human interactions and reality construction.
 
