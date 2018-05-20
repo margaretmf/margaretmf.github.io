@@ -43,7 +43,7 @@ layout: default
 * [Hindi Language, International Language Institute](http://ilidc.com)
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
 * [Design Thinking, General Assembly](https://generalassemb.ly/)
-* [Data and You: GDPR](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
+* [Data and You: GDPR, General Assembly](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
 * [Social Capital Markets Conference](http://socialcapitalmarkets.net)
 * [Business Social Responsibility Conference](https://bsr18.org)
 * [Strategic Foresight](https://www.soif.org.uk/retreats/soif2018-summer-retreat-strategic-foresight/)
