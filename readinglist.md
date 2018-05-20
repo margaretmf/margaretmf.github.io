@@ -65,6 +65,27 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [How multinationals should be planning for Brexit](https://hbr.org/2018/05/how-multinationals-should-be-planning-for-brexit?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Mark McNamee, Athanasia Kokkinogeni
+* [This designer is fighting back against bad data-with feminism](https://www.fastcodesign.com/90168266/the-designer-fighting-back-against-bad-data-with-feminism?utm_source=WIN+Mailing+List+-+New+York&utm_campaign=692b001b1a-EMAIL_CAMPAIGN_2018_05_01&utm_medium=email&utm_term=0_e019bcfce9-692b001b1a-83530395) by Katharine Schwab
+* [Life in 2030: these are the 4 things experts can't predict](https://www.weforum.org/agenda/2017/11/life-in-2030-what-experts-cant-predict) by Lee Rainie
+* [US birth rate declines to 30-year low] by Mike Stobbe
+* [How due process became a new front in the culture wars](https://www.chronicle.com/article/How-Due-Process-Became-a-New/243453?key=3gZXXhLQjFMTjaMwNwzCEeDkpAYeL2OVJuooI0Fbiy66IGtf0t1ghA5MaqtGC7F5RmNVTXVzaHE5bTlxd0hVLWVmVDE5RDFUUkxFckxDb1NUT3hkd3N4WEo3NA) by Eric Kelderman
+* [Imperfect Score: Algorithms are making the same mistakes assessing credit scores that humans did a century ago](https://qz.com/1276781/algorithms-are-making-the-same-mistakes-assessing-credit-scores-that-humans-did-a-century-ago/) by Rachel O'Dwyer
+* [Investing in education and closing the achievement gap](https://blairformontgomery.com/portfolio-item/closing-the-achievement-gap-through-better-education/) 
+* [On leadership: How corporate america is trying to foster more real talk about race](https://www.washingtonpost.com/news/on-leadership/wp/2018/05/17/how-corporate-america-is-trying-to-foster-more-real-talk-about-race/?utm_term=.a8e5c6241a3c) by Jena McGregor
+* [Reporting in a machine reality: deepfakes, misinformation, and what journalists can do about them](https://www.cjr.org/tow_center/reporting-machine-reality-deepfakes-diakopoulos-journalism.php) by Nicholas Diakopoulos
+* [Socially responsible funds dump or rethink Facebook over data privacy](https://www.reuters.com/article/us-facebook-investors/socially-responsible-funds-dump-or-rethink-facebook-over-data-privacy-idUSKCN1IJ1AX?feedType=RSS&feedName=topNews&utm_medium=Social&utm_source=twitter) by Ross Kerber
+* [Google has an official process in place for learning from failure](https://www.inc.com/justin-bariso/meet-postmortem-googles-brilliant-process-tool-for-learning-from-failure.html?cid=sf01001) by Justin Bariso
+* [GDPR in real life: Fear, uncertainty, and doubt](https://www.zdnet.com/article/gdpr-in-real-life-fear-uncertainty-and-doubt/) by George Anadiotis
+* [GDPR Tools are Here: Updated Forms, Improved Contact Management, and More](https://blog.mailchimp.com/gdpr-forms-and-more-tools/)
+* [Finland's rank as the world's happiest country is very upsetting in Finland](https://qz.com/1276649/the-happiest-country-on-earth-is-finland-and-finns-arent-happy-about-it/) by Joie Sans Finn
+* [Why google maps - not Netflix or Amazon - points to the future of education](https://www.edsurge.com/news/2018-05-14-why-google-maps-not-netflix-or-amazon-points-to-the-future-of-education?platform=hootsuite) by Michael B. Horn
+* [How will the GDPR impact machine learning?](https://www.oreilly.com/ideas/how-will-the-gdpr-impact-machine-learning) by Andrew Burt
+* [With the emergence of AI, the future of mankind is bright](https://www.entrepreneur.com/article/313362) by Srinivas Bommena
+* [Scenarios beyond the design cycle](https://www.cooper.com/journal/2017/11/scenarios-beyond-the-design-cycle) by Peter Schwartz
+* [Can computers learn like humans?](https://www.npr.org/sections/alltechconsidered/2018/02/05/583321707/can-computers-learn-like-humans) by Joe Palca
+* [Fake news is nothing new](https://dsi.virginia.edu/projects/fake-news-nothing-new) by UVA Presidential Fellows
+* [Gen. David Petraeus: Four tasks of a strategic leader](https://www.gsb.stanford.edu/insights/gen-david-petraeus-four-tasks-strategic-leader?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180514&linkId=51705354) by Bill Snyder
 * [Activists urge India to do more for sexual assault victims](https://www.voanews.com/a/activists-urge-india-to-do-more-for-sexual-assault-victims/4393202.html) 
 * [How India can make America great again](http://nationalinterest.org/feature/how-india-can-help-make-america-great-again-23005) by Mir Sadat
 * [Dolls that nurture boys' empathy](https://www.nytimes.com/2018/05/14/well/family/wonder-crew-dolls-boys-empathy.html?action=click&pgtype=Homepage&version=Moth-Visible&moduleDetail=inside-nyt-region-5&module=inside-nyt-region&region=inside-nyt-region&WT.nav=inside-nyt-region) by Emily Popek
