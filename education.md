@@ -29,9 +29,6 @@ layout: default
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
-* Auditing [Business Metrics for Data-Driven Companies](https://www.coursera.org/learn/analytics-business-metrics)
-* Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 1](https://www.coursera.org/learn/understanding-china-history-part-1)
-* Auditing [Understanding China, 1700-2000: A Data Analytic Approach, Part 2](https://www.coursera.org/learn/understanding-china-history-part-2)
 * Auditing [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
 * Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
 
@@ -43,11 +40,14 @@ layout: default
 
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
+* [Hindi Language, International Language Institute](http://ilidc.com)
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
 * [Design Thinking, General Assembly](https://generalassemb.ly/)
+* [Data and You: GDPR](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
 * [Social Capital Markets Conference](http://socialcapitalmarkets.net)
 * [Business Social Responsibility Conference](https://bsr18.org)
-* [Hindi Language, International Language Institute](http://ilidc.com)
+* [Strategic Foresight](https://www.soif.org.uk/retreats/soif2018-summer-retreat-strategic-foresight/)
+
 
 
 
