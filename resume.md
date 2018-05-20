@@ -81,6 +81,6 @@ October 2016 - Present
  
 ### White House Hack the Pay Gap
 Product Designer
-* Results: [How we Hacked the Gender Pay Gap](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950)
+* Results: [How We Hacked the Gender Pay Gap](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950)
 
 <br> 
