@@ -23,5 +23,7 @@ Under social phenomenology, "people depend upon language and the 'stock of knowl
 
 Starbucks has recently responded as a company by developing a more clear policy (information [here](https://slate.com/news-and-politics/2018/05/you-can-now-officially-sit-in-any-starbucks-and-use-the-bathroom-without-buying-anything.html)). Anyone can use a bathroom or sit in a Starbucks no matter whether or not they have paid for an item as a customer or not. Additionally, the company is providing diversity and inclusion training (information [here](https://www.inc.com/sonia-thompson/recent-incidents-at-starbucks-yale-nordstrom-rack-prove-that-every-company-needs-to-talk-about-bias.html)). These actions help to reverse the language and "stock of knowledge" so that new types of human interactions can form and reality can be constructed differently.
 
+<br>
+
 
 
