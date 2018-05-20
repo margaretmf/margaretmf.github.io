@@ -115,6 +115,19 @@ In January 2017, after Trump became the President of the US, women came to DC to
 
 <br>
 
+## Kosko's
+In an undergraduate class on entrepreneurship, my group developed and pitched a Greek restaurant business concept. I specifically worked on the Market and Strategy piece shown below. This class led me to look into ways to develop a career in the entrepreneurial world, and I've been learning a lot by working with EVERFI, which recently received the leading investment from TPG's RISE fund.
+
+<img class="picture" src="market_information_and_strategy_1.jpg"
+
+<img class="picture" src="market_information_and_strategy_2.jpg"
+
+<img class="picture" src="market_information_and_strategy_3.jpg"
+
+Download the entire report [here](https://github.com/margaretmf/margaretmf.github.io/blob/master/entrepreneurship_business_report.pdf)
+
+<br>
+
 ## Hack the Pay Gap - Aware
 
 Addressing the gender pay gap was an initiative of the Obamas, and with the US Digital Services, they led an initative to hack the pay gap. The initiatve with people in DC started off with a hack day at 1776, and then continued with a final visit to the White House in the summer of 2016.
