@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress
+* [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 * [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
@@ -222,6 +223,7 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 ## 2017 
 
 ### Books
+* [The World Beyond Your Head: On Becoming an Individual in an Age of Distraction](https://www.amazon.com/World-Beyond-Your-Head-Distraction/dp/0374535914) by Matthew Crawford
 * [The Information: A History, A Theory, A Flood](https://www.amazon.com/Information-History-Theory-Flood/dp/1400096235) by James Gleick
 * [Sensemaking: The Power of the Humanities in the Age of the Algorithm](https://www.amazon.com/Sensemaking-Power-Humanities-Age-Algorithm/dp/031639324X) by Christian Madsbjerg
 * [The Fuzzy and the Techie: Why the Liberal Arts Will Rule the Digital World](https://www.amazon.com/Fuzzy-Techie-Liberal-Digital-World/dp/0544944771/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=22V0FMC7ZMQAYA7X3D27) by Scott Hartley 
