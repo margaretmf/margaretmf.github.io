@@ -116,7 +116,7 @@ In January 2017, after Trump became the President of the US, women came to DC to
 <br>
 
 ## Kosko's
-In an undergraduate class on entrepreneurship, my group developed and pitched a Greek restaurant business concept. I specifically worked on the Market and Strategy piece shown below. This class led me to look into ways to develop a career in the entrepreneurial world, and I've been learning a lot by working with EVERFI, which recently received the leading investment from TPG's RISE fund.
+In an undergraduate class on entrepreneurship, my group developed and pitched a Greek restaurant business concept. I specifically worked on the Market and Strategy piece shown below. This class led me to look into ways to develop a career in the entrepreneurial world, and I've been learning by working with [EVERFI](https://everfi.com/), which recently received the leading investment from [TPG's RISE fund](http://therisefund.com/).
 
 <img class="picture" src="market_information_and_strategy_1.jpg">
 
