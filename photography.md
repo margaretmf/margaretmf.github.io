@@ -28,10 +28,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="redwood_trees.jpg">
-
-
-
 <img class="profile-picture" src="dcwindow.jpg">
 
 
