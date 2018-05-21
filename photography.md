@@ -36,6 +36,9 @@ layout: default
 
 
 
+<img class="profile-picture" src="kentucky_farm.jpg">
+
+
 
 <b>
 
