@@ -36,6 +36,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="winter_ice.jpg">
+
+
+
 <b>
 
 
