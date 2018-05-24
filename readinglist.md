@@ -17,7 +17,6 @@ layout: default
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
 * [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab Patricia Albere 
-* [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
 * [The Second Machine Age: Work, Progress, and Prosperity in Time of Brilliant Technologies](https://www.amazon.com/Second-Machine-Age-Prosperity-Technologies/dp/0393350649/ref=pd_sim_14_2?_encoding=UTF8&pd_rd_i=0393350649&pd_rd_r=EBBM9HBRBQ5JWG3DQ5K7&pd_rd_w=lLJep&pd_rd_wg=bSvxQ&psc=1&refRID=EBBM9HBRBQ5JWG3DQ5K7) by Erik Brynjolfsson
 * [The Question Concerning Technology, and Other Essays](https://www.amazon.com/Question-Concerning-Technology-Perennial-Thought/dp/0062290703/ref=asap_bc?ie=UTF8) by Martin Heidegger
 * [Poetry, Language, Thought](https://www.amazon.com/Poetry-Language-Thought-Harper-Perennial/dp/0060937289/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=0060937289&pd_rd_r=4AS9HXV0A42C6TP1R2RT&pd_rd_w=AxibB&pd_rd_wg=GbkL8&psc=1&refRID=4AS9HXV0A42C6TP1R2RT) by Martin Heidegger
@@ -51,6 +50,7 @@ layout: default
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 
 #### Completed
+* [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
 * [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
 * [Power Plays: Shakespeare's Lessons in Leadership and Management](https://www.amazon.com/Power-Plays-Shakespeares-Leadership-Management/dp/0684868881) by John O. Whitney & Tina Packer
