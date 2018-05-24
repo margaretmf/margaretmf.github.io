@@ -16,7 +16,7 @@ layout: default
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
-* [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab Patricia Albere 
+* [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab 
 * [The Second Machine Age: Work, Progress, and Prosperity in Time of Brilliant Technologies](https://www.amazon.com/Second-Machine-Age-Prosperity-Technologies/dp/0393350649/ref=pd_sim_14_2?_encoding=UTF8&pd_rd_i=0393350649&pd_rd_r=EBBM9HBRBQ5JWG3DQ5K7&pd_rd_w=lLJep&pd_rd_wg=bSvxQ&psc=1&refRID=EBBM9HBRBQ5JWG3DQ5K7) by Erik Brynjolfsson
 * [The Question Concerning Technology, and Other Essays](https://www.amazon.com/Question-Concerning-Technology-Perennial-Thought/dp/0062290703/ref=asap_bc?ie=UTF8) by Martin Heidegger
 * [Poetry, Language, Thought](https://www.amazon.com/Poetry-Language-Thought-Harper-Perennial/dp/0060937289/ref=pd_bxgy_14_img_2?_encoding=UTF8&pd_rd_i=0060937289&pd_rd_r=4AS9HXV0A42C6TP1R2RT&pd_rd_w=AxibB&pd_rd_wg=GbkL8&psc=1&refRID=4AS9HXV0A42C6TP1R2RT) by Martin Heidegger
@@ -28,8 +28,8 @@ layout: default
 * [Scale: The Universal Laws of Growth, Innovation, Sustainability, and the Pace of Life in Organisms, Cities, Economies, and Companies](https://www.amazon.com/Scale-Universal-Innovation-Sustainability-Organisms/dp/1594205582/ref=sr_1_1?s=books&ie=UTF8&qid=1515039694&sr=1-1&keywords=scale+by+geoffrey+west) by Geoffrey West
 * [Creative Confidence: Unleashing the Creative Potential Within Us All](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1515102457&sr=8-1&keywords=creative+confidence+by+tom+%26+david+kelley) by Tom Kelley
 * [The Coming of Post-Industrial Society: A Venture in Social Forecasting](https://www.amazon.com/The-Coming-Post-Industrial-Society-Forecasting/dp/0465097138) by Daniel Bell
-* [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya and Michael Peters
-* [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel H. Pink
+* [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Danieal Araya  & Michael Peters
+* [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel  Pink
 * [Our Incorrigible Ontological Relations and Categories of Being: Causal and Limiting Factors of Objective Knowledge](https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
 * [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Utopia](https://www.amazon.com/Utopia-Dover-Thrift-Editions-Thomas/dp/0486295834) by Thomas More
@@ -45,8 +45,8 @@ layout: default
 * [The Black Swan: Second Edition: The Impact of the Highly Improbable: With a new section: "On Robustness and Fragility"](https://www.amazon.com/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=RZDH4ED0NZQ1BEECWBCF) by Nassim Taleb
 * [Meltdown: Why Our Systems Fail and What We Can Do About It](https://www.amazon.com/Meltdown-Systems-Fail-What-About/dp/0735222630) by Chris Clearfield
 * [Things Fall Apart](https://www.amazon.com/Things-Fall-Apart-Chinua-Achebe/dp/0385474547) by Chinua Achebe
-* [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland, Jim Scholes
-* [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, Margaret J. Wheatley
+* [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland, & Jim Scholes
+* [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 
 #### Completed
@@ -65,7 +65,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
-* [How multinationals should be planning for Brexit](https://hbr.org/2018/05/how-multinationals-should-be-planning-for-brexit?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Mark McNamee, Athanasia Kokkinogeni
+* [How multinationals should be planning for Brexit](https://hbr.org/2018/05/how-multinationals-should-be-planning-for-brexit?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Mark McNamee & Athanasia Kokkinogeni
 * [This designer is fighting back against bad data-with feminism](https://www.fastcodesign.com/90168266/the-designer-fighting-back-against-bad-data-with-feminism?utm_source=WIN+Mailing+List+-+New+York&utm_campaign=692b001b1a-EMAIL_CAMPAIGN_2018_05_01&utm_medium=email&utm_term=0_e019bcfce9-692b001b1a-83530395) by Katharine Schwab
 * [Life in 2030: these are the 4 things experts can't predict](https://www.weforum.org/agenda/2017/11/life-in-2030-what-experts-cant-predict) by Lee Rainie
 * [US birth rate declines to 30-year low] by Mike Stobbe
@@ -90,7 +90,7 @@ layout: default
 * [How India can make America great again](http://nationalinterest.org/feature/how-india-can-help-make-america-great-again-23005) by Mir Sadat
 * [Dolls that nurture boys' empathy](https://www.nytimes.com/2018/05/14/well/family/wonder-crew-dolls-boys-empathy.html?action=click&pgtype=Homepage&version=Moth-Visible&moduleDetail=inside-nyt-region-5&module=inside-nyt-region&region=inside-nyt-region&WT.nav=inside-nyt-region) by Emily Popek
 * [The american renaissance is already happening](https://www.nytimes.com/2018/05/14/opinion/the-american-renaissance-is-already-happening.html?action=click&pgtype=Homepage&clickSource=story-heading&module=opinion-c-col-left-region&region=opinion-c-col-left-region&WT.nav=opinion-c-col-left-region) by David Brooks
-* [Trump shifts from trade war threats to concessions in rebuff to hard-liners](https://www.nytimes.com/2018/05/14/business/china-trump-zte.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=first-column-region&region=top-news&WT.nav=top-news) by Ana Swanson, Mark Landler, Keith Bradsher
+* [Trump shifts from trade war threats to concessions in rebuff to hard-liners](https://www.nytimes.com/2018/05/14/business/china-trump-zte.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=first-column-region&region=top-news&WT.nav=top-news) by Ana Swanson, Mark Landler, & Keith Bradsher
 * [There's a data crackdown coming. Why it's good for customers and business](https://paidpost.nytimes.com/microsoft/theres-a-data-crackdown-coming.html?tbs_nyt=2018--nytnative_hpmod&cpv_dsm_id=20174233) by Microsoft
 * [Why google wants you to put down the phone](https://www.wsj.com/podcasts/why-google-wants-you-to-put-down-the-phone/9A0CE294-91E4-46AD-9F7C-F59F09419A47.html) by Douglas MacMillan
 * [The future of everything festival: The case for universal basic income](https://www.wsj.com/podcasts/the-future-of-everything-festival-the-case-for-universal-basic-income/4F2F7F81-0AFB-4E0F-A3BD-8BE45461D0A6.html) 
@@ -105,7 +105,7 @@ layout: default
 * [Walmart takes a second shot at the Indian market](https://www.economist.com/news/business-and-finance/21741931-its-16bn-purchase-flipkart-indias-biggest-foreign-acquisition-walmart-takes-second?fsrc=scn/tw/te/bl/ed/walmarttakesasecondshotattheindianmarketbentonvillemeetbangalore)
 * [Chief Kindness Officers?
 Students explore how self-awareness, self-care, and self-understanding can help them become better leaders.](https://www.gsb.stanford.edu/stanford-gsb-experience/news-history/chief-kindness-officers?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180511&linkId=51611150)
-* [It’s time for data ethics conversations at your dinner table](https://www.techatbloomberg.com/blog/time-data-ethics-conversations-dinner-table/?utm_source=dsorg) by Lucy C. Erickson, Natalie Evans Harris, Meredith M. Lee
+* [It’s time for data ethics conversations at your dinner table](https://www.techatbloomberg.com/blog/time-data-ethics-conversations-dinner-table/?utm_source=dsorg) by Lucy C. Erickson, Natalie Evans Harris, & Meredith M. Lee
 * [If your data is bad, your machine learning tools are useless](https://hbr.org/2018/04/if-your-data-is-bad-your-machine-learning-tools-are-useless) by Thomas Redman
 * [Shaping philanthropy](https://www.ubs.com/global/en/wealth-management/uhnw/philanthropy/shaping-philanthropy.html) by Ana Saavedra
 * [American higher education hits a dangerous milestone](https://www.theatlantic.com/politics/archive/2018/05/american-higher-education-hits-a-dangerous-milestone/559457/?utm_source=atltw) by Ronald Brownstein
@@ -123,14 +123,14 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 * [#MeToo meets China's censors and students learn a tough lesson: government tries to censor student accounts of sexual harassment posted on social media](https://www.wsj.com/articles/chinas-universities-face-a-metoo-moment-1524394801?mod=e2tw) by Te-Ping Chen
 * [Weak Signals in organizational futures](http://epub.lib.aalto.fi/pdf/diss/a365.pdf) by Elina Hiltunen
 * [Education systems engineers: encouraging divergent thinking](https://pdfs.semanticscholar.org/28ce/f03495a19388f1b364e9ccae6253ea5501f5.pdf) by William H. McCumber
-* [College waitlists often waste would-be students' time](https://www.npr.org/sections/ed/2018/04/05/599755974/college-waitlists-often-waste-would-be-students-time) by Clare Lombardo, Elissa Nadworny
+* [College waitlists often waste would-be students' time](https://www.npr.org/sections/ed/2018/04/05/599755974/college-waitlists-often-waste-would-be-students-time) by Clare Lombardo & Elissa Nadworny
 * [Many think capitalism and democracy go together. What if they don't? Exploring the tensions inherent to our liberal framework](https://arcdigital.media/many-think-capitalism-and-democracy-go-together-what-if-they-dont-3fb9e68b16d1) by Alexander Blum
 * [Data analytics for scanning](https://www.houstonforesight.org/wp-content/uploads/2018/04/DataAnalyticsForScanning_Boysen.pdf) by Anne Boysen
 * [Finally, a definition of workplace inclusion that's truly actionable](https://work.qz.com/1260780/finally-a-definition-of-workplace-inclusion-thats-truly-actionable/) by Leah Fessler
 * [The university has no purpose: and that's a good thing](https://www.chronicle.com/article/The-University-Has-No-Purpose/243185?key=2K4N4HYtD2aA1V-c_T84pxbXtW-p6xRrWM4P2ImAO5K1FJKhacZR4Q1CH_BLqwncWV9uRHh3dlB6Wlh0MzNTSDNueU91M2lpVml6WFV1VFgzRm1QV1B0c3NJNA) by Elizabeth Corey
 * [The resume of the future will tell employers who you are, and not just what you've done](https://work.qz.com/1232692/the-resume-of-the-future/) by Oliver Staley
 * [How developing countries weave social safety nets](https://www.economist.com/news/finance-and-economics/21740412-more-truly-needy-are-being-caught-they-hit-rock-bottom-how-developing?fsrc=scn/tw/te/bl/ed/howdevelopingcountriesweavesocialsafetynetscastingwider) by Qionghai
-* [Can training eliminate biases? starbucks will test the thesis](https://www.nytimes.com/2018/04/18/business/starbucks-racial-bias-training.html?smid=tw-nytimesbusiness&smtyp=cur) by Noam Scheiber, Rachel Abrams
+* [Can training eliminate biases? starbucks will test the thesis](https://www.nytimes.com/2018/04/18/business/starbucks-racial-bias-training.html?smid=tw-nytimesbusiness&smtyp=cur) by Noam Scheiber & Rachel Abrams
 * [Data privacy is a human right. Europe is moving toward recognizing that.](https://www.commondreams.org/views/2018/04/20/data-privacy-human-right-europe-moving-toward-recognizing) by Sarah St. Vincent
 * [How will history textbooks of the future judge us? I brought back five of them so you can find out](https://www.salon.com/2018/04/21/how-will-history-textbooks-of-the-future-judge-us-i-brought-back-five-of-them-so-you-can-find-out/) by Andrew O'Hehir
 * [How the human rights movement failed](https://www.nytimes.com/2018/04/23/opinion/human-rights-movement-failed.html) by Samuel Moyn
@@ -138,16 +138,16 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 * [Data samurai: why your business needs a new breed of data analyst](https://www.forbes.com/sites/brentdykes/2018/04/26/data-samurai-why-your-business-needs-a-new-breed-of-data-analyst/2/#428f7a781e35) by Brent Dykes
 * [GDPR and what it means for your business](https://www.forbes.com/sites/forbestechcouncil/2018/04/25/gdpr-and-what-it-means-for-your-business/#272f36f92d2f) by Greg Shepard
 * [Fintech for the financially excluded?](https://ssir.org/articles/entry/fintech_for_the_financially_excluded) by Ximena Escobar de Nogales
-* [Reframing sexual violence: from #MeToo to time’s up](https://ssir.org/articles/entry/reframing_sexual_violence_from_metoo_to_times_up) by Monika Johnson Hostler, Moira O’Neil
-* [Ending teacher shortages with network mapping](https://ssir.org/articles/entry/ending_teacher_shortages_with_network_mapping) by Talia Milgrom-Elcott, Eric L. Berlow
+* [Reframing sexual violence: from #MeToo to time’s up](https://ssir.org/articles/entry/reframing_sexual_violence_from_metoo_to_times_up) by Monika Johnson Hostler & Moira O’Neil
+* [Ending teacher shortages with network mapping](https://ssir.org/articles/entry/ending_teacher_shortages_with_network_mapping) by Talia Milgrom-Elcott & Eric L. Berlow
 * [Corporate social responsibility for a data age](https://ssir.org/articles/entry/corporate_social_responsibility_for_a_data_age) by Stefaan G. Verhulst 
 * [Why your culture matters now more than ever](http://www.thedrum.com/opinion/2018/04/02/why-your-culture-matters-now-more-ever) by Amanda Enayati
 * [Facebook will go on a hiring spree to get India’s 2019 elections right](https://qz.com/1248162/facebook-will-go-on-a-hiring-spree-to-get-indias-2019-elections-right/) by Ananya Bhattacharya
 * [Schools are missing what matters about learning](https://www.theatlantic.com/amp/article/534573/?__twitter_impression=true) by Scott Kaufman
-* [World Bank sounds the alarm on China's development loans and trade war](https://www.smh.com.au/world/asia/world-bank-sounds-the-alarm-on-china-s-development-loans-and-trade-war-20180412-p4z98x.html) by James Massola, Time Colebatch
+* [World Bank sounds the alarm on China's development loans and trade war](https://www.smh.com.au/world/asia/world-bank-sounds-the-alarm-on-china-s-development-loans-and-trade-war-20180412-p4z98x.html) by James Massola & Time Colebatch
 * [India's opportunity and role in shaping the Fourth Industrial Revolution](https://www.weforum.org/agenda/2018/04/india-s-opportunity-and-role-in-shaping-the-fourth-industrial-revolution/) by Borge Brende
 * [Begin with beauty](https://www.aspeninstitute.org/blog-posts/begin-with-beauty/) by Jane Golden
-* [Chase rarely lends to people of color in D.C. — and it’s probably legal](https://www.salon.com/2018/04/03/chase-rarely-lends-to-people-of-color-in-dc-and-it-is-probably-legal_partner/) by Aaron Glantz, Emmanuel Martinez
+* [Chase rarely lends to people of color in D.C. — and it’s probably legal](https://www.salon.com/2018/04/03/chase-rarely-lends-to-people-of-color-in-dc-and-it-is-probably-legal_partner/) by Aaron Glantz & Emmanuel Martinez
 * [America’s federally financed ghettos](https://www.nytimes.com/2018/04/07/opinion/sunday/americas-federally-financed-ghettos.html) by Xia Gordon
 * [An educator makes the case that higher learning needs to grow up](https://mobile.nytimes.com/2017/08/23/books/review/cathy-davidson-new-education.html) by Cathy Davidson
 * [With changing students and times, colleges are going back to school](https://mobile.nytimes.com/2018/04/05/education/learning/colleges-adapt-changing-students.html) by Erica Green
@@ -161,11 +161,11 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 * [How economic insecurity affects worker innovation: When the economy stumbles, so too does an employee’s interest in thinking outside the box](https://www.gsb.stanford.edu/insights/how-economic-insecurity-affects-worker-innovation?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180401&linkId=49893501) by Matt Villano
 * [Strategic foresight: From theory to practise, methods tools tools and culture](http://www.forschungsnetzwerk.at/downloadpub/LivreblancAgentielle-Strategic_foresight_EN.pdf) by Agentielle
 * [Strategic management: An approach for strategic foresight](http://www.exinfm.com/pdffiles/scenario.pdf) by Alexander Fink, Oliver Schlake
-* [Boundary spanning in practice](https://seniorfellowsandfriends.com/boundary-spanning/) by Adrian Wolfberg, Diane Blumenthal, Kriste Jordan Smith, Kitty Wooley
-* [From direct action to advisory services; A pathway to scale for social entrepreneurs](https://ssir.org/articles/entry/from_direct_action_to_advisory_services_a_pathway_to_scale_for_social_entre?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Sarah Miers, Zach Slobig
-* [Civic participation begins in schools](https://ssir.org/articles/entry/civic_participation_begins_in_schools) by Sylvia Roussea, Scott Warren
-* [Strategic questions: Engaging people's best thinking](https://thesystemsthinker.com/strategic-questions-engaging-peoples-best-thinking/) by Juanita Brown, David Isaacs, Eric Vogt, Nancy Margulies
-* [The future of employement: how susceptible are jobs to computerisation?](https://www.oxfordmartin.ox.ac.uk/downloads/academic/The_Future_of_Employment.pdf) by Carl Frey, Michael Osborne
+* [Boundary spanning in practice](https://seniorfellowsandfriends.com/boundary-spanning/) by Adrian Wolfberg, Diane Blumenthal, Kriste Jordan Smith, & Kitty Wooley
+* [From direct action to advisory services; A pathway to scale for social entrepreneurs](https://ssir.org/articles/entry/from_direct_action_to_advisory_services_a_pathway_to_scale_for_social_entre?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Sarah Miers & Zach Slobig
+* [Civic participation begins in schools](https://ssir.org/articles/entry/civic_participation_begins_in_schools) by Sylvia Roussea & Scott Warren
+* [Strategic questions: Engaging people's best thinking](https://thesystemsthinker.com/strategic-questions-engaging-peoples-best-thinking/) by Juanita Brown, David Isaacs, Eric Vogt, & Nancy Margulies
+* [The future of employement: how susceptible are jobs to computerisation?](https://www.oxfordmartin.ox.ac.uk/downloads/academic/The_Future_of_Employment.pdf) by Carl Frey & Michael Osborne
 * [The third education revolution](https://www.theatlantic.com/education/archive/2018/03/the-third-education-revolution/556091/) by Jeffrey Selingo
 * [Four strategies for large systems change](https://ssir.org/articles/entry/four_strategies_for_large_systems_change) by Steve Waddell
 * [Can corporations inspire social good?](https://ssir.org/articles/entry/can_corporations_inspire_social_good) by Nishant Bagadia 
@@ -173,9 +173,9 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 * [Uber sells south east asia operations to rival Grab](http://www.bbc.com/news/business-43536322)
 * [Jeffrey Katzenberg: How failure makes a better leader](https://www.gsb.stanford.edu/insights/jeffrey-katzenberg-how-failure-makes-better-leader?linkId=49367317) by Bill Snyder
 * [Tending the digital commons: a small ethics toward the future](http://iasc-culture.org/THR/THR_article_2018_Spring_Jacobs.php) by Alan Jacobs
-* [Securing safe roads: the politics of change](https://www.odi.org/publications/11070-securing-safe-roads-politics-change?utm_source=social&utm_medium=twitter) by Anna Bray Sharpin, Daniel Harris, Helen Dempster, Alina Rocha Menocal
+* [Securing safe roads: the politics of change](https://www.odi.org/publications/11070-securing-safe-roads-politics-change?utm_source=social&utm_medium=twitter) by Anna Bray Sharpin, Daniel Harris, Helen Dempster, & Alina Rocha Menocal
 * [Securing safe roads: the politics of change website](https://www.odi.org/features/securing-safe-roads)
-* [The right way to regulate algorithms](https://www.citylab.com/equity/2018/03/the-right-way-to-regulate-algorithms/555998/?utm_source=SFTwitter) by Stephen Goldsmith, Chris Bousquet
+* [The right way to regulate algorithms](https://www.citylab.com/equity/2018/03/the-right-way-to-regulate-algorithms/555998/?utm_source=SFTwitter) by Stephen Goldsmith & Chris Bousquet
 * [The polymath mindset: the art of making something out of something else](https://medium.com/personal-growth/the-polymath-mindset-9df48545b551) by John Gorman
 * [Trump is editing democracy out](https://www.washingtonpost.com/opinions/trump-is-editing-democracy-out/2018/03/15/4b1d98b8-287f-11e8-bc72-077aa4dab9ef_story.html?utm_term=.01d8c5e23fe3) by Christine Emba
 * [Global decline in democracy? The lesson from India may be 'Not so fast.'](https://www.csmonitor.com/World/Asia-South-Central/2018/0316/Global-decline-in-democracy-The-lesson-from-India-may-be-Not-so-fast?cmpid=TW&utm_campaign=Echobox&utm_medium=Social&utm_source=Twitter) by Howard LaFranchi
