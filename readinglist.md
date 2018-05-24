@@ -45,7 +45,7 @@ layout: default
 * [The Black Swan: Second Edition: The Impact of the Highly Improbable: With a new section: "On Robustness and Fragility"](https://www.amazon.com/Black-Swan-Improbable-Robustness-Fragility/dp/081297381X/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=RZDH4ED0NZQ1BEECWBCF) by Nassim Taleb
 * [Meltdown: Why Our Systems Fail and What We Can Do About It](https://www.amazon.com/Meltdown-Systems-Fail-What-About/dp/0735222630) by Chris Clearfield
 * [Things Fall Apart](https://www.amazon.com/Things-Fall-Apart-Chinua-Achebe/dp/0385474547) by Chinua Achebe
-* [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland, & Jim Scholes
+* [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland & Jim Scholes
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 
@@ -160,7 +160,7 @@ Students explore how self-awareness, self-care, and self-understanding can help 
 * [India's women gain consumer clout: Some retailers revamp their strategies as women increasingly make spending decisions on their own](https://www.wsj.com/articles/indias-women-gain-consumer-clout-1522580408?mod=e2tw) by Corinne Abrams
 * [How economic insecurity affects worker innovation: When the economy stumbles, so too does an employee’s interest in thinking outside the box](https://www.gsb.stanford.edu/insights/how-economic-insecurity-affects-worker-innovation?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180401&linkId=49893501) by Matt Villano
 * [Strategic foresight: From theory to practise, methods tools tools and culture](http://www.forschungsnetzwerk.at/downloadpub/LivreblancAgentielle-Strategic_foresight_EN.pdf) by Agentielle
-* [Strategic management: An approach for strategic foresight](http://www.exinfm.com/pdffiles/scenario.pdf) by Alexander Fink, Oliver Schlake
+* [Strategic management: An approach for strategic foresight](http://www.exinfm.com/pdffiles/scenario.pdf) by Alexander Fink & Oliver Schlake
 * [Boundary spanning in practice](https://seniorfellowsandfriends.com/boundary-spanning/) by Adrian Wolfberg, Diane Blumenthal, Kriste Jordan Smith, & Kitty Wooley
 * [From direct action to advisory services; A pathway to scale for social entrepreneurs](https://ssir.org/articles/entry/from_direct_action_to_advisory_services_a_pathway_to_scale_for_social_entre?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Sarah Miers & Zach Slobig
 * [Civic participation begins in schools](https://ssir.org/articles/entry/civic_participation_begins_in_schools) by Sylvia Roussea & Scott Warren
