@@ -51,6 +51,7 @@ layout: default
 * [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
 
 #### Completed
+* [Teaching about the Future](https://www.amazon.com/Teaching-about-Future-Peter-Bishop/dp/02303634900 by Peter Bishop & Andy Hines
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
 * [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
@@ -66,6 +67,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Mapping the segregation of metro Atlanta’s amenities](https://www.citylab.com/equity/2018/05/mapping-the-segregation-of-metro-atlantas-amenities/560912/?utm_source=SFTwitter) by Brentin Mock
+* [Eighties babies are officially the brokest generation, federal reserve study concludes](https://slate.com/business/2018/05/millennials-are-in-a-deep-financial-hole-compared-to-past-generations.html) by Jordan Weissmann
 * [If North Korea opens up, rason could become North Korea's shenzhen](https://www.forbes.com/sites/salvatorebabones/2018/05/02/if-north-korea-opens-up-rason-could-become-north-koreas-shenzhen/#f03cbbb837a1) by Salvatore Babones
 * [What are the limits of manipulating nature](https://www.salon.com/2018/05/28/what-are-the-limits-of-manipulating-nature/) by Neil Savage
 * [These houses have the ultimate water view](https://www.nytimes.com/2018/05/24/arts/design/architecture-floating-houses.html?smid=tw-nytimes&smtyp=cur) by Sam Lubell
