@@ -66,6 +66,26 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [If North Korea opens up, rason could become North Korea's shenzhen](https://www.forbes.com/sites/salvatorebabones/2018/05/02/if-north-korea-opens-up-rason-could-become-north-koreas-shenzhen/#f03cbbb837a1) by Salvatore Babones
+* [What are the limits of manipulating nature](https://www.salon.com/2018/05/28/what-are-the-limits-of-manipulating-nature/) by Neil Savage
+* [These houses have the ultimate water view](https://www.nytimes.com/2018/05/24/arts/design/architecture-floating-houses.html?smid=tw-nytimes&smtyp=cur) by Sam Lubell
+* [The university is not an aristocracy](https://www.chronicle.com/article/The-University-Is-Not-an/243465) by Nathan Schneider
+* [Here are some of the worst attempts at complying with GDPR](https://motherboard.vice.com/en_us/article/qvnv9x/gdpr-compliance-companies-different-rules) by Kaleigh Rogers
+* [Next-wave convenience stores to upend traditional brands and jobs](https://www.axios.com/next-wave-convenience-stores-to-upend-traditional-brands-and-jobs-57030cda-6ae9-4b63-99be-b6bd58b41d3e.html) by Tige Savage
+* [Peer rejection isn’t the culprit behind school shootings](https://www.salon.com/2018/05/25/peer-rejection-is-not-the-culprit-behind-school-shootings_partner/) by Jennifer Waitling Neal
+* [How data can make our cities safer](https://www.weforum.org/agenda/2018/05/here-s-how-data-could-make-our-cities-safer/) by Ian Anthony
+* [Can VR survive in a cutthroat attention economy?](https://www.wired.com/story/can-vr-survive-in-a-cutthroat-attention-economy/?mbid=social_tw_cul) by Tim Wu
+* [This is what happens in an internet minute in 2018](https://www.weforum.org/agenda/2018/05/what-happens-in-an-internet-minute-in-2018) by Jeff Desjardins
+* [Hedge funds boost ‘responsible investment’ strategies](https://www.ft.com/content/5cb7bcd4-5f5c-11e8-9334-2218e7146b04) by Owen Walker
+* [Idea lab: Academic overhaul](https://store.chronicle.com/products/idea-lab-academic-overhauls)
+* [It’s time to end college majors as we know them](https://www.chronicle.com/article/It-s-Time-to-End-College/243448?key=3gZXXhLQjFMTjaMwNwzCESLnwOiikPGHUgiB9ZPzFB6_P_OsfXTbeGjluO5beCH5SkVvaWo5c0JwdFQ1aFpnMXpOVm00a1FiMXRURXNtOVlDaU9ETzhOSHpNUQ) by Jeffrey Selingo
+* [Forming better arguments requires facing our history](https://www.aspeninstitute.org/blog-posts/forming-better-arguments-requires-facing-our-history/) by Roger Brooks
+* [The deep, uniquely american roots of our affordable-housing crisis](https://www.thenation.com/article/give-us-shelter/?utm_medium=socialflow&utm_source=twitter) by Bryce Covert
+* [Why your late twenties feel so stressful](https://hbr.org/video/4836078338001/why-your-late-twenties-feel-so-stressful)
+* [If we want a pluralistic society, we will need to accept gridlock: diversity is a good thing. But ignoring its effects on public action doesn’t help anyone.](https://arcdigital.media/if-we-want-a-pluralistic-society-we-will-need-to-accept-gridlock-2dcc8e11b902) by Jay Cost
+* [Should colleges let ailing majors die or revamp them?](https://www.chronicle.com/article/Should-Colleges-Let-Ailing/243447?key=3gZXXhLQjFMTjaMwNwzCEcRaATjhjkcJfxHsiVTfKjG0VDKWO6ON2r1M9_uxjg0FSjVTR0NTdEpMRlU0WjlyZlJhYWZGVVA3ckk4bzhPcDFBek9YVGNyMWdxNA) by Bianca Quilantan
+* [Where has teen car culture gone?](https://www.theatlantic.com/family/archive/2018/05/teen-car-culture/561290/?utm_source=atltw) by Gary Cross
+* [Social justice organisations are not squeaky clean, and we must do better](https://mg.co.za/article/2018-05-23-social-justice-organisations-are-not-squeaky-clean-and-we-must-do-better) by Nicolette Naylor 
 * [Societal innovation & our future cities: The case for a social contract for innovation](https://provocations.darkmatterlabs.org/the-societal-contract-for-innovation-15593ae9a1d4) by Indy Johar
 * [Trump versus Rwanda in trade battle over used clothes](https://www.reuters.com/article/us-rwanda-usa-trade-insight/trump-versus-rwanda-in-trade-battle-over-used-clothes-idUSKCN1IP0WB?utm_campaign=trueAnthem:+Trending+Content&utm_content=5b06b50104d30140fa341d15&utm_medium=trueAnthem&utm_source=twitter) by Clement Uwiringiyimana & Joe Bavier
 * [This physicist’s ideas of time will blow your mind](https://qz.com/1279371/this-physicists-ideas-of-time-will-blow-your-mind/) by Evrat Livni
