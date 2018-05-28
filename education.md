@@ -48,7 +48,7 @@ layout: default
 * [Business Social Responsibility Conference](https://bsr18.org)
 * [Strategic Foresight](https://www.soif.org.uk/retreats/soif2018-summer-retreat-strategic-foresight/)
 
-
+<br>
 
 
 
