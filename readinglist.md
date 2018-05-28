@@ -48,6 +48,7 @@ layout: default
 * [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland & Jim Scholes
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
+* [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
 
 #### Completed
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
@@ -65,6 +66,29 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Societal innovation & our future cities: The case for a social contract for innovation](https://provocations.darkmatterlabs.org/the-societal-contract-for-innovation-15593ae9a1d4) by Indy Johar
+* [Trump versus Rwanda in trade battle over used clothes](https://www.reuters.com/article/us-rwanda-usa-trade-insight/trump-versus-rwanda-in-trade-battle-over-used-clothes-idUSKCN1IP0WB?utm_campaign=trueAnthem:+Trending+Content&utm_content=5b06b50104d30140fa341d15&utm_medium=trueAnthem&utm_source=twitter) by Clement Uwiringiyimana & Joe Bavier
+* [This physicist’s ideas of time will blow your mind](https://qz.com/1279371/this-physicists-ideas-of-time-will-blow-your-mind/) by Evrat Livni
+* [Invest in where you know: Impact investors rediscover the power of ‘place’](https://impactalpha.com/invest-in-where-you-know-impact-investors-rediscover-the-power-of-place/) by Dennis Price
+* [To be a good doctor, study the humanities](https://psmag.com/education/be-a-good-doctor-study-the-humanities) by Angira Patel
+* [India and China want to fuse their massive economies. Here's why they won't](https://www.forbes.com/sites/ralphjennings/2018/05/22/india-and-china-want-to-fuse-their-massive-economies-heres-why-its-hard/?utm_source=TWITTER&utm_medium=social&utm_content=1550758488&utm_campaign=sprinklrForbesTechTwitter#66bcbef73b48) by Ralph Jennings
+* [The global south is rich in sustainability lessons that students deserve to hear](https://www.nature.com/articles/d41586-018-05210-0?utm_source=twt_nnc&utm_medium=social&utm_campaign=naturenews&sf190162582=1) by Harini Nagendra
+* [Samsung wants every appliance to talk to you by 2020](https://www.wsj.com/articles/samsung-wants-every-appliance-to-talk-to-you-by-2020-1527076012?mod=e2tw) by Timothy Martin
+* [Best cities for jobs: Growth in America is tilting to smaller cities](https://www.forbes.com/sites/joelkotkin/2018/05/15/growth-in-america-has-tilted-to-smaller-cities/?utm_source=TWITTER&utm_medium=social&utm_content=1546607278&utm_campaign=sprinklrForbesMainTwitter#5daf7b956019) by Joel Kotkin
+* [We should all speak to people we don’t agree with. Here’s how](https://www.aspeninstitute.org/blog-posts/its-important-to-speak-to-people-you-dont-agree-with/) by John Blades & John Gable
+* [Trust in 2030 - from institutions to individuals](https://www.weforum.org/agenda/2017/11/trust-score-2030-airbnb-facebook) by Rachel Botsman
+* [Obama’s education secretary: Parents should pull children from schools until gun laws change](https://slate.com/news-and-politics/2018/05/obamas-education-secretary-parents-should-pull-children-from-schools-until-gun-laws-change.html) by Daniel Politi
+* [France, China, and the EU all have an AI strategy. Shouldn't the US?](https://www.wired.com/story/the-us-needs-an-ai-strategy/) by John Delaney
+* [The futility of trying to prevent more school shootings in America](https://www.theatlantic.com/family/archive/2018/05/school-shootings-prevention/560753/?utm_source=atltw) by Barbara Hagerty
+* [How policymakers can foster algorithmic accountability](https://www.datainnovation.org/2018/05/how-policymakers-can-foster-algorithmic-accountability/) by Joshua New & Daniel Castro
+* [Can A.I. usher in a new era of hyper-personalized food?](https://newfoodeconomy.org/artificial-intelligence-personalized-food-beverage/) by Nadia Berenstein
+* [Our approach to mental health isn't working](https://www.opensocietyfoundations.org/voices/our-approach-mental-health-isn-t-working?utm_campaign=osftwacct&utm_source=t.co&utm_medium=referral) by Ailbhe Finn
+* [Google's file on me was huge. Here's why it wasn't as creepy...](https://www.nytimes.com/2018/05/16/technology/personaltech/google-personal-data-facebook.html?smtyp=cur&smid=tw-nytmedia)
+* [U.S. Stocks jump as fears of trade war ebb](https://www.wsj.com/articles/global-shares-rise-on-u-s-china-trade-spat-reprieve-1526889195?mod=e2tw)
+* [Donald Trump wants tough justice—with one exception](https://www.economist.com/united-states/2018/05/19/donald-trump-wants-tough-justice-with-one-exception?fsrc=scn/tw/te/bl/ed/donaldtrumpwantstoughjusticewithoneexceptionthedepartmentofjustice)
+ * [There are three levels of self-awareness you need to hit before you know yourself](https://qz.com/1281763/the-three-levels-of-self-awareness/( by Mark Manson
+* [How a pioneer of machine learning became one of its sharpest critics](https://www.theatlantic.com/technology/archive/2018/05/machine-learning-is-stuck-on-asking-why/560675/?single_page=true%E2%80%AC) by Kevin Hartnett
+ * [In Leadership, introversion is underrated -- and Warren Buffett and Bill Gates share how they use it to their advantage](https://www.entrepreneur.com/article/313567) by Nina Zipkin 
 * [How multinationals should be planning for Brexit](https://hbr.org/2018/05/how-multinationals-should-be-planning-for-brexit?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Mark McNamee & Athanasia Kokkinogeni
 * [This designer is fighting back against bad data-with feminism](https://www.fastcodesign.com/90168266/the-designer-fighting-back-against-bad-data-with-feminism?utm_source=WIN+Mailing+List+-+New+York&utm_campaign=692b001b1a-EMAIL_CAMPAIGN_2018_05_01&utm_medium=email&utm_term=0_e019bcfce9-692b001b1a-83530395) by Katharine Schwab
 * [Life in 2030: these are the 4 things experts can't predict](https://www.weforum.org/agenda/2017/11/life-in-2030-what-experts-cant-predict) by Lee Rainie
