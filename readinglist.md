@@ -8,6 +8,7 @@ layout: default
 #### In Progress
 * [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
+* [Missed Information: Better Information for Building a Wealthier, More Sustainable Future](https://www.amazon.com/Missed-Information-Building-Wealthier-Sustainable/dp/0262034921) by David Sarokin
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
@@ -67,6 +68,10 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Roads and bridges: The unseen labor behind our digital infrastructure](https://www.fordfoundation.org/media/2976/roads-and-bridges-the-unseen-labor-behind-our-digital-infrastructure.pdf) by Nadia Eghbal
+* [Information isn't just power](https://ssir.org/book_reviews/entry/information_isnt_just_power) by Lucy Bernholz
+* [The ethics of designing digital infrastructure](https://ssir.org/articles/entry/the_ethics_of_designing_digital_infrastructure) by Lucy Bernholz & Lyndon Ormond-Parker
+* [Can the internet revitalize local languages?](https://ssir.org/articles/entry/can_the_internet_revitalize_local_languages) by Alissa Stern
 * [Mapping the segregation of metro Atlanta’s amenities](https://www.citylab.com/equity/2018/05/mapping-the-segregation-of-metro-atlantas-amenities/560912/?utm_source=SFTwitter) by Brentin Mock
 * [Eighties babies are officially the brokest generation, federal reserve study concludes](https://slate.com/business/2018/05/millennials-are-in-a-deep-financial-hole-compared-to-past-generations.html) by Jordan Weissmann
 * [If North Korea opens up, rason could become North Korea's shenzhen](https://www.forbes.com/sites/salvatorebabones/2018/05/02/if-north-korea-opens-up-rason-could-become-north-koreas-shenzhen/#f03cbbb837a1) by Salvatore Babones
