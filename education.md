@@ -36,6 +36,7 @@ layout: default
 ### Continuing Education - Completed Classes
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Technical Product Management, General Assembly](https://generalassemb.ly/)
+* [Data and You: GDPR, General Assembly](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
 * [System Leadership, Stanford University Social Innovation Review](https://ssir.org/webinars/entry/the_dawn_of_system_leadership?utm_source=Event_Email&utm_campaign=SSIR_Live&utm_medium=Email)
 
 
@@ -43,7 +44,6 @@ layout: default
 * [Hindi Language, International Language Institute](http://ilidc.com)
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
 * [Design Thinking, General Assembly](https://generalassemb.ly/)
-* [Data and You: GDPR, General Assembly](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
 * [Social Capital Markets Conference](http://socialcapitalmarkets.net)
 * [Business Social Responsibility Conference](https://bsr18.org)
 * [Strategic Foresight](https://www.soif.org.uk/retreats/soif2018-summer-retreat-strategic-foresight/)
