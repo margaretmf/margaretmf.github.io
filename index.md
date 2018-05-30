@@ -29,7 +29,7 @@ Training: ISO 9001 Quality Management Systems
 
 <br>
 
-### Interests
+## Interests
 
 Technology/Information: ecosystems, interactions between technology and humans, participatory design, public infrastructure, effective information flow, data integration, tech policy and governance
 
