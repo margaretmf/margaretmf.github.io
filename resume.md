@@ -66,9 +66,6 @@ December 2015 - January 2016
 Next Gen Council Member
 June 2016 - Present
 
-### America India Foundation
-Event Participant
-
 ### DataKind DC and DataKind Corps
 Data Science Volunteer, Data Ambassador
 January 2016 - Present
@@ -78,9 +75,14 @@ January 2016 - Present
 Strategic Alignment Consultant
 October 2016 - Present
 * Clients: Jubilee Jumpstart, Homeless Children's Playtime Project 
- 
+
+### America India Foundation
+Event Participant
+March 2018 - Present
+
 ### White House Hack the Pay Gap
 Product Designer
+May 2016-July 2016
 * Results: [How We Hacked the Gender Pay Gap](https://medium.com/presidential-innovation-fellows/how-we-hacked-the-gender-pay-gap-1d7a9304950)
 
 <br> 
