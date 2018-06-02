@@ -137,7 +137,7 @@ layout: default
 * [How multinationals should be planning for Brexit](https://hbr.org/2018/05/how-multinationals-should-be-planning-for-brexit?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Mark McNamee & Athanasia Kokkinogeni
 * [This designer is fighting back against bad data-with feminism](https://www.fastcodesign.com/90168266/the-designer-fighting-back-against-bad-data-with-feminism?utm_source=WIN+Mailing+List+-+New+York&utm_campaign=692b001b1a-EMAIL_CAMPAIGN_2018_05_01&utm_medium=email&utm_term=0_e019bcfce9-692b001b1a-83530395) by Katharine Schwab
 * [Life in 2030: these are the 4 things experts can't predict](https://www.weforum.org/agenda/2017/11/life-in-2030-what-experts-cant-predict) by Lee Rainie
-* [US birth rate declines to 30-year low] by Mike Stobbe
+* [CDC: U.S. birth rate at a 30-year low, fertility plummeting](http://www.nydailynews.com/life-style/cdc-u-s-birth-rate-30-year-fertility-plummeting-article-1.3996823) by Mike Stobbe
 * [How due process became a new front in the culture wars](https://www.chronicle.com/article/How-Due-Process-Became-a-New/243453?key=3gZXXhLQjFMTjaMwNwzCEeDkpAYeL2OVJuooI0Fbiy66IGtf0t1ghA5MaqtGC7F5RmNVTXVzaHE5bTlxd0hVLWVmVDE5RDFUUkxFckxDb1NUT3hkd3N4WEo3NA) by Eric Kelderman
 * [Imperfect Score: Algorithms are making the same mistakes assessing credit scores that humans did a century ago](https://qz.com/1276781/algorithms-are-making-the-same-mistakes-assessing-credit-scores-that-humans-did-a-century-ago/) by Rachel O'Dwyer
 * [Investing in education and closing the achievement gap](https://blairformontgomery.com/portfolio-item/closing-the-achievement-gap-through-better-education/) 
