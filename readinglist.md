@@ -68,6 +68,23 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [No one knows your strategy — not even your top leaders: New research reveals the surprising reasons managers don’t know their company’s strategy](https://sloanreview.mit.edu/article/no-one-knows-your-strategy-not-even-your-top-leaders/?utm_source=facebook&utm_medium=social&utm_campaign=sm-direct) by MIT Sloan Management Review
+* [Investors believe in Memphis, and so do we](https://www.commercialappeal.com/story/opinion/contributors/2018/05/18/opinion-investors-believe-memphis-and-so-do-we/621182002/) by Leslie Smith
+* [How companies, governments, and nonprofits can create social change together](https://hbr.org/2018/05/how-companies-governments-and-nonprofits-can-create-social-change-together?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+harvardbusiness+%28HBR.org%29) by Howard Buffett & William Eimicke
+* [Tech platforms and the knowledge problem](https://americanaffairsjournal.org/2018/05/tech-platforms-and-the-knowledge-problem/) by Frank Pasquale
+* [Can technology transform the nonprofit sector?](https://insights.som.yale.edu/insights/can-technology-transform-the-nonprofit-sector) by Suzanne Laporte, Douglas Kelly, & Tosin Agabiaka
+* [Rethinking women's work in India](https://ssir.org/articles/entry/rethinking_womens_work_in_india)
+* [Civic tech, #MeToo and toxic ecosystems: Invest in what comes next](https://medium.com/@beingbrina/civic-tech-metoo-and-toxic-ecosystems-invest-in-what-comes-next-34c5276f7dda) by Sabrina Hersi Issa
+* [The quest for purpose](https://ssir.org/articles/entry/the_quest_for_purpose) by Alison DaSilva
+* [Ready for yet another food deal, JAB grabs Pret A Manger: Owner of Krispy Kreme and Panera buys British sandwich chain with an eye to U.S. expansion](https://www.wsj.com/articles/krispy-kreme-owner-bets-americans-will-eat-at-pret-a-manger-1527594376?mod=e2tw) by Saabira Chaudhuri
+* [When passion and technology meet: Innovators are creating new ways to use technology and help solve problems](https://www.nytimes.com/2018/05/24/technology/when-passion-and-technology-meet.html) by Lauren Smiley
+* [Trauma can interfere with students' learning. Here's something professors can do to help.](https://www.chronicle.com/article/Trauma-Can-Interfere-With/243497) 
+* [How American schools set students up to fail](https://medium.com/s/story/how-american-schools-educate-us-to-fail-3c2d99adfe00) by Matthew Biggins
+* [India is using facial-recognition to reunite missing children with their families](https://www.weforum.org/agenda/2018/05/india-facial-recognition-technology-find-missing-children-lion) by Alex Gray
+* [Two’s a Party: Republicans and democrats dominate U.S. politics. You have some 1950s political scientists to thank for that.](https://slate.com/news-and-politics/2018/05/how-we-ended-up-with-republican-and-democrat-political-parties.html) by Mike Pesca
+* [How Costco’S obsession with culture drove success](http://mitsloan.mit.edu/newsroom/articles/how-costcos-obsession-with-culture-drove-success/?utm_source=mitsloantwitter&utm_medium=social&utm_campaign=costco) by Tom Relihan
+* [Why today's business schools teach yesterday's expertise](https://www.forbes.com/sites/stevedenning/2018/05/27/why-todays-business-schools-teach-yesterdays-expertise/#66eb44da488b) by Steve Denning
+* [Business class: Inside the strange, uniform politics of today’s MBA programs—and what it says about America's elites](https://newrepublic.com/article/148368/ideology-business-school) by John Benjamin
 * [Roads and bridges: The unseen labor behind our digital infrastructure](https://www.fordfoundation.org/media/2976/roads-and-bridges-the-unseen-labor-behind-our-digital-infrastructure.pdf) by Nadia Eghbal
 * [Information isn't just power](https://ssir.org/book_reviews/entry/information_isnt_just_power) by Lucy Bernholz
 * [The ethics of designing digital infrastructure](https://ssir.org/articles/entry/the_ethics_of_designing_digital_infrastructure) by Lucy Bernholz & Lyndon Ormond-Parker
