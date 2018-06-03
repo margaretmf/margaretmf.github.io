@@ -68,6 +68,18 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [The overprotected american child](https://www.wsj.com/articles/the-overprotected-american-child-1527865038) by Andrea Petersen
+* [Increasing nonprofit transparency is essential to our democracy](https://www.aspeninstitute.org/blog-posts/increasing-nonprofit-transparency-is-essential-to-our-democracy/) by Nicole Corea & Matt Connolly 
+* [The immortal myths about online abuse](https://medium.com/humane-tech/the-immortal-myths-about-online-abuse-a156e3370aee) by Anil Dash
+* [Underestimated flood risk could crash the american housing market](https://www.citylab.com/environment/2018/05/if-americans-keep-ignoring-flood-risk-we-could-face-a-housing-market-crash/561437/?utm_source=SFTwitter) by Sophie Yeo
+* [Emergence: To the heart of living systems](https://www.heartoftheart.org/?p=2876) by John Atkinson
+* [What does it mean when corporate america takes a stand against racism?](http://www.catalyst.org/blog/catalyzing/what-does-it-mean-when-corporate-america-takes-stand-against-racism) by Joy Ohm
+* [Making India’s streets safer means confronting political economy barriers](http://thecityfix.com/blog/making-indias-streets-safer-means-confronting-political-economy-barriers-tanushri-gupte/) by Tanushri Gupte  
+* [What’s wrong with being from the south? Just ask an academic in the north](https://www.chronicle.com/article/What-s-Wrong-With-Being-From/243510) by Adam Kirk Edgerton
+* [Health, rights and development: Key current issues #womensMarch #inequalities #RefugeeRights #SDGs #IndigenousRights #GBV #GlobalHealth #HumanRights](https://paper.li/HEARDatUNSW/1338129496#/) by HEARD@UNSW
+* [Your open office is too loud-here's how to escape and work anywhere](https://www.wsj.com/articles/your-open-office-is-too-loudheres-how-to-escape-and-work-anywhere-1528027201?mod=e2tw) by David Pierce
+* [How artificial intelligence is reimagining work: Accenture tech leaders detail new executive roles and new responsibilities AI is creating](http://mitsloan.mit.edu/newsroom/articles/how-artificial-intelligence-is-reimagining-work/?utm_source=mitsloantwitter&utm_medium=social&utm_campaign=accenture) by Brian Eastwood
+* [Former top spy James Clapper explains how Russia swung the election to Trump](https://www.vox.com/2018/5/31/17384444/james-clapper-trump-russia-mueller-2016-election) by Sean Illing
 * [No one knows your strategy — not even your top leaders: New research reveals the surprising reasons managers don’t know their company’s strategy](https://sloanreview.mit.edu/article/no-one-knows-your-strategy-not-even-your-top-leaders/?utm_source=facebook&utm_medium=social&utm_campaign=sm-direct) by MIT Sloan Management Review
 * [Investors believe in Memphis, and so do we](https://www.commercialappeal.com/story/opinion/contributors/2018/05/18/opinion-investors-believe-memphis-and-so-do-we/621182002/) by Leslie Smith
 * [How companies, governments, and nonprofits can create social change together](https://hbr.org/2018/05/how-companies-governments-and-nonprofits-can-create-social-change-together?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+harvardbusiness+%28HBR.org%29) by Howard Buffett & William Eimicke
