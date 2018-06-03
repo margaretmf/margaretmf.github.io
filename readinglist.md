@@ -143,7 +143,7 @@ layout: default
 * [Google's file on me was huge. Here's why it wasn't as creepy...](https://www.nytimes.com/2018/05/16/technology/personaltech/google-personal-data-facebook.html?smtyp=cur&smid=tw-nytmedia)
 * [U.S. Stocks jump as fears of trade war ebb](https://www.wsj.com/articles/global-shares-rise-on-u-s-china-trade-spat-reprieve-1526889195?mod=e2tw)
 * [Donald Trump wants tough justice—with one exception](https://www.economist.com/united-states/2018/05/19/donald-trump-wants-tough-justice-with-one-exception?fsrc=scn/tw/te/bl/ed/donaldtrumpwantstoughjusticewithoneexceptionthedepartmentofjustice)
- * [There are three levels of self-awareness you need to hit before you know yourself](https://qz.com/1281763/the-three-levels-of-self-awareness/( by Mark Manson
+ * [There are three levels of self-awareness you need to hit before you know yourself](https://qz.com/1281763/the-three-levels-of-self-awareness) by Mark Manson
 * [How a pioneer of machine learning became one of its sharpest critics](https://www.theatlantic.com/technology/archive/2018/05/machine-learning-is-stuck-on-asking-why/560675/?single_page=true%E2%80%AC) by Kevin Hartnett
  * [In Leadership, introversion is underrated -- and Warren Buffett and Bill Gates share how they use it to their advantage](https://www.entrepreneur.com/article/313567) by Nina Zipkin 
 * [How multinationals should be planning for Brexit](https://hbr.org/2018/05/how-multinationals-should-be-planning-for-brexit?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Mark McNamee & Athanasia Kokkinogeni
