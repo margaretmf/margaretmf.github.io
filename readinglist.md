@@ -13,7 +13,6 @@ layout: default
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
 * [Flowers for Algernon](https://www.amazon.com/Flowers-Algernon-Daniel-Keyes/dp/015603008X) by Daniel Keyes
-* [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
@@ -52,6 +51,7 @@ layout: default
 * [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
 
 #### Completed
+* [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Teaching about the Future](https://www.amazon.com/Teaching-about-Future-Peter-Bishop/dp/02303634900) by Peter Bishop & Andy Hines
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
 * [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
