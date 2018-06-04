@@ -115,6 +115,34 @@ In January 2017, after Trump became the President of the US, women came to DC to
 
 <br>
 
+## TOM(TOMRA) - Sustainable/Alternative Investing
+
+Before committing to a liberal arts program at UVA, I considered applying to UVA's Commerce School. While considering applying to the business school, I applied through a rigorous process to the Sustainable Investment group and pitched a cool stock, TOM(TMRAY). Tomra, the company, creates sensor-based solutions for optimal resource productivity. Below is the research report I wrote before the pitch.
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_1.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_2.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_3.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_4.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_5.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_6.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_7.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_8.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_9.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_10.jpg">
+
+<img class="picture" src="TOM(TMRAY)-ResearchReport_11.jpg">
+
+<br>
+
 ## Kosko's
 In an undergraduate class on entrepreneurship, my group developed and pitched a Greek restaurant business concept. I specifically worked on the Market and Strategy piece shown below. This class led me to look into ways to develop a career in the entrepreneurial world, and I've been learning by working with [EVERFI](https://everfi.com/), which recently received the leading investment from [TPG's RISE fund](http://therisefund.com/).
 
