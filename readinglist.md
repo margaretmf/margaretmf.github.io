@@ -68,6 +68,10 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Code switching across the social/data divide](https://ssir.org/articles/entry/code_switching_across_the_digital_data_divide) by Asha Curran & Julia Rhodes Davis 
+* [People in India often despair of their democracy: They should look at the big picture](https://www.economist.com/asia/2018/06/02/people-in-india-often-despair-of-their-democracy?fsrc=scn/tw/te/bl/ed/peopleinindiaoftendespairoftheirdemocracybanyan)
+* [Why tariffs on Chinese ICT imports would harm the U.S. economy](https://itif.org/publications/2018/03/16/why-tariffs-chinese-ict-imports-would-harm-us-economy) by Robert D. Atkinson, Stephen Ezell, & John Wu
+* [We ran out of words to describe how good the jobs numbers are](https://mobile.nytimes.com/2018/06/01/upshot/we-ran-out-of-words-to-describe-how-good-the-jobs-numbers-are.html?smid=tw-nytimes&smtyp=cur) by Neil Irwin
 * [The overprotected american child](https://www.wsj.com/articles/the-overprotected-american-child-1527865038) by Andrea Petersen
 * [Increasing nonprofit transparency is essential to our democracy](https://www.aspeninstitute.org/blog-posts/increasing-nonprofit-transparency-is-essential-to-our-democracy/) by Nicole Corea & Matt Connolly 
 * [The immortal myths about online abuse](https://medium.com/humane-tech/the-immortal-myths-about-online-abuse-a156e3370aee) by Anil Dash
