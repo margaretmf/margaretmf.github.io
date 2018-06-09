@@ -37,6 +37,7 @@ layout: default
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Technical Product Management, General Assembly](https://generalassemb.ly/)
 * [Data and You: GDPR, General Assembly](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
+* [Intro to Product Management](https://generalassemb.ly)
 * [System Leadership, Stanford University Social Innovation Review](https://ssir.org/webinars/entry/the_dawn_of_system_leadership?utm_source=Event_Email&utm_campaign=SSIR_Live&utm_medium=Email)
 
 
