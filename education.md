@@ -24,6 +24,9 @@ layout: default
 * Audited [Managing Responsibility: Practicing Sustainability, Responsibility and Ethics](https://www.coursera.org/learn/responsible-management)
 * Audited [Leadership and Emotional Intelligence](https://www.coursera.org/learn/emotional-intelligence-in-leadership)
 * Audited [Data Manipulation at Scale: Systems and Algorithms](https://www.coursera.org/learn/data-manipulation)
+* Audited [Corporate Sustainability. Understanding and Seizing the Strategic Opportunity](https://www.coursera.org/learn/corp-sustainability)
+* Auditied [Corporate Strategy](https://www.coursera.org/learn/corporate-strategy)
+* Auditied [Business Strategies for Social Impact](https://www.coursera.org/learn/wharton-social-impact)
 
 
 ### Continuing Education - Coursera Courses Auditing
