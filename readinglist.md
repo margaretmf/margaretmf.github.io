@@ -47,10 +47,10 @@ layout: default
 * [Things Fall Apart](https://www.amazon.com/Things-Fall-Apart-Chinua-Achebe/dp/0385474547) by Chinua Achebe
 * [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland & Jim Scholes
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
-* [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 * [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
 
 #### Completed
+* [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 * [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Teaching about the Future](https://www.amazon.com/Teaching-about-Future-Peter-Bishop/dp/02303634900) by Peter Bishop & Andy Hines
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
