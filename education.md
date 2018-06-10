@@ -27,6 +27,8 @@ layout: default
 * Audited [Corporate Sustainability. Understanding and Seizing the Strategic Opportunity](https://www.coursera.org/learn/corp-sustainability)
 * Auditied [Corporate Strategy](https://www.coursera.org/learn/corporate-strategy)
 * Auditied [Business Strategies for Social Impact](https://www.coursera.org/learn/wharton-social-impact)
+* Audited [Private Equity and Venture Capital](https://www.coursera.org/learn/private-equity)
+* Audited [Global Diplomacy: The United Nations in the World](https://www.coursera.org/learn/global-diplomacy-un/)
 
 
 ### Continuing Education - Coursera Courses Auditing
