@@ -37,6 +37,13 @@ layout: default
 * Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
 * Auditing [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
 * Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
+* Auditing [The Sustainable Development Goals – A global, transdisciplinary vision for the future](https://www.coursera.org/learn/global-sustainable-development)
+* Auditing [Sustainable Vikings: Sustainability & Corporate Social Responsibility in Scandinavia](https://www.coursera.org/learn/sustainability-csr-scandinavia)
+* Auditing [Mergers and Acquisitions – The Relentless Pursuit of Synergy](https://www.coursera.org/learn/mergers-and-acquisitions)
+* Auditing [Introduction to the Nonprofit Sector, Nonprofit Organizations, Nonprofit Leadership and Governance](https://www.coursera.org/learn/nonprofit-organizations)
+* Auditing [Data Visualization and Communication with Tableau](https://www.coursera.org/learn/analytics-tableau)
+* Auditing [Data Structures and Performance](https://www.coursera.org/learn/data-structures-optimizing-performance)
+* Auditing [Data Structures](https://www.coursera.org/learn/data-structures)
 
 
 ### Continuing Education - Completed Classes
