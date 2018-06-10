@@ -29,6 +29,7 @@ layout: default
 * Auditied [Business Strategies for Social Impact](https://www.coursera.org/learn/wharton-social-impact)
 * Audited [Private Equity and Venture Capital](https://www.coursera.org/learn/private-equity)
 * Audited [Global Diplomacy: The United Nations in the World](https://www.coursera.org/learn/global-diplomacy-un/)
+* Audited [Business Strategy in Practice](https://www.coursera.org/learn/uva-darden-business-strategy-capstone)
 
 
 ### Continuing Education - Coursera Courses Auditing
