@@ -68,6 +68,10 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [When philanthropy means advocacy](https://ssir.org/articles/entry/when_philanthropy_meets_advocacy?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Patrick Guerriero & Susan Wolf Ditkoff
+* [Artificial intelligence as a force for good](https://ssir.org/articles/entry/artificial_intelligence_as_a_force_for_good?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Gideon Rosenblatt & Abhishek Gupta 
+* [The adaptive challenge of restoring trust in civil society](https://ssir.org/articles/entry/the_adaptive_challenge_of_restoring_trust_in_civil_society?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now) by Dan Cardinali
+* [Strong social networks are key to turning around communities](https://ssir.org/articles/entry/strong_social_networks_are_key_to_turning_around_communities?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Maurice Jones
 * [Code switching across the social/data divide](https://ssir.org/articles/entry/code_switching_across_the_digital_data_divide) by Asha Curran & Julia Rhodes Davis 
 * [People in India often despair of their democracy: They should look at the big picture](https://www.economist.com/asia/2018/06/02/people-in-india-often-despair-of-their-democracy?fsrc=scn/tw/te/bl/ed/peopleinindiaoftendespairoftheirdemocracybanyan)
 * [Why tariffs on Chinese ICT imports would harm the U.S. economy](https://itif.org/publications/2018/03/16/why-tariffs-chinese-ict-imports-would-harm-us-economy) by Robert D. Atkinson, Stephen Ezell, & John Wu
