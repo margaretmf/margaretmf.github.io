@@ -36,8 +36,8 @@ April 2016 - Present
 * Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf))
 * Enjoying work with engineers
  
-### DataKind Corps
-Data Ambassador
+### DataKind
+Data Analyst, Data Ambassador
 October 2016 - Present
 * Collaborate to develop a foster care case complexity score and a case manager route recommendation system
 * Lead communication with Community-Based Care Florida 
@@ -50,7 +50,7 @@ January 2016 - April 2016
 * Created maps of national voter scores to support a key client, which resulted in a Medium blogpost, [What does Donald Trump think of voters in Tuesday's primary states?](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d)
  
 ### BluestoneLogic
-Systems Analyst and Designer Intern
+Systems Analyst and Chatbot Designer Intern
 December 2015 - January 2016
 * Applied a systems methodology based in MECE principles and [Google's design sprint methodology](http://www.gv.com/sprint/) to support defining a problem of poor integration of workflow tools
 * Interviewed users to gather and specify project management system requirements
@@ -64,7 +64,7 @@ December 2015 - January 2016
  
 ### Byte Back
 Next Gen Council Member
-June 2016 - Present
+June 2017 - Present
 
 ### DataKind DC and DataKind Corps
 Data Science Volunteer, Data Ambassador
