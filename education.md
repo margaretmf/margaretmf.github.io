@@ -30,16 +30,12 @@ layout: default
 * Audited [Private Equity and Venture Capital](https://www.coursera.org/learn/private-equity)
 * Audited [Global Diplomacy: The United Nations in the World](https://www.coursera.org/learn/global-diplomacy-un/)
 * Audited [Business Strategy in Practice](https://www.coursera.org/learn/uva-darden-business-strategy-capstone)
+* Audited [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
+* Audited [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
 
 
 ### Continuing Education - Coursera Courses Auditing
 * Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
-* Auditing [The Power of Macroeconomics: Economic Principles in the Real World](https://www.coursera.org/learn/principles-of-macroeconomics)
-* Auditing [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
-* Auditing [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
-* Auditing [Data Visualization and Communication with Tableau](https://www.coursera.org/learn/analytics-tableau)
-* Auditing [Data Structures and Performance](https://www.coursera.org/learn/data-structures-optimizing-performance)
-* Auditing [Data Structures](https://www.coursera.org/learn/data-structures)
 
 
 ### Continuing Education - Completed Classes
