@@ -48,6 +48,7 @@ layout: default
 * [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland & Jim Scholes
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
 * [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
+* The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
@@ -68,6 +69,44 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [If you think your job is pointless, it probably is](https://www.washingtonpost.com/news/on-leadership/wp/2018/06/14/if-you-think-your-job-is-pointless-it-probably-is/?utm_term=.d83825fa02cd) by Jena McGregor
+* [Tudor Jones says his social impact ETF has potential to rival the S&P 500](https://www.cnbc.com/2018/06/12/tudor-jones-on-why-he-started-new-etf-true-social-change-has-to-start-with-business.html?__source=sharebar%7Ctwitter&par=sharebar) by Evelyn Cheng
+* [Just the fear of a trade ward is straining the global economy](https://www.nytimes.com/2018/06/16/business/tariffs-trade-war.html) by Peter Goodman, Ian Austen & Elisabeth Malkin
+* [How companies, governments, and nonprofits can create social change together](https://hbr.org/2018/05/how-companies-governments-and-nonprofits-can-create-social-change-together?utm_medium=social&utm_source=twitter&utm_campaign=hbr) by Howard W. Buffett & William B. Eimicke
+* [Ever hear of 'escape rooms'? This millennial entrepreneur is capitalizing on the trend](https://www.entrepreneur.com/article/315046) by Peter Gasca
+* [Personalizing education for everyone](https://www.aspenideas.org/blog/personalizing-education-everyone?curator=MediaREDEF) 
+* [Elements of effective leadership](https://ecorner.stanford.edu/podcast/elements-of-effective-leadership/) by Marc Tessier-Lavigne
+* [Rise of the machines: has technology evolved beyond our control?](https://www.theguardian.com/books/2018/jun/15/rise-of-the-machines-has-technology-evolved-beyond-our-control-) by James Bridle
+* [Why liberal arts and the humanities are as important as engineering](https://www.washingtonpost.com/news/innovations/wp/2018/06/12/why-liberal-arts-and-the-humanities-are-as-important-as-engineering/?utm_term=.fc8c6b7fc918) by Vivek Wadhwa
+* [Pregnancy discrimination is rampant inside America's biggest companies](https://www.nytimes.com/interactive/2018/06/15/business/pregnancy-discrimination.html) by Natalie Kitroeff & Jessica Silver-Greenberg
+* [How employers in poor countries are using nudges to help employees save money](https://hbr.org/2018/06/how-employers-in-poor-countries-are-using-nudges-to-help-employees-save-money?utm_source=twitter&utm_medium=social&utm_campaign=hbr) by Joshua Blumenstock, Michael Callen, & Tarek Ghani
+* [Marc Benioff of Salesforce: 'Are we not all connected?'](https://www.nytimes.com/2018/06/15/business/marc-benioff-salesforce-corner-office.html?smid=tw-nytimesbusiness&smtyp=cur) by David Gelles
+* [Social networks spread ideas](https://www.heartoftheart.org/?p=1687) by John Atkinson
+* [How bibliotherapy can help students open up about their mental health](https://www.kqed.org/mindshift/50642/how-bibliotherapy-can-help-students-open-up-about-their-mental-health) by Juli Fraga
+* [Bain, BCG, And McKinsey are snapping up MBAs for social impact consulting — Here's why: The consulting industry has spotted an opportunity in “impact advising” — and MBA jobs abound](https://www.businessbecause.com/news/mba-careers/3960/consulting-firms-offer-social-impact-careers) by Seb Murray
+* [What caused the United States' decline? Hint: You don't have to look far](https://www.thenation.com/article/caused-united-states-decline/) by Tom Engelhardt
+* [IT for social justice: At annual summit, tech takes a turn to the humanities](https://news.harvard.edu/gazette/story/2018/06/at-annual-harvard-it-summit-tech-takes-a-turn-to-the-humanities/?utm_medium=social&utm_campaign=hu-twitter-general&utm_source=twitter) by Clea Simon
+* [New Goldman Sachs fund will track Paul Tudor Jones's feel-good companies](https://www.nytimes.com/2018/06/11/business/dealbook/goldman-sachs-paul-tudor-jones.html) by Andrew Ross Sorkin
+* ['Capitalism may need modernizing,' says billionaire hedge fund manager Paul Tudor Jones](https://www.cnbc.com/2018/06/12/capitalism-may-need-modernizing-says-billionaire-hedge-fund-manager-paul-tudor-jones.html) by Kate Rooney
+* [The IITs are redesigning their courses to produce “good human beings”](https://qz.com/1302003/the-iits-are-redesigning-their-engineering-courses-to-produce-good-human-beings/) by Sushma U N
+* [What data has done to capitalism: Reinventing capitalism in the age of big data](https://www.nytimes.com/2018/06/07/books/review/reinventing-capitalism-in-the-age-of-big-data-mayer-schonberger-ramge.html) by David Leonhardt
+* [John Kelly reportedly called the White House a “miserable place to work”](https://slate.com/news-and-politics/2018/06/john-kelly-reportedly-called-the-white-house-a-miserable-place-to-work.html) by Daniel Politi
+* [Suicide rates have shot up in almost every U.S. state](https://www.sciencenews.org/article/suicide-rates-have-shot-almost-every-us-state) by Aimee Cunningham
+* [Female historians try to end the Try to End the I-Didn’t-Know-Any-Women Excuse for Men-Only Panels](https://www.chronicle.com/article/Female-Historians-Try-to-End/243626) by Nell Gluckman
+* [Why you should still care about the community reinvestment act](https://nextcity.org/daily/entry/why-you-should-still-care-about-the-community-reinvestment-act) by Ron Homer
+* [The workplace of the future](https://www.economist.com/leaders/2018/03/28/the-workplace-of-the-future?fsrc=scn/tw/te/bl/ed/theworkplaceofthefutureaispy)
+* [The confusing information colleges provide students about financial aid](https://www.theatlantic.com/education/archive/2018/06/the-confusing-information-colleges-provide-students-about-financial-aid/562226/?utm_source=atltw) by Adam Harris
+* [A generation buried in student debt](https://chicago.suntimes.com/feature/a-generation-of-college-students-buried-in-debt/?utm_campaign=ChicagoSunTimes&utm_medium=social&utm_source=twitter&utm_content=1528555441) by Rachel Hinton
+* [Research finds tipping point for large-scale social change](https://www.asc.upenn.edu/news-events/news/research-finds-tipping-point-large-scale-social-change) by Damon Centola & Joshua Becker
+* [Mr. Rogers had a simple set of rules for talking to children](https://www.theatlantic.com/family/archive/2018/06/mr-rogers-neighborhood-talking-to-kids/562352/) by Maxwell King
+* [Southeast Europe targets luxury brands' fast fashion catchup](https://www.reuters.com/article/us-retail-luxury-easteurope/southeast-europe-targets-luxury-brands-fast-fashion-catchup-idUSKCN1J30QF?utm_source=Twitter&utm_medium=Social) by Tsvetelia Tsolova, Michael Kahn
+* [A new study shows stigma is hurting our response to the opioid epidemic](https://www.vox.com/science-and-health/2018/6/7/17434480/needle-exchange-safe-injection-site-stigma-study) by German Lopez
+* [Mulvaney sides with payday lenders asking court to block restrictions](https://www.nytimes.com/2018/06/05/business/cfpb-payday-lenders-mulvaney.html?smid=tw-nytimesbusiness&smtyp=cur) by Stacy Cowley
+* [China increasingly challenges American dominance of science](https://www.washingtonpost.com/national/health-science/china-challenges-american-dominance-of-science/2018/06/03/c1e0cfe4-48d5-11e8-827e-190efaf1f1ee_story.html?noredirect=on&utm_term=.cbcdeb1b85ea) by Ben Guarino, Emily Rauhala & William Wan
+* [The jobs recovery: A longer view](https://www.nytimes.com/2018/06/01/business/economy/jobs-recovery-longer-view.html?smid=tw-nytimesbusiness&smtyp=cur) by Ben Casselman
+* [A UK startup that uses AI to help you with GDPR has just won $1m in funding](https://news.microsoft.com/en-gb/2018/05/31/a-uk-startup-that-uses-ai-to-help-you-with-gdpr-has-just-won-1m-in-funding/) by Microsoft
+* [Untapped potential: Philanthropy and social enterprise](http://www.generositymag.com.au/untapped-potential-philanthropy-and-social-enterprise/) by Jay Boolkin
+* [Debate: Do we really need business schools?](http://theconversation.com/debate-do-we-really-need-business-schools-97343?utm_source=twitter&utm_medium=twitterbutton) by Bertrand Venard
 * [When philanthropy means advocacy](https://ssir.org/articles/entry/when_philanthropy_meets_advocacy?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Patrick Guerriero & Susan Wolf Ditkoff
 * [Artificial intelligence as a force for good](https://ssir.org/articles/entry/artificial_intelligence_as_a_force_for_good?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Gideon Rosenblatt & Abhishek Gupta 
 * [The adaptive challenge of restoring trust in civil society](https://ssir.org/articles/entry/the_adaptive_challenge_of_restoring_trust_in_civil_society?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now) by Dan Cardinali
