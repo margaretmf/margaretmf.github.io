@@ -46,6 +46,7 @@ layout: default
 * [Intro to Product Management](https://generalassemb.ly)
 * [System Leadership, Stanford University Social Innovation Review](https://ssir.org/webinars/entry/the_dawn_of_system_leadership?utm_source=Event_Email&utm_campaign=SSIR_Live&utm_medium=Email)
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
+* Darden Pop-up Business Case
 
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
