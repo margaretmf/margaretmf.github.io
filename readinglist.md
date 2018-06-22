@@ -48,7 +48,7 @@ layout: default
 * [Soft Systems Methodology in Action](https://www.amazon.com/Systems-Methodology-Action-Peter-Checkland/dp/0471986054) by Peter Checkland & Jim Scholes
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
 * [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
-* The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
+* [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
@@ -140,8 +140,8 @@ layout: default
 * [Trauma can interfere with students' learning. Here's something professors can do to help.](https://www.chronicle.com/article/Trauma-Can-Interfere-With/243497) 
 * [How American schools set students up to fail](https://medium.com/s/story/how-american-schools-educate-us-to-fail-3c2d99adfe00) by Matthew Biggins
 * [India is using facial-recognition to reunite missing children with their families](https://www.weforum.org/agenda/2018/05/india-facial-recognition-technology-find-missing-children-lion) by Alex Gray
-* [Two’s a Party: Republicans and democrats dominate U.S. politics. You have some 1950s political scientists to thank for that.](https://slate.com/news-and-politics/2018/05/how-we-ended-up-with-republican-and-democrat-political-parties.html) by Mike Pesca
-* [How Costco’S obsession with culture drove success](http://mitsloan.mit.edu/newsroom/articles/how-costcos-obsession-with-culture-drove-success/?utm_source=mitsloantwitter&utm_medium=social&utm_campaign=costco) by Tom Relihan
+* [Two’s a party: Republicans and democrats dominate U.S. politics. You have some 1950s political scientists to thank for that.](https://slate.com/news-and-politics/2018/05/how-we-ended-up-with-republican-and-democrat-political-parties.html) by Mike Pesca
+* [How Costco’s obsession with culture drove success](http://mitsloan.mit.edu/newsroom/articles/how-costcos-obsession-with-culture-drove-success/?utm_source=mitsloantwitter&utm_medium=social&utm_campaign=costco) by Tom Relihan
 * [Why today's business schools teach yesterday's expertise](https://www.forbes.com/sites/stevedenning/2018/05/27/why-todays-business-schools-teach-yesterdays-expertise/#66eb44da488b) by Steve Denning
 * [Business class: Inside the strange, uniform politics of today’s MBA programs—and what it says about America's elites](https://newrepublic.com/article/148368/ideology-business-school) by John Benjamin
 * [Roads and bridges: The unseen labor behind our digital infrastructure](https://www.fordfoundation.org/media/2976/roads-and-bridges-the-unseen-labor-behind-our-digital-infrastructure.pdf) by Nadia Eghbal
