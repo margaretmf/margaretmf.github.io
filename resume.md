@@ -34,13 +34,14 @@ April 2016 - Present
 * Clustering data, evaluating clusters with validation metrics, and characterizing clusters
 * Measuring the quality and difficulty of questions to support standardizing educational assessments
 * Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf))
+* Collaborating with a database specialist in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
 * Enjoying work with engineers
  
 ### DataKind
-Data Analyst, Data Ambassador
-October 2016 - Present
-* Collaborate to develop a foster care case complexity score and a case manager route recommendation system
-* Lead communication with Community-Based Care Florida 
+Data Analyst
+October 2017 - Present
+* Collaborate to develop a foster care case complexity score on a team of remote volunteers
+* Support communication with Community-Based Care Florida 
  
 ### Clarity Campaign Labs
 Analyst Fellow
@@ -69,7 +70,7 @@ June 2017 - Present
 ### DataKind DC and DataKind Corps
 Data Science Volunteer, Data Ambassador
 January 2016 - Present
-* Clients: American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
+* Clients: American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida, Accountability Counsel
  
 ### Compass Pro Bono
 Strategic Alignment Consultant
