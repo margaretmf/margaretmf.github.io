@@ -30,7 +30,7 @@ By playing with the data, I've learned the following:
 * states: 55 total
 * state Continuum of Care programs
 
-Over the next few weeks and months, a [Data for Democrocacy](http://datafordemocracy.org/) team will work on utilizing this data along with other open data sources.
+Over the next few weeks and months, a [Data for Democrocacy](http://datafordemocracy.org/) team will work on utilizing this data along with other open data sources and make it useful to citizens, governments, nonprofits, or businesses working on corporate compliance or business social responsibility programs.
 
 <br>
 
