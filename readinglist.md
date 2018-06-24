@@ -69,6 +69,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [What athena the AI future-scanning robot has to say about innovation](https://www.creativityatwork.com/2015/04/08/innovate-or-die-why-innovation-matters/)
+* [World's first AI-driven, digital strategic foresight consultancy, shaping tomorrow all set to forecast the future on world stage](http://thesiliconreview.com/magazines/worlds-first-ai-driven-digital-strategic-foresight-consultancy-shaping-tomorrow-all-set-to-forecast-the-future-on-world-stage/)
 * [Antisocial media: How facebook disconnects us and undermines democracy](https://listenup.tech/talks/siva-vaidhyanathan) by Siva Vaidhyanathan
 * [Consciousness: How we’re solving a mystery bigger than our minds. What is being in love, feeling pain or seeing colour made of? How our brains make conscious experience has long been a riddle – but we’re uncovering clues](https://www.newscientist.com/article/mg23831830-300-consciousness-how-were-solving-a-mystery-bigger-than-our-minds/?utm_campaign=Echobox&utm_medium=SOC&utm_source=Twitter#Echobox=1529678558) by Per Snaprud
 * [CEOs say investors are demanding more diversity, social impact](https://www.bloomberg.com/news/articles/2018-05-08/ceos-say-investors-are-demanding-more-diversity-social-impact) by Will Mathis
