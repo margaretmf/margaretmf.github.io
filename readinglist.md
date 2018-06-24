@@ -69,6 +69,22 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Antisocial media: How facebook disconnects us and undermines democracy](https://listenup.tech/talks/siva-vaidhyanathan) by Siva Vaidhyanathan
+* [Consciousness: How we’re solving a mystery bigger than our minds. What is being in love, feeling pain or seeing colour made of? How our brains make conscious experience has long been a riddle – but we’re uncovering clues](https://www.newscientist.com/article/mg23831830-300-consciousness-how-were-solving-a-mystery-bigger-than-our-minds/?utm_campaign=Echobox&utm_medium=SOC&utm_source=Twitter#Echobox=1529678558) by Per Snaprud
+* [CEOs say investors are demanding more diversity, social impact](https://www.bloomberg.com/news/articles/2018-05-08/ceos-say-investors-are-demanding-more-diversity-social-impact) by Will Mathis
+* [Rising seas could wipe out $1 trillion worth of U.S. homes and businesses](https://www.salon.com/2018/06/23/rising-seas-could-wipe-out-1-trillion-worth-of-u-s-homes-and-businesses_partner/) by Eric Holthaus 
+* [Booz Allen opens innovation hub in Annapolis Junction to help attract, retain talent](https://www.bizjournals.com/washington/news/2018/06/18/booz-allen-opens-innovation-hub-in-annapolis.html?ana=twt) by Morgan Eichensehr
+* [The IPOs keep coming: The search company Elastic has filed to go public](https://www.recode.net/2018/6/21/17491102/elastic-elasticsearch-ipo-confidential-filing-wall-street) by Theodore Schleifer
+* [DOJ takes first steps toward indefinite detention of families: The Department of Justice filed in court for changes so it could detain kids for longer with their parents](https://www.huffingtonpost.com/entry/doj-trump-immigrant-families-indefinite-detention_us_5b2bf7ebe4b00295f15a9968?ncid=tweetlnkushpmg00000067) by Elise Foley
+* [Disposable America: A history of modern capitalism from the perspective of the straw. Seriously.](https://www.theatlantic.com/technology/archive/2018/06/disposable-america/563204/?curator=MediaREDEF) by Alexis Madrigal
+* [Starbucks is closing 150 Stores. Here's why this might change your breakfast habits. It was time, surely.](https://www.inc.com/chris-matyszczyk/starbucks-just-made-an-eye-opening-decision-thatll-change-many-peoples-breakfast-habits.html?cid=sf01001) by Chris Matyszczyk
+* [People are really into impact investing: future of philanthropy](https://www.fastcompany.com/40582999/people-are-really-into-impact-investing) by Ben Paynter
+* [Shaping serendipity through narrative](http://www.enliveningedge.org/features/shaping-serendipity-through-narrative/) by John Hagel
+* [Sustainable futures: on capacity building, sustainability, and the power and promise in community-based archives](https://medium.com/community-archives)
+* [The big picture: U.S. opioid crisis has no end in sight](https://www.axios.com/opioid-crisis-no-end-in-sight-1529146097-131f8367-af50-4aec-a8e1-e804628cdb84.html) by Caitlin Owens
+* [Will letter grades survive? A century-old pillar of the school system is under fire as schools look to modernize student assessment](https://www.edutopia.org/article/will-letter-grades-survive) by Laura McKenna
+* [To be more creative, embrace the art of doing nothing](https://quartzy.qz.com/1305601/to-be-more-creative-embrace-the-art-of-doing-nothing/) by Simon Gottschalk
+* [The unbearable awkwardness of automation](https://www.theatlantic.com/technology/archive/2018/06/the-unbearable-awkwardness-of-automation/562670/) by Carolina Miranda
 * [If you think your job is pointless, it probably is](https://www.washingtonpost.com/news/on-leadership/wp/2018/06/14/if-you-think-your-job-is-pointless-it-probably-is/?utm_term=.d83825fa02cd) by Jena McGregor
 * [Tudor Jones says his social impact ETF has potential to rival the S&P 500](https://www.cnbc.com/2018/06/12/tudor-jones-on-why-he-started-new-etf-true-social-change-has-to-start-with-business.html?__source=sharebar%7Ctwitter&par=sharebar) by Evelyn Cheng
 * [Just the fear of a trade ward is straining the global economy](https://www.nytimes.com/2018/06/16/business/tariffs-trade-war.html) by Peter Goodman, Ian Austen & Elisabeth Malkin
