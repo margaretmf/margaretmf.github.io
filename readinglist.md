@@ -69,6 +69,17 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Data Dictionary: a how to and best practices](https://medium.com/@leapingllamas/data-dictionary-a-how-to-and-best-practices-a09a685dcd61) by Carl Anderson
+* [The insane amounts of data we're using every minute (infographic)](https://www.entrepreneur.com/article/314672) by Rose Leadem
+* [We can create better jobs-by fixing the bad ones](https://www.citylab.com/equity/2018/06/we-can-create-better-jobsby-fixing-the-bad-ones/562733/?utm_source=SFTwitter) by Richard Florida
+* [Graphic images speak to consumers of sugary drinks](https://news.harvard.edu/gazette/story/2018/06/graphic-warning-labels-on-sugary-drinks-linked-to-reduced-purchases/?utm_medium=social&utm_campaign=hu-twitter-general&utm_source=twitter) by Amy Roeder
+* [US businesses speak out against Trump border policy: White House relations with corporate America worsened by separation of migrant families](https://www.ft.com/content/757b28e6-73cf-11e8-aa31-31da4279a601?segmentId=4aacb09b-4d87-e58b-a08b-e51101fd3d93&segment_detail=USImmStory19) by Andrew Edgecliffe-Johnson 
+* [A guide to parental controls for kids' tech use](https://www.npr.org/2018/06/18/620005246/a-guide-to-parental-controls-for-kids-tech-use) by Anya Kamenetz
+* [Become a more productive learner](https://hbr.org/2018/06/become-a-more-productive-learner?utm_source=twitter&utm_campaign=hbr&utm_medium=social) by Matt Plummer & Jo Wilson
+* [Is an anti-aging pill on the horizon?](http://time.com/5159879/is-an-anti-aging-pill-on-the-horizon/?utm_source=twitter.com&utm_campaign=time&xid=time_socialflow_twitter&utm_medium=social) by Alexandra Sifferlin
+* [Thermostats, locks and lights: Digital tools of domestic abuse](https://www.nytimes.com/2018/06/23/technology/smart-home-devices-domestic-abuse.html?smid=tw-nytimes&smtyp=cur)
+* [This tool lets you see–and correct–the bias in an algorithm: Accenture’s new Fairness Tool is a way to quickly evaluate whether your data is creating fair outcomes](https://www.fastcompany.com/40583554/this-tool-lets-you-see-and-correct-the-bias-in-an-algorithm?utm_source=twitter.com&utm_medium=social) by Adele Peters
+* [The secret to a meaningful life is simpler than you think](https://qz.com/1310792/the-secret-to-a-meaningful-life-is-simpler-than-you-think/) by Ephrat Livni
 * [What athena the AI future-scanning robot has to say about innovation](https://www.creativityatwork.com/2015/04/08/innovate-or-die-why-innovation-matters/)
 * [World's first AI-driven, digital strategic foresight consultancy, shaping tomorrow all set to forecast the future on world stage](http://thesiliconreview.com/magazines/worlds-first-ai-driven-digital-strategic-foresight-consultancy-shaping-tomorrow-all-set-to-forecast-the-future-on-world-stage/)
 * [Antisocial media: How facebook disconnects us and undermines democracy](https://listenup.tech/talks/siva-vaidhyanathan) by Siva Vaidhyanathan
