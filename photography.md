@@ -20,6 +20,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="google_datakind.jpg">
+
+
+
 <img class="profile-picture" src="christmas.jpg">
 
 
