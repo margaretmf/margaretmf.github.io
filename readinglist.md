@@ -69,6 +69,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [U.S. recession chances are creeping higher](https://blogs.wsj.com/moneybeat/2018/06/25/u-s-recession-chances-are-creeping-higher/) by Ben Eisen
 * [Data Dictionary: a how to and best practices](https://medium.com/@leapingllamas/data-dictionary-a-how-to-and-best-practices-a09a685dcd61) by Carl Anderson
 * [The insane amounts of data we're using every minute (infographic)](https://www.entrepreneur.com/article/314672) by Rose Leadem
 * [We can create better jobs-by fixing the bad ones](https://www.citylab.com/equity/2018/06/we-can-create-better-jobsby-fixing-the-bad-ones/562733/?utm_source=SFTwitter) by Richard Florida
@@ -81,7 +82,7 @@ layout: default
 * [This tool lets you see–and correct–the bias in an algorithm: Accenture’s new Fairness Tool is a way to quickly evaluate whether your data is creating fair outcomes](https://www.fastcompany.com/40583554/this-tool-lets-you-see-and-correct-the-bias-in-an-algorithm?utm_source=twitter.com&utm_medium=social) by Adele Peters
 * [The secret to a meaningful life is simpler than you think](https://qz.com/1310792/the-secret-to-a-meaningful-life-is-simpler-than-you-think/) by Ephrat Livni
 * [What athena the AI future-scanning robot has to say about innovation](https://www.creativityatwork.com/2015/04/08/innovate-or-die-why-innovation-matters/)
-* [World's first AI-driven, digital strategic foresight consultancy, shaping tomorrow all set to forecast the future on world stage](http://thesiliconreview.com/magazines/worlds-first-ai-driven-digital-strategic-foresight-consultancy-shaping-tomorrow-all-set-to-forecast-the-future-on-world-stage/)
+* [World's first AI-driven, digital strategic foresight consultancy, shaping tomorrow all set to forecast the future on world stage](http://thesiliconreview.com/magazines/worlds-first-ai-driven-digital-strategic-foresight-consultancy-shaping-tomorrow-all-set-to-forecast-the-future-on-world-stage/) by Siliconreview Team
 * [Antisocial media: How facebook disconnects us and undermines democracy](https://listenup.tech/talks/siva-vaidhyanathan) by Siva Vaidhyanathan
 * [Consciousness: How we’re solving a mystery bigger than our minds. What is being in love, feeling pain or seeing colour made of? How our brains make conscious experience has long been a riddle – but we’re uncovering clues](https://www.newscientist.com/article/mg23831830-300-consciousness-how-were-solving-a-mystery-bigger-than-our-minds/?utm_campaign=Echobox&utm_medium=SOC&utm_source=Twitter#Echobox=1529678558) by Per Snaprud
 * [CEOs say investors are demanding more diversity, social impact](https://www.bloomberg.com/news/articles/2018-05-08/ceos-say-investors-are-demanding-more-diversity-social-impact) by Will Mathis
