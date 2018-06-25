@@ -10,12 +10,12 @@ Currently, as we are living through [the age of the algorithm](https://maisonneu
 ### Open Housing Data
 After compiling hundreds of metrics, the [Joint Center for Housing Studies at Harvard University](http://www.jchs.harvard.edu/state-nations-housing-2018) reports that "despite some short-term progress since the recession" in affordable housing, "the long-term prognosis" for affordable housing "is grim," and it is "wiping out savings, increasing inequality and reducing the ability of workers to weather the next recession" ([6 Reasons Housing Is About To Become Even More Unaffordable](https://www.huffingtonpost.com/entry/housing-crisis-inequality-harvard-report_us_5b27c1f1e4b056b2263c621e)). Metrics exist on housing cost burdens, home sales, renters, mobility, and homeownership. 
 
-As the Joint Center for Housing Studies sees this trend, there still exist people that have been living in homelessness and have never afforded housing. Open data lives on [homelessness in the US](https://www.hudexchange.info) online. With [Data for Democracy](http://datafordemocracy.org/), I'm starting to explore patterns in the data. As housing becomes less affordable for those that traditionally can afford it, we have to understand the problem from all angles. Most people may not have time during their day to day activities to work with this public housing data; but given that the idea behind "open data" is that the data is public "oil" that anyone should use to create tools for the public good, by playing around with this data, we can generate thoughts on how to connect this to other housing studies and develop usable applications. 
+As the Joint Center for Housing Studies sees this trend, open data lives on [homelessness in the US](https://www.hudexchange.info) online. With [Data for Democracy](http://datafordemocracy.org/), I'm starting to explore patterns in the data. As housing becomes less affordable, we have to understand the problem from all angles. Most people may not have time during their day to day activities to work with this public housing data; but given that the idea behind "open data" is that the data is public "oil" that anyone should use to create tools for the public good, by playing around with this data, we can generate thoughts on how to connect this to other housing studies and develop usable applications. 
 
-Bouncing off from a strategic alignment project with [Compass](http://compassprobono.org/) and [Homeless Children's Playtime Project](https://www.playtimeproject.org/), which became a project while the DC Mayor created plans to move the homeless population to DC's [Conway Center](https://wtop.com/dc/2018/05/new-shelter-caters-to-families-job-training-as-dcs-largest-shelter-set-to-close/amp/), I've become more curious about the affordable housing crisis across the US.
+As I bounce off of a strategic alignment project with [Compass](http://compassprobono.org/) and [Homeless Children's Playtime Project](https://www.playtimeproject.org/), which became a project while the DC Mayor created plans to move the homeless population to DC's [Conway Center](https://wtop.com/dc/2018/05/new-shelter-caters-to-families-job-training-as-dcs-largest-shelter-set-to-close/amp/), I've become more curious about the affordable housing crisis across the US.
 
 What exists in the [HUD data source](https://www.hudexchange.info/resource/3031/pit-and-hic-data-since-2007/)? I think that to start experimenting with any data source, one must understand the following:
-* publish dates
+* datas that data were published
 * fields in the data source
 * field types in the data source
 * population attributes
@@ -27,10 +27,9 @@ By playing with the data, I've learned the following:
 * 11 years of data is recorded (2007-2017)
 * data fields: point-in-time estimates of housing inventory counts
 * data field categories: Total Beds (ES, TH, SH) (13 fields), Emergency Shelter (ES) (12 fields), Transitional Housing (TH) (10 fields), Safe Housing (SH) (10 fields), Rapid Re-Housing (RRH) (10 fields), Permanent Supportive Housing (PSH) (10 fields), Other Permanent Housing (OPH) (11 fields)
-* states: 55 total
-* state Continuum of Care programs
+* records: each states (55 total) state Continuum of Care programs
 
-Over the next few weeks and months, a [Data for Democrocacy](http://datafordemocracy.org/) team will work on utilizing this data along with other open data sources and make it useful to citizens, governments, nonprofits, or businesses working on corporate compliance or business social responsibility programs.
+Over the next few weeks and months, a [Data for Democrocacy](http://datafordemocracy.org/) team will work on utilizing this data along with other open data sources and make it useful to citizens, governments, nonprofits, or businesses' corporate compliance or business social responsibility programs.
 
 <br>
 
