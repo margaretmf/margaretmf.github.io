@@ -69,6 +69,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [ESG reports and ratings: What they are, why they matter](https://corpgov.law.harvard.edu/2017/07/27/esg-reports-and-ratings-what-they-are-why-they-matter/) by Betty Moy Huber, Michael Comstock, & Davis Polk
 * [Big data: 33 brilliant and free data sources anyone can use](https://www.forbes.com/sites/bernardmarr/2016/02/12/big-data-35-brilliant-and-free-data-sources-for-2016/#19c3c8b6b54d) by Bernard Marr
 * [U.S. recession chances are creeping higher](https://blogs.wsj.com/moneybeat/2018/06/25/u-s-recession-chances-are-creeping-higher/) by Ben Eisen
 * [Data Dictionary: a how to and best practices](https://medium.com/@leapingllamas/data-dictionary-a-how-to-and-best-practices-a09a685dcd61) by Carl Anderson
