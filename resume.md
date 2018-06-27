@@ -67,7 +67,7 @@ December 2015 - January 2016
 Next Gen Council Member
 June 2017 - Present
 
-### DataKind DC and DataKind Corps
+### DataKind DC, DataKind Corps, and DataKind NY
 Data Science Volunteer, Data Ambassador
 January 2016 - Present
 * Clients: American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida, Accountability Counsel
