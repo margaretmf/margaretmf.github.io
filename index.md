@@ -19,11 +19,13 @@ During my free time, one can find me running, reading, dancing, and preparing fo
 
 ## Skills
 
-Soft: cross-functional teamwork, international teamwork, knowledge management, strategic alignment, requirements gatherment, interviewing, report writing, technical writing; familiar with Spanish language
+Product Management: strategic alignment, requirements gatherment, interviewing, report writing, technical writing, user story writing, knowledge management; familiar with project management
 
 Data Analysis: data visualization, data storytelling, hypothesis testing, principal component analysis and dimensionality reduction, regression analysis, cluster analysis, classifcation, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
 
 Software and Programming Languages: R (primary), Python (want to be primary), SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github; familiar with Tableau, MapReduce, Java, AWS, SAS
+
+Soft: cross-functional teamwork, international teamwork; familiar with Spanish language and gaining exposure to India
 
 Training: ISO 9001 Quality Management Systems
 
