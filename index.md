@@ -19,7 +19,7 @@ During my free time, one can find me running, reading, dancing, and preparing fo
 
 ## Skills
 
-Product Management: strategic alignment, requirements gatherment, interviewing, report writing, technical writing, user story writing, knowledge management, Trello, Jira, A/B testing; familiar with project management
+Product Management: strategic alignment, requirements gatherment, interviewing, report writing, technical writing, user story writing, knowledge management, Trello, Jira, A/B testing; familiar with project management, UX design
 
 Data Analysis: data visualization, data storytelling, hypothesis testing, principal component analysis and dimensionality reduction, regression analysis, cluster analysis, classifcation, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
 
