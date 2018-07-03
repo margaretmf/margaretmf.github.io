@@ -69,6 +69,37 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Humanities scholars examine challenges posed by technology, media](https://news.virginia.edu/content/humanities-scholars-examine-challenges-posed-technology-media-0?utm_source=DailyReport&utm_medium=email&utm_campaign=news) by Lorenzo Perez
+* [Madeleine Albright brands Trump ‘the most undemocratic president in modern American history’](https://www.washingtonpost.com/politics/madeleine-albright-brands-trump-the-most-undemocratic-president-in-modern-american-history/2018/07/02/6396306c-7e01-11e8-b660-4d0f9f0351f1_story.html?noredirect=on&utm_term=.ed04fb27d8f0) by John Wagner
+* [The humanities as we know them are doomed. Now what?](https://www.chronicle.com/article/The-Humanities-as-We-Know-Them/243769?key=xyToMThrnX-D5PRf98OLFARBN9YVJ-P0NkqAUFkJgt-Bz3ybzsEnxD3LdQAObcE3c2hVR1pObjNMWHdmTTZLTHJXX0RYWnFIcC1GSmVMLUxQT25QQkc1WUZHdw) by Eric Hayot
+* [Microsoft’s move to launch 'research open data' is a revolutionary way to compete with Google and AWS](https://analyticsindiamag.com/microsofts-move-to-launch-research-open-data-is-a-revolutionary-way-to-compete-with-google-and-aws/) by Richa Bhatia
+* [Single at 38? Have that baby](https://www.nytimes.com/2018/06/23/opinion/sunday/single-at-38-have-that-baby.html) by Emma Brockes
+* [The best leaders may be those who "give up"](https://ssir.org/articles/entry/the_best_leaders_may_be_those_who_give_up?platform=hootsuite) by Vu Le
+* [The changing world of work](https://www.economist.com/finance-and-economics/2018/06/30/the-changing-world-of-work?fsrc=scn/tw/te/rfd/pe)
+* [The Indian-American underachiever](https://www.economist.com/united-states/2018/06/30/the-indian-american-underachiever?fsrc=scn/tw/te/bl/ed/theindianamericanunderachieverlexington) 
+* [To advance education, we must first reimagine society](https://www.kqed.org/mindshift/34658/to-advance-education-we-must-first-reimagine-society) by Luba Vangelova
+* [Populist wave, 'crisis overload' weaken global voices for human rights](https://www.csmonitor.com/World/Europe/2018/0622/Populist-wave-crisis-overload-weaken-global-voices-for-human-rights?cmpid=TW&utm_campaign=Echobox&utm_medium=Social&utm_source=Twitter#Echobox=1530278316) by Peter Ford
+* [Should businesses make efforts to solve social problems?](https://www.theglobeandmail.com/business/adv/article-should-businesses-make-efforts-to-solve-social-problems/)
+* [Trump country is opiod country](https://www.salon.com/2018/06/27/trump-country-is-opioid-country_partner/) by Phillip Smith
+* [It’s time for an American internet privacy framework](https://www.theinformation.com/articles/its-time-for-an-american-internet-privacy-framework?shared=92214359e678612d) by Sam Lessin
+* [Life inside D.C.'s motel homeless shelters](https://www.washingtoncitypaper.com/news/housing-complex/article/21011298/life-inside-dcs-motel-homeless-shelters) by Morgan Baskin
+* [Is trust possible in a polarized age?](https://medium.com/s/trustissues/is-trust-possible-in-a-polarized-age-8c9a6756cbb2) by Kevin Vallier
+* [Palantir CEO Alex Karp says going public is 'A Possibility'](https://www.forbes.com/video/5187333864001/#6ba7c7423acb) by 
+* [The reluctant undertakers](https://www.citylab.com/equity/2018/06/relucant-undertakers/563969/?utm_campaign=city-lab&utm_content=edit-promo&utm_source=twitter&utm_medium=social&utm_term=2018-06-28T23%3A01%3A18) by Molly McCluskey
+* [Using APIs to collect website data](https://medium.com/pew-research-center-decoded/using-apis-to-collect-website-data-b7fc340d59e3) by Onyi Lam
+* [Machine learning harassment](https://xyz.informationactivism.org/en/machine-learning-harassment) by Caroline Sinders
+* [India’s mess of complexity is just what AI needs](https://www.technologyreview.com/s/611478/indias-mess-of-complexity-is-just-what-ai-needs/) by Varun Aggarwal
+* [Amazon, google and microsoft employee AI ethics are best hope for humanity](https://www.forbes.com/sites/paularmstrongtech/2018/06/26/amazon-google-and-microsoft-employee-ai-ethics-are-best-hope-for-humanity/?utm_source=TWITTER&utm_medium=social&utm_content=1618103718&utm_campaign=sprinklrForbesTechTwitter#20e4cf1a2989) by Paul Armstrong
+* [India is having a record-breaking year for IPOs](https://qz.com/1315497/indias-stock-markets-have-seen-the-most-ipos-in-the-world-so-far-in-2018/) by Ananya Bhattacharya
+* [Make KPIs great again, MIT-Google study urges](https://www.forbes.com/sites/joemckendrick/2018/06/26/make-kpis-great-again-study-urges/#4bc37945277c) by Joe McKendrick
+* [UN calls video-game addiction a public health crisis. Public health experts already knew that](https://www.salon.com/2018/06/22/un-calls-video-game-addiction-a-public-health-crisis-public-health-experts-already-knew-that/) by Nicole Stock
+* [Apple’s next laptops could be more iPhone than Mac](https://www.wsj.com/articles/apples-next-laptops-could-be-more-iphone-than-mac-1528992149) by Christopher Mims
+* [Anti-social media: How facebook disconnects us and undermines democracy](https://www.theguardian.com/books/2018/jun/25/anti-social-media-how-facebook-disconnects-us-undermines-democracy-siva-vaidhyanathan-review?CMP=share_btn_tw) by John Naughton
+* [How a classics education prepares students for a modern world](https://www.edsurge.com/amp/news/2018-06-19-how-a-classics-education-prepares-students-for-a-modern-world) by Dana Weeks
+* [How one apple programmer got apps talking to each other](https://www.wired.com/story/soghoian-automation/?mbid=social_twitter)
+* [The ultimate character test: do you thank the bus driver?](https://www.theguardian.com/cities/2018/jun/25/the-ultimate-character-test-do-you-thank-the-bus-driver?CMP=twt_gu) by Elle Hunt
+* [Donald Trump’s plan to (sort of) eliminate the Department of Education, briefly explained](https://www.vox.com/policy-and-politics/2018/6/21/17489456/education-workforce-department) by Libby Nelson
+* [In praise of gentrification: Accusations levelled at gentrification in America lack force, meanwhile its benefits go unsung](https://www.economist.com/united-states/2018/06/23/in-praise-of-gentrification?fsrc=scn/tw/te/bl/ed/inpraiseofgentrificationurbanmyths) by 
 * [ESG reports and ratings: What they are, why they matter](https://corpgov.law.harvard.edu/2017/07/27/esg-reports-and-ratings-what-they-are-why-they-matter/) by Betty Moy Huber, Michael Comstock, & Davis Polk
 * [Big data: 33 brilliant and free data sources anyone can use](https://www.forbes.com/sites/bernardmarr/2016/02/12/big-data-35-brilliant-and-free-data-sources-for-2016/#19c3c8b6b54d) by Bernard Marr
 * [U.S. recession chances are creeping higher](https://blogs.wsj.com/moneybeat/2018/06/25/u-s-recession-chances-are-creeping-higher/) by Ben Eisen
