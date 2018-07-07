@@ -104,7 +104,7 @@ layout: default
 * [It’s time for an American internet privacy framework](https://www.theinformation.com/articles/its-time-for-an-american-internet-privacy-framework?shared=92214359e678612d) by Sam Lessin
 * [Life inside D.C.'s motel homeless shelters](https://www.washingtoncitypaper.com/news/housing-complex/article/21011298/life-inside-dcs-motel-homeless-shelters) by Morgan Baskin
 * [Is trust possible in a polarized age?](https://medium.com/s/trustissues/is-trust-possible-in-a-polarized-age-8c9a6756cbb2) by Kevin Vallier
-* [Palantir CEO Alex Karp says going public is 'A Possibility'](https://www.forbes.com/video/5187333864001/#6ba7c7423acb) by 
+* [Palantir CEO Alex Karp says going public is 'A Possibility'](https://www.forbes.com/video/5187333864001/#6ba7c7423acb) by Forbes
 * [The reluctant undertakers](https://www.citylab.com/equity/2018/06/relucant-undertakers/563969/?utm_campaign=city-lab&utm_content=edit-promo&utm_source=twitter&utm_medium=social&utm_term=2018-06-28T23%3A01%3A18) by Molly McCluskey
 * [Using APIs to collect website data](https://medium.com/pew-research-center-decoded/using-apis-to-collect-website-data-b7fc340d59e3) by Onyi Lam
 * [Machine learning harassment](https://xyz.informationactivism.org/en/machine-learning-harassment) by Caroline Sinders
