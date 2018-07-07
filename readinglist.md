@@ -69,6 +69,26 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Why India needs women to work](https://www.economist.com/leaders/2018/07/05/why-india-needs-women-to-work) by The Economist
+* [What if people were paid for their data?](https://www.economist.com/the-world-if/2018/07/07/what-if-people-were-paid-for-their-data) by The Economist
+* [Why Delhi wants to become a state](https://www.economist.com/the-economist-explains/2018/07/06/why-delhi-wants-to-become-a-state?fsrc=scn/tw/te/bl/ed/whydelhiwantstobecomeastatetheeconomistexplains) by MR
+* [Students in Detroit are suing the state because they weren’t taught to read](https://www.theatlantic.com/education/archive/2018/07/no-right-become-literate/564545/?utm_source=twb) by Alia Wong
+* [SNAP work requirements could increase deep poverty for some](https://www.mcclatchydc.com/news/nation-world/national/article214228284.html) by Tony Pugh
+* [Democracy dies in the blinding light of day](https://theintercept.com/2018/07/04/how-democracy-ends-david-runciman-review/) by Murtaza Hussain
+* [America’s nonviolent civil rights movement was considered uncivil by critics at the time](https://www.washingtonpost.com/news/post-nation/wp/2018/07/04/the-civil-rights-movement-might-have-been-nonviolent-but-to-critics-it-was-considered-uncivil/?noredirect=on&utm_term=.41711ff61037) by 
+* [India says rumors about child snatching on WhatsApp led to mob killings](https://www.wsj.com/articles/india-admonishes-whatsapp-after-deaths-1530730096?mod=e2tw) by Krishna Pokharel, Rajesh Roy
+* [Problem solving desperately needs systems thinking](https://medium.com/disruptive-design/problem-solving-desperately-needs-systems-thinking-607d34e4fc80) by Leyla Acaroglu
+* [Raising the American flag made in China](https://www.theatlantic.com/technology/archive/2018/07/raising-the-american-flag-made-in-china/564293/) by Michael D. Breidenbach
+* [Why made in China 2025 will succeed, despite Trump](https://www.nytimes.com/2018/07/04/technology/made-in-china-2025-dongguan.html) by Li Yuan
+* [What happens when a computer runs your life](https://medium.com/s/futurehuman/what-happens-when-a-computer-runs-your-life-4ba7ec152728) by Ahmed Kabil
+* [Addicts should be able to shoot up legally in safe-injection facilities](https://www.scientificamerican.com/article/addicts-should-be-able-to-shoot-up-legally-in-safe-injection-facilities/?utm_source=twitter&utm_medium=social&utm_campaign=sa-editorial-social&utm_content=&utm_term=policy_&sf193003401=1) 
+* [Where American politics can still work: From the bottom up](https://www.nytimes.com/2018/07/03/opinion/community-revitalization-lancaster.html?rref=collection/sectioncollection/opinion-columnists&action=click&contentCollection=columnists&region=stream&module=stream_unit&version=latest&contentPlacement=1&pgtype=sectionfront) by Thomas Friedman
+* [A moment of possibility and peril: When our institutions are under attack, we must become storytellers of a future we want to share](https://medium.com/@BonoU2/a-moment-of-possibility-and-peril-e2c1c9b171ed) by Bono
+* [Transcendence in systems thinking](https://www.heartoftheart.org/?p=1944) by Emma Loftus
+* [‘These kids are watching their parents die'](https://www.thenation.com/article/kids-watching-parents-die/) by Zoe Carpenter
+* [The #2040Economy: how do we prepare for a world in which very few work?](https://inqa.com/2018/06/28/the-2040economy-how-do-we-prepare-for-a-world-in-which-very-few-work/)
+* [How can cities succeed in the 21st century?](https://www.theatlantic.com/sponsored/wework-2018/focus-on-community/1832/) by Re:think Original
+* [Social Networks spread ideas](https://www.heartoftheart.org/?p=1687) by John Atkinson
 * [Humanities scholars examine challenges posed by technology, media](https://news.virginia.edu/content/humanities-scholars-examine-challenges-posed-technology-media-0?utm_source=DailyReport&utm_medium=email&utm_campaign=news) by Lorenzo Perez
 * [Madeleine Albright brands Trump ‘the most undemocratic president in modern American history’](https://www.washingtonpost.com/politics/madeleine-albright-brands-trump-the-most-undemocratic-president-in-modern-american-history/2018/07/02/6396306c-7e01-11e8-b660-4d0f9f0351f1_story.html?noredirect=on&utm_term=.ed04fb27d8f0) by John Wagner
 * [The humanities as we know them are doomed. Now what?](https://www.chronicle.com/article/The-Humanities-as-We-Know-Them/243769?key=xyToMThrnX-D5PRf98OLFARBN9YVJ-P0NkqAUFkJgt-Bz3ybzsEnxD3LdQAObcE3c2hVR1pObjNMWHdmTTZLTHJXX0RYWnFIcC1GSmVMLUxQT25QQkc1WUZHdw) by Eric Hayot
