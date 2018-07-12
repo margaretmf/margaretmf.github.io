@@ -69,15 +69,15 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
-* [Off the Beaten Path](https://ssir.org/articles/entry/off_the_beaten_path?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title)
-* [How Change Happens: Winning Hearts and Minds](https://ssir.org/book_reviews/entry/winning_hearts_and_minds?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now)
+* [Off the Beaten Path](https://ssir.org/articles/entry/off_the_beaten_path?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Rebecca Winthrop, Adam Barton & Eileen McGivney 
+* [How Change Happens: Winning Hearts and Minds](https://ssir.org/book_reviews/entry/winning_hearts_and_minds?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now) by Karina Kloos 
 * [Why India needs women to work](https://www.economist.com/leaders/2018/07/05/why-india-needs-women-to-work) by The Economist
 * [What if people were paid for their data?](https://www.economist.com/the-world-if/2018/07/07/what-if-people-were-paid-for-their-data) by The Economist
 * [Why Delhi wants to become a state](https://www.economist.com/the-economist-explains/2018/07/06/why-delhi-wants-to-become-a-state?fsrc=scn/tw/te/bl/ed/whydelhiwantstobecomeastatetheeconomistexplains) by MR
 * [Students in Detroit are suing the state because they weren’t taught to read](https://www.theatlantic.com/education/archive/2018/07/no-right-become-literate/564545/?utm_source=twb) by Alia Wong
 * [SNAP work requirements could increase deep poverty for some](https://www.mcclatchydc.com/news/nation-world/national/article214228284.html) by Tony Pugh
 * [Democracy dies in the blinding light of day](https://theintercept.com/2018/07/04/how-democracy-ends-david-runciman-review/) by Murtaza Hussain
-* [America’s nonviolent civil rights movement was considered uncivil by critics at the time](https://www.washingtonpost.com/news/post-nation/wp/2018/07/04/the-civil-rights-movement-might-have-been-nonviolent-but-to-critics-it-was-considered-uncivil/?noredirect=on&utm_term=.41711ff61037) by 
+* [America’s nonviolent civil rights movement was considered uncivil by critics at the time](https://www.washingtonpost.com/news/post-nation/wp/2018/07/04/the-civil-rights-movement-might-have-been-nonviolent-but-to-critics-it-was-considered-uncivil/?noredirect=on&utm_term=.41711ff61037) by Peniel Joseph
 * [India says rumors about child snatching on WhatsApp led to mob killings](https://www.wsj.com/articles/india-admonishes-whatsapp-after-deaths-1530730096?mod=e2tw) by Krishna Pokharel, Rajesh Roy
 * [Problem solving desperately needs systems thinking](https://medium.com/disruptive-design/problem-solving-desperately-needs-systems-thinking-607d34e4fc80) by Leyla Acaroglu
 * [Raising the American flag made in China](https://www.theatlantic.com/technology/archive/2018/07/raising-the-american-flag-made-in-china/564293/) by Michael D. Breidenbach
