@@ -69,6 +69,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Off the Beaten Path](https://ssir.org/articles/entry/off_the_beaten_path?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title)
+* [How Change Happens: Winning Hearts and Minds](https://ssir.org/book_reviews/entry/winning_hearts_and_minds?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now)
 * [Why India needs women to work](https://www.economist.com/leaders/2018/07/05/why-india-needs-women-to-work) by The Economist
 * [What if people were paid for their data?](https://www.economist.com/the-world-if/2018/07/07/what-if-people-were-paid-for-their-data) by The Economist
 * [Why Delhi wants to become a state](https://www.economist.com/the-economist-explains/2018/07/06/why-delhi-wants-to-become-a-state?fsrc=scn/tw/te/bl/ed/whydelhiwantstobecomeastatetheeconomistexplains) by MR
