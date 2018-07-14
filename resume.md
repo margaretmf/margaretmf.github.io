@@ -39,8 +39,8 @@ April 2016 - Present
  
 ### DataKind
 Data Analyst
-October 2017 - Present
-* Collaborate to develop a foster care case complexity score on a team of remote volunteers
+October 2017 - July 2018
+* Collaborate remotely to develop a foster care case complexity score on a team of remote volunteers
 * Support communication with Community-Based Care Florida 
  
 ### Clarity Campaign Labs
@@ -66,6 +66,10 @@ December 2015 - January 2016
 ### Byte Back
 Next Gen Council Member
 June 2017 - Present
+
+### UVA
+5 Year Giving Committee
+July 2018 - July 2019
 
 ### DataKind DC, DataKind Corps, and DataKind NY
 Data Science Volunteer, Data Ambassador
