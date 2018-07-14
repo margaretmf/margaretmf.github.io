@@ -8,7 +8,6 @@ layout: default
 #### In Progress
 * [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
-* [Missed Information: Better Information for Building a Wealthier, More Sustainable Future](https://www.amazon.com/Missed-Information-Building-Wealthier-Sustainable/dp/0262034921) by David Sarokin
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
@@ -51,6 +50,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [Missed Information: Better Information for Building a Wealthier, More Sustainable Future](https://www.amazon.com/Missed-Information-Building-Wealthier-Sustainable/dp/0262034921) by David Sarokin
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 * [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
 * [Teaching about the Future](https://www.amazon.com/Teaching-about-Future-Peter-Bishop/dp/02303634900) by Peter Bishop & Andy Hines
