@@ -40,6 +40,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="vegetables.jpg">
+
+
+
 <b>
 
 <b>
