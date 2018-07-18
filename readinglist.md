@@ -69,6 +69,65 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Cold, hunger and sleeplessness. Immigrant children describe dire U.S. detention conditions](http://time.com/5341512/us-immigration-children-detention-conditions/?utm_medium=social&xid=time_socialflow_twitter&utm_campaign=time&utm_source=twitter.com) by Amy Taxin
+* [It's 4 a.m. The baby's coming. But the hospital is 100 miles away.](https://www.nytimes.com/2018/07/17/us/hospital-closing-missouri-pregnant.html) by Jack Healy
+* [Hospitals are learning from industry how to cut medical errors: Industry and behavioural science may both have things to teach doctors](https://www.economist.com/international/2018/06/28/hospitals-are-learning-from-industry-how-to-cut-medical-errors?fsrc=scn/tw/te/bl/ed/hospitalsarelearningfromindustryhowtocutmedicalerrorspatientsafety)
+* [Barack Obama breaks his silence](https://www.theatlantic.com/international/archive/2018/07/obama-breaks-his-silence/565421/?utm_content=edit-promo&utm_term=2018-07-17T18%3A54%3A09&utm_campaign=the-atlantic&utm_medium=social&utm_source=twitter) by Krishnadev Calamur
+* [It's easier to focus in a coffee shop than in an open-pan office, according to brain scans](https://www.inc.com/geoffrey-james/coffee-shops-are-better-than-open-plan-offices-according-to-science.html?cid=sf01001&sr_share=twitter) by Geoffrey James
+* [India: 17 men charged with raping 12-year-old girls over months(https://www.theguardian.com/world/2018/jul/18/india-17-men-charged-with-raping-12-year-old-girl-for-months?CMP=twt_gu) by Michael Safi
+* [The human eye could help test quantum mechanics](https://www.scientificamerican.com/article/the-human-eye-could-help-test-quantum-mechanics/?sf193856026=1) by Anil Ananthaswamy
+* [Failure to educate girls could cost the world $30 trillion](https://www.weforum.org/agenda/2018/07/failure-to-educate-girls-could-cost-world-30-trillion/) by Ellen Wulfhorst
+* [How to mentor someone who doesn't know what their career goals should be](https://hbr.org/2018/07/how-to-mentor-someone-who-doesnt-know-what-their-career-goals-should-be?utm_medium=social&utm_campaign=hbr&utm_source=twitter) by Tania Luna & Jordan Cohen
+* [The great rewrite](https://www.forbes.com/kpmg/the-great-rewrite/?utm_source=TWITTER&utm_medium=social&utm_content=1674457836&utm_campaign=sprinklrForbesMainTwitter#53240b431eba) by Leonard Brody
+* [Why liberal arts and the humanities are as important as engineering](https://venturebeat.com/2018/06/12/why-liberal-arts-and-the-humanities-are-as-important-as-engineering/) by Vivek Wadhwa
+* [Don't ask for a resume from a job candidate. Ask them to do this 1 thing instead](https://www.inc.com/jeremy-bodenhamer/looking-for-employees-with-that-extra-x-factor-do-this-1-thing-during-their-interview.html?cid=sf01001&sr_share=twitter) by Jeremy Bodenhamer
+* [Worker shortages could heal America's economy](https://econ.trib.al/0uneyC8)
+* [How debate structures allow English learners' brilliance to shine](https://www.kqed.org/mindshift/50983/how-debate-structures-allow-english-learners-brilliance-to-shine) by Katrina Schwartz
+* [Aristotles wrongful death](https://www.nytimes.com/2018/05/26/opinion/sunday/college-majors-liberal-arts.html) by Jeff Selingo
+* [Trump is what happens when postmodernism goes too far, Michiko Kakutani argues](https://quartzy.qz.com/1327759/trump-is-what-happens-when-postmodernism-goes-too-far-michiko-kakutani-argues/) Thu-Huong Ha
+* [US should address concerns raised in UN poverty report](https://www.hrw.org/news/2018/07/17/us-should-address-concerns-raised-un-poverty-report) by Laura Pitter
+* [Help wanted: Millennials need apply](https://www.bridgespan.org/insights/library/hiring/help-wanted-millennials-need-apply?utm_campaign=leadership&utm_source=twitter&utm_medium=social&utm_content=cool#c) by Alexandra Mitchell & Jeffrey Pryor
+* [Elite colleges have no monopoly over the liberal arts](https://www.chronicle.com/article/Elite-Colleges-Have-No/243915?key=Bj9VwqXvQvYd6fLOxLcWgxKf80_cnkwa0oAeamo5PolDIASq9BUC4Jh9nTO76DCKUTM4RDZsNllmUFZQc3llUHU0TGt1NW1VcGs3NUJkZF9qbWxaU3g1dFNBZw) by Rachel Buurma & Laura Heffernan
+* [Inside the modern Indian marriage, where nothing is what it seems](https://qz.com/1319008/inside-the-modern-indian-marriage-where-nothing-is-what-it-seems/) by Maria Thomas
+* [The crisis in political science education](https://psmag.com/education/the-crisis-in-political-science-education) by Seth Masket
+* [How minecraft is helping kids fall in love with books](https://www.theguardian.com/books/2018/jul/11/how-minecraft-is-helping-kids-fall-in-love-with-books?utm_source=t.co&utm_medium=referral) by Alison Flood & Sian Cain
+* [Obama takes aim at 'strongman politics' in Mandela address](https://www.csmonitor.com/layout/set/amphtml/World/Africa/2018/0717/Obama-takes-aim-at-strongman-politics-in-Mandela-address) by Andrew Meldrum
+* [The murder suicide of the west](https://www.nytimes.com/2018/07/16/opinion/trump-nato-european-union-history.html) by David Brooks
+* [Tilting of the supreme court](https://www.thenation.com/article/tilting-supreme-court/) by Frances Jetter
+* ['We've been through darker times': Barak Obama speaks in South Africa](https://www.npr.org/2018/07/17/629601956/obama-speaks-up-in-south-africa?utm_source=twitter.com&utm_medium=social&utm_campaign=npr&utm_term=nprnews&utm_content=20180717) by Scott Horsley
+* [IMF still expects global economy to grow 3.9% this year](https://www.wsj.com/articles/imf-still-expects-global-economy-to-grow-3-9-this-year-1531776122?mod=e2tw) by Josh Zumbrun
+* [The new intelligence](https://worldpositive.com/the-new-intelligence-e3e1ff697f11) by Nan Li
+* [Uber is target of a U.S. probe over gender discrimination](https://www.bloomberg.com/news/articles/2018-07-16/uber-is-the-target-of-a-u-s-probe-over-gender-discrimination) by Olivia Zaleski & Eric Newcomer
+* [The crisis facing America](https://www.theatlantic.com/international/archive/2018/07/trump-putin/565310/?utm_term=2018-07-16T17%3A48%3A26&utm_medium=social&utm_campaign=the-atlantic&utm_content=edit-promo&utm_source=twitter) by David Frum
+* ["Eighth Grade" is a movie about middle school that will leave adults in tears](https://slate.com/culture/2018/07/eighth-grade-the-new-movie-from-bo-burnham-reviewed.html) by Dana Stevens
+* ["Diversity" and "inclusion" aren't interchangeable. Here's how to use them correctly](https://work.qz.com/1328942/what-is-diversity-a-practical-definition/) by Kim Cayton
+* [Rising seas could cause problems for internet infrastructure](https://www.npr.org/2018/07/16/627254166/rising-seas-could-cause-problems-for-internet-infrastructure?utm_source=dlvr.it&utm_medium=twitter) by Rebecca Hersher
+* [Parents who lack control at work may become more controlling at home](https://work.qz.com/1328759/adam-grant-on-why-parents-who-lack-control-at-work-become-more-controlling-at-home/) by Jenny Anderson
+* [The corner of India that exports both mangoes and men](https://qz.com/1328610/migration-leaves-mango-belt-ratnagiri-grappling-with-adult-male-absence/) by Chinmay Tumbe
+* [What will be the future of work?](http://blogs.worldbank.org/voices/what-future-work?CID=CCG_TT_climatechange_EN_EXT) by Jim Yong Kim
+* [From dusty villages to Delhi, Indians seek people to persecute: The lesson of partition does not seem to have been learned](https://www.economist.com/asia/2018/07/05/from-dusty-villages-to-delhi-indians-seek-people-to-persecute?fsrc=scn/tw/te/bl/ed/fromdustyvillagestodelhiindiansseekpeopletopersecutebanyan) by Banyan
+* [The end of the common cold could be in sight](https://www.weforum.org/agenda/2018/05/we-dont-have-a-cure-for-the-common-cold-but-this-new-treatment-might-stop-it-in-its-tracks) by Sy Mukherjee
+* [Life as you know it is IPOver: An open letter to bosses preparing for an initial public offering](https://www.economist.com/business/2018/07/14/life-as-you-know-it-is-ipover?fsrc=scn/tw/te/bl/ed/lifeasyouknowitisipoverschumpeter) by Schumpeter
+* [The gig economy can be a housekeeper's nightmare](https://www.nytimes.com/2018/07/12/opinion/gig-economy-domestic-workers-uber.html?smtyp=cur&smid=tw-nytimes) by Alex Rosenblat
+* [The future of food goes way beyond lab grown meat](https://medium.com/s/futurehuman/the-future-of-food-goes-way-beyond-lab-grown-meat-ad67d6f64685) by Sophie Kleeman
+* [Made to suffer for her sins](https://slate.com/news-and-politics/2018/07/abortion-family-separation-and-how-the-trump-administration-uses-female-pain-as-punishment.html) by Christina Cauterucci
+* [The risk to the world: massive nuclear proliferation](https://www.thedailybeast.com/the-risk-to-the-world-massive-nuclear-proliferation?curator=MediaREDEF) by David Axe
+* [Warren is preparing for 2020. So are Biden, Booker, Harris and Sanders.](https://www.nytimes.com/2018/07/15/us/politics/democratic-presidential-candidates-2020.html?partner=rss&emc=rss&smtyp=cur&smid=tw-nytimes) by Alexander Burns & Jonathan Martin
+* [Surviving the long-term trauma of sexual violence](https://www.nytimes.com/2018/07/11/lens/surviving-the-long-term-trauma-of-sexual-violence.html?smid=tw-nytimesphoto&smtyp=cur) by Kate Ryan
+* [In town with little water, coca-cola is everywhere. So is diabetes.](https://www.nytimes.com/2018/07/14/world/americas/mexico-coca-cola-diabetes.html?smtyp=cur&smid=tw-nytimes) by Oscar Lopez & Andrew Jacobs
+* [Raising kids in Delhi's worsening air](https://www.newyorker.com/culture/personal-history/raising-kids-in-delhis-worsening-air?mbid=social_twitter) by Megan Stack
+* [Humanizing tech may be the new competitive advantage](https://sloanreview.mit.edu/article/humanizing-tech-may-be-the-new-competitive-advantage/) by Bala Iyer, Kristen Getchell, & Fritz Fleischmann
+* [Are gender differences just power differences in disguise?](https://www.ft.com/paidpost/CBS/gender_differences/index.html?utm_source=twitter)
+* [In praise of gentrification](https://www.economist.com/news/united-states/21744883-accusations-levelled-gentrification-america-lack-force-meanwhile-its-benefits-go?fsrc=scn/tw/te/rfd/pe)
+* [Review: All the feels, hurts, and laughs of 'Eighth Grade'](https://www.nytimes.com/2018/07/11/movies/eighth-grade-review-bo-burnham.html?smtyp=cur&smid=tw-nytimes) by Manohla Dargis
+* [The rise of women entrepreneurship in India](https://bizztor.com/in/women-entrepreneurship-india/) by Ashish Singh
+* [Starbucks to ditch plastic straws--will it actually help the environment?(https://www.forbes.com/sites/trevornace/2018/07/10/starbucks-to-ditch-plastic-straws-worldwide-for-adult-sippy-cups/?utm_source=TWITTER&utm_medium=social&utm_term=Bonnie%2F#3b0b2377c9eb) by Trevor Nace
+* [Making systems thinking more than just a slogan](https://www.heartoftheart.org/?p=1468) by John Sterman
+* [Trump reeks of fear](https://www.nytimes.com/2018/07/08/opinion/trump-mueller-impeachment.html?smtyp=cur&smid=tw-nytimes) by Charles Blow
+* [The worst cybersecurity breaches of 2018 so far](https://www.wired.com/story/2018-worst-hacks-so-far/) by Lila Hay Newman
+* [How Buddhist meditation kept the Thai boys calm in the cave](https://www.vox.com/2018/7/9/17548512/thai-cave-rescue-soccer-boys-meditation-buddhism) by Eliza Barclay
+* [Before automating your company's processes, find ways to improve them](https://hbr.org/2018/06/before-automating-your-companys-processes-find-ways-to-improve-them?utm_campaign=hbr&utm_medium=social&utm_source=twitter) by Thomas Davenport & David Brain
+* [How the enlightenment ends: Philosophically, intellectually-in every way-human society is unprepared for the rise of artificial intelligence](https://www.theatlantic.com/magazine/archive/2018/06/henry-kissinger-ai-could-mean-the-end-of-human-history/559124/) by Henry Kissinger
 * [Off the Beaten Path](https://ssir.org/articles/entry/off_the_beaten_path?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Rebecca Winthrop, Adam Barton & Eileen McGivney 
 * [How Change Happens: Winning Hearts and Minds](https://ssir.org/book_reviews/entry/winning_hearts_and_minds?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now) by Karina Kloos 
 * [Why India needs women to work](https://www.economist.com/leaders/2018/07/05/why-india-needs-women-to-work) by The Economist
