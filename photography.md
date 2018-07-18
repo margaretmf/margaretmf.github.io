@@ -44,6 +44,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="dcbooks_#oldschool_vs_#newschool.jpg">
+
+
+
 <b>
 
 <b>
