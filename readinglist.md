@@ -29,7 +29,6 @@ layout: default
 * [Education in the Creative Economy](https://www.amazon.com/Education-Creative-Economy-Knowledge-Innovation/dp/1433107449/ref=sr_1_1?ie=UTF8&qid=1489683485&sr=8-1&keywords=education+in+the+creative+economy) by Daniel Araya  & Michael Peters
 * [A Whole New Mind: Why Right-Brainers Will Rule the Future](https://www.amazon.com/Whole-New-Mind-Right-Brainers-Future/dp/1594481717/ref=sr_1_1?s=books&ie=UTF8&qid=1375218844&sr=1-1&keywords=a+whole+new+mind) by Daniel  Pink
 * [Our Incorrigible Ontological Relations and Categories of Being: Causal and Limiting Factors of Objective Knowledge](https://www.amazon.com/dp/B01NBB3QCV/ref=sspa_dk_detail_0?psc=1&pd_rd_i=B01NBB3QCV&pd_rd_wg=Mk2H8&pd_rd_r=JP3AH51R719T8RZXR0SV&pd_rd_w=v1g8g) by Julian M. Galvez
-* [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Utopia](https://www.amazon.com/Utopia-Dover-Thrift-Editions-Thomas/dp/0486295834) by Thomas More
 * [The Communist Manifesto](https://www.amazon.com/Communist-Manifesto-Karl-Marx/dp/0717802418) by Karl Marx
 * [The Republic](https://www.amazon.com/Republic-Plato/dp/1613821212) by Plato
@@ -49,6 +48,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
 * [Missed Information: Better Information for Building a Wealthier, More Sustainable Future](https://www.amazon.com/Missed-Information-Building-Wealthier-Sustainable/dp/0262034921) by David Sarokin
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
