@@ -69,6 +69,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [There's a virus in trumpland](https://www.washingtonpost.com/news/politics/wp/2018/08/03/theres-a-virus-in-trumpland/?utm_term=.96bded61fd18) by Philip Bump
 * [3 questions about AI that nontechnical employees should be able to answer](https://hbr.org/2018/08/3-questions-about-ai-that-nontechnical-employees-should-be-able-to-answer?utm_source=twitter&utm_campaign=hbr&utm_medium=social) by Emma Martinho-Truswell](
 * [Uber and Lyft are fighting a critical battle against New York City — and this time, they might not win](https://www.recode.net/2018/8/2/17635692/uber-lyft-new-york-city-regulation-bills-ride-share-car-cap) by Johana Bhuiyan
 * [A new school in India is training trafficking victims to become lawyers & advocates](https://www.globalcitizen.org/en/content/school-for-justice-india-trafficking-lawyers/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=55025298) by Phineas Rueckert
