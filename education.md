@@ -51,6 +51,10 @@ layout: default
 
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
+* [Hustle Smarter: Tactics & Routines to Scale Your Business](https://generalassemb.ly/)
+* [Project Management Essentials](https://generalassemb.ly/)
+* [Innovation in Government](https://generalassemb.ly/)
+* [The Future of Talent in Government]((https://generalassemb.ly/))
 * [Hindi Language, International Language Institute](http://ilidc.com)
 * [Business Social Responsibility Conference](https://bsr18.org)
 
