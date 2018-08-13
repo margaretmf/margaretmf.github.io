@@ -69,6 +69,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Here’s why you’re being kept in the dark about how your data is used](https://thenextweb.com/contributors/2018/08/11/heres-why-youre-being-kept-in-the-dark-about-how-your-data-is-used/) by Pavol Magic
 * [There's a virus in trumpland](https://www.washingtonpost.com/news/politics/wp/2018/08/03/theres-a-virus-in-trumpland/?utm_term=.96bded61fd18) by Philip Bump
 * [3 questions about AI that nontechnical employees should be able to answer](https://hbr.org/2018/08/3-questions-about-ai-that-nontechnical-employees-should-be-able-to-answer?utm_source=twitter&utm_campaign=hbr&utm_medium=social) by Emma Martinho-Truswell](
 * [Uber and Lyft are fighting a critical battle against New York City — and this time, they might not win](https://www.recode.net/2018/8/2/17635692/uber-lyft-new-york-city-regulation-bills-ride-share-car-cap) by Johana Bhuiyan
