@@ -30,18 +30,29 @@ August 2010 - May 2014
 ### EVERFI
 Data Analyst
 April 2016 - Present
+* Owning data management, exploratory data analysis, task management, dashboard creation, and business analysis work
 * Streamlining reporting processes by writing R functions and packages for up to 560 data points for 9 online programs
+* Creating dashboards using Tableau and R to report strategic impact of programs and reduce future work on the same reports
 * Clustering data, evaluating clusters with validation metrics, and characterizing clusters
 * Measuring the quality and difficulty of questions to support standardizing educational assessments
 * Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf))
 * Collaborating with a database specialist in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
-* Enjoying work with engineers
+* Supporting project and task management work in Jira (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
  
 ### DataKind
-Data Analyst
-October 2017 - July 2018
-* Collaborate remotely to develop a foster care case complexity score on a team of remote volunteers
-* Support communication with Community-Based Care Florida 
+Data Analyst, Data Ambassador, Project Manager
+July 2016 - July 2018
+* Clients: Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
+* Collaborated to develop maps, machine learning feachers, a foster care case complexity score, and more on a teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
+
+### Compass Pro Bono
+Strategic Alignment Consultant
+October 2016 - Present
+* Clients: Jubilee Jumpstart, Homeless Children's Playtime Project 
+* Develop and design surveys to understand organizational stakeholders' opinions on organizational change
+* Collect and analyze data to develop strategic recommendations on organizational change
+* Participate in board's strategic planning and alignment meetings
+* Meet with a team of MBA and JD graudates once to twice per month
  
 ### Clarity Campaign Labs
 Analyst Fellow
@@ -61,7 +72,7 @@ December 2015 - January 2016
  
 <br>
  
-## LEADERSHIP AND CONSULTING EXPERIENCE
+## LEADERSHIP EXPERIENCE
  
 ### Byte Back
 Next Gen Council Member
@@ -71,18 +82,8 @@ June 2017 - Present
 5 Year Giving Committee
 July 2018 - July 2019
 
-### DataKind DC, DataKind Corps, and DataKind NY
-Data Science Volunteer, Data Ambassador
-January 2016 - Present
-* Clients: American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida, Accountability Counsel
- 
-### Compass Pro Bono
-Strategic Alignment Consultant
-October 2016 - Present
-* Clients: Jubilee Jumpstart, Homeless Children's Playtime Project 
-
 ### America India Foundation
-Event Participant
+Committee Member
 March 2018 - Present
 
 ### White House Hack the Pay Gap
