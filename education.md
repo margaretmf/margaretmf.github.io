@@ -32,11 +32,10 @@ layout: default
 * Audited [Business Strategy in Practice](https://www.coursera.org/learn/uva-darden-business-strategy-capstone)
 * Audited [Introduction to Recommender Systems: Non-Personalized and Content-Based](https://www.coursera.org/learn/recommender-systems-introduction)
 * Audited [Recommender Systems: Evaluation and Metrics](https://www.coursera.org/learn/recommender-metrics)
-
+* Audited [Go Agile with Jira](https://training.atlassian.com/course/go-agile-with-jira-cloud)
+* Audited [Learn Jira Basics](https://training.atlassian.com/course/learn-jira-basics-cloud)
 
 ### Continuing Education - Coursera Courses Auditing
-* Auditing [Advanced R Programming](https://www.coursera.org/learn/advanced-r)
-
 
 ### Continuing Education - Completed Classes
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
@@ -52,7 +51,6 @@ layout: default
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Project Management Essentials](https://generalassemb.ly/)
-* [Innovation in Government](https://generalassemb.ly/)
 * [The Future of Talent in Government](https://generalassemb.ly/)
 * [Hindi Language, International Language Institute](http://ilidc.com)
 * [Business Social Responsibility Conference](https://bsr18.org)
