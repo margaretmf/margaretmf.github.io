@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress
+* [The New Education: How to Revolutionize the University to Prepare Students for a World In Flux](https://www.amazon.com/New-Education-Revolutionize-University-Students/dp/0465079725/ref=sr_1_1_twi_har_2?ie=UTF8&qid=1506440926&sr=8-1&keywords=The+New+Education) by Cathy Davidson
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
