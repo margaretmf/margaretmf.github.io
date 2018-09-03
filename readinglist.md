@@ -69,6 +69,94 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [A call for long-term capitalism](https://consciouscompanymedia.com/the-new-economy/social-change/a-call-for-long-term-capitalism/) by Rand Stagen
+* [Rising U.S. consumer prices are eroding wage gains](https://www.wsj.com/articles/u-s-consumer-prices-rose-0-2-in-july-1533904402?mod=e2tw) by Josh Mitchell
+* [Why reining in ride hailing is so critical](https://www.citylab.com/transportation/2018/08/reining-in-ride-hailing-is-critical/567487/?utm_content=edit-promo&utm_campaign=city-lab&utm_medium=social&utm_term=2018-08-14T19%3A53%3A16&utm_source=twitter) Bruce Schaller 
+* [The daily horror of driving to work in India’s Silicon Valley](https://qz.com/india/1334967/braving-the-legendary-bengaluru-traffic-jam/) by Maria Thomas
+* [Take control of Your learning at work](https://hbr.org/2018/07/take-control-of-your-learning-at-work?utm_medium=social&utm_campaign=hbr&utm_source=twitter) by Tomas Chamorro-Premuzic
+* [America, Among Many: Picture Books from Every Continent to Teach Your Kids to Feel at Home Everywhere](https://qz.com/quartzy/951290/picture-books-from-every-continent-to-teach-your-kids-to-feel-at-home-everywhere/) by Thu-Huong Ha
+* [Kill quarterly reporting? Some investors ring alarm bells](https://www.reuters.com/article/us-usa-sec-trump-investors-analysis/kill-quarterly-reporting-some-investors-ring-alarm-bells-idUSKBN1L2227?feedType=RSS&feedName=topNews&utm_source=twitter&utm_medium=Social) by Lewis Krauskopf
+* [Late to the driverless revolution](https://www.wsj.com/articles/late-to-the-driverless-revolution-1534520404?mod=e2tw) by Lawrence Burns
+* [Data protection federalism](https://tcf.org/content/report/data-protection-federalism/?session=1) by Jonathan Mayer
+* [Visionary investors should place their bets in the space race](https://moneyweek.com/493067/the-best-way-to-invest-in-the-space-race/) by Stephen Connolly
+* [New human rights principles on artificial intelligence](https://www.openglobalrights.org/new-human-rights-principles-on-artificial-intelligence/) by Sherif Elsayed-Ali
+* [How artificial intelligence is changing teaching](https://www.chronicle.com/article/How-Artificial-Intelligence-Is/244231?key=0bBzifsyPLcc_LIWrv4sjp6pUBXTtwGxxmHYgZfhPU6455AKzpzES6M9HrmU2vCvYU9MV2ZTaDVqbUZXczJ6Rm1HMXU3Q3hSVmVBcnVZVkdJZ3J6R2FsMFlZNA) by Beth McMurtrie 
+* [How kids learn to navigate the city (and the world), in five designs](https://www.citylab.com/design/2018/08/how-kids-learn-to-navigate-the-city-and-the-world-in-five-designs/565571/?utm_source=twitter&utm_term=2018-08-17T19%3A54%3A13&utm_content=edit-promo&utm_medium=social&utm_campaign=city-lab) by Amanda Kolson Hurley 
+* [Have fun at college, freshmen, but read this first](https://www.washingtonpost.com/news/grade-point/wp/2018/08/17/have-fun-at-college-freshmen-but-read-this-first/?noredirect=on&utm_term=.a43c5b52937a) by Jeffrey Selingo
+* [Enough ‘Do more with less.’ It’s time for colleges to find actual efficiencies](https://www.chronicle.com/article/Enough-Do-More-With/244279) by Scott Carlson
+* [Car 3.0? A robot with wheels](https://www.gsb.stanford.edu/insights/car-30-robot-wheels?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180818&linkId=55695094) by Blaire Briody
+* [These are the true job creators behind America's growing economy](https://www.inc.com/james-ledbetter/2018-inc5000-us-economic-growth-jobs.html?cid=sf01001) by James Ledbetter
+* [The financial crisis cost every American $70,000, fed study says](https://www.bloomberg.com/news/articles/2018-08-13/the-financial-crisis-cost-every-american-70-000-fed-study-says?utm_medium=social&utm_content=business&utm_campaign=socialflow-organic&utm_source=twitter&cmpid=socialflow-twitter-business) by Jeanna Smialek
+* [The homelessness problem we don't talk about](https://www.citylab.com/equity/2018/08/the-homelessness-problem-we-dont-talk-about/567481/?utm_content=edit-promo&utm_medium=social&utm_source=twitter&utm_campaign=city-lab&utm_term=2018-08-17T20%3A04%3A21) by Tanvi Misra
+* [Taming the tech monster](https://www.project-syndicate.org/onpoint/taming-the-tech-monster-by-guy-verhofstadt-2018-08?barrier=accesspaylog) by Guy Verhofstadt 
+* [View from the protests: Dhaka should go car-free](https://www.citylab.com/transportation/2018/08/view-from-the-protests-dhaka-should-go-car-free/567134/?utm_campaign=city-lab&utm_term=2018-08-09T17%3A16%3A02&utm_content=edit-promo&utm_source=twitter&utm_medium=social) by Debra Efroymson 
+* [Schools are using AI to track what students write on their computers](https://www.msn.com/en-us/news/technology/schools-are-using-ai-to-track-what-students-write-on-their-computers/ar-BBM7axU) by Simone Stolzoff
+* [The ethics of big data as a public good: which public? Whose good?](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5124068/) by Linnet Taylor
+* [What is your responsibility as a bystander to a colleague having problems?](https://www.chronicle.com/article/What-Is-Your-Responsibility-as/244287) by Allison Vaillancourt
+* [Marc Andreessen: “Take the Ego out of Ideas”](https://www.gsb.stanford.edu/insights/marc-andreessen-take-ego-out-ideas?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180822&linkId=55842346) by Ian Chipman
+* [Privatizing poverty: how the poor became an alien populationhttps://thebaffler.com/salvos/privatizing-poverty-phillips-fein) by Chioma Ebinama
+* [It’s come to this: A checkup with the pediatrician may soon include a prescription for play](http://www.latimes.com/science/sciencenow/la-sci-sn-children-playtime-health-20180820-story.html) by Melissa Healy
+* [Student debt is worse for women](https://www.chronicle.com/article/Student-Debt-Is-Worse-for/244145) by Julia Piper
+* [Daydreaming could be a sign of creativity and intelligence](https://www.weforum.org/agenda/2017/10/lost-in-your-own-thoughts-it-could-signal-creativity-and-intelligence) by Jason Maderer
+* [Gender, war and technology](https://geographicalimaginations.com/2018/08/02/gender-war-and-technology/) by Christiane Wilke
+* [Is democracy safe in the age of big data?](https://www.economist.com/open-future/2018/08/25/is-democracy-safe-in-the-age-of-big-data?fsrc=scn/tw/te/bl/ed/) by KNC
+* [Meet the Sheffield social enterprise using shipping containers to tackle the housing crisis](https://www.citymetric.com/fabric/meet-sheffield-social-enterprise-using-shipping-containers-tackle-housing-crisis-4144) by Thomas Barrett
+* [This Scottish cafe has built an entire village for homeless people](https://www.globalcitizen.org/en/content/scotland-social-bite-homelessness-village/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=55985721) by Lee Mannion
+* [China is leading in AI -- and American businesses should take note](https://www.inc.com/magazine/201809/amy-webb/china-artificial-intelligence.html?cid=sf01001) by Amy Webb
+* [We need software to help us slow down, not speed up](https://www.wired.com/story/software-to-help-us-slow-down-not-speed-up?mbid=social_twitter) by Clive Thompson
+* [Aristotle’s philosophy of friendship still matters today](https://medium.com/s/story/aristotles-timeless-advice-on-what-real-friendship-is-and-why-it-matters-c0878418343f) by Zat Rana
+* [Skim reading is the new normal. The effect on society is profound](https://www.theguardian.com/commentisfree/2018/aug/25/skim-reading-new-normal-maryanne-wolf) by Maryanne Wolf
+* [John McCain: why we must support human rights](https://www.nytimes.com/2017/05/08/opinion/john-mccain-rex-tillerson-human-rights.html?smid=tw-nytopinion&smtyp=cur) by John McCain
+* [How “Little Women” got big](https://www.newyorker.com/magazine/2018/08/27/how-little-women-got-big) by Joan Acocella
+* [Dignity and the displaced Rohingya in Bangladesh](https://www.odi.org/publications/11179-dignity-and-displaced-rohingya-bangladesh?utm_source=twitter&utm_medium=social%20media) by Kerrie Holloway & Lilianne Fan
+* [Virtual reality is not the escape you think it is](https://medium.com/s/greatescape/virtual-reality-is-not-the-escape-you-think-it-is-f14831dd3784) by Nate Goldman
+* [All career advice for women is a form of gaslighting](https://qz.com/work/1363399/all-career-advice-for-women-is-a-form-of-gaslighting/) by Ephrat Livni
+* [India's biometric database is creating a perfect surveillance state - and U.S. tech companies are on board](
+https://www.huffingtonpost.com/entry/india-aadhuar-tech-companies_us_5b7ebc53e4b0729515109fd0) by Paul Blumenthal & Gopal Sathe
+* [Democratic artificial intelligence will shape future technologies: Gartner](https://www.zdnet.com/article/democratic-artificial-intelligence-will-shape-future-technologies-gartner/) by Charlie Osborne
+* [The computational unconscious](http://www.boundary2.org/2018/08/beller/) by Jonathan Beller
+* [Generational differences at work. Myth or reality?](https://scienceforwork.com/blog/generational-differences/) by Macarena Soto Ferri
+* [How women got in on the civil rights act](https://www.newyorker.com/magazine/2014/07/21/sex-amendment?mbid=social_twitter) by Louis Menand
+* [Why the future is arriving faster than you think](https://singularityhub.com/2018/08/22/why-the-future-is-arriving-faster-than-you-think/?utm_source=Singularity+Hub+Newsletter&utm_campaign=f2908f13da-Hub_Daily_Newsletter&utm_medium=email&utm_term=0_f0cf60cdae-f2908f13da-58252949#sm.0001vxquz0muff9czrm2kkr1bs3n3) by Vanessa Bates Ramirez
+* [Can the drucker forum establish the human dimension of management?](https://www.forbes.com/sites/stevedenning/2018/04/01/can-the-drucker-forum-establish-the-human-dimension-of-management/?utm_content=75620269&utm_medium=social&utm_source=twitter#4c2b2d1a2c02) by Steve Denning
+* [AI is the future-but where the women?](https://www.wired.com/story/artificial-intelligence-researchers-gender-imbalance) by Tom Simonite
+* [Tech industry pursues a federal privacy law, on its own terms](https://www.nytimes.com/2018/08/26/technology/tech-industry-federal-privacy-law.html) by Cecelia Kang
+* [Revel in the joy of doing things you will never master](https://qz.com/quartzy/1368716/revel-in-the-joy-of-doing-things-you-will-never-master/) by Rosie Spinks
+* [Andrew Yang prepared to tell Americans ‘hard truths’ in run for president](http://www.thehawkeye.com/news/20180827/andrew-yang-prepared-to-tell-americans-hard-truths-in-run-for-president) by Elizabeth Meyer
+* [Using data to engage parents](http://smartbrief.com/original/2018/08/using-data-engage-parents) by Debbie Clark & Stephanie Williamson
+* [Designing the future of work](https://medium.com/google-design/designing-the-future-of-work-c84e9b3e63) by Sara Ortloff Khoury
+* [Why basic income is a mental health issue](https://www.vice.com/en_ca/article/a3akm4/why-basic-income-is-a-mental-health-issue?utm_source=vicetwitterus) by Johann Hari
+* [U.S. is denying passports to Americans along the border, throwing their citizenship into question](https://www.washingtonpost.com/world/the_americas/us-is-denying-passports-to-americans-along-the-border-throwing-their-citizenship-into-question/2018/08/29/1d630e84-a0da-11e8-a3dd-2a1991f075d5_story.html?noredirect=on&utm_term=.439f417eac28) by Kevin Sieff
+* [Single people aren't to blame for the loneliness epidemic](https://www.citylab.com/life/2018/08/single-people-arent-to-blame-for-the-loneliness-epidemic/568819/?utm_campaign=city-lab&utm_medium=social&utm_term=2018-08-29T19%3A52%3A03&utm_content=edit-promo&utm_source=twitter) Bella Depaulo
+* [Event Recap: How countries are preparing for the global AI race](https://www.datainnovation.org/2018/08/event-recap-house-countries-are-preparing-for-the-global-ai-race/) by Joshua New
+* [What other countries can learn from Singapore’s schools](https://www.economist.com/leaders/2018/08/30/what-other-countries-can-learn-from-singapores-schools?fsrc=scn/tw/te/bl/ed/whatothercountriescanlearnfromsingaporesschoolscopyingallowed) 
+* [The U.S. education system is under-performing and here's why](https://www.theedadvocate.org/u-s-education-system/) by Matthew Lynch
+* [California pushes forward bill that would require all corporate boards to include women](https://www.globalcitizen.org/en/content/california-approves-bill-mandating-women-in-boards/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=56288701) by Leah Rodriguez
+* [Will Robocars Kick Humans Off City Streets? Self-driving cars could encourage policies that end public access to America’s roads](https://www.theatlantic.com/technology/archive/2016/06/robocars-only/488129/?utm_campaign=the-atlantic&utm_content=5b8a470404d3013207cb3514_ta&utm_medium=social&utm_source=twitter) by Ian Bogost
+* [Sara Miller Llana finds a new vantage point to view shifts in global thinking](https://www.csmonitor.com/World/Americas/2018/0828/Sara-Miller-Llana-finds-a-new-vantage-point-to-view-shifts-in-global-thinking?utm_term=Autofeed&utm_campaign=Echobox&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1535785663) by Greg Fitzgerald
+* [Inside the self-serving world of wealthy do-gooders](https://brightthemag.com/winners-take-all-anand-giridharadas-philanthropists-wealthy-do-gooders-social-entrepreneurs-social-change-b8473b19a4e4) by Abigail Higgins
+* [India pushes back against tech 'colonization' by internet giants](https://www.nytimes.com/2018/08/31/technology/india-technology-american-giants.html?smtyp=cur&smid=tw-nytimesbusiness) by Vindu Goel
+* [This happiness course is the most popular class in Yale's history](https://www.weforum.org/agenda/2018/04/happiness-101-psychology-course-strikes-chord-with-yale-students?utm_source=Facebook%20Videos&utm_medium=Facebook%20Videos&utm_campaign=Facebook%20Video%20Blogs) by Angela Moore
+* [Big data is reshaping humanity, says Yuval Noah Harari](https://www.economist.com/books-and-arts/2018/09/01/big-data-is-reshaping-humanity-says-yuval-noah-harari)
+* [ADHD rates in the US almost doubled in the last two decades](https://qz.com/1376195/adhd-rates-in-the-us-almost-doubled-in-the-last-two-decades/) by Katherine Ellen Foley
+* [Big companies are investing in free college. Will their commitments last?](https://www.chronicle.com/article/Big-Companies-Are-Investing-in/244375/) by Goldie Blumenstyk 
+* [Informal trade is ubiquitous in Africa, but too often ignored](https://www.economist.com/finance-and-economics/2018/09/01/informal-trade-is-ubiquitous-in-africa-but-too-often-ignored?fsrc=scn/tw/te/bl/ed/informaltradeisubiquitousinafricabuttoooftenignoredtheriverbetween) 
+* [The tenuous relationship between technology and social innovation](https://ssir.org/podcasts/entry/tenuous_relationship_between_tech_and_social_innovation) Kelly Born, Arisha Hatch, & Rob Reich
+* [Combating fake news in India](https://ssir.org/articles/entry/combating_fake_news_in_india) by Priya Shanker 
+* [Mastering System Change](https://ssir.org/articles/entry/mastering_system_change) by Christian Seelos & Johanna Mair 
+* [Creating a higher standard of data use and protection](https://ssir.org/articles/entry/creating_a_higher_standard_of_data_use_and_protection?platform=hootsuite) by Ryan Baillargeon 
+* [We don’t need to “rethink college” — we need to rethink the arguments against it](https://www.salon.com/2018/09/01/we-do-not-need-to-rethink-college-we-need-to-rethink-the-arguments-against-it/) by Sophia A. McClennen 
+* [Why technology favors tyranny: Artificial intelligence could erase many practical advantages of democracy, and erode the ideals of liberty and equality. It will further concentrate power among a small elite if we don’t take steps to stop it](https://www.theatlantic.com/magazine/archive/2018/10/yuval-noah-harari-technology-tyranny/568330/) by Yuval Noah Harari
+* [How rising inequality has widened the justice gap](https://www.nytimes.com/2018/08/31/business/rising-inequality-widened-justice-gap.html?smid=tw-nytimesbusiness&smtyp=cur) by Robert Frank
+* [How word choice can cultivate optimisim and improve health](https://www.gsb.stanford.edu/insights/how-word-choice-can-cultivate-optimism-improve-health?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180901&linkId=56177192) by Martin Smith
+* [A relational view to leadership](https://medium.com/@EskoKilpi/a-relational-view-to-leadership-7c561c4b0720) by Esko Kilpi
+* [All Stories Are the Same: From Avatar to The Wizard of Oz, Aristotle to Shakespeare, there’s one clear form that dramatic storytelling has followed since its inception](https://www.theatlantic.com/entertainment/archive/2016/01/into-the-woods-excerpt/421566/?utm_campaign=the-atlantic&utm_content=5b8bc2b604d301771d0fc731_ta&utm_medium=social&utm_source=twitter) by John Yorke
+* [The simple truth behind reading 200 books a year](https://medium.com/s/story/the-simple-truth-behind-reading-200-books-a-year-1767cb03af20) by Charles Chu
+* [Why politicians have incentives to let outdated policies linger](https://www.gsb.stanford.edu/insights/why-politicians-have-incentives-let-outdated-policies-linger) by Sachin Waikar
+* [When disadvantaged students overlook elite colleges](https://www.theatlantic.com/education/archive/2018/04/when-disadvantaged-students-overlook-elite-colleges/558371/?utm_campaign=the-atlantic&utm_content=5b8c2c2d04d30166a7767c99_ta&utm_medium=social&utm_source=twitter) by Adam Harris
+* [The ax-wielding futurist swinging for a higher ed tech revolution](https://www.ozy.com/rising-stars/the-ax-wielding-futurist-swinging-for-a-higher-ed-tech-revolution/86909) by George Lorenzo
+* [Institute president Dan Porterfield on privilege and the power of networks](https://www.aspeninstitute.org/blog-posts/institute-president-dan-porterfield-on-privilege-and-the-power-of-networks/) by Nicole Corea
+* [Why every business will soon be a subscription business](https://www.gsb.stanford.edu/insights/why-every-business-will-soon-be-subscription-business?utm_source=Stanford+Business&utm_campaign=7486e2a98d-Stanford-Business-Issue-145-9-2-2018&utm_medium=email&utm_term=0_0b5214e34b-7486e2a98d-74101665&ct=t(Stanford-Business-Issue-145-9-2-2018) by Jenny Luna
 * [Here’s why you’re being kept in the dark about how your data is used](https://thenextweb.com/contributors/2018/08/11/heres-why-youre-being-kept-in-the-dark-about-how-your-data-is-used/) by Pavol Magic
 * [There's a virus in trumpland](https://www.washingtonpost.com/news/politics/wp/2018/08/03/theres-a-virus-in-trumpland/?utm_term=.96bded61fd18) by Philip Bump
 * [3 questions about AI that nontechnical employees should be able to answer](https://hbr.org/2018/08/3-questions-about-ai-that-nontechnical-employees-should-be-able-to-answer?utm_source=twitter&utm_campaign=hbr&utm_medium=social) by Emma Martinho-Truswell](
