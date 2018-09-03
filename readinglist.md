@@ -69,6 +69,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [How artificial intelligence is transforming the world](https://www.brookings.edu/research/how-artificial-intelligence-is-transforming-the-world/) by Darrell West & John Allen
+* [Silicon Valley employees increasingly push companies on ethics](https://www.csmonitor.com/Business/2018/0713/Silicon-Valley-employees-increasingly-push-companies-on-ethics) by Joseph Menn
 * [A call for long-term capitalism](https://consciouscompanymedia.com/the-new-economy/social-change/a-call-for-long-term-capitalism/) by Rand Stagen
 * [Rising U.S. consumer prices are eroding wage gains](https://www.wsj.com/articles/u-s-consumer-prices-rose-0-2-in-july-1533904402?mod=e2tw) by Josh Mitchell
 * [Why reining in ride hailing is so critical](https://www.citylab.com/transportation/2018/08/reining-in-ride-hailing-is-critical/567487/?utm_content=edit-promo&utm_campaign=city-lab&utm_medium=social&utm_term=2018-08-14T19%3A53%3A16&utm_source=twitter) Bruce Schaller 
