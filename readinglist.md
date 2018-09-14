@@ -97,7 +97,7 @@ layout: default
 * [The ethics of big data as a public good: which public? Whose good?](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5124068/) by Linnet Taylor
 * [What is your responsibility as a bystander to a colleague having problems?](https://www.chronicle.com/article/What-Is-Your-Responsibility-as/244287) by Allison Vaillancourt
 * [Marc Andreessen: “Take the Ego out of Ideas”](https://www.gsb.stanford.edu/insights/marc-andreessen-take-ego-out-ideas?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180822&linkId=55842346) by Ian Chipman
-* [Privatizing poverty: how the poor became an alien populationhttps://thebaffler.com/salvos/privatizing-poverty-phillips-fein) by Chioma Ebinama
+* [Privatizing poverty: how the poor became an alien population](https://thebaffler.com/salvos/privatizing-poverty-phillips-fein) by Chioma Ebinama
 * [It’s come to this: A checkup with the pediatrician may soon include a prescription for play](http://www.latimes.com/science/sciencenow/la-sci-sn-children-playtime-health-20180820-story.html) by Melissa Healy
 * [Student debt is worse for women](https://www.chronicle.com/article/Student-Debt-Is-Worse-for/244145) by Julia Piper
 * [Daydreaming could be a sign of creativity and intelligence](https://www.weforum.org/agenda/2017/10/lost-in-your-own-thoughts-it-could-signal-creativity-and-intelligence) by Jason Maderer
