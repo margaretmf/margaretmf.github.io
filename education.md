@@ -35,8 +35,6 @@ layout: default
 * Audited [Go Agile with Jira](https://training.atlassian.com/course/go-agile-with-jira-cloud)
 * Audited [Learn Jira Basics](https://training.atlassian.com/course/learn-jira-basics-cloud)
 
-### Continuing Education - Coursera Courses Auditing
-
 ### Continuing Education - Completed Classes
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Technical Product Management, General Assembly](https://generalassemb.ly/)
