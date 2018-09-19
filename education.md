@@ -47,11 +47,9 @@ layout: default
 * [System Leadership, Stanford University Social Innovation Review](https://ssir.org/webinars/entry/the_dawn_of_system_leadership?utm_source=Event_Email&utm_campaign=SSIR_Live&utm_medium=Email)
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
 * [Darden Pop-up Business Case](https://apply.darden.virginia.edu/register/?id=b6129b78-5924-4de1-b181-22ed4c2636af)
-
+* [Project Management Essentials](https://generalassemb.ly/)
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
-* [Project Management Essentials](https://generalassemb.ly/)
-* [The Future of Talent in Government](https://generalassemb.ly/)
 * [Hindi Language, International Language Institute](http://ilidc.com)
 * [Business Social Responsibility Conference](https://bsr18.org)
 
