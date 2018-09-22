@@ -15,6 +15,7 @@ layout: default
 * [Metric Power](http://www.palgrave.com/gb/book/9781137556486) by David Beer
 * [Collaborative Intelligence: Thinking with People Who Think Differently](https://www.amazon.com/Collaborative-Intelligence-Thinking-People-Differently/dp/0812994906/ref=pd_sim_14_1?_encoding=UTF8&pd_rd_i=0812994906&pd_rd_r=9MBSC15HZAFY5HK973XY&pd_rd_w=aCpgi&pd_rd_wg=8ajeg&psc=1&refRID=9MBSC15HZAFY5HK973XY) by Dawna Markova
 * [Education Forward: Moving Schools into the Future](https://www.amazon.com/Education-Forward-Moving-Schools-Future/dp/190997952X) by David Price
+* [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
 * [The Fourth Industrial Revolution](https://www.amazon.com/Fourth-Industrial-Revolution-Klaus-Schwab/dp/0241300754) by Klaus Schwab 
 * [The Second Machine Age: Work, Progress, and Prosperity in Time of Brilliant Technologies](https://www.amazon.com/Second-Machine-Age-Prosperity-Technologies/dp/0393350649/ref=pd_sim_14_2?_encoding=UTF8&pd_rd_i=0393350649&pd_rd_r=EBBM9HBRBQ5JWG3DQ5K7&pd_rd_w=lLJep&pd_rd_wg=bSvxQ&psc=1&refRID=EBBM9HBRBQ5JWG3DQ5K7) by Erik Brynjolfsson
 * [The Question Concerning Technology, and Other Essays](https://www.amazon.com/Question-Concerning-Technology-Perennial-Thought/dp/0062290703/ref=asap_bc?ie=UTF8) by Martin Heidegger
@@ -34,7 +35,6 @@ layout: default
 * [The Communist Manifesto](https://www.amazon.com/Communist-Manifesto-Karl-Marx/dp/0717802418) by Karl Marx
 * [The Republic](https://www.amazon.com/Republic-Plato/dp/1613821212) by Plato
 * [The Souls of Black Folk](https://www.amazon.com/Souls-Black-Dover-Thrift-Editions/dp/0486280411) by W. E. B. Du Bois
-* [Narrative of the Life of Frederick Douglass](https://www.amazon.com/Narrative-Life-Frederick-Douglass/dp/0486284999) by Frederick Douglass
 * [Democracy and Education](https://www.amazon.com/Democracy-Education-John-Dewey/dp/0684836319) by John Dewey
 * [When: The Scientific Secrets of Perfect Timing](https://www.amazon.com/When-Scientific-Secrets-Perfect-Timing/dp/0735210624) by Daniel Pink
 * [The Culture Code: The Secrets of Highly Successful Groups](https://www.amazon.com/Culture-Code-Secrets-Highly-Successful/dp/0804176981/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=W8NGDT4BZR4KMR5XSE6P) by Daniel Coyle
@@ -50,6 +50,8 @@ layout: default
 
 #### Completed
 * [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
+* [Narrative of the Life of Frederick Douglass](https://www.amazon.com/Narrative-Life-Frederick-Douglass/dp/0486284999) by Frederick Douglass
+* [Wait, What? And Life's Other Essential Questions](https://www.amazon.com/Wait-What-Lifes-Essential-Questions/dp/0062664573) by James Ryan
 * [Abundance: The Future is Better Than What You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/145161683X/ref=as_li_ss_tl?ie=UTF8&qid=1517513878&sr=8-1&keywords=abundance&linkCode=sl1&tag=peterdiamandi-20&linkId=45517595c6deae92be80cc7d9ae8301d) by Peter Diamandis
 * [Missed Information: Better Information for Building a Wealthier, More Sustainable Future](https://www.amazon.com/Missed-Information-Building-Wealthier-Sustainable/dp/0262034921) by David Sarokin
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
