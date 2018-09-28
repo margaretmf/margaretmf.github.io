@@ -73,6 +73,21 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Redesigning management education for the long term](https://ssir.org/articles/entry/redesigning_management_education_for_the_long_term?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title)
+* [Americans aren't practicing democracy anymore](https://www.theatlantic.com/magazine/archive/2018/10/losing-the-democratic-habit/568336/?utm_campaign=the-atlantic&utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2018-09-24T15%3A09%3A19) by Yoni Applebaum
+* [A warning from Europe: the worst is yet to come](https://www.theatlantic.com/magazine/archive/2018/10/poland-polarization/568324/) by Anne Applebaum
+* [Salesforce just launched a $50 million impact investing fund](https://www.fastcompany.com/40476361/salesforce-just-launched-a-50-million-impact-investing-fund) by Ben Paynter
+* [What's left for congress to ask big tech firms? A lot](https://www.wired.com/story/congress-privacy-hearing-big-tech-questions/?mbid=social_twitter) by Issie Lapowsky
+* [Almost everyone in India is borrowing someone else’s login to stream movies and TV](https://qz.com/india/1395088/indians-love-sharing-amazon-prime-netflix-hotstar-subscriptions/) by Ananya Bhattacharya
+* [What’s next to deliver the SDG agenda?](https://www.weforum.org/events/sustainable-development-impact-summit/sessions/a0W0X00000D068GUAR) WEF
+* [In the future, you’ll never have to leave your neighborhood](https://qz.com/1375277/in-the-future-youll-never-have-to-leave-your-neighborhood/) by Layla McCay
+* [An intergalactic tale populated by women](https://www.theatlantic.com/entertainment/archive/2018/09/an-intergalactic-tale-populated-by-women/570133/?utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2018-09-24T18%3A01%3A59&utm_medium=social&utm_source=twitter) by Rown Hisayo Buchanan
+* [How to create a syllabus](https://www.chronicle.com/interactives/advice-syllabus)
+* [Traditional mentoring can’t keep up today’s pace of change. Here’s how to rethink it](https://qz.com/work/1379891/traditional-mentoring-cant-keep-up-todays-pace-of-change-heres-how-to-rethink-it/?sr_source=twitter&sr_lift=true) by JP Morgan
+* [What’s the value of labor when it’s a labor of love?](https://www.gsb.stanford.edu/insights/whats-value-labor-when-its-labor-love?utm_source=TWITTER&utm_medium=Social&utm_campaign=Insights&Date=20180924&linkId=57192134) by Katia Savchuk
+* [Private-equity boys' clubs finally realize they need women on boards](https://www.thestreet.com/investing/private-equity-firms-finally-realize-they-need-more-women-on-boards-14670125) by Bradley Keoun
+* [Harvard and MIT say A.I. isn't going to steal your job, but your colleagues who embrace it will](https://www.inc.com/adam-robinson/harvard-mit-say-ai-isnt-going-to-steal-your-job-but-your-colleagues-who-embrace-it-will.html) by Adam Robinson
+* [What Neil deGrasse Tyson thinks higher ed gets wrong](https://www.chronicle.com/article/What-Neil-deGrasse-Tyson/244522?key=HB0mPh-sl0T6nAu1BZmxCzZ990nnkwzhgqvb-Z3eWq0-mAxPd31LaBpPR_qaao7zZ3hITm54dDFjUFlGdExXZVpZWGdDa2UyeWZkMllyNHd3d3lKZm11cklsWQ) by Vimal Patel
 * [Martin Luther King Jr. warned us of the dangers of job automation](https://medium.com/basic-income/martin-luther-king-jr-warned-us-of-the-dangers-of-jobs-automation-10-quotes-5c51931d4a91) by Matt Orfalea
 * [Spotify and ancestry can use your real DNA to tell your 'musical DNA'](https://qz.com/quartzy/1399279/spotify-can-use-your-ancestry-dna-test-to-tell-your-musical-dna/) by Aisha Hassan
 * [The fourth power?](https://wolfgangstreeck.com/2018/05/09/the-fourth-power/) by Wolfgang Streeck
