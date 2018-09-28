@@ -7,7 +7,6 @@ layout: default
 ### Books
 #### In Progress
 * [The New Education: How to Revolutionize the University to Prepare Students for a World In Flux](https://www.amazon.com/New-Education-Revolutionize-University-Students/dp/0465079725/ref=sr_1_1_twi_har_2?ie=UTF8&qid=1506440926&sr=8-1&keywords=The+New+Education) by Cathy Davidson
-* [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
@@ -49,6 +48,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [What Neil deGrasse Tyson thinks higher ed gets wrong](https://www.chronicle.com/article/What-Neil-deGrasse-Tyson/244522?key=HB0mPh-sl0T6nAu1BZmxCzZ990nnkwzhgqvb-Z3eWq0-mAxPd31LaBpPR_qaao7zZ3hITm54dDFjUFlGdExXZVpZWGdDa2UyeWZkMllyNHd3d3lKZm11cklsWQ) by Vimal Patel
 * [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Narrative of the Life of Frederick Douglass](https://www.amazon.com/Narrative-Life-Frederick-Douglass/dp/0486284999) by Frederick Douglass
