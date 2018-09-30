@@ -6,6 +6,8 @@ layout: default
 
 ### Books
 #### In Progress
+* [Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life](https://www.amazon.com/Palaces-People-Infrastructure-Inequality-Polarization/dp/1524761168) by Eric Klinenberg
+* [Temp: How American Work, American Business, and the American Dream Became Temproary
 * [The New Education: How to Revolutionize the University to Prepare Students for a World In Flux](https://www.amazon.com/New-Education-Revolutionize-University-Students/dp/0465079725/ref=sr_1_1_twi_har_2?ie=UTF8&qid=1506440926&sr=8-1&keywords=The+New+Education) by Cathy Davidson
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
@@ -35,7 +37,6 @@ layout: default
 * [The Republic](https://www.amazon.com/Republic-Plato/dp/1613821212) by Plato
 * [The Souls of Black Folk](https://www.amazon.com/Souls-Black-Dover-Thrift-Editions/dp/0486280411) by W. E. B. Du Bois
 * [Democracy and Education](https://www.amazon.com/Democracy-Education-John-Dewey/dp/0684836319) by John Dewey
-* [When: The Scientific Secrets of Perfect Timing](https://www.amazon.com/When-Scientific-Secrets-Perfect-Timing/dp/0735210624) by Daniel Pink
 * [The Culture Code: The Secrets of Highly Successful Groups](https://www.amazon.com/Culture-Code-Secrets-Highly-Successful/dp/0804176981/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=W8NGDT4BZR4KMR5XSE6P) by Daniel Coyle
 * [It's Even Worse Than You Think: What the Trump Administration Is Doing to America](https://www.amazon.com/Even-Worse-Than-Think-Administration/dp/1501174169/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=K4KTZ753QXK2CTRJSH2H) by David Johnson
 * [Skin in the Game: Hidden Asymmetries in Daily Life](https://www.amazon.com/Skin-Game-Hidden-Asymmetries-Daily/dp/042528462X) by Nassim Taleb
