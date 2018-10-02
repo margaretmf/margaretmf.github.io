@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress
+* [The Big Disruption: A Totally Fictional But Essentially True Silicon Valley Story](https://medium.com/s/the-big-disruption/the-big-disruption-36fbed0268cf?_branch_match_id=575809515606076912) by Jessica Powell
 * [Temp: How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary-ebook/dp/B077RHV4V6) by Louis Hyman
 * [The New Education: How to Revolutionize the University to Prepare Students for a World In Flux](https://www.amazon.com/New-Education-Revolutionize-University-Students/dp/0465079725/ref=sr_1_1_twi_har_2?ie=UTF8&qid=1506440926&sr=8-1&keywords=The+New+Education) by Cathy Davidson
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
@@ -48,6 +49,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [Google’s former PR boss Jessica Powell wrote a satirical novel about tech and published it all on Medium](https://www.recode.net/2018/10/2/17926154/jessica-powell-big-disruption-novel-medium-book-google-pr-kara-swisher-recode-decode-podcast) by Eric Johnson
 * [Why I left my big fancy tech job and wrote a book](https://medium.com/s/the-big-disruption/why-i-left-my-big-fancy-tech-job-and-wrote-a-book-b64c40484774) by Jessica Powell
 * [Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life](https://www.amazon.com/Palaces-People-Infrastructure-Inequality-Polarization/dp/1524761168) by Eric Klinenberg
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
