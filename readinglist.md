@@ -48,6 +48,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [Why I left my big fancy tech job and wrote a book](https://medium.com/s/the-big-disruption/why-i-left-my-big-fancy-tech-job-and-wrote-a-book-b64c40484774) by Jessica Powell
 * [Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life](https://www.amazon.com/Palaces-People-Infrastructure-Inequality-Polarization/dp/1524761168) by Eric Klinenberg
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [What Neil deGrasse Tyson thinks higher ed gets wrong](https://www.chronicle.com/article/What-Neil-deGrasse-Tyson/244522?key=HB0mPh-sl0T6nAu1BZmxCzZ990nnkwzhgqvb-Z3eWq0-mAxPd31LaBpPR_qaao7zZ3hITm54dDFjUFlGdExXZVpZWGdDa2UyeWZkMllyNHd3d3lKZm11cklsWQ) by Vimal Patel
