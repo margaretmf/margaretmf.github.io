@@ -77,6 +77,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [How this startup is disrupting preschool and turning teachers into entrepreneurs](https://www.forbes.com/sites/robynshulman/2017/06/20/how-this-startup-is-disrupting-preschool-and-turning-teachers-into-entrepreneurs/#7cee6313fcba) by Robyn Shulman
+* [Wonderschool gets $2.1M to bring its early childhood programs to New York City](https://techcrunch.com/2018/01/08/wonderschool-gets-2-1m-to-bring-its-early-childhood-programs-to-new-york-city/) by Catherine Shu
 * [How the internet can give us all superpowers](https://www.wired.com/story/wired25-kevin-kelly-internet-superpowers-great-upwelling/?mbid=BottomRelatedStories_WIRED25) by Kevin Kelly
 * [Redesigning management education for the long term](https://ssir.org/articles/entry/redesigning_management_education_for_the_long_term?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Rachelle Sampson & Witold Henisz
 * [Americans aren't practicing democracy anymore](https://www.theatlantic.com/magazine/archive/2018/10/losing-the-democratic-habit/568336/?utm_campaign=the-atlantic&utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2018-09-24T15%3A09%3A19) by Yoni Applebaum
