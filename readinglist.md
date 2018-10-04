@@ -77,6 +77,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [How the internet can give us all superpowers](https://www.wired.com/story/wired25-kevin-kelly-internet-superpowers-great-upwelling/?mbid=BottomRelatedStories_WIRED25) by Kevin Kelly
 * [Redesigning management education for the long term](https://ssir.org/articles/entry/redesigning_management_education_for_the_long_term?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Rachelle Sampson & Witold Henisz
 * [Americans aren't practicing democracy anymore](https://www.theatlantic.com/magazine/archive/2018/10/losing-the-democratic-habit/568336/?utm_campaign=the-atlantic&utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2018-09-24T15%3A09%3A19) by Yoni Applebaum
 * [A warning from Europe: the worst is yet to come](https://www.theatlantic.com/magazine/archive/2018/10/poland-polarization/568324/) by Anne Applebaum
