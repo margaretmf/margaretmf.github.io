@@ -56,11 +56,10 @@ layout: default
 
 
 
-<img class="profile-picture" src="religion-sf.jpg"
+<img class="profile-picutre" src="religion-sf.jpg">
 
 
-
-<img class="profile-picture" src="chinatown-red-sf.jpg"
+<img class="profile-picutre" src="chinatown-red-sf.jpg">
 
 
 
