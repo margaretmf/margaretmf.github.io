@@ -40,18 +40,6 @@ layout: default
 
 
 
-<img class="profile-picutre" src="art-sf.jpg">
-
-
-
-<img class="profile-picutre" src="religion-sf.jpg">
-
-
-
-<img class="profile-picutre" src="chinatown-red-sf.jpg">
-
-
-
 <img class="profile-picture" src="vegetables.jpg">
 
 
