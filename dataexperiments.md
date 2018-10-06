@@ -122,7 +122,7 @@ Types of learning depend on the type of data being predicted and whether there a
 <br>
 
 
-### What have I been tweeting? 
+### What Have I Been Tweeting? 
 I've been [tweeting](https://twitter.com/megmfurr) since February 2015 when I was in [UVA's Data Science Institute](https://dsi.virginia.edu). Recently, I've wanted to [analyze my twitter data in Python](https://github.com/margaretmf/Tweets/blob/master/%40megmfurr_tweets.ipynb).
 
 Today, I started out by collecting and storing my twitter data.
@@ -163,7 +163,7 @@ With all 2,546 datapoints, I have begun to answer some questions:
 <br>
 
 
-### Where are the metro stations? 
+### Where Are the Metro Stations?
 With [Compass](http://compassprobono.org), I'm working on another strategic alignment project to support an adjustment in [Homeless Children's Playtime Project's](https://www.playtimeproject.org) services, operations, and locations, as they move to new sites. One way I'm supporting the project is by collecting and analyzing data in a way that informs the organiation as the nonprofit make adjustments. 
 
 Today,to support Homeless Children's Playtime Project, I started collecting data on the locations of homeless shelters, homeless services, metro stations, and bus stations. Most of the data I was collecting comes from [DC Open Data](http://opendata.dc.gov) but metro data came from [Ben Balter's dc-maps git repo](https://github.com/benbalter/dc-maps), so instead of just downloading the file with Lat and Lon, I enjoyed working on manipulating some of the data.
