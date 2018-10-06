@@ -48,6 +48,22 @@ layout: default
 
 
 
+<img class="profile-picture" src="apple-sf.jpg">
+
+
+
+<img class="profile-picutre" src="art-sf.jpg">
+
+
+
+<img class="profile-picture" src="religion-sf.jpg"
+
+
+
+<img class="profile-picture" src="chinatown-red-sf.jpg"
+
+
+
 <b>
 
 <b>
