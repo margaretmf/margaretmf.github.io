@@ -77,6 +77,51 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [No, A.I. won’t solve the fake news problem](https://www.nytimes.com/2018/10/20/opinion/sunday/ai-fake-news-disinformation-campaigns.html) by Gary Marcus & Ernest Davis
+* [When Americans avoid ‘God Talk’](https://www.nytimes.com/2018/10/21/opinion/letters/god-christianity-public-life.html)
+* [Looking for the perfect job after graduation? Don’t, says Mark Cuban](https://qz.com/work/1431153/mark-cubans-advice-on-getting-the-perfect-job-after-graduation/) by Matthew De Silva
+* [Tech suffers from lack of humanities, says Mozilla head](https://www.theguardian.com/technology/2018/oct/12/tech-humanities-misinformation-philosophy-psychology-graduates-mozilla-head-mitchell-baker?CMP=share_btn_fb&fbclid=IwAR372SIkGf0XCVOj1_LXPHMC-9yA5eqhsuvbQILRk959BxH5uvZME5I4fPg) by Alex Hern
+* [Automation is the key to good government](https://www.datainnovation.org/2018/10/automation-is-the-key-to-good-government/) by Joshua New
+* [Let’s agree not to kill one another](https://www.nytimes.com/2018/10/20/opinion/sunday/lets-agree-not-to-kill-one-another.html?smid=tw-nytimes&smtyp=cur) by Bill McKibben
+* [To prevent loneliness, start in the classroom](https://www.theatlantic.com/education/archive/2018/10/loneliness-prevention-schools/573280/?utm_content=edit-promo&utm_medium=social&utm_term=2018-10-17T18%3A12%3A56&utm_campaign=the-atlantic&utm_source=twitter) by Ashley Fetters
+* [Child care's impact on women's opportunities](https://www.wsj.com/articles/child-cares-impact-on-womens-opportunities-1540127103?mod=e2tw) by Rachel Feintzeig
+* [6 unbelievable things that girls have been traded for in child marriage cases](https://www.globalcitizen.org/en/content/things-girls-have-been-traded-for/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=58444194) by Jackie Marchildon
+* [The gestating superorganism riding the developmental waves of consciousness whose eventual existence will radically redesign the world](https://medium.com/@maxmarmer/the-gestating-superorganism-riding-the-developmental-waves-of-consciousness-whose-eventual-f4ec08df4daa?ct=t(New_Writing_on_MaxMarmer_com10_21_2017_COPY_01)) by Max Marmer
+* [The poison on facebook and twitter is still spreading](https://www.nytimes.com/2018/10/19/opinion/facebook-twitter-journalism-misinformation.html?smid=tw-nytimes&smtyp=cur) by The NYT Editorial Board
+* [Gandhi for the post-truth age](https://www.newyorker.com/magazine/2018/10/22/gandhi-for-the-post-truth-age) by Pankaj Mishra
+* [Is Trump destroying the world order?](https://www.nytimes.com/2018/10/18/opinion/the-argument-jamal-khashoggi-mbs-saudi-arabia-trump-foreign-policy.html) by Tom Friedman
+* [Stephen hawking believed time travel was more likely than the existence of God](https://www.forbes.com/sites/ericmack/2018/10/16/stephen-hawking-believed-time-travel-was-more-likely-than-the-existence-of-god/?utm_source=TWITTER&utm_medium=social&utm_term=Dottie%2F#ab080ec5679f) by Eric Mack
+* [Why combatting fake news requires people and technology — working together](https://medium.com/trust-media-and-democracy/why-combatting-fake-news-requires-people-and-technology-working-together-7ca8266eb800) by Sam Gill
+* [What would happen if everyone truly believed everything is one?](https://blogs.scientificamerican.com/beautiful-minds/what-would-happen-if-everyone-truly-believed-everything-is-one/) by Scott Barry Kaufman
+* [Why do all my friends want to kill themselves?](https://medium.com/s/story/why-do-all-my-friends-want-to-kill-themselves-cd0f21609ee6) by Michael McBride
+* [Stop saying privacy is dead](https://medium.com/s/story/stop-saying-privacy-is-dead-513dda573071) by Evan Selinger
+* [GPA disincentives academic exploration](http://www.cavalierdaily.com/article/2018/10/wilkins-gpa-disincentives-academic-exploration) by Jack Wilkins
+* [Conflict exhaustion or democracy renaissance? The age of in-your-face activism](https://www.csmonitor.com/USA/Politics/2018/1010/Conflict-exhaustion-or-democracy-renaissance-The-age-of-in-your-face-activism) by Jessica Mendoza
+* [Automation may take our jobs, but personal data will save our paychecks](https://qz.com/1383656/automation-may-take-our-jobs-but-personal-data-will-save-our-paychecks/) by John Havens
+* [Automation will force us to realize that we are not defined by what we do](https://qz.com/1383648/automation-will-remind-us-that-we-are-not-defined-by-what-we-do/) by Kai-Fu Lee
+* [Men have trouble speaking up at work, too](https://qz.com/work/1414226/survey-nearly-as-many-men-as-women-fear-speaking-out-at-work/) by Lila MacLellan
+* [What the degree really means](https://www.chronicle.com/article/What-the-Degree-Really-Means/244747) by Scott Carlson
+* [H.R. teams are becoming America’s policymakers](https://medium.com/s/story/from-wage-inequality-to-mental-health-how-hr-teams-are-becoming-americas-hidden-policymakers-6956907658b1) by Carine Carmy
+* [Innovating inequality](https://www.wpusa.org/research/innovating-inequality/)
+* [Smart banknotes will be the cash of the future](https://qz.com/1381266/smart-banknotes-will-be-the-cash-of-the-future/) by Ignacio Mas
+* [What four past US Presidents can teach us about leading in turbulent times](https://www.weforum.org/agenda/2018/10/leadership-in-the-storm-how-four-u-s-presidents-handled-turmoil) by Knowledge@Wharton
+* [Major climate report describes a strong risk of crisis as early as 2040](https://www.nytimes.com/2018/10/07/climate/ipcc-climate-report-2040.html) by Coral Davenport
+* [Culture shift: What’s behind a decline in drinking worldwide](https://www.csmonitor.com/World/Americas/2018/1003/Culture-shift-What-s-behind-a-decline-in-drinking-worldwide?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1538694348) by Sara Miller Llana
+* [China makes a big play in Silicon Valley](https://www.npr.org/2018/10/04/654339389/china-series-us?live=1&utm_source=twitter.com&utm_medium=social&utm_campaign=npr&utm_term=nprnews&utm_content=202807) by Jackie Northam
+* [Estranged in America: Both sides feel lost and left out](https://www.nytimes.com/2018/10/04/upshot/estranged-america-trump-polarization.html) by Emily Badger
+* [Why we need less elite philanthropy and more democracy](https://www.wired.com/story/wired25-jennifer-pahlka-anand-giridharadas-philanthropy-democracy/?mbid=social_twitter) by Jennifer Pahlka
+* [There’s no Google Maps for self-driving cars, so this startup is building it](https://www.technologyreview.com/s/612202/theres-no-google-maps-for-self-driving-cars-so-this-startup-is-building-it/) by Elizabeth Woyke
+* [What Nate Silver's worried about](https://slate.com/news-and-politics/2018/10/nate-silver-interview-2018-midterms-polling.html) by Isaac Chotiner
+* [Anthony kennedy says he’s worried about the “death and decline of democracy.” That’s rich.](https://slate.com/news-and-politics/2018/10/anthony-kennedy-brett-kavanaugh-democracy-death.html) by Jamelle Bouie
+* [Children’s allowances in a new form: debit cards linked to parents’ phones](https://www.nytimes.com/2018/10/05/your-money/childrens-allowances-debit-cards-parents.html?smtyp=cur&smid=tw-nytimesbusiness) by Ann Carrns
+* [Two women and the protest against Brett Kavanaugh](https://www.theatlantic.com/politics/archive/2018/10/women-opposed-kavanaugh-rallied-outside-capitol/572362/?utm_source=twb) by Rachael Allen
+* [How to quit facebook for good, from 10 people who have](https://medium.com/s/story/how-to-quit-facebook-for-good-from-10-people-who-have-76658c8b6ed8) by Allie Volpe
+* [Uber is offering free rides to the polls for the 2018 US midterm elections](https://qz.com/1413868/uber-is-offering-free-rides-to-vote-in-the-2018-midterm-elections/) by Alison Griswold
+* [Old unicorn, new tricks: Airbnb has a sky-high valuation. Here's its audacious plan to earn it](https://www.forbes.com/sites/bizcarson/2018/10/03/old-unicorn-new-tricks-airbnb-has-a-sky-high-valuation-heres-its-audacious-plan-to-earn-it/?utm_source=TWITTER&utm_medium=social&utm_content=1816335090&utm_campaign=sprinklrForbesTechTwitter#4feaf4d56fa3) by Biz Carson
+* [A new kind of economy—An interview with Andrew Yang](https://quillette.com/2018/10/06/a-new-kind-of-economy-an-interview-with-andrew-yang/) by Peter Clarke
+* [American democracy is fracturing. Libraries say they know how to help](https://qz.com/1401665/can-libraries-save-america/) by Jenny Anderson
+* [Does the use of data threaten our democracy?](https://ourdataourselves.tacticaltech.org/posts/data-and-democracy-report/) by Stephanie Hankey, Julianne Kerr Morrison, & Ravi Naik
+* [A rare flower that blooms every 12 years is sweeping the hills in southern India](https://qz.com/india/1412965/pictures-keralas-rare-neelakurinji-flowers-bloom-after-floods/) by Maria Thomas
 * [The currency of the future is personal data](https://qz.com/1381355/the-currency-of-the-future-is-personal-data/) by Amber Baldet
 * [Big-city capitalism buys our way back to the quiet rural life](https://qz.com/1381132/big-city-capitalism-buys-our-way-back-to-the-quiet-rural-life/) by Vinay Gupta
 * [Silicon valley is investing $19 million in space radar](https://qz.com/1403230/a-space-radar-maker-just-raised-20-million/) by Tim Fernholz
