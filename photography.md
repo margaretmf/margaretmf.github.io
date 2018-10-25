@@ -52,15 +52,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="redwood-tree.jpg"
+<img class="profile-picture" src="redwood-tree.jpg">
 
 
 
-<img class="profile-picture" src="blankets.jpg"
+<img class="profile-picture" src="blankets.jpg">
 
 
 
-<img class="profile-picture" src="data-work.jpg"
+<img class="profile-picture" src="datakind-work.jpg">
 
 
 
