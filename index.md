@@ -19,15 +19,15 @@ During my free time, one can find me running, reading, dancing, and preparing fo
 
 ## Skills
 
-Product Management: strategic alignment, requirements gatherment, interviewing, report writing, technical writing, user story writing, knowledge management, Trello, Jira, A/B testing; familiar with project management, UX design
+Project and Product Management: requirements and use case analysis, stakeholder analysis, strategic alignment, data management QA process management, systems analysis, technical product prototyping, interviewing, report writing, technical writing, user story writing, knowledge management, Trello, Jira, A/B testing; familiar with UX research
 
-Data Analysis: data visualization, data storytelling, hypothesis testing, principal component analysis and dimensionality reduction, regression analysis, cluster analysis, classifcation, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
+Data Science: data visualization, data storytelling, hypothesis testing, principal component analysis and dimensionality reduction, regression analysis, cluster analysis, classifcation, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
 
 Software and Programming Languages: R (primary), Python (want to be primary), SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github; familiar with Tableau, MapReduce, Java, AWS, SAS, Ruby on Rails
 
 Soft: cross-functional teamwork, international teamwork; familiar with Spanish language and gaining exposure to India
 
-Training: ISO 9001 Quality Management Systems
+Training: ISO 9001 Quality Management Systems, SCRUMstudy Scrum Master
 
 <br>
 
