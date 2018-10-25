@@ -64,6 +64,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="norfolk.jpg">
+
+
+
 <b>
 
 <b>
