@@ -48,9 +48,8 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [The Future of the Professions: How Technology Will Transform the Work of Human Experts](https://www.amazon.com/future-professions-Books/s?k=the+future+of+the+professions&rh=n%3A283155) by Richard Susskind & David Susskind
 * [The Big Disruption: A Totally Fictional But Essentially True Silicon Valley Story](https://medium.com/s/the-big-disruption/the-big-disruption-36fbed0268cf?_branch_match_id=575809515606076912) by Jessica Powell
-* [Google’s former PR boss Jessica Powell wrote a satirical novel about tech and published it all on Medium](https://www.recode.net/2018/10/2/17926154/jessica-powell-big-disruption-novel-medium-book-google-pr-kara-swisher-recode-decode-podcast) by Eric Johnson
-* [Why I left my big fancy tech job and wrote a book](https://medium.com/s/the-big-disruption/why-i-left-my-big-fancy-tech-job-and-wrote-a-book-b64c40484774) by Jessica Powell
 * [Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life](https://www.amazon.com/Palaces-People-Infrastructure-Inequality-Polarization/dp/1524761168) by Eric Klinenberg
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
 * [What Neil deGrasse Tyson thinks higher ed gets wrong](https://www.chronicle.com/article/What-Neil-deGrasse-Tyson/244522?key=HB0mPh-sl0T6nAu1BZmxCzZ990nnkwzhgqvb-Z3eWq0-mAxPd31LaBpPR_qaao7zZ3hITm54dDFjUFlGdExXZVpZWGdDa2UyeWZkMllyNHd3d3lKZm11cklsWQ) by Vimal Patel
@@ -77,6 +76,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Google’s former PR boss Jessica Powell wrote a satirical novel about tech and published it all on Medium](https://www.recode.net/2018/10/2/17926154/jessica-powell-big-disruption-novel-medium-book-google-pr-kara-swisher-recode-decode-podcast) by Eric Johnson
+* [Why I left my big fancy tech job and wrote a book](https://medium.com/s/the-big-disruption/why-i-left-my-big-fancy-tech-job-and-wrote-a-book-b64c40484774) by Jessica Powell
 * [No, A.I. won’t solve the fake news problem](https://www.nytimes.com/2018/10/20/opinion/sunday/ai-fake-news-disinformation-campaigns.html) by Gary Marcus & Ernest Davis
 * [When Americans avoid ‘God Talk’](https://www.nytimes.com/2018/10/21/opinion/letters/god-christianity-public-life.html)
 * [Looking for the perfect job after graduation? Don’t, says Mark Cuban](https://qz.com/work/1431153/mark-cubans-advice-on-getting-the-perfect-job-after-graduation/) by Matthew De Silva
