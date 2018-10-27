@@ -76,6 +76,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Wells fargo pledges billion in lending and philanthropy to help revitalize Washington, DC, neighborhoods](https://www.valdostadailytimes.com/news/business/wells-fargo-pledges-billion-in-lending-and-philanthropy-to-help/article_d35b742a-982c-5132-b9eb-db395e665324.html) by Wells Fargo
 * [Google’s former PR boss Jessica Powell wrote a satirical novel about tech and published it all on Medium](https://www.recode.net/2018/10/2/17926154/jessica-powell-big-disruption-novel-medium-book-google-pr-kara-swisher-recode-decode-podcast) by Eric Johnson
 * [Why I left my big fancy tech job and wrote a book](https://medium.com/s/the-big-disruption/why-i-left-my-big-fancy-tech-job-and-wrote-a-book-b64c40484774) by Jessica Powell
 * [No, A.I. won’t solve the fake news problem](https://www.nytimes.com/2018/10/20/opinion/sunday/ai-fake-news-disinformation-campaigns.html) by Gary Marcus & Ernest Davis
