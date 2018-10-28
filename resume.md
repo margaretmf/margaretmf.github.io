@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst with a background in systems thinking and data science. Passionate about solving problems deliberately with data.
+Versatile data analyst and aspiring project manager with a background in systems thinking and data science. Passionate about solving problems deliberately with data.
 
  <br>
  
