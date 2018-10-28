@@ -31,6 +31,7 @@ August 2010 - May 2014
 Data Analyst
 April 2016 - Present
 * Owning data management, exploratory data analysis, task management, dashboard creation, and business analysis work
+* Developing a Jira board and project structure for task management to log work hours and understand work behavior
 * Streamlining reporting processes by writing R functions and packages for up to 560 data points for 9 online programs
 * Creating dashboards using Tableau and R to report strategic impact of programs and reduce future work on the same reports
 * Clustering data, evaluating clusters with validation metrics, and characterizing clusters
@@ -62,9 +63,9 @@ January 2016 - April 2016
 * Created maps of national voter scores to support a key client, which resulted in a Medium blogpost, [What does Donald Trump think of voters in Tuesday's primary states?](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d)
  
 ### BluestoneLogic
-Systems Analyst and Chatbot Designer Intern
+Project Management Systems Analyst and Chatbot Designer Intern
 December 2015 - January 2016
-* Applied a systems methodology based in MECE principles and [Google's design sprint methodology](http://www.gv.com/sprint/) to support defining a problem of poor integration of workflow tools
+* Applied a systems methodology based in MECE principles and [Google's design sprint methodology](http://www.gv.com/sprint/) to support defining a problem of poor integration of project management workflow tools
 * Interviewed users to gather and specify project management system requirements
 * Brainstormed, tested, and designed project management system ideas, which resulted in a prototyped solution for a task management chatbot aligned with requirements
 * Presented the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
@@ -75,7 +76,7 @@ December 2015 - January 2016
 ## LEADERSHIP EXPERIENCE
  
 ### Byte Back
-Next Gen Council Member
+Next Gen Council Member and Data Process Mapping Project Team Lead
 June 2017 - Present
 
 ### UVA
