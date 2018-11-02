@@ -19,11 +19,11 @@ During my free time, one can find me running, reading, dancing, and preparing fo
 
 ## Skills
 
-Project and Product Management: requirements and use case analysis, stakeholder analysis, strategic alignment, data management QA process management, systems analysis, technical product prototyping, interviewing, report writing, technical writing, user story writing, knowledge management, Trello, Jira, A/B testing; familiar with UX research
+Project and Product Management: project structure analysis, project planning, stakeholder communication, data management QA process management; systems analysis, stakeholder analysis, requirements and use case analysis, technical product prototyping, interviewing, report writing, technical writing, user story writing, knowledge management; familiar with UX research
 
-Data Science: data visualization, data storytelling, hypothesis testing, principal component analysis and dimensionality reduction, regression analysis, cluster analysis, classifcation, geospatial analysis, survey analysis, systems analysis, business analysis; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering, and interested in probabilistic record linkage 
+Data Science: data visualization, regression analysis, cluster analysis, classification analysis, neural network analysis, survey analysis, geospatial analysis, hypothesis testing, principal component analysis and dimensionality reduction; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering
 
-Software and Programming Languages: R (primary), Python (want to be primary), SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github; familiar with Tableau, MapReduce, Java, AWS, SAS, Ruby on Rails
+Software and Programming Languages: R, Python, SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github, Jira, Trello; familiar with Tableau, MapReduce, Java, AWS, SAS, Ruby on Rails
 
 Soft: cross-functional teamwork, international teamwork; familiar with Spanish language and gaining exposure to India
 
