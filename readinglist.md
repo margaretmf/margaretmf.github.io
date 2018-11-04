@@ -76,6 +76,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Could tech make government as we know it irrelevant?](https://singularityhub.com/2018/10/12/could-tech-make-government-as-we-know-it-irrelevant/#sm.000s2dbur10yle7a10i8oj1lhx0gy) by Peter Diamandis
 * [The "she shed” is redefining personal space for women](https://qz.com/quartzy/1438040/the-she-shed-is-redefining-personal-space-for-women/) by Anne Quito
 * [A.I. is helping scientists predict when and where the next big earthquake will be](https://www.nytimes.com/2018/10/26/technology/earthquake-predictions-artificial-intelligence.html) by Thomas Fuller and Cade Metz
 * [New type of credit score aims to widen pool of borrowers](https://www.nytimes.com/2018/10/26/your-money/new-credit-score-fico.html?smtyp=cur&smid=tw-nytimesbusiness) by Ann Carrns
