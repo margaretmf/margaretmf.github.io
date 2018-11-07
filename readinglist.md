@@ -105,7 +105,7 @@ layout: default
 * [The future(s) of public higher education: Five new models for state university success](https://www2.deloitte.com/insights/us/en/industry/public-sector/future-of-public-higher-education-study.html?id=us:2el:3pr:4di4726:5awa:6di:MMDDYY:&pkid=1005757) by Jeffrey Selingo
 * [Women are getting very little of India’s rising wealth](https://qz.com/india/1429543/indias-rising-wealth-isnt-reaching-women-says-credit-suisse/) by Suneera Tandon
 * [How to build a moon base: Researchers are ramping up plans for living on the moon](https://www.nature.com/articles/d41586-018-07107-4?utm_source=twt_nnc&utm_medium=social&utm_campaign=naturenews&sf200706433=1) by Elizabeth Gibney
-* [The one piece of advice young women need](The One Piece of Advice Young Women Need) by Jessica Valenti
+* [The one piece of advice young women need](https://medium.com/s/jessica-valenti/the-one-piece-of-advice-young-women-need-91a6291aa01e) by Jessica Valenti
 * [Wells fargo pledges billion in lending and philanthropy to help revitalize Washington, DC, neighborhoods](https://www.valdostadailytimes.com/news/business/wells-fargo-pledges-billion-in-lending-and-philanthropy-to-help/article_d35b742a-982c-5132-b9eb-db395e665324.html) by Wells Fargo
 * [Google’s former PR boss Jessica Powell wrote a satirical novel about tech and published it all on Medium](https://www.recode.net/2018/10/2/17926154/jessica-powell-big-disruption-novel-medium-book-google-pr-kara-swisher-recode-decode-podcast) by Eric Johnson
 * [Why I left my big fancy tech job and wrote a book](https://medium.com/s/the-big-disruption/why-i-left-my-big-fancy-tech-job-and-wrote-a-book-b64c40484774) by Jessica Powell
