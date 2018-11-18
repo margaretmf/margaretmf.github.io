@@ -6,6 +6,8 @@ layout: default
 
 ### Books
 #### In Progress
+* [Silicon City: San Francisco in the Long Shadow of the Valley](https://www.amazon.com/Silicon-City-Francisco-Shadow-Valley/dp/0393608794) by Cray McClelland
+* [Everything for Everyone: The Radical Tradition That Is Shaping the Next Economy](https://www.amazon.com/Everything-Everyone-Radical-Tradition-Shaping/dp/156858959X) by Nathan Schneider
 * [Temp: How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary-ebook/dp/B077RHV4V6) by Louis Hyman
 * [The New Education: How to Revolutionize the University to Prepare Students for a World In Flux](https://www.amazon.com/New-Education-Revolutionize-University-Students/dp/0465079725/ref=sr_1_1_twi_har_2?ie=UTF8&qid=1506440926&sr=8-1&keywords=The+New+Education) by Cathy Davidson
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
@@ -77,6 +79,11 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Philanthropy in the service of democracy](https://ssir.org/articles/entry/philanthropy_in_the_service_of_democracy?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Rob Reich
+* [The secret to better storytelling for social change: Better partnerships](https://ssir.org/articles/entry/the_secret_to_better_storytelling_for_social_change_better_partnerships?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by  Samantha Wright & Annie Neimand 
+* [Seeking both problems and solutions](https://ssir.org/articles/entry/seeking_both_problems_and_solutions?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Jeff Ubois
+* [How to create the conditios for social intrapreneurs to thrive](https://ssir.org/articles/entry/how_to_create_the_conditions_for_social_intrapreneurs_to_thrive?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Hester le Roux & Maggie De Pree 
+* [On the move: The faces, places, and politics of migration](https://www.csmonitor.com/World/Topics/On-the-Move-The-faces-places-and-politics-of-migration?cmpid=ema:mkt:serieshighlight&cmpid=ema::20181118&src=)
 * [In the era of online shopping, the retail store is immersive theater](https://qz.com/quartzy/1465334/in-the-era-of-online-shopping-the-retail-store-is-immersive-theater/) by Marc Bain
 * [The epidemic of civic amnesia is spreading to liberals: When supposed progressives go wobbly on social justice, we need to engage them, not ignore them](https://medium.com/s/douglas-rushkoff/some-liberals-are-experiencing-civic-amnesia-a4b9fbd113e0) by Douglas Rushkoff 
 * [Data research firm: 96 percent of companies that exist today will fail in 10 years](https://cointelegraph.com/news/data-research-firm-96-percent-of-companies-that-exist-today-will-fail-in-10-years) by Sergi de Cornudella
