@@ -50,6 +50,8 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [Creative Confidence: Unleashing the Creative Potential Within Us All](https://www.amazon.com/s/?ie=UTF8&keywords=creative+confidence+unleashing+the+creative+potential+within+us+all&tag=mh0b-20&index=aps&hvadid=78615134287205&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_9fez5vtcwn_e) by Tom Kelley & David Kelley
+* [Creating Things That Matter: The Art and Science of Innovations That Last](https://www.amazon.com/Creating-Things-That-Matter-Innovations-ebook/dp/B079DW45VC) by David Edwards
 * [American Dialogue: The Founders and Us](https://www.amazon.com/American-Dialogue-Founders-Joseph-Ellis/dp/0385353421) by Jospeh Ellis 
 * [The Future of the Professions: How Technology Will Transform the Work of Human Experts](https://www.amazon.com/future-professions-Books/s?k=the+future+of+the+professions&rh=n%3A283155) by Richard Susskind & David Susskind
 * [The Big Disruption: A Totally Fictional But Essentially True Silicon Valley Story](https://medium.com/s/the-big-disruption/the-big-disruption-36fbed0268cf?_branch_match_id=575809515606076912) by Jessica Powell
