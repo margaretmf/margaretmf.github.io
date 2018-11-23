@@ -9,7 +9,7 @@ layout: default
 * [The new childhood: Raising kids to thrive in a connected world](https://www.littlebrownspark.com/titles/jordan-shapiro/the-new-childhood/9780316437240/) by Jordan Shapiro
 * [Brief answers to big questions](https://www.amazon.com/stores/page/977C9348-820A-4CA1-B5C8-C7757ECC1F93?store_ref=SB_A09683711LPU4DMPRT6PF&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3ff6092e-8451-438b-8278-7e94064b4d42&pf_rd_s=desktop-sx-top-slot&pf_rd_t=301&pf_rd_i=brief+answers+to+the+big+questions&hsa_cr_id=7040799440101&lp_slot=auto-sparkle-hsa-tetris&lp_asins=0307409600,B078QTY62K,1984827065&lp_mat_key=brief%20answers%20to%20the%20big%20questions&lp_query=brief%20answers%20to%20the%20big%20questions) by Stephen Hawking
 * [Enlightenment NOW: The Case for Reason, Science, Humanism, and Progress](https://www.amazon.com/Enlightenment-Now-Science-Humanism-Progress/dp/0525427570/ref=sr_1_1?ie=UTF8&qid=1543001672&sr=8-1&keywords=enlightment+now+by+steven+pinker) by Steven Pinker
-* [What is REal? The Unfinished Quest for the Meaning of Quantum Physics](https://www.amazon.com/What-Real-Unfinished-Meaning-Quantum/dp/0465096050) by Adam Becker
+* [What is Real? The Unfinished Quest for the Meaning of Quantum Physics](https://www.amazon.com/What-Real-Unfinished-Meaning-Quantum/dp/0465096050) by Adam Becker
 * [What Is the Bible? How an Ancient Library of Poems, Letters, and Stories Can Transform the Way You Think and Feel About Everything](https://www.amazon.com/What-Bible-Ancient-Transform-Everything/dp/0062194267) by Rob Bell
 * [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](https://www.nhmagazine.com/March-2015/Faith-on-Trial/) by Peter A. Wallner
 * [Almost Everything: Notes on Hope](https://www.amazon.com/Almost-Everything-Notes-Anne-Lamott/dp/0525537449) by Anne Lamott
@@ -88,6 +88,11 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [A complete guide to managing your schedule for the week ahead](https://qz.com/work/1310771/a-complete-guide-to-managing-your-schedule-for-the-week-ahead/)
+* [Cities of learning named one of world's most inspiring education innovations](https://www.thersa.org/discover/publications-and-articles/rsa-blogs/2018/11/cities-of-learning-named-one-of-worlds-most-inspiring-education-innovations) by Rosie Clayton
+* [Tariff turmoil spurs need for rigorous vendor screening](https://blogs.thomsonreuters.com/answerson/tariff-turmoil-spurs-need-for-rigorous-vendor-screening/) by Brian Peccarelli
+* [Would top census officials hand over citizenship status data?](https://www.citylab.com/equity/2018/11/census-data-privacy-citizenship-trump-justice-department/576340/?utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2018-11-21T20%3A50%3A28&utm_campaign=citylab) by Brentin Mock
+* [How the wall street journal is preparing its journalists to detect deepfakes](http://www.niemanlab.org/2018/11/how-the-wall-street-journal-is-preparing-its-journalists-to-detect-deepfakes/) by Francesco Marconi & Till Daldrup
 * [Gratitude for spiritset](https://edgeperspectives.typepad.com/edge_perspectives/2018/11/gratitude-for-spiritset.html) by John Hagel
 * [Mindset and heartset](https://edgeperspectives.typepad.com/edge_perspectives/2018/11/mindset-and-heartset.html) by John Hagel
 * [Navigating from the industrial age to the contextual age](https://edgeperspectives.typepad.com/edge_perspectives/2018/08/navigating-from-the-industrial-age-to-the-contextual-age.html) by John Hagel
