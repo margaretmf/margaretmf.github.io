@@ -76,6 +76,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="playground.jpg">
+
+
+
 <b>
 
 <b>
