@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress
+* [Almost Everything: Notes on Hope](https://www.amazon.com/Almost-Everything-Notes-Anne-Lamott/dp/0525537449) by Anne Lamott
 * [Silicon City: San Francisco in the Long Shadow of the Valley](https://www.amazon.com/Silicon-City-Francisco-Shadow-Valley/dp/0393608794) by Cray McClelland
 * [Everything for Everyone: The Radical Tradition That Is Shaping the Next Economy](https://www.amazon.com/Everything-Everyone-Radical-Tradition-Shaping/dp/156858959X) by Nathan Schneider
 * [Temp: How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary-ebook/dp/B077RHV4V6) by Louis Hyman
