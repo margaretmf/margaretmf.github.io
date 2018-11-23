@@ -7,14 +7,14 @@
 - name: "Shaping the Future"
   link: "futureshaping"
   
-- name: "Contact"
-  link: "contact"
- 
-- name: "Photography"
-  link: "photography"
+- name: "Portfolio"
+  link: "portfolio"
 
 - name: "Education"
   link: "education"
+  
+- name: "Photography"
+  link: "photography"
   
 - name: "Reading List"
   link: "readinglist"
@@ -22,11 +22,14 @@
 - name: "Spiritual Inspiration"
   link: "spiritualinspiration" 
   
-- name: "Portfolio"
-  link: "portfolio"
-  
 - name: "Resume"
   link: "resume"
+  
+- name: "Contact"
+  link: "contact"
+
+  
+
   
 
   
