@@ -82,6 +82,10 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [To calm down, try 'calming up' instead: The only way to de-stress is more stress](https://medium.com/s/story/to-calm-down-try-calming-up-instead-86ebdceb7c1c) by Ashley Abramson
+* [The depressing truth about deleting your online history](https://medium.com/s/thenewnew/the-depressing-truth-about-deleting-your-online-history-92f26d24f907) by Luke Winkie
+* [How — and why —you should become a book collector: It's fun, it's profitable, and we need to preserve our history](https://medium.com/@pisancantos43/how-and-why-you-should-become-a-book-collector-ea4bb72283bb) by Anthony Aycock
+* [How writing for one hour a day can improve the quality of your life](https://medium.com/the-mission/how-writing-for-one-hour-a-day-can-improve-the-quality-of-your-life-7b526147cd67) by Srinivas Rao
 * [Philanthropy in the service of democracy](https://ssir.org/articles/entry/philanthropy_in_the_service_of_democracy?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Rob Reich
 * [The secret to better storytelling for social change: Better partnerships](https://ssir.org/articles/entry/the_secret_to_better_storytelling_for_social_change_better_partnerships?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by  Samantha Wright & Annie Neimand 
 * [Seeking both problems and solutions](https://ssir.org/articles/entry/seeking_both_problems_and_solutions?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Jeff Ubois
