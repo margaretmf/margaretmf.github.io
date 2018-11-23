@@ -7,6 +7,15 @@ Currently, as we are living through [the age of the algorithm](https://maisonneu
 
 <br>
 
+### A Year of Reading Reported through Data
+At the beginning of 2018, I set a goal to start reading books more and listing what I am reading. Between November 2018 and February 2019, I expect to run some experiments with data using my [reading list](https://margaretmf.github.io/readinglist).
+
+<br>
+
+<br>
+
+
+
 ### Open Housing Data
 After compiling hundreds of metrics, the [Joint Center for Housing Studies at Harvard University](http://www.jchs.harvard.edu/state-nations-housing-2018) reports that "despite some short-term progress since the recession" in affordable housing, "the long-term prognosis" for affordable housing "is grim," and it is "wiping out savings, increasing inequality and reducing the ability of workers to weather the next recession" ([6 Reasons Housing Is About To Become Even More Unaffordable](https://www.huffingtonpost.com/entry/housing-crisis-inequality-harvard-report_us_5b27c1f1e4b056b2263c621e)). Metrics exist on housing cost burdens, home sales, renters, mobility, and homeownership. 
 
