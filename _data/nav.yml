@@ -1,5 +1,5 @@
-- name: "Spirital Inspiration"
-  link: "spiritualinspiration" 
+- name: "Experimenting with Data"
+  link: "dataexperiments"
   
 - name: "Understanding the Social World"
   link: "socialunderstanding"
@@ -19,8 +19,8 @@
 - name: "Reading List"
   link: "readinglist"
   
-- name: "Experimenting with Data"
-  link: "dataexperiments"
+- name: "Spirital Inspiration"
+  link: "spiritualinspiration" 
   
 - name: "Portfolio"
   link: "portfolio"
