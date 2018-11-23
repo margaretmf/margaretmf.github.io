@@ -80,6 +80,21 @@ layout: default
 
 
 
+<img class="profile-picture" src="spiritual.jpg">
+
+
+
+<img class="profile-picture" src="art.jpg">
+
+
+
+<img class="profile-picture" src="california.jpg">
+
+
+
+<img class="profile-picture" src="chinatown.jpg">
+
+
 <b>
 
 <b>
