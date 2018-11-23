@@ -4,7 +4,7 @@ layout: default
 
 <br>
 
-## Hello! Welcome to Margaret Furr's portfolio.
+## Hello! Welcome to Margaret Furr's site.
 
 <img class="profile-picture" src="me.jpg">
 
