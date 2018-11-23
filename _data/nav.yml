@@ -7,9 +7,6 @@
 - name: "Shaping the Future"
   link: "futureshaping"
   
-- name: "Experimenting with Data"
-  link: "dataexperiments"
-  
 - name: "Contact"
   link: "contact"
  
@@ -18,6 +15,9 @@
 
 - name: "Reading List"
   link: "readinglist"
+  
+- name: "Experimenting with Data"
+  link: "dataexperiments"
   
 - name: "Education"
   link: "education"
