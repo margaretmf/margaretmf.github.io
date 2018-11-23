@@ -16,12 +16,12 @@ Since then, I've continued to experience waves of doubt in my daily walk, and I 
 ### Onward
 While I have moments when I feel anger, frustration, or despair, I am continuously renewing love for myself, this world, and work being done across worldly divisions.
 
-Recently, in moments, when I feel like I *really* **cannot** *breathe*, I consciously breath humanly, but I've also affirmed that the "Christ animates me" and that the Holy Spirit, Holy Ghost breathes through me. Affirming this gives me more fullness of breath. The Holy Spirit, Holy Ghost is daily inspiring us with great thoughts, good vibrations, the ability to move, and Life's breath.
+Recently, in moments, when I feel like I ***really*** **cannot** ***breathe***, I consciously breath humanly, but I've also affirmed that the **"Christ animates me"** and that **the Holy Spirit, Holy Ghost breathes through me**. Affirming this gives me more fullness of breath. The Holy Spirit, Holy Ghost is daily inspiring us with great thoughts, good vibrations, the ability to move, and Life's breath.
 
 I will use this page to share **heavenly doses of inspiration** that can empower us all through **overdoses of material medication**, the **shadow of death**, and **the most terrorizing, abusive traps in our lives**.
 
 ### A Note on Multiple Faiths and Religions 
-The study of Buddhism helps me understand Christian Science, the study of other metaphysical theories encourages me to think really hard about Christian metaphysics, the study of Christian Science illumines the light on Buddhism, prayers being sung in other Christian sects, and the study of Christian metaphysics enlightens other psychiatric, psychological, and philosophical theories. We all are coexisting whether we want to or not with one Truth, one Father, one Hope, one Spirit, one Breath, one Creative Power, one Life, one Science of Being.
+The study of Buddhism helps me understand Christian Science. The study of other scientific and metaphysical theories encourages me to think really hard about whether I truly believe Christian metaphysics is the Truth. The study of Christian Science illumines the light on existence, on Buddhism, and on prayers being that church attendees are singing in a diversity of Christian sects. The study of Christian metaphysics enlightens psychiatric, psychological, and philosophical theories. With daily wrestling, I cling to the fact that **we all are coexisting whether we want to or not in one universe** -- ***and hopefully, with one Truth, one Father, one Hope, one Spirit, one Breath, one Creative Power, one Life, one Science of Being, where we cannot clash, multiply divides, and fight to the point of eternal destruction.***
 
 
 <br>
