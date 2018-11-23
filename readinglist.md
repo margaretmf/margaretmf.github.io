@@ -6,6 +6,8 @@ layout: default
 
 ### Books
 #### In Progress
+* [The new childhood: Raising kids to thrive in a connected world](https://www.littlebrownspark.com/titles/jordan-shapiro/the-new-childhood/9780316437240/) by Jordan Shapiro
+* [Brief answers to big questions](https://www.amazon.com/stores/page/977C9348-820A-4CA1-B5C8-C7757ECC1F93?store_ref=SB_A09683711LPU4DMPRT6PF&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3ff6092e-8451-438b-8278-7e94064b4d42&pf_rd_s=desktop-sx-top-slot&pf_rd_t=301&pf_rd_i=brief+answers+to+the+big+questions&hsa_cr_id=7040799440101&lp_slot=auto-sparkle-hsa-tetris&lp_asins=0307409600,B078QTY62K,1984827065&lp_mat_key=brief%20answers%20to%20the%20big%20questions&lp_query=brief%20answers%20to%20the%20big%20questions) by Stephen Hawking
 * [Enlightenment NOW: The Case for Reason, Science, Humanism, and Progress](https://www.amazon.com/Enlightenment-Now-Science-Humanism-Progress/dp/0525427570/ref=sr_1_1?ie=UTF8&qid=1543001672&sr=8-1&keywords=enlightment+now+by+steven+pinker) by Steven Pinker
 * [What is REal? The Unfinished Quest for the Meaning of Quantum Physics](https://www.amazon.com/What-Real-Unfinished-Meaning-Quantum/dp/0465096050) by Adam Becker
 * [What Is the Bible? How an Ancient Library of Poems, Letters, and Stories Can Transform the Way You Think and Feel About Everything](https://www.amazon.com/What-Bible-Ancient-Transform-Everything/dp/0062194267) by Rob Bell
@@ -86,6 +88,49 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Gratitude for spiritset](https://edgeperspectives.typepad.com/edge_perspectives/2018/11/gratitude-for-spiritset.html) by John Hagel
+* [Mindset and heartset](https://edgeperspectives.typepad.com/edge_perspectives/2018/11/mindset-and-heartset.html) by John Hagel
+* [Navigating from the industrial age to the contextual age](https://edgeperspectives.typepad.com/edge_perspectives/2018/08/navigating-from-the-industrial-age-to-the-contextual-age.html) by John Hagel
+* [Can Amazon really rename a neighborhood?](https://www.citylab.com/life/2018/11/national-landing-amazon-hq2-crystal-city-northern-virginia/575848/?utm_content=edit-promo&utm_campaign=citylab&utm_medium=social&utm_source=twitter&utm_term=2018-11-21T15%3A27%3A28) by Linda Poon
+* [Confessions of a U.S. postal worker: “We deliver Amazon packages until we drop dead"](https://medium.com/s/powertrip/confessions-of-a-u-s-postal-worker-we-deliver-amazon-packages-until-we-drop-dead-a6e96f125126) by Brendan O'Connor
+* [India’s obsession with renaming cities will tear its society apart](https://qz.com/india/1472858/the-politics-behind-renaming-indias-allahabad-and-ahmedabad/) by Samar Halarnkar
+* [Indian ola and uber riders are fed up of surge pricing and driver cancellations](https://qz.com/india/1472888/indians-are-sick-of-ola-ubers-surge-pricing-cancellations/) by Ananya Bhattacharya
+* [Thomas Nast's Thanksgiving vision of American Identity: It comes not from common blood but from common conviction](https://www.theatlantic.com/ideas/archive/2018/11/uncle-sams-thanksgiving-dinner/575863/) by Daniel Fried
+* [How showing gratitude, even when you don't feel grateful, can help your career](https://www.forbes.com/sites/tamiforman/2018/11/17/the-power-of-gratitude/?utm_source=TWITTER&utm_medium=social&utm_term=Bonnie%2F#12c62f867f3a) by Tami Forman
+* [The zen rule for becoming happier: Change on thing](https://qz.com/quartzy/1473136/the-zen-rule-for-becoming-happier-change-one-thing/) by Cassie Werber
+* [There’s new evidence giving cash to the poor is more transformative than we thought](https://qz.com/africa/1473226/unconditional-cash-transfers-help-reduce-poverty-in-africa/) by Abdi Latif Dahir
+* [We know less about the first Thanksgiving than you probably think](http://time.com/5021704/the-first-thanksgiving/?utm_campaign=time&utm_source=twitter.com&utm_medium=social&xid=time_socialflow_twitter) by Olivia Waxman
+Know Less About the First Thanksgiving Than You Probably Think
+* [The homeless crisis is getting worse in America's richest cities: A toxic combination of slow wage growth and skyrocketing rents has put housing out of reach for a greater number of people](https://www.bloomberg.com/news/features/2018-11-20/the-homeless-crisis-is-getting-worse-in-america-s-richest-cities) by Noah Buhayar & Esme Deprez
+* [How to connect with depressed friends](https://www.ted.com/talks/bill_bernat_how_to_connect_with_depressed_friends) by Bill Bernat
+* [An India railway officer jumped from a moving train to rescue a woman from rape](https://www.globalcitizen.org/en/content/india-train-hero-rape-sexual-assault/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=59860372) by Daniele Selby
+* [Housing can't be both affordable and a good investment: The two pillars of American housing policy are fundamentally at odds](https://www.citylab.com/perspective/2018/11/housing-cant-both-be-a-good-investment-and-be-affordable/574813/?utm_medium=social&utm_content=edit-promo&utm_source=twitter&utm_term=2018-11-21T13%3A00%3A55&utm_campaign=citylab) by Daniel Hertz
+* [The who, where, and why of moving for a new job](https://hbr.org/2018/08/the-who-where-and-why-of-moving-for-a-new-job?utm_medium=social&utm_source=twitter&utm_campaign=hbr) by Andrew Chamberlain
+* [The people’s prince: His name has become synonymous with egotistic political scheming, yet Machiavelli’s work is effectively democratic at heart](https://aeon.co/essays/the-prince-of-the-people-machiavelli-was-no-machiavellian) by Sam Dresser
+* [Instead of amplifying human biases, can algorithms help fix them?](https://www.csmonitor.com/Business/2018/1121/Instead-of-amplifying-human-biases-can-algorithms-help-fix-them?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1542810468) by Shellie Karabell
+* [Stephen Hawking’s last book gives just two options for a positive future for humanity](https://qz.com/1425714/hawkings-last-book-is-both-pessimistic-and-hopeful-about-the-future/) by Thu-Huong Ha
+* [Mapping the multiverse: How far away is your parallel self? There seems to be an infinity of invisible worlds lurking out there. Now we’re starting to get a handle on where they are, and what it might take to reach them](https://www.newscientist.com/article/mg23331093-100-infinite-frontiers/?cmpid=SOC|NSNS|2017-Echobox&utm_campaign=Echobox&utm_medium=Social&utm_source=Twitter#Echobox=1542721870) by Shannon Hall
+* [We need to shift our focus from competencies to agency](https://medium.com/@EskoKilpi/we-need-to-shift-our-focus-from-competencies-to-agency-42a68dc0ef7d) by Esko Kilpi
+* [Brace yourself: the most disruptive phase of globalization is just beginning](https://qz.com/854257/brace-yourself-the-most-disruptive-phase-of-globalization-is-just-beginning/) by Eshe Nelson
+* [Force google, apple and uber to share mapping data, UK advised: Open data institute says rivals must have chance to develop driverless cars and transport apps](https://www.ft.com/content/9e397cd6-ec1c-11e8-8180-9cf212677a57) by Aliya Ram & Madhumita Murgia 
+* [Barack Obama and Donald Trump can’t stand each other: The former president never uttered his successor’s name at an event in Chicago, but the animus was obvious](https://www.theatlantic.com/politics/archive/2018/11/obama-and-trump-still-cant-stand-each-other/576280/?utm_source=twb) by Edward-Isaac Dovere
+* [A silicon valley tech leader walks a high wire between the U.S. and China](https://www.wsj.com/articles/a-silicon-valley-tech-leader-walks-a-high-wire-between-the-u-s-and-china-1542650707?mod=e2tw) by Dan Strumpf & Wenxin Fan
+* [Is the government really in control of its algorithms?](https://medium.com/s/story/is-the-government-really-in-control-of-its-algorithms-6d5e1781bed2) by Benjamin Powers
+* [Why are Indian managers so damn good?](https://qz.com/india/1469711/why-india-born-pichai-nadella-nooyi-rule-us-business/) by R Gopalakrishnan & Ranjan Banerjee
+* [To find a better solution, ask a better question](https://medium.com/s/story/to-find-a-better-solution-ask-a-better-question-3be7fee5af65) by Hal Gregersen
+* [Why everyone can - and should - learn quantum mechanics](https://www.salon.com/2018/11/18/why-everyone-can-and-should-learn-quantum-mechanics/) by Scott Bembenek
+* [One of the fathers of AI is worried about its future](https://www.technologyreview.com/s/612434/one-of-the-fathers-of-ai-is-worried-about-its-future/) by Will Knight
+* [What great listeners actually do](https://getpocket.com/explore/item/what-great-listeners-actually-do-1350613081) by Jack Zenger & Joseph Folkman
+* [A mindset shift to continue supporting the most frustrating kids](https://www.kqed.org/mindshift/47954/a-mindset-shift-to-continue-supporting-the-most-frustrating-kids) by Alex Shevrin
+* [Global youth leaders offer advice on living fearlessly](https://www.aspeninstitute.org/blog-posts/global-youth-leaders-offer-advice-on-living-fearlessly/) by Leah Sorini
+* [This Indian man built a road so his kids could make it to school](https://www.globalcitizen.org/en/content/india-made-road-school-education-trailblazer/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=59682419) by David Brand
+* [Instagram’s “digital kidnappers” are stealing children’s photos and making up new lives](https://qz.com/1434858/digital-kidnapping-is-a-reminder-of-the-dangers-of-social-media/) by Jane Hu
+* [America’s nuclear-disarmament talks with North Korea are stuck](https://www.economist.com/asia/2018/11/24/americas-nuclear-disarmament-talks-with-north-korea-are-stuck?fsrc=scn/tw/te/bl/ed/americasnucleardisarmamenttalkswithnorthkoreaarestuckroadtonowhere)
+* [This New York store is selling Christmas presents for refugees](https://www.weforum.org/agenda/2018/11/christmas-presents-for-refugees-choose-love-new-york?utm_source=Facebook%20Videos&utm_medium=Facebook%20Videos&utm_campaign=Facebook%20Video%20Blogs) by Kate Whiting
+* [Brace yourself: the most disruptive phase of globalization is just beginning](https://qz.com/854257/brace-yourself-the-most-disruptive-phase-of-globalization-is-just-beginning/) by Eshe Nelson
+* [Can the cans: Why food drives are a terrible idea](https://slate.com/business/2011/12/food-drives-charities-need-your-money-not-your-random-old-food.html) by Matthew Yglesias
+* [Philadelphia's secret ingredient for more civic engagement: A lot of food](https://www.citylab.com/equity/2018/11/knight-foundation-on-the-table-civic-engagement-philadelphia/575995/?utm_term=2018-11-21T20%3A42%3A15&utm_source=twitter&utm_medium=social&utm_campaign=citylab&utm_content=edit-promo) by Andrew Small
+* [Why influence matters in the spread of misinformation](https://medium.com/trust-media-and-democracy/why-influence-matters-in-the-spread-of-misinformation-e92a041fa3d3) by Becca Lewis
 * [To calm down, try 'calming up' instead: The only way to de-stress is more stress](https://medium.com/s/story/to-calm-down-try-calming-up-instead-86ebdceb7c1c) by Ashley Abramson
 * [The depressing truth about deleting your online history](https://medium.com/s/thenewnew/the-depressing-truth-about-deleting-your-online-history-92f26d24f907) by Luke Winkie
 * [How — and why —you should become a book collector: It's fun, it's profitable, and we need to preserve our history](https://medium.com/@pisancantos43/how-and-why-you-should-become-a-book-collector-ea4bb72283bb) by Anthony Aycock
@@ -165,7 +210,6 @@ layout: default
 * [Indian techies look to Canada as the American Dream turns into an H-1B nightmare](https://qz.com/india/1215625/the-h-1b-nightmare-has-turned-indian-techies-onto-the-canadian-dream/) by Ananya Bhattacharya
 * [What the midterm elections mean for higher ed](https://www.chronicle.com/article/What-the-Midterm-Elections/245023) by Dan Bauman, Lindsay Ellis, Steven Johnson, Eric Kelderman, Emma Pettit, & Brock Read 
 * [The promise of polarization: Ideological division was once seen as the solution to America’s political gridlock. What went wrong?](https://newrepublic.com/article/151612/promise-polarization-book-review-sam-rosenfeld-the-polarizers) by Sam Tanenhaus
-* [Mindset and heartset](https://edgeperspectives.typepad.com/edge_perspectives/2018/11/mindset-and-heartset.html) by John Hagel
 * [Using Wi-Fi to “see” behind closed doors is easier than anyone thought](https://www.technologyreview.com/s/612375/using-wi-fi-to-see-behind-closed-doors-is-easier-than-anyone-thought/) by arXiv
 * [Why doctors hate their computers](https://www.newyorker.com/magazine/2018/11/12/why-doctors-hate-their-computers) by Atul Gawande
 * [Eternal life is no good without eternal youth](https://singularityhub.com/2018/09/10/eternal-life-is-no-good-without-eternal-youth/#sm.0001vxquz0muff9czrm2kkr1bs3n3) by Edd Gent
