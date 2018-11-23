@@ -6,6 +6,10 @@ layout: default
 
 ### Books
 #### In Progress
+* [Enlightenment NOW: The Case for Reason, Science, Humanism, and Progress](https://www.amazon.com/Enlightenment-Now-Science-Humanism-Progress/dp/0525427570/ref=sr_1_1?ie=UTF8&qid=1543001672&sr=8-1&keywords=enlightment+now+by+steven+pinker) by Steven Pinker
+* [What is REal? The Unfinished Quest for the Meaning of Quantum Physics](https://www.amazon.com/What-Real-Unfinished-Meaning-Quantum/dp/0465096050) by Adam Becker
+* [What Is the Bible? How an Ancient Library of Poems, Letters, and Stories Can Transform the Way You Think and Feel About Everything](https://www.amazon.com/What-Bible-Ancient-Transform-Everything/dp/0062194267) by Rob Bell
+* [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](https://www.nhmagazine.com/March-2015/Faith-on-Trial/) by Peter A. Wallner
 * [Almost Everything: Notes on Hope](https://www.amazon.com/Almost-Everything-Notes-Anne-Lamott/dp/0525537449) by Anne Lamott
 * [Silicon City: San Francisco in the Long Shadow of the Valley](https://www.amazon.com/Silicon-City-Francisco-Shadow-Valley/dp/0393608794) by Cray McClelland
 * [Everything for Everyone: The Radical Tradition That Is Shaping the Next Economy](https://www.amazon.com/Everything-Everyone-Radical-Tradition-Shaping/dp/156858959X) by Nathan Schneider
