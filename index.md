@@ -4,16 +4,15 @@ layout: default
 
 <br>
 
-## Hello!
+## Hello! Welcome to Margaret Furr's portfolio.
 
 <img class="profile-picture" src="me.jpg">
 
+**About Me:** I am an **intellectually curious problem solver**, developing expertise in **data analysis**, **project planning**, **requirements speficiation**, **systems thinking** and **goal setting and visioning**. I'm a versatile **technical product professional** who loves to draw from multiple disciplines to understand the world and solve problems. My interests are listed below.
 
-I'm **Margaret Furr**, and I'm an **intellectually curious problem solver**. I am developing expertise in **data analysis, project planning, requirements speficiation, systems thinking** and **goal setting and visioning**. I also have experience in strategic consulting. With an interest in social impact, technological change, patterns in data, data structures, and international cultures, I'm a versatile **technical product professional** who loves to draw from multiple disciplines to understand the world and solve problems.
+**Current Work:** Currently, I'm working as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a **pro bono strategic alignment consultant** for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) around a revitalizing DC community, and I have worked as a **Project Manager**, **Data Ambassador** and **Data Analyst** with [DataKind](http://www.datakind.org). 
 
-Currently, I'm working as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I have worked as a pro bono strategic alignment consultant for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org), and I have worked as a Project Manager, Data Ambassador and Data Analyst with [DataKind](http://www.datakind.org). 
-
-During my free time, one can find me **running, reading, taking photography, dancing, preparing for the future in the 21st century, practicing spiritual healing,** and **appreciating broader views around the power (or lack of power) in churches and church divides across the world and its languages**. A new co-working, collective consciousness space that I love is [The Assemblage](https://www.theassemblage.com/), and words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
+**Work for Fun:** During my free time, one can find me **running**, **reading**, **photographing**, **dancing**, **preparing for the future in the 21st century**, **practicing spiritual healing**, and **appreciating broader views around the power (or lack of power) in churches and church divides across the world and its languages**. A new co-working, collective consciousness space that I love is **[The Assemblage](https://www.theassemblage.com/)**, and words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is **"Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all."** 
 
 <br>
 
@@ -33,13 +32,13 @@ During my free time, one can find me **running, reading, taking photography, dan
 
 ## Interests
 
-**Technology/Information:** algorithmic biases and prejudices, neural patterns, flow-based programming, technological ecosystems, interactions between technology and humans, participatory design, public infrastructure, effective information flow, data integration, technology policy and governance
+**Technology/Information:** algorithmic biases and prejudices, neural patterns, patterns in data, flow-based programming, technological and social change, technological ecosystems, interactions between technology and humans, participatory design, public infrastructure, effective information flow, data integration, technology policy and governance
 
 **Social Impact:** impact investing, sustainable development goals, inclusive economic growth, double bottom line
 
-**Organizations:** learning organizations, theory of emergence, network science, creative process, democratic process
+**Organizations and Cultures:** learning organizations, theory of emergence, network science, international cultures, creative process, democratic process
 
-**Spirituality:** collective consciousness, natural systems, meditation and expressive practice
+**Spirituality:** collective consciousness, natural systems, meditation and expressive practice, roots of spoken languages
 
 <br>
 
