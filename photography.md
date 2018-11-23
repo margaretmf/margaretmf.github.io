@@ -72,6 +72,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="beauty.jpg">
+
+
+
 <b>
 
 <b>
