@@ -13,14 +13,14 @@
 - name: "Photography"
   link: "photography"
 
+- name: "Education"
+  link: "education"
+  
 - name: "Reading List"
   link: "readinglist"
   
 - name: "Experimenting with Data"
   link: "dataexperiments"
-  
-- name: "Education"
-  link: "education"
   
 - name: "Portfolio"
   link: "portfolio"
