@@ -60,11 +60,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="datakind-work.jpg">
+<img class="profile-picture" src="data-work.jpg">
 
 
 
 <img class="profile-picture" src="norfolk.jpg">
+
+
+
+<img class="profile-picture" src="democracy.jpg">
 
 
 
