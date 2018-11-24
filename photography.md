@@ -80,6 +80,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="libaries-children-desks.jpg">
+
+
+
 <img class="profile-picture" src="spiritual.jpg">
 
 
@@ -93,6 +97,11 @@ layout: default
 
 
 <img class="profile-picture" src="chinatown.jpg">
+
+
+
+<img class="profile-picture" src="libraries-children.jpg">
+
 
 
 <b>
