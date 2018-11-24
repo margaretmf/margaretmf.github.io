@@ -80,7 +80,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="libaries-children-desks.jpg">
+<img class="profile-picture" src="libraries-children-desks.jpg">
 
 
 
