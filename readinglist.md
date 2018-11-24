@@ -89,6 +89,18 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [California fire survivors face uncertain future](https://www.csmonitor.com/USA/2018/1123/California-fire-survivors-face-uncertain-future?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1543084095) by Martin Kuz
+* [The Democrats’ white-people problem](https://www.theatlantic.com/magazine/archive/2018/12/the-democrats-white-people-problem/573901/?utm_source=twb) by Joan Williams
+* [Managing American decline](https://www.theatlantic.com/ideas/archive/2018/11/how-bad-americas-decline-relative-china/576319/) by Kori Schake
+* [We are all bewildered machines: Bewilderment is the antidote to scientific reductionism](http://nautil.us/issue/66/clockwork/we-are-all-bewildered-machines) by Kevin Berger
+* [Technology is destroying the most important asset in your life](https://qz.com/1091883/technology-is-destroying-the-most-important-asset-in-your-life/) by Zat Rana
+* [Beijing to judge every resident based on behavior by end of 2020](https://www.bloomberg.com/news/articles/2018-11-21/beijing-to-judge-every-resident-based-on-behavior-by-end-of-2020) by Bloomberg News
+* [How Thanksgiving can change the world](https://www.csmonitor.com/Daily/2018/20181121/How-Thanksgiving-can-change-the-world?src=shared) by Mark Sappenfield
+* [More people than ever before are single—and that’s a good thing](https://qz.com/967785/more-people-than-ever-before-are-single-and-thats-a-good-thing/) by Bella DePaulo
+* [India’s statue of unity is so big you can see it from space](https://qz.com/india/1466321/modis-statue-of-unity-in-india-is-visible-from-space/) by Kuwar Singh
+* [Oxford's 2018 word of the year is "toxic"](https://qz.com/quartzy/1464567/oxfords-2018-word-of-the-year-is-toxic/) by Jenni Avins
+* [How the Wall Street Journal is preparing its journalists to detect deepfakes](http://www.niemanlab.org/2018/11/how-the-wall-street-journal-is-preparing-its-journalists-to-detect-deepfakes/) by Francesco Marconi & Till Daldrup
+* [Would top census officials hand over citizenship status data?](https://www.citylab.com/equity/2018/11/census-data-privacy-citizenship-trump-justice-department/576340/?utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2018-11-21T20%3A50%3A28&utm_campaign=citylab) by Brentin Mock
 * [A complete guide to managing your schedule for the week ahead](https://qz.com/work/1310771/a-complete-guide-to-managing-your-schedule-for-the-week-ahead/)
 * [Cities of learning named one of world's most inspiring education innovations](https://www.thersa.org/discover/publications-and-articles/rsa-blogs/2018/11/cities-of-learning-named-one-of-worlds-most-inspiring-education-innovations) by Rosie Clayton
 * [Tariff turmoil spurs need for rigorous vendor screening](https://blogs.thomsonreuters.com/answerson/tariff-turmoil-spurs-need-for-rigorous-vendor-screening/) by Brian Peccarelli
