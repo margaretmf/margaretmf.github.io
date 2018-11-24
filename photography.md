@@ -92,10 +92,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="california.jpg">
-
-
-
 <img class="profile-picture" src="chinatown.jpg">
 
 
