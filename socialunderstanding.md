@@ -8,6 +8,11 @@ in relation to daily observations.
 
 <br>
 
+### Structural Strain Theory 
+
+
+<br>
+
 ### Understanding the Starbucks Event through [Social Phenomenology](https://www.thoughtco.com/phenomenology-sociology-3026630)
 
 In the news, we read a lot about cases in which social biases lead to arresting people without reason. Recently, in Starbucks and other chains, people have arrested black men or Muslims for no reason as a result of their implicit or explicit social biases towards black people. 
