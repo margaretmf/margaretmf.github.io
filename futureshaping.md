@@ -11,6 +11,7 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 ### Next Topics Under Considerationf or Writing
 (1) Natural Design
 (2) A World Free of Trauma
+(3) Homes
 
 
 <br>
