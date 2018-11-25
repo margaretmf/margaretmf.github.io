@@ -8,7 +8,9 @@ Currently, as we are living through a time of [accelerations](https://www.youtub
 <br>
 
 
-### Next Topics Under Considerationf or Writing: Natural Design and A World Free of Trauma
+### Next Topics Under Considerationf or Writing
+(1) Natural Design
+(2) A World Free of Trauma
 
 
 <br>
