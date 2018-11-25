@@ -16,7 +16,7 @@ I love to draw from multiple disciplines to understand the world and solve probl
 
 Currently, I, **Margaret Furr**, work as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
 
-I have enjoyed work as a **pro bono strategic alignment consultant** for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **Project Manager**, **Data Ambassador** and **Data Analyst** with [DataKind](http://www.datakind.org). 
+I have enjoyed work as a **pro bono strategic alignment consultant** for [Homeless Children's Playtime Project](https://www.playtimeproject.org) and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). 
 
 Outside of work, one can find me **running**, **reading**, **photographing**, **dancing**, **preparing for the future in the 21st century**, **practicing spiritual healing**, and **appreciating broader views around the power (or lack of power) in churches and church divides across the world and its languages**. 
 
