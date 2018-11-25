@@ -8,7 +8,7 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
-I am **Margaret Furr**, and I am developing expertise in **data analysis**, **project planning**, **requirements speficiation**, **systems thinking**, **creative problem solving**, and **goal setting and visioning**. 
+I am **Margaret Furr**, and I am developing expertise in **data analysis and impact measurement**, **project planning**, **requirements specificiation**, **systems thinking**, **creative problem solving**, and **goal setting and visioning**. 
 
 I am a versatile and multidimensional **aspiring technical product professional** within the **social innovation workspace** that also aspires to author a book across a lifetime of learning about scientific exploration, thought paradigms, entrepreneurship and intrapreneurship, and spiritual abundance. 
 
