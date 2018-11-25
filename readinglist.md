@@ -89,6 +89,8 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Improve this one behavior to encourage innovation: We all get to choose - do we encourage originality or conformity?](https://medium.com/@jswilder16/improve-this-one-behavior-to-encourage-innovation-654e041256c5) by Jake Wilder
+* [Do you have the mindset of a problem solver? This is the essence of business](https://medium.com/swlh/do-you-have-the-mindset-of-a-problem-solver-7014a55c4778) by Kyle Loftus
 * [California fire survivors face uncertain future](https://www.csmonitor.com/USA/2018/1123/California-fire-survivors-face-uncertain-future?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1543084095) by Martin Kuz
 * [The Democrats’ white-people problem](https://www.theatlantic.com/magazine/archive/2018/12/the-democrats-white-people-problem/573901/?utm_source=twb) by Joan Williams
 * [Managing American decline](https://www.theatlantic.com/ideas/archive/2018/11/how-bad-americas-decline-relative-china/576319/) by Kori Schake
