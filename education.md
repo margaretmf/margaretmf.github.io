@@ -48,12 +48,12 @@ layout: default
 * [Project Management Essentials](https://generalassemb.ly/)
 
 ### Meetup Groups
-[Weekly Fasting + Meditation, 11/25/2018](https://www.meetup.com/Spiritual-Awakening-DC/events/rvldjqyxpbgb/)
-["Conscious Light" Film Screening, 11/27/2018](https://www.meetup.com/Conscious-Light/)
-[Center for Inquiry, Monthly](https://www.meetup.com/Cafe-Inquiry-Discussion-Meetup/)
-[Tribe of Beltway Shamans, 11/30/2018](https://www.meetup.com/Tribe-of-Beltway-Shamans/)
-[2nd Annual Washington DC High-Tech Prayer Breakfast, 12/6/2018](https://www.meetup.com/2nd-Annual-Washington-DC-High-Tech-Prayer-Breakfast/)
-[A Republic: If You Can Keep It, 12/8/2018](https://www.meetup.com/A-Republic-If-You-Can-Keep-It/)
+* [Weekly Fasting + Meditation, 11/25/2018](https://www.meetup.com/Spiritual-Awakening-DC/events/rvldjqyxpbgb/)
+* ["Conscious Light" Film Screening, 11/27/2018](https://www.meetup.com/Conscious-Light/)
+* [Center for Inquiry, Monthly](https://www.meetup.com/Cafe-Inquiry-Discussion-Meetup/)
+* [Tribe of Beltway Shamans, 11/30/2018](https://www.meetup.com/Tribe-of-Beltway-Shamans/)
+* [2nd Annual Washington DC High-Tech Prayer Breakfast, 12/6/2018](https://www.meetup.com/2nd-Annual-Washington-DC-High-Tech-Prayer-Breakfast/)
+* [A Republic: If You Can Keep It, 12/8/2018](https://www.meetup.com/A-Republic-If-You-Can-Keep-It/)
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Hindi Language, International Language Institute](http://ilidc.com)
