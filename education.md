@@ -48,7 +48,6 @@ layout: default
 * [Project Management Essentials](https://generalassemb.ly/)
 
 ### Meetup Groups
-* [Weekly Fasting + Meditation, 11/25/2018](https://www.meetup.com/Spiritual-Awakening-DC/events/rvldjqyxpbgb/)
 * ["Conscious Light" Film Screening, 11/27/2018](https://www.meetup.com/Conscious-Light/)
 * [Center for Inquiry, Monthly](https://www.meetup.com/Cafe-Inquiry-Discussion-Meetup/)
 * [Tribe of Beltway Shamans, 11/30/2018](https://www.meetup.com/Tribe-of-Beltway-Shamans/)
