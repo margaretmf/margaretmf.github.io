@@ -28,7 +28,7 @@ A new co-working, collective consciousness space that I love is **[The Assemblag
 
 **Product and Project Management:** project structure analysis, project planning, stakeholder communication, data management QA process management; systems analysis, stakeholder analysis, requirements and use case analysis, requirements specification, technical product prototyping, interviewing, report writing, technical writing, user story writing, knowledge management; familiar with UX research
 
-**Data Analytics:** data visualization, regression analysis, cluster analysis, classification analysis, neural network analysis, survey analysis, geospatial analysis, hypothesis testing, principal component analysis and dimensionality reduction; familiar with database schema design, natural language processing, time series analysis, social network analysis, feature engineering
+**Data Analytics:** data visualization, survey analysis, regression analysis, cluster analysis, geospatial analysis, classification analysis, hypothesis testing, principal component analysis and dimensionality reduction; familiar with database schema design, neural network analysis, natural language processing, time series analysis, social network analysis, feature engineering
 
 **Software and Programming Languages:** R, Python, SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github, Jira, Trello; familiar with Tableau, MapReduce, Java, AWS, SAS, Ruby on Rails
 
