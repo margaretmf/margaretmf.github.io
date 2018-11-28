@@ -15,7 +15,7 @@ in relation to daily observations.
 
 ### Understanding the Starbucks Event through [Social Phenomenology](https://www.thoughtco.com/phenomenology-sociology-3026630)
 
-In the news, we read a lot about cases in which social biases lead to arresting people without reason. Recently, in Starbucks and other chains, people have arrested black men or Muslims for no reason as a result of their implicit or explicit social biases towards black people. 
+In the news, we read often about cases in which social biases lead to arresting people without reason. Recently, in Starbucks and other chains, people have arrested black men or Muslims for no reason as a result of their implicit or explicit social biases towards black people. 
 
 "Two black men were arrested at a Philadelphia Starbucks. 
 A black woman was forced to the ground, exposing her breasts, at a Waffle House in Saraland, Alabama. 
