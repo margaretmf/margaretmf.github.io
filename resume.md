@@ -43,14 +43,14 @@ April 2016 - Present
 Data Analyst, Data Ambassador, Project Manager
 July 2016 - Present
 * Clients: Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
-* Collaborated to develop maps, machine learning feachers, a foster care case complexity score, and more on a teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
+* Collaborated to develop maps, machine learning features, a foster care case complexity score, and more on a teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
 
 ### Compass Pro Bono
 Strategic Alignment Consultant
 October 2016 - Present
 * Clients: Jubilee Jumpstart, Homeless Children's Playtime Project 
-* Develop and design surveys to understand organizational stakeholders' opinions on organizational change
-* Collect and analyze data to develop strategic recommendations on organizational change
+* Develop and design surveys to understand organizational stakeholders' opinions on organizational change (expansion and relocation)
+* Collect and analyze data to develop strategic recommendations on organizational change (expansion and relocation)
 * Participate in board's strategic planning and alignment meetings
 * Meet with a team of MBA and JD graudates once to twice per month
  
@@ -67,7 +67,7 @@ December 2015 - January 2016
 * Applied a systems methodology based in MECE principles and [Google's design sprint methodology](http://www.gv.com/sprint/) to support defining a problem of poor integration of project management workflow tools
 * Interviewed users to gather and specify project management system requirements
 * Brainstormed, tested, and designed project management system ideas, which resulted in a prototyped solution for a task management chatbot aligned with requirements
-* Presented the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
+* Demoed the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
 * Completed ISO 9001 Quality Management Systems training
  
 <br>
