@@ -7,6 +7,9 @@
 - name: "Shaping the Future"
   link: "futureshaping"
   
+- name: "Spiritual Inspiration"
+  link: "spiritualinspiration"   
+  
 - name: "Portfolio"
   link: "portfolio"
 
@@ -18,9 +21,6 @@
   
 - name: "Reading List"
   link: "readinglist"
-  
-- name: "Spiritual Inspiration"
-  link: "spiritualinspiration" 
   
 - name: "Resume"
   link: "resume"
