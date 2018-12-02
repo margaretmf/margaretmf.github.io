@@ -8,7 +8,7 @@ in relation to daily observations.
 
 <br>
 
-### Structural Strain Theory and Innovation
+### [Structural Strain Theory](https://www.thoughtco.com/structural-strain-theory-3026632) and Innovation
 
 We see often the pressure that exists on students that must set a goal within the social structure and normal culture to receive a strong college education but feel academic or financial strain. The academic or financial strain may lead these students to feel temptations to participate in deviant behavior, being affected by and influencing the world negatively, or to seek out solutions for alternative ways to pay to function highly in society, incluencing the world more positively.
 
