@@ -8,13 +8,15 @@ in relation to daily observations.
 
 <br>
 
-### [Structural Strain Theory](https://www.thoughtco.com/structural-strain-theory-3026632) and Innovation
+### [Structural Strain Theory](https://www.thoughtco.com/structural-strain-theory-3026632) in Education and Innovation as a Positive Deviation
 
 We see often the pressure that exists on students that must set a goal within the social structure and normal culture to receive a strong college education but feel academic or financial strain. The academic or financial strain may lead these students to feel temptations to participate in deviant behavior, being affected by and influencing the world negatively, or to seek out solutions for alternative ways to pay to function highly in society, incluencing the world more positively.
 
 Robert K. Merton developed [strain theory](https://www.thoughtco.com/structural-strain-theory-3026632) to explain societal strain and deviant behavior as a result of the popular, cultural goals being "not in balance with the means made available within the social structure." Students that do not receive as much support leading into college, for example, may feel like the goals they should ideally set to succeed in society cannot be realistically met. If they feel a lot of strain, they may cheat on a standardized test and deviate. Even if a student does not cheat to move towards a good college and receives an acceptance letter, if they do not receive enough financial support, they may experience strain in school and deviate by using too many alcohol and drugs.
 
 Some people who face strain may use the strain for the social good. I've seen people that while facing strain, choose not to act on it negatively and rather find solutions to problems leading to strain for people around them. People may work to shift the goals or influence the social structure to support aligning the two more as a result of the mismatch. I think these social scenarios point to a larger theory around entrepreneurship and intrapreneurship as it relates to social strain and constructive deviations in response to the mismatch between social norms and social infrastructure.
+
+People may innovate around scholarships for education or teaching students outside of preparatory schools how to study for tests and motivate themselves as part of a social innovation program to intervene. People may also innovate around culture and take steps to create more job opportunities that level society out rather than increase divides. These types of entrepreneurial and intrapreneurial deviations help to match culture with the social structure, preventing negative deviations.
 
 <br>
 
