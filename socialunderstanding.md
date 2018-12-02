@@ -16,7 +16,7 @@ Robert K. Merton developed [strain theory](https://www.thoughtco.com/structural-
 
 Some people who face strain may use the strain for the social good. I've seen people that while facing strain, choose not to act on it negatively and rather find solutions to problems leading to strain for people around them. People may work to shift the goals or influence the social structure to support aligning the two more as a result of the mismatch. I think these social scenarios point to a larger theory around entrepreneurship and intrapreneurship as it relates to social strain and constructive deviations in response to the mismatch between social norms and social infrastructure.
 
-People may innovate around scholarships for education or teaching students outside of preparatory schools how to study for tests and motivate themselves as part of a social innovation program to intervene. People may also innovate around culture and take steps to create more job opportunities that level society out rather than increase divides. These types of entrepreneurial and intrapreneurial deviations help to match culture with the social structure, preventing negative deviations.
+People may enact change creating new ways to receive scholarships for education or teaching students outside of preparatory schools how to study for tests and motivate themselves as part of social innovation programs. People may also innovate around culture and take steps to create more job opportunities that level society out rather than increase divides. These types of entrepreneurial and intrapreneurial deviations help to match culture with the social structure, preventing negative deviations that harm society.
 
 <br>
 
