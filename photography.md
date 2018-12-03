@@ -129,7 +129,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="christmas-wreath.jpg">
+<img class="profile-picture" src="holiday-spirit.jpg">
 
 
 
