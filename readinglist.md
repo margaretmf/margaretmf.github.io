@@ -90,6 +90,43 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [America's empty churches](https://www.theatlantic.com/ideas/archive/2018/11/what-should-america-do-its-empty-church-buildings/576592/?utm_source=twb) by Jonathan Merritt
+* [The illusion of consciousness](https://www.ted.com/talks/dan_dennett_on_our_consciousness?language=en) by Dan Dennett
+* [A room without a view: Proposed D.C. apartments offer life underground](https://www.washingtonpost.com/local/dc-politics/a-room-without-a-view-proposed-dc-apartment-complex-offers-life-underground/2018/11/26/7ff816a2-ec52-11e8-96d4-0d23f2aaad09_story.html?utm_term=.2ed39bcc440a) by Paul Schwartzman
+* [This city’s overdose deaths have plunged. Can others learn from it?](https://www.nytimes.com/2018/11/25/health/opioid-overdose-deaths-dayton.html) by Abby Goodnough
+* [Tech forward: Liberal arts education in a technological university](https://www.mtu.edu/news/stories/2018/november/tech-forward-liberal-arts-education-in-a-technological-university.html) by David Hemmer
+* [The founder of Panera Bread explains the economic forces that led to Trump](https://www.newyorker.com/business/currency/the-founder-of-panera-bread-explains-the-economic-forces-that-led-to-trump?utm_source=twitter&utm_medium=social&utm_social-type=owned&mbid=social_twitter&utm_brand=tny) by Sheelah Kolhatkar
+* [U.S. closes major crossing as caravan migrants mass at border in Mexico](https://www.washingtonpost.com/world/the_americas/us-closes-major-crossing-as-caravan-migrants-mass-at-border-in-mexico/2018/11/25/f94aabe0-f0ea-11e8-99c2-cfca6fcf610c_story.html?utm_term=.0f4d48b25f95) by Sarah Kinosian
+* [The journal of Marcus Aurelius is essential reading if you want a clear and focused mind](https://qz.com/1051963/mindfulness-is-easy-to-achieve-just-follow-the-wise-words-of-marcus-aurelius/) by Zat Rana
+* [To find a better solution, ask a better question](https://medium.com/s/story/to-find-a-better-solution-ask-a-better-question-3be7fee5af65) by Hal Gregersen
+* [Public perspectives on food risks](http://www.pewinternet.org/2018/11/19/public-perspectives-on-food-risks/) by Cary Funk, Brian Kennedy, & Meg Hefferon
+* [6 things that could happen if sea levels rise by 11 feet this century](https://www.globalcitizen.org/en/content/6-things-happen-sea-level-rise/?utm_source=twitter&utm_medium=social&utm_content=global&utm_campaign=general-content&linkId=59862074) by Joe McCarthy
+* [Can we realize untapped opportunity by redefining work?](https://www2.deloitte.com/insights/us/en/focus/technology-and-the-future-of-work/redefining-work-organizational-transformation.html) by John Hagel & Maggie Wooll
+* [Competition is dying and taking capitalism with it](https://www.bloomberg.com/opinion/articles/2018-11-25/the-myth-of-capitalism-exposed) by Jonathan Tepper
+* [The Alma and Joseph Gildenhorn book series with Arne Duncan](https://www.aspeninstitute.org/events/the-alma-and-joseph-gildenhorn-book-series-with-arne-duncan/) by Aspen Institute
+* [San Francisco prepares to be the first major city to nix parking requirements](https://qz.com/1477660/san-francisco-prepares-to-be-the-first-major-city-to-nix-parking-requirements/) by Michael J. Coren
+* [How to survive the next era of tech (slow down and be mindful)](https://www.nytimes.com/2018/11/28/technology/how-to-survive-the-next-era-of-tech-slow-down-and-be-mindful.html) by Farhad Manjoo
+* [The boundary between our bodies and our tech](https://psmag.com/magazine/the-boundary-between-our-bodies-and-our-tech) by Kevin Lincoln
+* [Technology will change the meaning of intelligence](https://qz.com/1469285/technology-will-change-the-meaning-of-intelligence/) by Rose Luckin
+* [The right way to be introspective (yes, there’s a wrong way)](https://ideas.ted.com/the-right-way-to-be-introspective-yes-theres-a-wrong-way/) by Tasha Eurich
+* [Why are students ditching the history major?](https://www.chronicle.com/article/Why-Are-Students-Ditching-the/245163/) by Emma Pettit
+* [16 fiction titles in the running for the second Aspen words literary prize](https://www.aspeninstitute.org/blog-posts/16-fiction-titles-in-the-running-for-the-second-aspen-words-literary-prize/) by Aspen Institute
+* [With US infrastructure again on the agenda, here's what's new](https://www.aspeninstitute.org/blog-posts/infrastructure-agenda-new/) by Miguel Padro
+* [Robot reality check: They create wealth-and jobs](https://www.wsj.com/articles/robot-reality-check-they-create-wealthand-jobs-1543500001) by Christopher Mims
+* [The concept creep of 'emotional labor'](https://www.theatlantic.com/family/archive/2018/11/arlie-hochschild-housework-isnt-emotional-labor/576637/) by Julie Beck
+* [Conversational interfaces: Powerful speech technology from China’s leading Internet company makes it much easier to use a smartphone](https://www.technologyreview.com/s/600766/10-breakthrough-technologies-2016-conversational-interfaces/) by Will Knight
+* [The rise of the useless class](https://ideas.ted.com/the-rise-of-the-useless-class/) by Yuval Noah Harari
+* [Letters: ‘Graduate school offers ever-increasing pressures that compound'](https://www.theatlantic.com/letters/archive/2018/12/readers-respond-graduate-school-and-mental-health/576937/?utm_medium=social&utm_content=edit-promo&utm_source=twitter&utm_campaign=the-atlantic&utm_term=2018-12-01T14%3A00%3A52) by Alia Wong
+* [Seniors think what they've learned will help them do their jobs. Do employers agree?](https://www.chronicle.com/article/Seniors-Think-What-They-ve/245191/)
+* [Amazon’s HQ2 search was about specialized talent](https://www.citylab.com/life/2018/11/amazon-hq2-specialized-talent-search-nyc-dc/576691/?utm_term=2018-11-30T18%3A29%3A32&utm_campaign=citylab&utm_source=twitter&utm_medium=social&utm_content=edit-promo) by Richard Florida
+* [Beyond “taming” the tech giants](https://newsocialist.org.uk/beyond-taming-the-tech-giants/) by Wendy Liu
+* [Why a great U.S. economy doesn't feel so great](https://www.bloomberg.com/opinion/articles/2018-11-09/why-a-great-u-s-economy-doesn-t-feel-so-great?srnd=opinion&utm_source=twitter&utm_content=view&utm_medium=social&cmpid%3D=socialflow-twitter-view&utm_campaign=socialflow-organic) by Noah Smith
+* [Rep. John Lewis on the ‘Unfinished Work’ in the civil rights movement](https://www.aspeninstitute.org/blog-posts/rep-john-lewis-on-the-unfinished-work-in-the-civil-rights-movement/) by Aspen Institute
+* [Mueller may uncover a conspiracy — or just a coverup](https://www.washingtonpost.com/opinions/dont-count-on-mueller-to-uncover-a-vast-collusion-conspiracy/2018/11/30/1feb7020-f4d0-11e8-bc79-68604ed88993_story.html?utm_term=.82d19e9b8044) by Randall D. Eliason
+* [How to create safer public housing projects](https://www.citylab.com/design/2018/11/affordable-public-housing-design-crime-safety-research/577009/?utm_term=2018-11-30T21%3A13%3A36&utm_source=twitter&utm_campaign=citylab&utm_content=edit-promo&utm_medium=social) by Michael Friedrich
+* [How politics in Trump’s America divides families](https://www.theatlantic.com/politics/archive/2018/11/how-politics-in-trumps-america-divides-families/576301/?utm_source=twitter&utm_term=2018-11-26T11%3A00%3A15&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo) by Kiley Bense
+* [Is our constant use of digital technologies affecting our brain health? We asked 11 experts.](https://www.vox.com/science-and-health/2018/11/28/18102745/cellphone-distraction-brain-health-screens-kids) by Brian Resnick, Julia Belluz, & Eliza Barclay
+* [What Obama talks about when he talks about Trump](https://www.theatlantic.com/politics/archive/2018/11/obama-says-trump-doesnt-belong-oval-office/576883/?utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2018-11-29T11%3A00%3A26) by Edward-Isaac Dovere
 * [Improve this one behavior to encourage innovation: We all get to choose - do we encourage originality or conformity?](https://medium.com/@jswilder16/improve-this-one-behavior-to-encourage-innovation-654e041256c5) by Jake Wilder
 * [Do you have the mindset of a problem solver? This is the essence of business](https://medium.com/swlh/do-you-have-the-mindset-of-a-problem-solver-7014a55c4778) by Kyle Loftus
 * [California fire survivors face uncertain future](https://www.csmonitor.com/USA/2018/1123/California-fire-survivors-face-uncertain-future?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1543084095) by Martin Kuz
