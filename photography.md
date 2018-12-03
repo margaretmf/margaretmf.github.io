@@ -124,7 +124,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="christmas.jpg">
+<img class="profile-picture" src="christmas-wreath.jpg">
 
 
 
