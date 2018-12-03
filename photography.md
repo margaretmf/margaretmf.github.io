@@ -119,6 +119,18 @@ layout: default
 <img class="profile-picture" src="voting.jpg">
 
 
+
+<img class="profile-picture" src="fall-foliage.jpg">
+
+
+
+<img class="profile-picture" src="christmas.jpg">
+
+
+
+<img class="profile-picture" src="holiday-spirit.jpg">
+
+
 <b>
 
 <b>
