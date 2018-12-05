@@ -90,6 +90,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [How to build a company that brings humanity to AI](https://www.forbes.com/sites/insights-intelai/2018/11/29/how-to-build-a-company-that-brings-humanity-to-ai/#29b97559248d) by Rana El-Kaliouby
 * [America's empty churches](https://www.theatlantic.com/ideas/archive/2018/11/what-should-america-do-its-empty-church-buildings/576592/?utm_source=twb) by Jonathan Merritt
 * [The illusion of consciousness](https://www.ted.com/talks/dan_dennett_on_our_consciousness?language=en) by Dan Dennett
 * [A room without a view: Proposed D.C. apartments offer life underground](https://www.washingtonpost.com/local/dc-politics/a-room-without-a-view-proposed-dc-apartment-complex-offers-life-underground/2018/11/26/7ff816a2-ec52-11e8-96d4-0d23f2aaad09_story.html?utm_term=.2ed39bcc440a) by Paul Schwartzman
