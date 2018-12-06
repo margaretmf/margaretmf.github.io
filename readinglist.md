@@ -90,6 +90,12 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Elevating community authority in collective impact](https://ssir.org/articles/entry/elevating_community_authority_in_collective_impact?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Byron P. White, Jennifer Blatz, & Mark L. Joseph
+* [Selecting a pool of bold ideas](https://ssir.org/articles/entry/selecting_a_pool_of_bold_ideas?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Anne Ferola & Lindsay Kijewski
+* [Why taking a step back from social impact assessment can lead to better results](https://ssir.org/articles/entry/why_taking_a_step_back_from_social_impact_assessment_can_lead_to_better_res?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Anita Fuzi, Lidia Gryszkiewicz, & Dariusz Sikora 
+* [Make local advocacy stronger by connecting it to the bigger story](https://ssir.org/articles/entry/make_local_advocacy_stronger_by_connecting_it_to_the_bigger_story?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Jim Shultz 
+* [How inclusive practices transform workplace culture](https://ssir.org/articles/entry/how_inclusive_practices_transforms_workplace_culture?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Nigel Travis
+* [Building organizational muscle and mindset to gather participant feedback](https://ssir.org/articles/entry/building_organizational_muscle_and_mindset_to_gather_participant_feedback?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Brad Dudding & Chris Watler 
 * [How to build a company that brings humanity to AI](https://www.forbes.com/sites/insights-intelai/2018/11/29/how-to-build-a-company-that-brings-humanity-to-ai/#29b97559248d) by Rana El-Kaliouby
 * [America's empty churches](https://www.theatlantic.com/ideas/archive/2018/11/what-should-america-do-its-empty-church-buildings/576592/?utm_source=twb) by Jonathan Merritt
 * [The illusion of consciousness](https://www.ted.com/talks/dan_dennett_on_our_consciousness?language=en) by Dan Dennett
