@@ -90,6 +90,9 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [The good of GST: Increased use of data for good](https://www.entrepreneur.com/article/324493) by Alok Mittal
+* [Enterprise AI: The ongoing quest for insight and foresight](https://www.cio.com/article/3326856/analytics/enterprise-ai-the-ongoing-quest-for-insight-and-foresight.html) by Jay Boisseau & Lucas Wilson
+* [Why data scientists should make a commitment to diversity](https://www.informationweek.com/big-data/big-data-analytics/why-data-scientists-should-make-a-commitment-to-diversity/a/d-id/1333403) by Sophie Searcy
 * [Elevating community authority in collective impact](https://ssir.org/articles/entry/elevating_community_authority_in_collective_impact?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Byron P. White, Jennifer Blatz, & Mark L. Joseph
 * [Selecting a pool of bold ideas](https://ssir.org/articles/entry/selecting_a_pool_of_bold_ideas?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Anne Ferola & Lindsay Kijewski
 * [Why taking a step back from social impact assessment can lead to better results](https://ssir.org/articles/entry/why_taking_a_step_back_from_social_impact_assessment_can_lead_to_better_res?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Anita Fuzi, Lidia Gryszkiewicz, & Dariusz Sikora 
