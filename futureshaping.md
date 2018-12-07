@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## BLOG
-Currently, as we live through a time of [accelerations](https://www.youtube.com/watch?v=Up7K5sRqllw), I observe trends, imagine a better world, and contemplate how to shape the future. While taking a class on the history of entrepreneurship, I practiced idea generating daily, so as I continue to learn about professional foresight, I less rigidly generate ideas and express vision.
+Currently, as we live through a time of [accelerations](https://www.youtube.com/watch?v=Up7K5sRqllw), I observe trends, imagine a better world, and contemplate how to shape the future. While taking a class on the history of entrepreneurship, I practiced idea generating daily, so as I continue to learn about professional foresight, I generate ideas and express vision.
 
 <br>
 
