@@ -90,6 +90,64 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Making U.S. fire departments more diverse and inclusive](https://hbr.org/2018/12/making-u-s-fire-departments-more-diverse-and-inclusive?utm_source=twitter&utm_campaign=hbr&utm_medium=social) by Corinne Bendersky
+* [Americans value critical thinking but choose not to practice it](https://qz.com/1488854/are-schools-teaching-enough-critical-thinking-skills/) by Jenny Anderson
+* [Philanthropy as ‘a laboratory’](https://www.philanthropy.scot/philanthropy-as-a-laboratory/)
+* [Why the United States needs a national artificial intelligence strategy and what it should look like](https://itif.org/publications/2018/12/04/why-united-states-needs-national-artificial-intelligence-strategy-and-what) by Joshua New
+* [Artificial intelligence is creeping up on us—literally](https://qz.com/1486879/artificial-intelligence-is-creeping-up-on-us-literally/) by Corinne Purtill
+* [The gender qualification gap: women ‘over-invest’ in workplace capabilities](https://theconversation.com/the-gender-qualification-gap-women-over-invest-in-workplace-capabilities-105385) by Leonora Risse
+* [How to teach the civil war in the deep south](https://www.theatlantic.com/education/archive/2018/12/how-teach-civil-war-deep-south/577588/?utm_medium=social&utm_content=edit-promo&utm_term=2018-12-07T16%3A49%3A26&utm_campaign=the-atlantic&utm_source=twitter) by Kristina Rizga
+* [Universal income vs. the robots: Meet the presidential candidate fighting automation](https://www.technologyreview.com/s/612558/universal-income-vs-the-robots-meet-the-presidential-candidate-fighting-automation/?utm_campaign=site_visitor.unpaid.engagement&utm_medium=tr_social&utm_source=twitter) by Erin Winick
+* [Luxembourg just made all public transit free. It won’t be the last country to do so](https://qz.com/1488212/luxembourg-is-the-first-county-to-make-all-public-transit-free/) by Michael Coren
+* [These five qualities define good leadership, according to a presidential historian](https://www.aspeninstitute.org/blog-posts/these-five-qualities-define-good-leadership-according-to-a-presidential-historian/) by Ben Berliner
+* [How colleges are preparing students for jobs that don’t exist yet(https://www.pbs.org/newshour/economy/making-sense/how-colleges-are-preparing-students-for-jobs-that-dont-exist-yet) by Gretchen Frazee
+* [It took a century to create the weekend—and only a decade to undo it](https://qz.com/969245/it-took-a-century-to-create-the-weekend-and-only-a-decade-to-undo-it/) by Katrina Onstad
+* [Scientists say your “mind” isn’t confined to your brain, or even your body](https://qz.com/866352/scientists-say-your-mind-isnt-confined-to-your-brain-or-even-your-body/) by Olivia Goldhill
+* [Rules in space: If we don’t invent a legal framework for space colonisation the consequences could be catastrophic, the time to act is now](https://aeon.co/essays/we-urgently-need-a-legal-framework-for-space-colonisation) by Sam Dresser
+* [How one university uses 'sneaky learning' to help students develop good study habits](https://www.chronicle.com/article/How-One-University-Uses/245265) by Dan Berrett & Beth McMurtrie
+* [Spying and propaganda are now greater challenges than terrorism, Canada’s spy chief says](https://qz.com/1484384/canada-says-spying-and-cyber-have-overtaken-terrorism-as-challenges/) by Max de Haldevang
+* [Just how much of the world is urban?](https://www.citylab.com/life/2018/12/global-urbanization-un-majority-city-measure/577090/?utm_content=edit-promo&utm_term=2018-12-06T22%3A28%3A19&utm_medium=social&utm_source=twitter&utm_campaign=citylab) by Richard Florida
+* [Why smart people are vulnerable to putting tribe before truth: Science literacy is important, but without the parallel trait of "science curiosity", it can lead us astray](https://blogs.scientificamerican.com/observations/why-smart-people-are-vulnerable-to-putting-tribe-before-truth/) by Dan Kahan
+* [Why robot brains need symbols: We'll need both deep learning and symbol manipulation to build AI.](http://nautil.us/issue/67/reboot/why-robot-brains-need-symbols) by Gary Marcus
+* [After a year of tech scandals, our 10 recommendations for AI: Let's begin with better regulation, protecting workers, and applying "truth in advertising" rules to AI](https://medium.com/@AINowInstitute/after-a-year-of-tech-scandals-our-10-recommendations-for-ai-95b3b2c5e5) by AI Now Institute
+* [Here’s what we know so far about the 2019 women's march](https://www.brit.co/heres-what-we-know-so-far-about-the-2019-womens-march/) by Mara Santilli 
+* [Here’s what’s happening with electronic money around the world](https://qz.com/1455671/heres-whats-happening-with-electronic-money-around-the-world/) by Youyou Zhou & John Detrixhe
+* [Millennials didn't kill the economy. The economy killed millennials](https://www.theatlantic.com/ideas/archive/2018/12/stop-blaming-millennials-killing-economy/577408/) by Derek Thompson
+* [How Einstein reconciled religion to science](http://nautil.us/blog/how-einstein-reconciled-religion-to-science) by Brian Gallagher
+* [How to ensure the success of a position your company hasn't had before](https://hbr.org/2018/12/how-to-ensure-the-success-of-a-position-your-company-hasnt-had-before?utm_medium=social&utm_source=twitter&utm_campaign=hbr) by Sukhbir Sandhu & Carol T. Kulik
+* [The US just declared war on the Chinese company it loves to hate most](https://qz.com/1485926/china-calls-for-release-of-arrested-huawei-cfo-meng-wanzhou/) by Tripti Lahiri & Echo Huang
+* [How much do you know about the personal data you give up online?](https://qz.com/1450947/take-this-quiz-on-googles-terms-of-service-to-understand-how-your-data-is-used/) by Alexandra Ossola
+* [Does harvesting worker data lead to empowerment or exploitation?](https://www.ft.com/content/7adbdb04-c1be-11e8-84cd-9e601db069b8) by Sarah Murray
+* [How to make your phone into an ally, not an enemy: Technology doesn't have to be an isolating force](https://medium.com/s/story/how-to-make-your-phone-into-an-ally-not-an-enemy-5e0f4302df6c) by Margaret Morris
+* [Future of college](https://qz.com/is/what-happens-next-2/1469287/future-of-college/) by Multiple Authors
+* [The seductive diversion of ‘solving’ bias in Artificial Intelligence](https://medium.com/s/story/the-seductive-diversion-of-solving-bias-in-artificial-intelligence-890df5e5ef53) by Julia Powles
+* [Number of uninsured children in America grows for the first time in nearly a decade](https://www.cnn.com/2018/11/29/politics/uninsured-children-rate/index.html) by Tami Luhby
+* [Will the next great tech company come from the developing world?](https://www.theatlantic.com/business/archive/2018/11/the-next-great-tech-company/568756/?utm_term=2018-11-26T11%3A00%3A15&utm_campaign=the-atlantic&utm_medium=social&utm_source=twitter&utm_content=edit-promo) by Simone Stolzoff
+* [The new 50s: Far from retirement](https://www.nytimes.com/2018/12/04/business/retirement/50s-far-from-retirement.html?smid=tw-nytimesbusiness&smtyp=cur) by Marci Alboher
+* [If you want to create space for innovation at your company, this is what you need to do](https://www.entrepreneur.com/article/323515) by Robert Vis
+* [Digital divide is wider than we think, study says](https://www.nytimes.com/2018/12/04/technology/digital-divide-us-fcc-microsoft.html?smtyp=cur&smid=tw-nytimesbusiness) by Steve Lohr
+* [One way to set up liberal-arts majors for success: Focus on skills](https://www.chronicle.com/article/One-Way-to-Set-Up-Liberal-Arts/245252/#.XAbizzucP-o.twitter) by Goldie Blumenstyk
+* [Is a recession coming?](https://www.theatlantic.com/ideas/archive/2018/11/stocks-are-nosediving-recession-coming/576568/) by Derek Thompson
+* [One woman’s story reveals the human cost of climate change in Bangladesh](https://qz.com/india/1484703/the-human-cost-of-climate-change-in-bangladesh/) by Sonja Ayeb-Karlsson
+* [Your brain isn't a computer — it's a quantum field](https://bigthink.com/ideafeed/does-the-mind-play-dice-with-reason?utm_medium=Social&utm_source=Twitter#Echobox=1543935574) by Daphne Muller 
+* [Can compassion be taught?](https://medium.com/s/love-hate/can-compassion-be-taught-b72c37f13977) by Julissa Treviño
+* [America’s health-care system is making the opioid crisis worse](https://www.theatlantic.com/health/archive/2018/11/why-heroin-and-fentanyl-addicts-cant-get-treatment/576118/?utm_medium=social&utm_term=2018-11-20T13%3A46%3A04&utm_content=edit-promo&utm_source=twitter&utm_campaign=the-atlantic) by Olga Khazan 
+* [Markets are as old as civilization](https://humanprogress.org/article.php?p=1289) by Nima Sanandaji 
+* [Plane carrying remains of former President Bush lands in Houston](https://www.reuters.com/article/us-people-bush/master-of-bygone-civility-bush-is-hailed-at-funeral-as-u-s-soldier-statesman-idUSKBN1O419D?feedType=RSS&feedName=topNews&utm_source=twitter&utm_medium=Social) by Steve Holland, Richard Cowan, Susan Heavey & Jeff Mason
+* [I served in congress longer than anyone. Here's how to fix it.](https://www.theatlantic.com/ideas/archive/2018/12/john-dingell-how-restore-faith-government/577222/?utm_source=twb) by John Dingell
+* [From college town to Chinatown](https://www.chronicle.com/article/From-College-Town-to-Chinatown/245215?key=YYB656B-DGUJ2veZAT6seSnrJxNSq47Ysl5X4J0-LQv1bKn0ebmYnzyn3qMQIK4nTjRGVFo2Yms1QmoxTkQ0M1daSzU3ZWhWdEFNa3NFN3B4U0NkU0d5ZmZ2MA) by Karin Fischer 
+* [Why an age of machine learning needs the humanities](https://www.publicbooks.org/why-an-age-of-machine-learning-needs-the-humanities/) by Ted Underwood
+* [Twelve simple rules of systems thinking for complex global issues](https://www.heartoftheart.org/?p=3978) by Louise Diamond
+* [Brands are looking to futurists to foresee trends and anticipate disruption: They're known as trend spotters, forecasters or analysts](https://www.adweek.com/digital/brands-are-looking-to-futurists-to-foresee-trends-and-anticipate-disruption/) by Dan Tynan
+* [Why entrepreneurs are the athletes of the 21st century](https://www.entrepreneur.com/article/323418) by Michael Carter
+* [What the president could do if he declares a state of emergency](https://www.theatlantic.com/magazine/archive/2019/01/presidential-emergency-powers/576418/?utm_term=2018-12-05T16%3A23%3A46&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo) by Elizabeth Goitein
+* [What happens when automation takes over your job](https://qz.com/1482949/when-automation-hit-other-industries/) by Mary Pilon
+* [How we all became Russia's 'useful idiot's: Nationalism may have started as a side effect of fake news, but it’s quickly becoming the new American way](https://medium.com/s/douglas-rushkoff/how-we-all-became-russias-useful-idiots-4df90bf9dea0) by Douglas Rushkoff
+* [African languages are being left behind when it comes to voice recognition innovation](https://qz.com/africa/1475763/african-languages-are-lagging-behind-when-it-comes-to-voice-recognition-innovations/) by Abdi Latif Dahir
+* [Perennials, not millennials, will trigger the next wave of talent retention efforts](https://qz.com/work/1476842/the-future-of-work-will-be-shaped-by-an-aging-workforce/) by Corinne Purtill 
+* [The best of Peter Drucker](https://www.forbes.com/sites/stevedenning/2014/07/29/the-best-of-peter-drucker/#6a208a835a96) by Steve Denning
+* [Can a nonreligious church save politics?](http://nationswell.com/eric-liu-civic-saturday-secular-church/?utm_source=Newsletter&utm_medium=Featured&utm_campaign=NLFeatSpotPost1) by Adrienne Day
+* [Preaching on climate change: Why it matters](https://www.utne.com/environment/preaching-on-climate-change-ze0z1808zcoo?newsletter=1&spot=headline&utm_source=wcemail&utm_medium=email&utm_campaign=UTR%20eNews%2012-07-18&utm_term=UTR_eNewsAll%20Subscribers&_wcsid=4F153F0961FA7DF32DFCF26A176D6F093632158493501227) by Jim Antal
 * [The good of GST: Increased use of data for good](https://www.entrepreneur.com/article/324493) by Alok Mittal
 * [Enterprise AI: The ongoing quest for insight and foresight](https://www.cio.com/article/3326856/analytics/enterprise-ai-the-ongoing-quest-for-insight-and-foresight.html) by Jay Boisseau & Lucas Wilson
 * [Why data scientists should make a commitment to diversity](https://www.informationweek.com/big-data/big-data-analytics/why-data-scientists-should-make-a-commitment-to-diversity/a/d-id/1333403) by Sophie Searcy
