@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## BLOG
-Currently, as we live through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/), I experiment with data and its social impact. I love the fact that metaphysics was one of many sources of inspiration for [John Paul Morrison](http://www.jpaulmorrison.com/), the inventor of flow-based programming, as I explore metadata, ontology, and data flow through some experiments.
+Currently, as we live through [the age of the algorithm](https://maisonneuve.org/article/2011/05/9/age-algorithm/), I experiment with data and its social impact. 
 
 <br>
 
