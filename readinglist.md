@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### In Progress
-* [Can Democracy Work? A Short History of a Radical Idea, from Ancient Athents to Our World](https://www.amazon.com/Can-Democracy-Work-History-Radical/dp/0374137641) by James Miller 
 * [The New Childhood: Raising Kids to Thrive in a Connected World](https://www.littlebrownspark.com/titles/jordan-shapiro/the-new-childhood/9780316437240/) by Jordan Shapiro
 * [Brief Answers to Big Questions](https://www.amazon.com/stores/page/977C9348-820A-4CA1-B5C8-C7757ECC1F93?store_ref=SB_A09683711LPU4DMPRT6PF&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3ff6092e-8451-438b-8278-7e94064b4d42&pf_rd_s=desktop-sx-top-slot&pf_rd_t=301&pf_rd_i=brief+answers+to+the+big+questions&hsa_cr_id=7040799440101&lp_slot=auto-sparkle-hsa-tetris&lp_asins=0307409600,B078QTY62K,1984827065&lp_mat_key=brief%20answers%20to%20the%20big%20questions&lp_query=brief%20answers%20to%20the%20big%20questions) by Stephen Hawking
 * [Enlightenment NOW: The Case for Reason, Science, Humanism, and Progress](https://www.amazon.com/Enlightenment-Now-Science-Humanism-Progress/dp/0525427570/ref=sr_1_1?ie=UTF8&qid=1543001672&sr=8-1&keywords=enlightment+now+by+steven+pinker) by Steven Pinker
@@ -57,6 +56,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [Can Democracy Work? A Short History of a Radical Idea, from Ancient Athents to Our World](https://www.amazon.com/Can-Democracy-Work-History-Radical/dp/0374137641) by James Miller 
 * [Being Relational: The Seven Ways to Quality Interaction & Lasting Change](https://www.amazon.com/Being-Relational-Quality-Interaction-Lasting/dp/0757318800) by Louise Phipps Senft & William Senft
 * [Almost Everything: Notes on Hope](https://www.amazon.com/Almost-Everything-Notes-Anne-Lamott/dp/0525537449) by Anne Lamott
 * [Creative Confidence: Unleashing the Creative Potential Within Us All](https://www.amazon.com/s/?ie=UTF8&keywords=creative+confidence+unleashing+the+creative+potential+within+us+all&tag=mh0b-20&index=aps&hvadid=78615134287205&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_9fez5vtcwn_e) by Tom Kelley & David Kelley
@@ -90,6 +90,17 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [The hippies were right: It's all about vibrations, man!](https://blogs.scientificamerican.com/observations/the-hippies-were-right-its-all-about-vibrations-man/) by Tam Hunt 
+* [How to build a museum in outer space](https://www.theatlantic.com/science/archive/2018/12/museum-orbit-space-heritage/576922/?utm_source=twitter&utm_term=2018-12-03T13%3A00%3A34&utm_content=edit-promo&utm_campaign=the-atlantic&utm_medium=social) by Marina Koren
+* [How to push past your biggest anxieties and act](https://ideas.ted.com/how-to-push-past-your-biggest-anxieties-and-act/) by Tim Ferriss
+* [Amazon mania revealed these 3 things about higher ed](https://www.chronicle.com/article/Amazon-Mania-Revealed-These-3/245267?key=YYB656B-DGUJ2veZAT6seRy60xcGiHSUiRwqjZBOqDcep0vGn0j1fLER9fBqTFAMaFp2eUM2TWN1b1FzblVvZGZvdFFuRW5zcXYyWFlwY1gzWE05LUVpSENNMA) by Lindsay Ellis 
+* [Shipping companies unfurl greener solutions for transit](https://www.csmonitor.com/Technology/2018/1206/Shipping-companies-unfurl-greener-solutions-for-transit?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1544345338) by Kelvin Chan
+* [The future of learning](https://medium.com/s/story/what-is-the-future-of-learning-3ff625d1dc86) by Niklas Goke
+* [Social bite sleep-out does good – but we need systemic change](https://www.thenational.scot/news/17286011.social-bite-sleep-out-does-good-but-we-need-systemic-change/) by Mike Small
+* [How will we keep people, not machines, at the center of the future of work?](https://www.forbes.com/sites/curtsteinhorst/2018/11/08/how-will-we-keep-people-not-machines-at-the-center-of-the-future-of-work/#248d7a2635d9) by Curt Steinhorts
+* [America’s two political parties are asymmetrical](https://www.theatlantic.com/ideas/archive/2018/12/avenatti-was-never-going-be-democratic-trump/577387/?utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2018-12-05T11%3A30%3A29) by Adam Serwer
+* [Amazon HQ2 and the ‘gntrification of jobs’](https://www.citylab.com/equity/2018/12/amazon-hq2-gentrification-jobs-new-york-virginia/576313/?utm_content=edit-promo&utm_source=twitter&utm_term=2018-12-07T15%3A32%3A45&utm_medium=social&utm_campaign=citylab) by Sarah Holder
+* [How quantum computing is enabling brekathroughs in chemistry](https://singularityhub.com/2018/11/15/how-quantum-computing-is-enabling-breakthroughs-in-chemistry/?utm_medium=email&utm_content=how-quantum-computing-is-enabling-breakthroughs-in-chemistry&utm_source=newsletter&utm_campaign=fy18-hub-daily-rss-newsletter&mkt_tok=eyJpIjoiT1RNNU5qUmhaakEwWmpRMSIsInQiOiJpOEZnc2xzMVwveHNLZEtPMmRVbm9sem1wWXMxUlNUV2JjeThicUlIOXB6OTg5MDl1RVpKYXlkUlVFNE5aS2xFUzhsSFg0VE1CV21NR09lXC8rRHJrTnFWUFc2Rm9kM3RJN3RBZXR5XC9TYW1QTHg0dGZtYTNSZFRVVVNENlQrSVBYUCJ9#sm.0001vxquz0muff9czrm2kkr1bs3n3) by Mark Jackson
 * [Making U.S. fire departments more diverse and inclusive](https://hbr.org/2018/12/making-u-s-fire-departments-more-diverse-and-inclusive?utm_source=twitter&utm_campaign=hbr&utm_medium=social) by Corinne Bendersky
 * [Americans value critical thinking but choose not to practice it](https://qz.com/1488854/are-schools-teaching-enough-critical-thinking-skills/) by Jenny Anderson
 * [Philanthropy as ‘a laboratory’](https://www.philanthropy.scot/philanthropy-as-a-laboratory/)
