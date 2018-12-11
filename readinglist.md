@@ -90,6 +90,9 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Why ‘Rage’ is the word of the year: The word-and the feeling-became ubiquitous in 2018](https://medium.com/wordsthatmatter/why-rage-is-the-word-of-the-year-e686d02f67ee) by Morgan Jerkins
+* [Why ‘Truth’ is James Comey’s word of the year: 2018 delivered an unprecedented cascade of lies](https://medium.com/wordsthatmatter/why-truth-is-james-comey-s-word-of-the-year-726e99434d6c) by James Comey
+* [Words that matter - 2018](https://medium.com/wordsthatmatter)
 * [The hippies were right: It's all about vibrations, man!](https://blogs.scientificamerican.com/observations/the-hippies-were-right-its-all-about-vibrations-man/) by Tam Hunt 
 * [How to build a museum in outer space](https://www.theatlantic.com/science/archive/2018/12/museum-orbit-space-heritage/576922/?utm_source=twitter&utm_term=2018-12-03T13%3A00%3A34&utm_content=edit-promo&utm_campaign=the-atlantic&utm_medium=social) by Marina Koren
 * [How to push past your biggest anxieties and act](https://ideas.ted.com/how-to-push-past-your-biggest-anxieties-and-act/) by Tim Ferriss
