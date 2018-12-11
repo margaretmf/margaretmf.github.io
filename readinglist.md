@@ -90,6 +90,9 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Fighting fire with fire – in God’s way](https://www.csmonitor.com/Commentary/A-Christian-Science-Perspective/2018/1210/Fighting-fire-with-fire-in-God-s-way) by Steve Cole
+* [How to soften big conflicts in small ways](https://www.csmonitor.com/Commentary/the-monitors-view/2018/1210/How-to-soften-big-conflicts-in-small-ways) by The Monitor's Editorial Board
+* [Outrage nation: Can America overcome its addiction to anger?](https://www.csmonitor.com/USA/Politics/2018/1207/Outrage-nation-Can-America-overcome-its-addiction-to-anger) by Harry Bruinius
 * [Why ‘Rage’ is the word of the year: The word-and the feeling-became ubiquitous in 2018](https://medium.com/wordsthatmatter/why-rage-is-the-word-of-the-year-e686d02f67ee) by Morgan Jerkins
 * [Why ‘Truth’ is James Comey’s word of the year: 2018 delivered an unprecedented cascade of lies](https://medium.com/wordsthatmatter/why-truth-is-james-comey-s-word-of-the-year-726e99434d6c) by James Comey
 * [Words that matter - 2018](https://medium.com/wordsthatmatter)
