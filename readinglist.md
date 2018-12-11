@@ -90,6 +90,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Martin Luther King, Jr.’s "A Christmas Sermon on Peace" still prophetic 50 years later](https://www.beaconbroadside.com/broadside/2017/12/martin-luther-king-jrs-christmas-sermon-peace-still-prophetic-50-years-later.html) by Martin Luther King Jr.
 * [Fighting fire with fire – in God’s way](https://www.csmonitor.com/Commentary/A-Christian-Science-Perspective/2018/1210/Fighting-fire-with-fire-in-God-s-way) by Steve Cole
 * [How to soften big conflicts in small ways](https://www.csmonitor.com/Commentary/the-monitors-view/2018/1210/How-to-soften-big-conflicts-in-small-ways) by The Monitor's Editorial Board
 * [Outrage nation: Can America overcome its addiction to anger?](https://www.csmonitor.com/USA/Politics/2018/1207/Outrage-nation-Can-America-overcome-its-addiction-to-anger) by Harry Bruinius
