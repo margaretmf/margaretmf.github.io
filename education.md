@@ -47,13 +47,14 @@ layout: default
 * [Darden Pop-up Business Case](https://apply.darden.virginia.edu/register/?id=b6129b78-5924-4de1-b181-22ed4c2636af)
 * [Project Management Essentials](https://generalassemb.ly/)
 
-### Meetup Groups
-* ["Conscious Light" Film Screening, 11/27/2018](https://www.meetup.com/Conscious-Light/)
-* [Center for Inquiry, Monthly](https://www.meetup.com/Cafe-Inquiry-Discussion-Meetup/)
-* [A Republic: If You Can Keep It, 12/8/2018](https://www.meetup.com/A-Republic-If-You-Can-Keep-It/)
-* [The End of Karma, 12/8/2018](https://www.eventbrite.com/e/public-lecture-in-washington-dc-the-end-of-karma-tickets-52241398429#)
+### Meetup Group Events
+* [Center for Inquiry](https://www.meetup.com/Cafe-Inquiry-Discussion-Meetup/)
+* [A Republic: If You Can Keep It](https://www.meetup.com/A-Republic-If-You-Can-Keep-It/)
+* ["Conscious Light" Film Screening](https://www.meetup.com/Conscious-Light/)
+* [The End of Karma](https://www.eventbrite.com/e/public-lecture-in-washington-dc-the-end-of-karma-tickets-52241398429#)
 * [Meditation on Twin Hearts & Pranic Healing](https://www.meetup.com/Meditation-on-Twin-Hearts-Meetup/)
 * [Data Journalism](https://www.meetup.com/data-journalism/)
+* [DataKind DC](https://www.meetup.com/DataKind-DC/)
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Hindi Language, International Language Institute](http://ilidc.com)
