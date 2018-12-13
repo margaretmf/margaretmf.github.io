@@ -90,6 +90,12 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Putin’s praise of a truth-telling dissident](https://www.csmonitor.com/Commentary/the-monitors-view/2018/1212/Putin-s-praise-of-a-truth-telling-dissident) by CSM Editorial Board
+* [How author Jarrett Krosoczka illustrates gratitude – on the page and in life](https://www.csmonitor.com/Books/2018/1212/How-author-Jarrett-Krosoczka-illustrates-gratitude-on-the-page-and-in-life) by Rebecca Asoulin 
+* [Why an Argentine leader seeks to break the pull of populism](https://www.csmonitor.com/World/Americas/2018/1212/Why-an-Argentine-leader-seeks-to-break-the-pull-of-populism) by Howard LaFranchi 
+* [My hometown schools are segregated again. I went back to see why](https://www.csmonitor.com/EqualEd/2018/1212/My-hometown-schools-are-segregated-again.-I-went-back-to-see-why) by Stacy Teicher Khadaroo 
+* [The ballot broker: North Carolina race puts face on electoral fraud](https://www.csmonitor.com/USA/Politics/2018/1212/The-ballot-broker-North-Carolina-race-puts-face-on-electoral-fraud) by Patrik Jonsson
+* [From hemp to organic foods, farm bill embraces change in rural US](https://www.csmonitor.com/Business/2018/1212/From-hemp-to-organic-foods-farm-bill-embraces-change-in-rural-US) by Laurent Belsie
 * [We must rethink the purpose of the corporation](https://www.ft.com/content/786144bc-fc93-11e8-ac00-57a2a826423e)
 * [Follow the data? Investigative journalism in the age of algorithms](https://singularityhub.com/2018/11/18/follow-the-data-investigative-journalism-in-the-age-of-algorithms/?utm_medium=email&utm_content=follow-the-data-investigative-journalism-in-the-age-of-algorithms&utm_source=newsletter&utm_campaign=fy18-hub-daily-rss-newsletter&mkt_tok=eyJpIjoiWVRnMlpqSTNZbVJtWkRjMCIsInQiOiJZMkp3N1VBaXEzRGFueXEzSXp2dWxNZTAwUXE5MngzRDJ5RHdubVlcL1FncndoOVwvNEdKa21FUkQraXNxUUFDTE5YTXdYVDVvUGRiWTV6dnA5OFZtZVE0VTJLTXpjbHU5dDUzNmx3M0JxRWxFZ0JLc2ZPeGxSbUljNjlFR3l2dmdtIn0%3D#sm.0001vxquz0muff9czrm2kkr1bs3n3) by Thomas Hornigold
 * [Santa is nothing but stress for families who don't believe in him](https://www.theatlantic.com/family/archive/2018/12/parents-kids-belief-santa/577819/) by Ashley Fetters
