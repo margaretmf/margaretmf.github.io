@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress
+* [The Economics of Religion in India](https://www.amazon.in/Economics-Religion-India-Sriya-Iyer/dp/0674979648) by Sriya Iyer
 * [The New Childhood: Raising Kids to Thrive in a Connected World](https://www.littlebrownspark.com/titles/jordan-shapiro/the-new-childhood/9780316437240/) by Jordan Shapiro
 * [Brief Answers to Big Questions](https://www.amazon.com/stores/page/977C9348-820A-4CA1-B5C8-C7757ECC1F93?store_ref=SB_A09683711LPU4DMPRT6PF&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3ff6092e-8451-438b-8278-7e94064b4d42&pf_rd_s=desktop-sx-top-slot&pf_rd_t=301&pf_rd_i=brief+answers+to+the+big+questions&hsa_cr_id=7040799440101&lp_slot=auto-sparkle-hsa-tetris&lp_asins=0307409600,B078QTY62K,1984827065&lp_mat_key=brief%20answers%20to%20the%20big%20questions&lp_query=brief%20answers%20to%20the%20big%20questions) by Stephen Hawking
 * [Enlightenment NOW: The Case for Reason, Science, Humanism, and Progress](https://www.amazon.com/Enlightenment-Now-Science-Humanism-Progress/dp/0525427570/ref=sr_1_1?ie=UTF8&qid=1543001672&sr=8-1&keywords=enlightment+now+by+steven+pinker) by Steven Pinker
@@ -90,6 +91,11 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Making economic sense of religion](https://ssir.org/book_reviews/entry/making_economic_sense_of_religion?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now) by Kavita Ramdas
+* [Clean energy by the people, for the people](https://ssir.org/articles/entry/clean_energy_by_the_people_for_the_people?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Paul Hockenos
+* [An open-data approach to transform grantmaking](https://ssir.org/articles/entry/an_open_data_approach_to_transform_grantmaking?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Bradford Smith
+* [Development impact bonds: There's still no free lunch](https://ssir.org/articles/entry/development_impact_bonds_theres_still_no_free_lunch?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Kevin Starr
+* [How business can accelerate Africa's development](https://ssir.org/articles/entry/how_business_can_accelerate_africas_development?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Acha Leke, Mutsa Chironga, & Georges Desvaux 
 * [Here's how EdTech can bring revolutionary change in India](https://www.indiatoday.in/education-today/jobs-and-careers/story/here-s-how-edtech-can-bring-revolutionary-change-in-india-1407842-2018-12-12) by India Today
 * [Putin’s praise of a truth-telling dissident](https://www.csmonitor.com/Commentary/the-monitors-view/2018/1212/Putin-s-praise-of-a-truth-telling-dissident) by CSM Editorial Board
 * [How author Jarrett Krosoczka illustrates gratitude – on the page and in life](https://www.csmonitor.com/Books/2018/1212/How-author-Jarrett-Krosoczka-illustrates-gratitude-on-the-page-and-in-life) by Rebecca Asoulin 
