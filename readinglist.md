@@ -90,6 +90,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Here's how EdTech can bring revolutionary change in India](https://www.indiatoday.in/education-today/jobs-and-careers/story/here-s-how-edtech-can-bring-revolutionary-change-in-india-1407842-2018-12-12) by India Today
 * [Putin’s praise of a truth-telling dissident](https://www.csmonitor.com/Commentary/the-monitors-view/2018/1212/Putin-s-praise-of-a-truth-telling-dissident) by CSM Editorial Board
 * [How author Jarrett Krosoczka illustrates gratitude – on the page and in life](https://www.csmonitor.com/Books/2018/1212/How-author-Jarrett-Krosoczka-illustrates-gratitude-on-the-page-and-in-life) by Rebecca Asoulin 
 * [Why an Argentine leader seeks to break the pull of populism](https://www.csmonitor.com/World/Americas/2018/1212/Why-an-Argentine-leader-seeks-to-break-the-pull-of-populism) by Howard LaFranchi 
