@@ -37,7 +37,6 @@ layout: default
 * [Everything for Everyone: The Radical Tradition That Is Shaping the Next Economy](https://www.amazon.com/Everything-Everyone-Radical-Tradition-Shaping/dp/156858959X) by Nathan Schneider
 * [Temp: How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary-ebook/dp/B077RHV4V6) by Louis Hyman
 * [The New Education: How to Revolutionize the University to Prepare Students for a World In Flux](https://www.amazon.com/New-Education-Revolutionize-University-Students/dp/0465079725/ref=sr_1_1_twi_har_2?ie=UTF8&qid=1506440926&sr=8-1&keywords=The+New+Education) by Cathy Davidson
-* [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [The Rise and Fall of American Growth: The U.S. Standard of Living Since the Civil War](https://www.amazon.com/Rise-Fall-American-Growth-Princeton/dp/153661825X) by Robert Gordon
 * [Automating Inequality](https://us.macmillan.com/automatinginequality/virginiaeubanks/9781466885967/) by Virginia Eubanks
 * [Flowers for Algernon](https://www.amazon.com/Flowers-Algernon-Daniel-Keyes/dp/015603008X) by Daniel Keyes
@@ -77,6 +76,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [Can Democracy Work? A Short History of a Radical Idea, from Ancient Athents to Our World](https://www.amazon.com/Can-Democracy-Work-History-Radical/dp/0374137641) by James Miller 
 * [Being Relational: The Seven Ways to Quality Interaction & Lasting Change](https://www.amazon.com/Being-Relational-Quality-Interaction-Lasting/dp/0757318800) by Louise Phipps Senft & William Senft
 * [Almost Everything: Notes on Hope](https://www.amazon.com/Almost-Everything-Notes-Anne-Lamott/dp/0525537449) by Anne Lamott
@@ -87,7 +87,6 @@ layout: default
 * [The Big Disruption: A Totally Fictional But Essentially True Silicon Valley Story](https://medium.com/s/the-big-disruption/the-big-disruption-36fbed0268cf?_branch_match_id=575809515606076912) by Jessica Powell
 * [Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life](https://www.amazon.com/Palaces-People-Infrastructure-Inequality-Polarization/dp/1524761168) by Eric Klinenberg
 * [Homo Deus: A Brief History of Tomorrow](https://www.amazon.com/dp/0062464310/ref=sspa_dk_detail_3?psc=1&pd_rd_i=0062464310&pd_rd_wg=AgbDN&pd_rd_r=354EV6EJ13DDH2N2ZC7M&pd_rd_w=K6KGf) by Yuval Noah Harari
-* [What Neil deGrasse Tyson thinks higher ed gets wrong](https://www.chronicle.com/article/What-Neil-deGrasse-Tyson/244522?key=HB0mPh-sl0T6nAu1BZmxCzZ990nnkwzhgqvb-Z3eWq0-mAxPd31LaBpPR_qaao7zZ3hITm54dDFjUFlGdExXZVpZWGdDa2UyeWZkMllyNHd3d3lKZm11cklsWQ) by Vimal Patel
 * [The Art of War](https://www.amazon.com/dp/1505572835/ref=sspa_dk_detail_0?psc=1&pd_rd_i=1505572835&pd_rd_wg=AFo5q&pd_rd_r=R8PPE1KWWEP223MS25ET&pd_rd_w=ILbI1) by Sun Tzu
 * [Narrative of the Life of Frederick Douglass](https://www.amazon.com/Narrative-Life-Frederick-Douglass/dp/0486284999) by Frederick Douglass
 * [Wait, What? And Life's Other Essential Questions](https://www.amazon.com/Wait-What-Lifes-Essential-Questions/dp/0062664573) by James Ryan
@@ -111,6 +110,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [What Neil deGrasse Tyson thinks higher ed gets wrong](https://www.chronicle.com/article/What-Neil-deGrasse-Tyson/244522?key=HB0mPh-sl0T6nAu1BZmxCzZ990nnkwzhgqvb-Z3eWq0-mAxPd31LaBpPR_qaao7zZ3hITm54dDFjUFlGdExXZVpZWGdDa2UyeWZkMllyNHd3d3lKZm11cklsWQ) by Vimal Patel
 * [Moral authority or national interest? Senate weighs both in Saudi relations](https://www.csmonitor.com/USA/Foreign-Policy/2018/1213/Moral-authority-or-national-interest-Senate-weighs-both-in-Saudi-relations) by Howard LaFranchi 
 * [Where local residents help birth the businesses that serve them](https://www.csmonitor.com/Business/2018/1213/Where-local-residents-help-birth-the-businesses-that-serve-them) by Noble Ingram
 * [Uber and lyft IPOs will make many people rich but not the drivers](https://www.forbes.com/sites/eriksherman/2018/12/08/uber-and-lyft-ipos-will-make-many-people-rich-but-not-the-drivers/#470eb26b6ec5) by Erik Sherman
