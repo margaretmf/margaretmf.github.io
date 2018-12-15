@@ -5,7 +5,27 @@ layout: default
 ## 2018
 
 ### Books
-#### In Progress
+#### In Progress / Wishlist
+* [Creating Sustainable Societies: The Rebirth of Democracy and Local Economies](https://www.amazon.com/Creating-Sustainable-Societies-Democracy-Economies/dp/1470120968) by John Boik
+* [The Solution Revolution: How Business, Government, and Social Enterprises Are Teaming Up to Solve Society's Toughest Problems](https://www.amazon.com/Solution-Revolution-Business-Government-Enterprises/dp/1422192199) by William Eggers
+* [Transformative Scenario Planning: Working Together to Change the Future ](https://www.amazon.com/Transformative-Scenario-Planning-Working-Together/dp/1609944909) by Adam Kahane
+* [Smartcuts: How Hackers, Innovators, and Icons Accelerate Success](https://www.amazon.com/Smartcuts-Hackers-Innovators-Accelerate-Success/dp/0062302450) by SHane Snow
+* [Democratic by Design: How Carsharing, Co-ops, and Community Land Trusts Are Reinventing America](https://www.amazon.com/Democratic-Design-Carsharing-Community-Reinventing/dp/1137279672) by Gabriel Metcalf
+* [An Everyone Culture: Becoming a Deliberately Developmental Organizaiton](https://www.amazon.com/Everyone-Culture-Deliberately-Developmental-Organization/dp/1625278624) by Robert Kegan, Lisa Laskow Lahey, Matthew Miller, Andy Fleming, & Deborah Helsin
+* [Leading from Within: Conscious Social Change and Mindfulness for Social Innovation](https://www.amazon.com/Leading-Within-Conscious-Mindfulness-Innovation/dp/026203719X) by Gretchen Ki Steidle
+* [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures/dp/0307908755/ref=pd_sim_14_51?_encoding=UTF8&pd_rd_i=0307908755&pd_rd_r=7f6192e6-ffe3-11e8-b994-2beee4ad06be&pd_rd_w=TXTJj&pd_rd_wg=4ZxG4&pf_rd_p=18bb0b78-4200-49b9-ac91-f141d61a1780&pf_rd_r=83RF6VGM7STWE4CVKWNB&psc=1&refRID=83RF6VGM7STWE4CVKWNB) by Antonio Damasio
+* [Suicide of the West: How the Rebirth of Tribalism, Populism, Nationalism, and Identity Politics is Destorying American Democracy](https://www.amazon.com/Suicide-West-Tribalism-Nationalism-Destroying/dp/1101904933/ref=sr_1_1_sspa?s=books&ie=UTF8&qid=1544821262&sr=1-1-spons&keywords=tribalism&psc=1) by Jonah Goldberg
+* [Grateful: The Transformative Power of Giving Thanks](https://www.amazon.com/Grateful-Transformative-Power-Giving-Thanks/dp/0062659472/ref=pd_rhf_se_s_cp_0_16?_encoding=UTF8&pd_rd_i=0062659472&pd_rd_r=2114fbc3-5219-48f7-8004-51028d54d877&pd_rd_w=YZuk9&pd_rd_wg=T09Oz&psc=1&refRID=5WBG5W8T37TEFMF7AR9B) by Diana Butler Bass
+* [The Art of Gathering: How We Meet and Why It Matters](https://www.amazon.com/dp/1594634920/ref=sxbs_sxwds-stvpv2_1?pf_rd_p=6375e697-f226-4dbd-a63a-5ec697811ee1&pd_rd_wg=zy2VK&pf_rd_r=2XJ1GJ7DXAM813GCK6T8&pd_rd_i=1594634920&pd_rd_w=Sp46F&pd_rd_r=07beb4b9-bf2c-48eb-ac2d-df1872025e68&ie=UTF8&qid=1544820837&sr=1) by Priya Parker
+* [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136/ref=pd_rhf_se_s_cp_0_1?_encoding=UTF8&pd_rd_i=1524763136&pd_rd_r=033524a7-2275-4303-a6d6-b88e85111c26&pd_rd_w=ApiJI&pd_rd_wg=Ywah6&psc=1&refRID=8PT3QKVX714Y62NFXW58) by Michelle Obama
+* [Othermindedness: The Emergence of Network Culture](https://www.amazon.com/Othermindedness-Emergence-Network-Culture-Literature/dp/0472088432/ref=sr_1_fkmr2_4?s=books&ie=UTF8&qid=1544801843&sr=1-4-fkmr2&keywords=meditation+social+networks+emergence) by Michael Thomas Joyce
+* [Networks of Institutions: Institutional Emergence, Social Structure, and National Systems of Policies](https://www.amazon.com/Networks-Institutions-Institutional-Emergence-Structure/dp/0415749468/ref=sr_1_fkmr2_3?s=books&ie=UTF8&qid=1544801843&sr=1-3-fkmr2&keywords=meditation+social+networks+emergence) by Shuanping Dai
+* [True Community](https://www.amazon.com/True-Community-Jerry-Bridges/dp/1617471755/ref=sr_1_fkmr1_1?s=books&ie=UTF8&qid=1544801729&sr=1-1-fkmr1&keywords=meditation+community+organizations+social+networks) by Jerry Bridges
+* [The Church of Facebook: How the Hyperconnected are Redefining Community](https://www.amazon.com/Church-Facebook-Hyperconnected-Redefining-Community/dp/1434765342/ref=sr_1_16?s=books&ie=UTF8&qid=1544801659&sr=1-16&keywords=community+organization+social+networks) by Jesse Rice
+* [Here Comes Everybody: The Power of Organizing without Organizations](https://www.amazon.com/Here-Comes-Everybody-Organizing-Organizations/dp/0143114948/ref=sr_1_6?s=books&ie=UTF8&qid=1544801608&sr=1-6&keywords=community+organization+social+networks) by Clay Shirky
+* [F#ck It Therapy: The Profane Way to Profound Happiness](https://www.amazon.com/Therapy-Profane-Way-Profound-Happiness/dp/140194079X/ref=sr_1_47?s=books&ie=UTF8&qid=1544801505&sr=1-47&keywords=spirituality+community+organization) by John Parkin
+* [Soul of a Citizen: Living with Conviction in Challenging Times](https://www.amazon.com/Soul-Citizen-Living-Conviction-Challenging/dp/0312595379/ref=sr_1_34?s=books&ie=UTF8&qid=1544801462&sr=1-34&keywords=spirituality+community+organization) by Paul Rogat Loeb
+* [The Art of Community: Seven Principles for Belonging](https://www.amazon.com/Art-Community-Seven-Principles-Belonging/dp/1626568413/ref=sr_1_2?s=books&ie=UTF8&qid=1544801368&sr=1-2&keywords=spirituality+community+organization) by Charles Vogl
 * [The Economics of Religion in India](https://www.amazon.in/Economics-Religion-India-Sriya-Iyer/dp/0674979648) by Sriya Iyer
 * [The New Childhood: Raising Kids to Thrive in a Connected World](https://www.littlebrownspark.com/titles/jordan-shapiro/the-new-childhood/9780316437240/) by Jordan Shapiro
 * [Brief Answers to Big Questions](https://www.amazon.com/stores/page/977C9348-820A-4CA1-B5C8-C7757ECC1F93?store_ref=SB_A09683711LPU4DMPRT6PF&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3ff6092e-8451-438b-8278-7e94064b4d42&pf_rd_s=desktop-sx-top-slot&pf_rd_t=301&pf_rd_i=brief+answers+to+the+big+questions&hsa_cr_id=7040799440101&lp_slot=auto-sparkle-hsa-tetris&lp_asins=0307409600,B078QTY62K,1984827065&lp_mat_key=brief%20answers%20to%20the%20big%20questions&lp_query=brief%20answers%20to%20the%20big%20questions) by Stephen Hawking
@@ -91,6 +111,27 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [Moral authority or national interest? Senate weighs both in Saudi relations](https://www.csmonitor.com/USA/Foreign-Policy/2018/1213/Moral-authority-or-national-interest-Senate-weighs-both-in-Saudi-relations) by Howard LaFranchi 
+* [Where local residents help birth the businesses that serve them](https://www.csmonitor.com/Business/2018/1213/Where-local-residents-help-birth-the-businesses-that-serve-them) by Noble Ingram
+* [Uber and lyft IPOs will make many people rich but not the drivers](https://www.forbes.com/sites/eriksherman/2018/12/08/uber-and-lyft-ipos-will-make-many-people-rich-but-not-the-drivers/#470eb26b6ec5) by Erik Sherman
+* [It’s time for an airport security tech upgrade](https://singularityhub.com/2018/11/21/its-time-for-an-airport-security-tech-upgrade/?utm_medium=email&utm_content=its-time-for-an-airport-security-tech-upgrade&utm_source=newsletter&utm_campaign=fy18-hub-daily-rss-newsletter&mkt_tok=eyJpIjoiTWpFMk9EQXdOemRqWlRBeiIsInQiOiIxSHJLUTNaT2IwVkhQY1h4WUNlUzF4WWNsSGpOcnZDS1ZhSzZ6YW5wMjlzbjNCcWNpUm5jUmFPWlEwRzlEcmtUTnFGdmVxY1dNOW1vVG0zUlRtYmpPVzNtVEdpUTMwNTczNzRIYUwwSU1NK2dvMndLeno4K3pmbkQzWDFzWVVBZyJ9#sm.0001vxquz0muff9czrm2kkr1bs3n3) by David Pring-Mill
+* [The Japanese words for “space” could change your view of the world](https://qz.com/1181019/the-japanese-words-for-space-could-change-your-view-of-the-world/) by Jerrold McGrath
+* [As machines take over our jobs, human ingenuity has an opportunity to shine](https://www.cbc.ca/news/technology/ai-artificial-intelligence-economy-robots-humans-1.4847415) by Ramona Pringle
+* [Tech shouldn't be the only field pollinating 'news nerds'](http://www.niemanlab.org/2018/12/tech-shouldnt-be-the-only-field-pollinating-news-nerds/) by Robin Kwong
+* [Women are flocking to wellness because modern medicine still doesn’t take them seriously](https://qz.com/1006387/women-are-flocking-to-wellness-because-traditional-medicine-still-doesnt-take-them-seriously/) by Annaliese Griffin
+* [What happens next](https://qz.com/is/what-happens-next-2/) by Quarts
+* [Progressive labor standards](https://democracyjournal.org/magazine/51/progressive-labor-standards/) by Nick Hanauer
+* [16 ways to measure network effects](https://a16z.com/2018/12/13/16-metrics-network-effects/) by Andreessen Horowitz
+* [Trump's ability to manipulate the news media](https://www.theatlantic.com/politics/archive/2018/12/trump-responds-scandal-manipulating-news-cycle/578221/) by Elaina Plott
+* [How can smaller cities join the AI economy?](http://www.govtech.com/analytics/How-Can-Smaller-Cities-Join-the-Growing-AI-Economy.html) by Daniel Castro
+* [Google's AI guru wants computers to think more like brains](https://www.wired.com/story/googles-ai-guru-computers-think-more-like-brains/) by Tom Simonite
+* [Stopping data breaches will require help from governments](https://hbr.org/2018/12/stopping-data-breaches-will-require-help-from-governments?utm_medium=social&utm_source=twitter&utm_campaign=hbr) by Samir C. Jain & Lisa M. Ropple
+* [Writing fiction at the end of the world](https://medium.com/@brwalsh/college-cults-and-the-end-of-the-world-f0ddba6aada6) by Bryan Walsh
+* [Understanding focus](https://www.heartoftheart.org/?p=2575) by Emma Loftus
+* [Many farewell speeches, one message: Senate must learn to cooperate](https://www.csmonitor.com/USA/Politics/2018/1214/Many-farewell-speeches-one-message-Senate-must-learn-to-cooperate) by Francine Kiefer
+* [As UN climate summit winds down, signs of a path forward?](https://www.csmonitor.com/Environment/2018/1214/As-UN-climate-summit-winds-down-signs-of-a-path-forward) by Amanda Paulson
+* [Stuck between China and US, Canada finds itself ‘alone in the world’](https://www.csmonitor.com/World/Americas/2018/1214/Stuck-between-China-and-US-Canada-finds-itself-alone-in-the-world) by Sara Miller Llana
+* [In China’s Silicon Valley, Edtech starts at the ‘MOOC times building’](https://www.edsurge.com/news/2018-12-13-in-china-s-silicon-valley-edtech-starts-at-the-mooc-times-building) by Jeffrey Young
 * [Making economic sense of religion](https://ssir.org/book_reviews/entry/making_economic_sense_of_religion?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now) by Kavita Ramdas
 * [Clean energy by the people, for the people](https://ssir.org/articles/entry/clean_energy_by_the_people_for_the_people?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Paul Hockenos
 * [An open-data approach to transform grantmaking](https://ssir.org/articles/entry/an_open_data_approach_to_transform_grantmaking?utm_source=Enews&utm_medium=Email&utm_campaign=SSIR_Now&utm_content=Title) by Bradford Smith
