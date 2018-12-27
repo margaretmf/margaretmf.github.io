@@ -76,6 +76,7 @@ layout: default
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
 
 #### Completed
+* [The Class: A Life-Changing Teacher, His World-Changing Kids, and the Most Inventive Classroom in America](https://www.amazon.com/Class-Life-Changing-World-Changing-Inventive-Classroom/dp/0399181849) by Heather Won Tesoriero
 * [The Entrepreneurial State: Debunking Public vs. Private Sector Myths](https://www.amazon.com/Entrepreneurial-State-Debunking-Public-Private/dp/1610396138) by Mariana Mazzucato
 * [Can Democracy Work? A Short History of a Radical Idea, from Ancient Athents to Our World](https://www.amazon.com/Can-Democracy-Work-History-Radical/dp/0374137641) by James Miller 
 * [Being Relational: The Seven Ways to Quality Interaction & Lasting Change](https://www.amazon.com/Being-Relational-Quality-Interaction-Lasting/dp/0757318800) by Louise Phipps Senft & William Senft
