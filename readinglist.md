@@ -110,6 +110,14 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [The deep roots of America’s rural-urban political divide](https://www.csmonitor.com/USA/Politics/2018/1226/The-deep-roots-of-America-s-rural-urban-political-divide) by Peter Grier
+* [Your perception is your reality](https://www.heartoftheart.org/?p=3790) by Tony Clark
+* [The reinvention of economics after the crash](https://qz.com/1486287/a-new-theory-of-economics-rises-from-the-ashes-of-the-global-financial-crisis/) by Eshe Nelson
+* [Post truth is fake news](https://www.heartoftheart.org/?p=5720) by John Atkinson
+* [The promise - and complications - of domestic robots](https://singularityhub.com/2018/12/06/the-promise-and-complications-of-domestic-robots/?utm_medium=email&utm_content=the-promiseand-complicationsof-domestic-robots&utm_source=newsletter&utm_campaign=fy18-hub-daily-rss-newsletter&mkt_tok=eyJpIjoiTjJWbU5qWXdaR0V3TUdVMCIsInQiOiJkZ2NVeVJFenpwWmpLbjdaVWdSekJJa25tYjRKMlltTEZ1ZEpnVzNqT1FQNjlnaEVyMjlMN1Fvd3dqbnN0TWV0dkZsQ2tmVHI3SUlRS3VmTEpzSjZQVHI5eGREY3R2a3ZUeFlXbWtObFY3NkppZVZZbnJjKzcxcUVQUFBFREZMMCJ9#sm.009nfnwy1d6lehu11fa13jju49irz) by Thomas Hornigold
+* [Why big tech’s congressman is betting on Iowa](https://www.csmonitor.com/USA/Politics/2018/1219/Why-Big-Tech-s-congressman-is-betting-on-Iowa) by Jessica Mendoza
+* [Trump has his narrative. This week US institutions pushed back](https://www.csmonitor.com/USA/Politics/2018/1219/Trump-has-his-narrative.-This-week-US-institutions-pushed-back) by Peter Grier
+* [In Rwanda, zippy drones deliver quick fix, but gloss over deeper needs](https://www.csmonitor.com/Technology/2018/1218/In-Rwanda-zippy-drones-deliver-quick-fix-but-gloss-over-deeper-needs) by Ryan Lenora Brown
 * [Want to get rid of classroom bullies? Just add babies](https://www.csmonitor.com/World/Making-a-difference/2018/1220/Want-to-get-rid-of-classroom-bullies-Just-add-babies) by Sara Miller Llana
 * [Elaine Pagels is famous for asking hard questions. Her latest: ‘Why Religion?’](https://www.csmonitor.com/Books/2018/1219/Elaine-Pagels-is-famous-for-asking-hard-questions.-Her-latest-Why-Religion) by Harry Bruinius
 * [[Stocks dive, again. Does Wall Street foresee a recession?](https://www.csmonitor.com/Business/2018/1217/Stocks-dive-again.-Does-Wall-Street-foresee-a-recession) by Mark Trumbull
