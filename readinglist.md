@@ -111,6 +111,7 @@ layout: default
 * [Elastic: Flexible Thinking in a Time of Change](https://www.amazon.com/Elastic-Flexible-Thinking-Time-Change/dp/1101870923) by Leonard Mlodinow
 
 ### Online Articles/Publications/Videos
+* [2018 brought a 'tectonic shift' in the gun control movement, advocates say](https://www.npr.org/2018/12/26/678248648/2018-brought-a-tectonic-shift-in-the-gun-control-movement-advocates-say?utm_source=twitter.com&utm_medium=social&utm_campaign=npr&utm_term=nprnews&utm_content=2056) by Melissa Block
 * [Only Amazon knows the holiday-shopping records it says it’s breaking](https://qz.com/1508318/amazon-keeps-breaking-holiday-records-without-disclosing-them/) by Michael Coren
 * [Airport redesigns are adding nature to reduce stress - and to make sure you want to shop](https://qz.com/quartzy/1508130/airport-redesigns-add-nature-to-reduce-stress-and-boost-spending/) by Anne Quito
 * [What populists do to democracies: according to our research, populist governments have deepened corruption, eroded individual rights, and inflicted serious damage on democratic institutions](https://www.theatlantic.com/ideas/archive/2018/12/hard-data-populism-bolsonaro-trump/578878/?utm_campaign=the-atlantic&utm_source=twitter&utm_content=edit-promo&utm_term=2018-12-26T11%3A01%3A01&utm_medium=social) by Yascha Mounk & Jordan Kyle
