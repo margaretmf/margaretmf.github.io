@@ -13,6 +13,8 @@ At the beginning of 2018, I set a goal to start reading books more and listing w
 <img class="picture" src="count_of_books_read.jpg">
 As seen above, in 2018, I read 10 books and in 2019, 33.
 
+What genres do I read? When did the books' authors write and publish?
+
 <br>
 
 <br>
