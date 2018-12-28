@@ -85,7 +85,7 @@ layout: default
 * [Can Democracy Work? A Short History of a Radical Idea, from Ancient Athents to Our World](https://www.amazon.com/Can-Democracy-Work-History-Radical/dp/0374137641) by James Miller 
 * [Being Relational: The Seven Ways to Quality Interaction & Lasting Change](https://www.amazon.com/Being-Relational-Quality-Interaction-Lasting/dp/0757318800) by Louise Phipps Senft & William Senft
 * [Almost Everything: Notes on Hope](https://www.amazon.com/Almost-Everything-Notes-Anne-Lamott/dp/0525537449) by Anne Lamott
-* [Creative Confidence: Unleashing the Creative Potential Within Us All](https://www.amazon.com/s/?ie=UTF8&keywords=creative+confidence+unleashing+the+creative+potential+within+us+all&tag=mh0b-20&index=aps&hvadid=78615134287205&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_9fez5vtcwn_e) by Tom Kelley & David Kelley
+* [Creative Confidence: Unleashing the Creative Potential Within Us All](https://www.amazon.com/Creative-Confidence-Unleashing-Potential-Within/dp/038534936X/ref=sr_1_1?ie=UTF8&qid=1546035671&sr=8-1&keywords=creative+confidence+unleashing+the+creative+potential+within+us+all) by Tom Kelley & David Kelley
 * [Creating Things That Matter: The Art and Science of Innovations That Last](https://www.amazon.com/Creating-Things-That-Matter-Innovations-ebook/dp/B079DW45VC) by David Edwards
 * [American Dialogue: The Founders and Us](https://www.amazon.com/American-Dialogue-Founders-Joseph-Ellis/dp/0385353421) by Jospeh Ellis 
 * [The Future of the Professions: How Technology Will Transform the Work of Human Experts](https://www.amazon.com/future-professions-Books/s?k=the+future+of+the+professions&rh=n%3A283155) by Richard Susskind & David Susskind
