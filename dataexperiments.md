@@ -8,7 +8,7 @@ Currently, as we live through [the age of the algorithm](https://maisonneuve.org
 <br>
 
 ### A Year of Reading Reported through Data + Data-Driven Recommended Reading
-At the beginning of 2018, I set a goal to start reading books more and listing what I am reading. Between November 2018 and February 2019, I expect to run some experiments with data using my [reading list](https://margaretmf.github.io/readinglist).
+At the beginning of 2018, I set a goal to start reading **books** more and listing what I am reading. Between November 2018 and February 2019, I expect to run some experiments with data using my **[reading list](https://margaretmf.github.io/readinglist)**.
 
 <img class="picture" src="count_of_books_read.jpg">
 When examining the plot, you can see that in 2017, I read 10 books and in 2018, I read 33.
@@ -17,7 +17,9 @@ What genres do I read? When did the books' authors write and publish?
 <img class="picture" src="count_of_genres_2017.jpg">
 <img class="picture" src="count_of_genres_2018.jpg">
 
-It's interesting to see trends in the genres I tend to read the most! With [71+ books of interest for 2019](https://margaretmf.github.io/readinglist), there may exist ways to develop a prioritization engine using genres I more likely read and Amazon product ratings (see [Amazon Scraper API](https://github.com/adamlwgriffiths/amazon_scraper)). This is something I will work on through Janaury/February 2019.
+It's interesting to see trends in the genres I tend to read the most! With [71+ books of interest for 2019](https://margaretmf.github.io/readinglist), there may exist ways to develop a prioritization engine using genres I more likely read and Amazon product ratings (see [Amazon Scraper API](https://github.com/adamlwgriffiths/amazon_scraper)). I will work experiment with developing this through Janaury/February 2019.
+
+Moving onto all the **news from 2018...what were major events**?
 
 <br>
 
