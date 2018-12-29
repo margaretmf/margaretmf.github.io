@@ -6,6 +6,9 @@ layout: default
 
 ### Books
 #### In Progress / Wishlist
+* [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
+* [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
+* [Emotional Agility: Get Unstuck, Embrace Change, Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [Creating Sustainable Societies: The Rebirth of Democracy and Local Economies](https://www.amazon.com/Creating-Sustainable-Societies-Democracy-Economies/dp/1470120968) by John Boik
 * [The Solution Revolution: How Business, Government, and Social Enterprises Are Teaming Up to Solve Society's Toughest Problems](https://www.amazon.com/Solution-Revolution-Business-Government-Enterprises/dp/1422192199) by William Eggers
 * [Transformative Scenario Planning: Working Together to Change the Future ](https://www.amazon.com/Transformative-Scenario-Planning-Working-Together/dp/1609944909) by Adam Kahane
