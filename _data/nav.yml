@@ -5,10 +5,7 @@
   link: "socialunderstanding"
 
 - name: "Shaping the Future"
-  link: "futureshaping"
-  
-- name: "Spiritual Inspiration"
-  link: "spiritualinspiration"   
+  link: "futureshaping" 
   
 - name: "Portfolio"
   link: "portfolio"
@@ -19,11 +16,14 @@
 - name: "Photography"
   link: "photography"
   
+- name: "Book and News Reviews"
+  link: "readingreviews"
+  
 - name: "Reading List"
   link: "readinglist"
   
-- name: "Book and News Reviews"
-  link: "readingreviews"
+- name: "Spiritual Inspiration"
+  link: "spiritualinspiration"  
   
 - name: "Resume"
   link: "resume"
