@@ -22,14 +22,14 @@
 - name: "Reading List"
   link: "readinglist"
   
-- name: "Spiritual Inspiration"
-  link: "spiritualinspiration"  
-  
 - name: "Resume"
   link: "resume"
   
 - name: "Contact"
   link: "contact"
+  
+- name: "Spiritual Inspiration"
+  link: "spiritualinspiration"  
   
 
 
