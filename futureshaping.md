@@ -10,7 +10,6 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 
 ### Next Topics Under Consideration for Writing
 * Natural Design
-* A World Free of Trauma
 * Homes
 
 
