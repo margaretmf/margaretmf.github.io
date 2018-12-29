@@ -8,8 +8,9 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 <br>
 
 
-### Next Topics Under Consideration for Writing
+### Topics Up Next
 * Natural Design
+* Bot-driven Kitchens
 * Homes
 
 
