@@ -22,14 +22,16 @@
 - name: "Reading List"
   link: "readinglist"
   
+- name: "Book and News Reviews"
+  link: "readingreviews"
+  
 - name: "Resume"
   link: "resume"
   
 - name: "Contact"
   link: "contact"
   
-- name: "Book and News Reviews"
-  link: "readingreviews"
+
 
   
 
