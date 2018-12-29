@@ -27,6 +27,9 @@
   
 - name: "Contact"
   link: "contact"
+  
+- name: "Book and News Reviews"
+  link: "readingreviews"
 
   
 
