@@ -99,7 +99,7 @@ layout: default
 * [Missed Information: Better Information for Building a Wealthier, More Sustainable Future](https://www.amazon.com/Missed-Information-Building-Wealthier-Sustainable/dp/0262034921) by David Sarokin
 * [Radical Candor](https://www.radicalcandor.com/) by Kim Scott
 * [What Algorithms Want: Imagination in the Age of Computing](https://mitpress.mit.edu/books/what-algorithms-want) by Ed Finn
-* [Teaching about the Future](https://www.amazon.com/Teaching-about-Future-Peter-Bishop/dp/02303634900) by Peter Bishop & Andy Hines
+* [Teaching about the Future](https://www.amazon.com/Teaching-about-Future-Peter-Bishop/dp/0230363490) by Peter Bishop & Andy Hines
 * [The Industries of the Future](https://www.amazon.com/Industries-Future-Alec-Ross/dp/1476753660/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=TXAGCNZRFMK3X1PFZKB4) by Alec Ross 
 * [The Experience Economy: Work is Theatre and Every Business a Stage](https://audiobookstore.com/audiobooks/the-experience-economy-1.aspx) by B. Joseph Pine II & James H. Gilmore
 * [Lifelong Kindergarten: Cultivating Creativity through Projects, Passion, Peers, and Play](https://mitpress.mit.edu/books/lifelong-kindergarten) by Mitchel Resnick
