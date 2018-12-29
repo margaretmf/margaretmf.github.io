@@ -8,5 +8,4 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
-###
-*
+
