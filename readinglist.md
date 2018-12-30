@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### In Progress / Wishlist
-* [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [Emotional Agility: Get Unstuck, Embrace Change, Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [Creating Sustainable Societies: The Rebirth of Democracy and Local Economies](https://www.amazon.com/Creating-Sustainable-Societies-Democracy-Economies/dp/1470120968) by John Boik
@@ -77,6 +76,13 @@ layout: default
 * [Working Whole Systems: Putting Theory into Practice in Organizations](https://www.amazon.com/Working-Whole-Systems-Practice-Organisations-ebook/dp/B003BYRRK8) by Julian Pratt, Pat Gordon, Diane Plamping, & Margaret J. Wheatley
 * [The Order of Time](https://www.penguin.co.uk/books/301539/the-order-of-time/) by Carlo Rovelli
 * [The Open Revolution: Rewriting the Rules of the Information Age](https://openrevolution.net) by Rufus Pollock
+
+
+## 2019
+
+### Books
+#### Completed
+* [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
 
 
 ## 2018
