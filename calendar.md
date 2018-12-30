@@ -1,7 +1,5 @@
 ---
-layout: page
-title: Calendar
-weight : 98
+layout: default
 ---
 
 ## CALENDAR
