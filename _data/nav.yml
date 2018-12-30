@@ -28,6 +28,9 @@
 - name: "Contact"
   link: "contact"
   
+- name: "Calendar"
+  link: "calendar"
+  
 - name: "Spiritual Inspiration"
   link: "spiritualinspiration"  
   
