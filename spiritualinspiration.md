@@ -3,6 +3,10 @@ layout: default
 ---
 
 ## BLOG
+As I explore spiritual healing, multiple faiths, and learn to appreciate broader views around the power (or lack of power) in [churches and church divides](https://www.theatlantic.com/ideas/archive/2018/11/what-should-america-do-its-empty-church-buildings/576592/?utm_source=twb) across the world and its languages, I cherish inspiration that motivates and empowers work, health, life, and community engagement. I share inspiration in blogs below.
+
+
+<br>
 
 ### 2019: Year of Peace
 
