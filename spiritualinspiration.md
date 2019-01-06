@@ -4,7 +4,12 @@ layout: default
 
 ## BLOG
 
-### Introduction 
+### Year of Peace - January 2019
+
+
+<br>
+
+### Introduction - November 2018
 #### Background
 **I have grown up around multiple faiths and religions: [Catholic](https://www.catholic.org/), [Presbyterian](https://www.presbyterianmission.org/), [Episcopalian](https://www.episcopalchurch.org/library/topics/worldwide), [Christian Science](https://www.marybakereddylibrary.org/), [Orthopaedics](https://www.aaos.org/Default.aspx?ssopc=1), [Jungian Psychiatry](http://jungiansociety.org/), [Judaism](http://www.worldjewishcongress.org/en) and I have desired to understand [Buddhism](http://www.buddhanet.net/)**. I interned one summer with the [Christian Science Mother Church](https://www.christianscience.com/find-us/visit-the-mother-church), even if peers, or my inner critic thought that "Christian Science is weird", "not a real Science", or "not powerful enough to heal truly". Since entering the workforce outside the church, I have wrestled with what is **true** in sciences, faiths, religions, and socially intractable problems.
 
