@@ -35,7 +35,7 @@ layout: default
 * Audited [Go Agile with Jira](https://training.atlassian.com/course/go-agile-with-jira-cloud)
 * Audited [Learn Jira Basics](https://training.atlassian.com/course/learn-jira-basics-cloud)
 
-### Continuing Education - Completed Classes
+### Continuing Education - Completed Classes and Workshops
 * [Strategic Foresight, University of Houston](http://www.uh.edu/technology/departments/hdcs/certificates/fore/seminar/index.php#Content)
 * [Technical Product Management, General Assembly](https://generalassemb.ly/)
 * [Data and You: GDPR, General Assembly](https://generalassemb.ly/education/data-and-you-gdpr/washington-dc/50956)
@@ -46,6 +46,7 @@ layout: default
 * [AWS Public Sector Summit](https://aws.amazon.com/summits/public-sector-summit-washington-dc-2018/)
 * [Darden Pop-up Business Case](https://apply.darden.virginia.edu/register/?id=b6129b78-5924-4de1-b181-22ed4c2636af)
 * [Project Management Essentials](https://generalassemb.ly/)
+* [Human-Centric Leading](https://www.meetup.com/Design-Thinking-DC/events/257033378/)
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Hindi Language, International Language Institute](http://ilidc.com)
