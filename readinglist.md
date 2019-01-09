@@ -82,6 +82,7 @@ layout: default
 
 ### Books
 #### Completed
+* [Why Buddhism is True: The Science and Philosophy of Meditation and Enlightenment ](https://www.amazon.com/Why-Buddhism-True-Philosophy-Enlightenment/dp/1439195455) by Robert Wright
 * [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
 
 
