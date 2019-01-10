@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress / Wishlist
+* [The Vanishing Neighbor: The Transformation of American Community](https://www.amazon.com/Vanishing-Neighbor-Transformation-American-Community-ebook/dp/B00FQUDV7S) by Marc J. Dunkelman 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [Emotional Agility: Get Unstuck, Embrace Change, Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [Creating Sustainable Societies: The Rebirth of Democracy and Local Economies](https://www.amazon.com/Creating-Sustainable-Societies-Democracy-Economies/dp/1470120968) by John Boik
