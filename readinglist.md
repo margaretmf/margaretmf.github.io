@@ -20,7 +20,6 @@ layout: default
 * [Suicide of the West: How the Rebirth of Tribalism, Populism, Nationalism, and Identity Politics is Destorying American Democracy](https://www.amazon.com/Suicide-West-Tribalism-Nationalism-Destroying/dp/1101904933/ref=sr_1_1_sspa?s=books&ie=UTF8&qid=1544821262&sr=1-1-spons&keywords=tribalism&psc=1) by Jonah Goldberg
 * [The Ending of Time: Where Philosophy and Physics Meet](https://www.amazon.co.uk/Ending-Time-Where-Philosophy-Physics/dp/0062360973/ref=as_sl_pc_qf_sp_asin_til?tag=heartoftheart-21&linkCode=w00&linkId=&creativeASIN=0062360973) by Jiddu Krishnamurti
 * [Grateful: The Transformative Power of Giving Thanks](https://www.amazon.com/Grateful-Transformative-Power-Giving-Thanks/dp/0062659472/ref=pd_rhf_se_s_cp_0_16?_encoding=UTF8&pd_rd_i=0062659472&pd_rd_r=2114fbc3-5219-48f7-8004-51028d54d877&pd_rd_w=YZuk9&pd_rd_wg=T09Oz&psc=1&refRID=5WBG5W8T37TEFMF7AR9B) by Diana Butler Bass
-* [The Art of Gathering: How We Meet and Why It Matters](https://www.amazon.com/dp/1594634920/ref=sxbs_sxwds-stvpv2_1?pf_rd_p=6375e697-f226-4dbd-a63a-5ec697811ee1&pd_rd_wg=zy2VK&pf_rd_r=2XJ1GJ7DXAM813GCK6T8&pd_rd_i=1594634920&pd_rd_w=Sp46F&pd_rd_r=07beb4b9-bf2c-48eb-ac2d-df1872025e68&ie=UTF8&qid=1544820837&sr=1) by Priya Parker
 * [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136/ref=pd_rhf_se_s_cp_0_1?_encoding=UTF8&pd_rd_i=1524763136&pd_rd_r=033524a7-2275-4303-a6d6-b88e85111c26&pd_rd_w=ApiJI&pd_rd_wg=Ywah6&psc=1&refRID=8PT3QKVX714Y62NFXW58) by Michelle Obama
 * [Othermindedness: The Emergence of Network Culture](https://www.amazon.com/Othermindedness-Emergence-Network-Culture-Literature/dp/0472088432/ref=sr_1_fkmr2_4?s=books&ie=UTF8&qid=1544801843&sr=1-4-fkmr2&keywords=meditation+social+networks+emergence) by Michael Thomas Joyce
 * [Networks of Institutions: Institutional Emergence, Social Structure, and National Systems of Policies](https://www.amazon.com/Networks-Institutions-Institutional-Emergence-Structure/dp/0415749468/ref=sr_1_fkmr2_3?s=books&ie=UTF8&qid=1544801843&sr=1-3-fkmr2&keywords=meditation+social+networks+emergence) by Shuanping Dai
@@ -83,6 +82,7 @@ layout: default
 
 ### Books
 #### Completed
+* [The Art of Gathering: How We Meet and Why It Matters](https://www.amazon.com/dp/1594634920/ref=sxbs_sxwds-stvpv2_1?pf_rd_p=6375e697-f226-4dbd-a63a-5ec697811ee1&pd_rd_wg=zy2VK&pf_rd_r=2XJ1GJ7DXAM813GCK6T8&pd_rd_i=1594634920&pd_rd_w=Sp46F&pd_rd_r=07beb4b9-bf2c-48eb-ac2d-df1872025e68&ie=UTF8&qid=1544820837&sr=1) by Priya Parker
 * [Why Buddhism is True: The Science and Philosophy of Meditation and Enlightenment ](https://www.amazon.com/Why-Buddhism-True-Philosophy-Enlightenment/dp/1439195455) by Robert Wright
 * [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
 
