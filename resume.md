@@ -36,7 +36,7 @@ April 2016 - Present
 * Creating dashboards using Tableau and R to report strategic impact of programs and reduce future work on the same reports
 * Clustering data, evaluating clusters with validation metrics, and characterizing clusters
 * Measuring the quality and difficulty of questions to support standardizing educational assessments
-* Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf))
+* Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), and [white paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
 * Collaborating with a database specialist in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
  
 ### DataKind
