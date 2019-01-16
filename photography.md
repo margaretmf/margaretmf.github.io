@@ -84,6 +84,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="snow-governmentbuilding.jpg">
+
+
+
 <img class="profile-picture" src="libraries-children-desks.jpg">
 
 
@@ -121,6 +125,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="snow-dc.jpg">
+
+
+
 <img class="profile-picture" src="boston-harbor.jpg">
 
 
@@ -146,6 +154,10 @@ layout: default
 
 
 <img class="profile-picture" src="christmas-flowers.jpg">
+
+
+
+<img class="profile-picture" src="snow-water-branches.jpg">
 
 
 
