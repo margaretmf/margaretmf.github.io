@@ -5,6 +5,7 @@ layout: default
 ## 2018
 
 ### Continuing Education - Coursera Courses Audited
+* Audited: [Gathering and Developing the News](https://www.coursera.org/learn/gathering-the-news)
 * Audited [Strategic Innovation: Innovation at the Frontier: An Exploration of Cutting-Edge Topics](https://www.coursera.org/learn/strategic-innovation-innovation-at-the-frontier)
 * Audited [The Impact of Technology](https://www.coursera.org/learn/impact-of-technology)
 * Audited [Managing the Company of the Future](https://www.coursera.org/learn/company-future-management)
