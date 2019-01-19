@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst and writer, with an interest in world affairs, international cultures, markets, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
+Versatile data analyst and writer, with an interest in world affairs, international cultures, data journalism, markets, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
 
  <br>
  
@@ -24,7 +24,7 @@ August 2010 - May 2014
  
 ### ACUMEN PLUS 
 Systems Practice
-January 2019 - May 2019
+January - May 2019
 * Completing course on systems practice with Acument Plus and participating in group systems practice project for a social justice challenge
 
 <br>
@@ -61,7 +61,13 @@ October 2016 - Present
 * Collect and analyze data to develop strategic recommendations on organizational change (expansion and relocation)
 * Participate in board's strategic planning and alignment meetings
 * Meet with a team of MBA and JD graduates once to twice per month
- 
+
+### Margaret's NEWS Analysis
+Videographer, News Curator, Trend Analyst, and Blogger
+* Recorded six video shots and took phots for the Cavalier Daily; edited videos with Apple Final Cut Pro
+* Engage with articles from multiple news sources, particularly Christian Science Monitor, curate news on Twitter, develop a data-driven way to develop insights ont rends, and attend data journalism workshops
+* Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year
+
 ### Clarity Campaign Labs
 Analyst Fellow
 January 2016 - April 2016
