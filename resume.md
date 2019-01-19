@@ -3,12 +3,11 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst and aspiring product manager with a background in systems thinking and data science. Passionate about solving problems deliberately with data.
+Versatile data analyst and writer, with an interest in world affairs, international cultures, markets, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
 
  <br>
  
 ## EDUCATION
- 
 ### UNIVERSITY OF VIRGINIA
 MS in [Data Science](https://dsi.virginia.edu/)  
 July 2014 - December 2015
@@ -23,6 +22,11 @@ August 2010 - May 2014
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
  
+### ACUMEN PLUS 
+Systems Practice
+January 2019 - May 2019
+* Completing course on systems practice with Acument Plus and participating in group systems practice project for a social justice challenge
+
 <br>
  
 ## RELEVANT WORK EXPERIENCE
@@ -30,29 +34,33 @@ August 2010 - May 2014
 ### EVERFI
 Data Analyst
 April 2016 - Present
-* Owning data management, exploratory data analysis, task management, dashboard creation, and business analysis work
-* Developing a Jira board and project structure for team's task management to log work hours and understand work behavior (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
-* Streamlining reporting processes by writing R functions and packages for up to 560 data points for 9 online programs
-* Creating dashboards using Tableau and R to report strategic impact of programs and reduce future work on the same reports
-* Clustering data, evaluating clusters with validation metrics, and characterizing clusters
-* Measuring the quality and difficulty of questions to support standardizing educational assessments
-* Developing quantitative insights for white papers ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
-* Collaborating with a database specialist in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
+* Own data-driven white paper writing, educational impact evaluation management framework development, exploratory data analysis, initial product requirements discussion, project tracking, and cross-functional teamwork
+* Write two-three white papers per year covering trends in digital education and insights from survey analysis to support partner education and company-wide thought leadership ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
+* Develop a technical framework to streamline the process of reporting 2,000 survey and assessment data points
+* Develop and present eight product KPIs to develop standards around measuring the success of product initiatives
+* Cluster survey and assessment data, and perform principal component analysis on assessments to support efficacy research
+* Gather and synthesize information from sales and support teams to develop research services solutions proposals
+* Partner with product stakeholders and software engineers to support generating initial platform vision and requirements
+* Deliver knowledge management documents to support teamwork and deliver epics, user stories, feature specification documents, and acceptance criteria to articulate platform and dashboard requirements
+* Track tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
+* Participate in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
+* Collaborate with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
  
 ### DataKind
 Data Analyst, Data Ambassador, Project Manager
 July 2016 - Present
-* Clients: Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
+* Clients: Google for AI Impact Challenge, Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
 * Collaborated to develop maps, machine learning features, a foster care case complexity score, and more on a teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
+* Reviewed and wrote project proposals to support Google's AI Impact Challenge in partnership with DataKind
 
 ### Compass Pro Bono
 Strategic Alignment Consultant
 October 2016 - Present
-* Clients: Jubilee Jumpstart, Homeless Children's Playtime Project 
+* Clients: Jubilee Jumpstart, Homeless Children's Playtime Project, The Welders
 * Develop and design surveys to understand organizational stakeholders' opinions on organizational change (expansion and relocation)
 * Collect and analyze data to develop strategic recommendations on organizational change (expansion and relocation)
 * Participate in board's strategic planning and alignment meetings
-* Meet with a team of MBA and JD graudates once to twice per month
+* Meet with a team of MBA and JD graduates once to twice per month
  
 ### Clarity Campaign Labs
 Analyst Fellow
@@ -72,7 +80,7 @@ December 2015 - January 2016
  
 <br>
  
-## LEADERSHIP EXPERIENCE
+## LEADERSHIP AND VOLUNTEER EXPERIENCE
  
 ### Byte Back
 Next Gen Council Member and Data Process Mapping Project Team Lead
@@ -83,7 +91,7 @@ June 2017 - Present
 July 2018 - July 2019
 
 ### America India Foundation
-Committee Member
+Event Particpant and Committee Member
 March 2018 - Present
 
 ### White House Hack the Pay Gap
