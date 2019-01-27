@@ -5,6 +5,7 @@ layout: default
 ## 2018
 
 ### Continuing Education - Coursera Courses Audited
+* Audited [Making Sense of the News: News Literacy Lessons for Digital Citizens](https://www.coursera.org/learn/news-literacy)
 * Audited [Journalism, The Future, and You](https://www.coursera.org/learn/international-journalism)
 * Audited [What is News?](https://www.coursera.org/learn/what-is-news)
 * Audited [Gathering and Developing the News](https://www.coursera.org/learn/gathering-the-news)
