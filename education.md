@@ -51,6 +51,7 @@ layout: default
 * [Darden Pop-up Business Case](https://apply.darden.virginia.edu/register/?id=b6129b78-5924-4de1-b181-22ed4c2636af)
 * [Project Management Essentials](https://generalassemb.ly/)
 * [Human-Centric Leading](https://www.meetup.com/Design-Thinking-DC/events/257033378/)
+* [Human-Centered Design for Nonprofits](https://www.eventbrite.com/e/human-centered-design-for-nonprofits-government-tickets-53654536162)
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Hindi Language, International Language Institute](http://ilidc.com)
