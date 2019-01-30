@@ -76,6 +76,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="dc-gov.jpg">
+
+
+
 <img class="profile-picture" src="beauty.jpg">
 
 
@@ -98,6 +102,9 @@ layout: default
 
 <img class="profile-picture" src="art.jpg">
 
+
+
+<img class="profile-picture" src="dc-beauty.jpg">
 
 
 
@@ -130,6 +137,10 @@ layout: default
 
 
 <img class="profile-picture" src="boston-harbor.jpg">
+
+
+
+<img class="profile-picture" src="winter-leaves.jpg">
 
 
 
