@@ -76,7 +76,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="dc-gov.jpg">
+<img class="profile-picture" src="playground.jpg">
 
 
 
@@ -84,7 +84,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="playground.jpg">
+<img class="profile-picture" src="dc-gov.jpg">
 
 
 
