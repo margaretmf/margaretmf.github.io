@@ -6,6 +6,7 @@ layout: default
 
 ### Books
 #### In Progress / Wishlist
+* [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
 * [The Vanishing Neighbor: The Transformation of American Community](https://www.amazon.com/Vanishing-Neighbor-Transformation-American-Community-ebook/dp/B00FQUDV7S) by Marc J. Dunkelman 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [Emotional Agility: Get Unstuck, Embrace Change, Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
@@ -82,6 +83,7 @@ layout: default
 
 ### Books
 #### Completed
+* [God in the Qur'an](https://www.amazon.com/God-Quran-Three-Classic-Scriptures/dp/0307269574) by Jack Miles
 * [The Art of Gathering: How We Meet and Why It Matters](https://www.amazon.com/dp/1594634920/ref=sxbs_sxwds-stvpv2_1?pf_rd_p=6375e697-f226-4dbd-a63a-5ec697811ee1&pd_rd_wg=zy2VK&pf_rd_r=2XJ1GJ7DXAM813GCK6T8&pd_rd_i=1594634920&pd_rd_w=Sp46F&pd_rd_r=07beb4b9-bf2c-48eb-ac2d-df1872025e68&ie=UTF8&qid=1544820837&sr=1) by Priya Parker
 * [Why Buddhism is True: The Science and Philosophy of Meditation and Enlightenment ](https://www.amazon.com/Why-Buddhism-True-Philosophy-Enlightenment/dp/1439195455) by Robert Wright
 * [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
