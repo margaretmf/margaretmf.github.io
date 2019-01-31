@@ -37,7 +37,7 @@ A new co-working, collective consciousness space that I love is **[The Assemblag
 
 **Soft:** cross-functional teamwork, international teamwork; familiar with Spanish language and gaining exposure to India
 
-**Training:** ISO 9001 Quality Management Systems, SCRUMstudy Scrum Master, Human-Centric Leading, Systems Practice
+**Training:** ISO 9001 Quality Management Systems, SCRUMstudy Scrum Master, Human-Centric Leading, Systems Practice, Civil Dialogues
 
 <br>
 
