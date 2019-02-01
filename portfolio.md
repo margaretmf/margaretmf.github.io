@@ -187,16 +187,6 @@ Before committing to a liberal arts program at UVA, I considered applying to UVA
 
 <br>
 
-## Videography
-In undergraduate career, I had aspirations to learn about journalism. I enjoyed telling story through videos, and I created six videos to share news events.
-
-* C'ville Pride Festival 2013
-* Color Me Cured
-* Spring 2014: CIO Spotlight
-* Look Hoos Talking 2014
-* Relay for Life 2014
-* Rotunda Renovations: Students React
-
 
 ## Kosko's
 In an undergraduate class on entrepreneurship, my group developed and pitched a Greek restaurant business concept. I specifically worked on the Market and Strategy piece shown below. This class led me to look into ways to develop a career in the entrepreneurial world, and I've been learning by working with [EVERFI](https://everfi.com/), which recently received the leading investment from [TPG's RISE fund](http://therisefund.com/).
