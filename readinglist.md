@@ -88,6 +88,7 @@ layout: default
 * [Why Buddhism is True: The Science and Philosophy of Meditation and Enlightenment ](https://www.amazon.com/Why-Buddhism-True-Philosophy-Enlightenment/dp/1439195455) by Robert Wright
 * [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
 * [The Power of Now: A Guide to Spiritual Enlightenment](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment/dp/1577314808/ref=asc_df_1577314808/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166170&psc=1) by Eckhart Tolle
+* [Presence: Bringing Your Boldest Self to Your Biggest Challenges](https://www.amazon.com/Presence-Bringing-Boldest-Biggest-Challenges/dp/1478930152) by Amy Cuddy
 
 
 ## 2018
