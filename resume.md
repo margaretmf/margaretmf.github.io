@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst and writer, with an interest in world affairs, international cultures, data journalism, markets, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
+Versatile data analyst, interviewer, and writer, with an interest in world affairs, international cultures, data journalism, markets, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
 
  <br>
  
@@ -46,27 +46,29 @@ April 2016 - Present
 * Participate in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
 * Collaborate with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
  
-### DataKind
-Data Analyst, Data Ambassador, Project Manager
-July 2016 - Present
-* Clients: Google for AI Impact Challenge, Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
-* Collaborated to develop maps, machine learning features, a foster care case complexity score, and more on a teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
-* Reviewed and wrote project proposals to support Google's AI Impact Challenge in partnership with DataKind
+### Design for the Homeless
+Design Researcher
+February 2019 - Present
+* Conducting ethnographic research by contact organizations that serve people experiencing homelessness, interviewing people within the community impacted by homelessness, and gathering data
+* Analyzing data related to the homelessness experience to inform how better to design services, products, and human experiences
+* Particpating in the design process and applying a systems lens throughout the design research project
 
 ### Compass Pro Bono
 Strategic Alignment Consultant
 October 2016 - Present
 * Clients: Jubilee Jumpstart, Homeless Children's Playtime Project, The Welders
+* Write client engagement letters to communicate the organizational challenge, project goal, and project plan
 * Develop and design surveys to understand organizational stakeholders' opinions on organizational change (expansion and relocation)
 * Collect and analyze data to develop strategic recommendations on organizational change (expansion and relocation)
 * Participate in board's strategic planning and alignment meetings
 * Meet with a team of MBA and JD graduates once to twice per month
 
-### Margaret's NEWS Analysis
-Videographer, News Curator, Trend Analyst, and Blogger
-* Recorded six video shots and took phots for the Cavalier Daily; edited videos with Apple Final Cut Pro
-* Engage with articles from multiple news sources, particularly Christian Science Monitor, curate news on Twitter, develop a data-driven way to develop insights ont rends, and attend data journalism workshops
-* Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year
+### DataKind
+Data Analyst, Data Ambassador, Project Manager
+July 2016 - February 2019
+* Clients: Google for AI Impact Challenge, Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
+* Collaborated to develop maps, machine learning features, a foster care case complexity score, and more on a teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
+* Reviewed over 25 project proposals to support Google's AI Impact Challenge in partnership with DataKind
 
 ### Clarity Campaign Labs
 Analyst Fellow
@@ -83,7 +85,13 @@ December 2015 - January 2016
 * Brainstormed, tested, and designed project management system ideas, which resulted in a prototyped solution for a task management chatbot aligned with requirements
 * Demoed the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
 * Completed ISO 9001 Quality Management Systems training
- 
+
+### Margaret's News Analysis
+Videographer, News Curator, Trend Analyst, and Blogger
+* Recorded six video shots and took phots for the Cavalier Daily; edited videos with Apple Final Cut Pro
+* Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and attend data and solutions journalism workshops
+* Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year
+
 <br>
  
 ## LEADERSHIP AND VOLUNTEER EXPERIENCE
