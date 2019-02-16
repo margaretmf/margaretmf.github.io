@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst, interviewer, and writer, with an interest in world affairs, international cultures, data journalism, markets, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
+Versatile data analyst, interviewer, and writer, with an interest in world affairs, international cultures, data journalism, markets, design research, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
 
  <br>
  
@@ -25,7 +25,7 @@ August 2010 - May 2014
 ### ACUMEN PLUS 
 Systems Practice
 January - May 2019
-* Completing course on systems practice with Acument Plus and participating in group systems practice project for a social justice challenge
+* Completing course on systems practice with Acumen Plus and participating in group systems practice project for a social justice challenge in which we conduct qualitiatve research on a system, develop systems map and systems narratives, and identify leverage points within the system
 
 <br>
  
