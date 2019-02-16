@@ -89,6 +89,7 @@ layout: default
 * [No Fears, No Excuses: What You Need To Do To Have a Great Career](https://www.amazon.com/No-Fears-Excuses-Great-Career/dp/0544947207) by Larry Smith
 * [The Power of Now: A Guide to Spiritual Enlightenment](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment/dp/1577314808/ref=asc_df_1577314808/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166170&psc=1) by Eckhart Tolle
 * [Presence: Bringing Your Boldest Self to Your Biggest Challenges](https://www.amazon.com/Presence-Bringing-Boldest-Biggest-Challenges/dp/1478930152) by Amy Cuddy
+* [Thinking in Systems: A Primer](https://www.amazon.com/Thinking-Systems-Donella-H-Meadows/dp/1603580557) by Donella Meadows
 
 
 ## 2018
