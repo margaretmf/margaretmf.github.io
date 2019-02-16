@@ -49,7 +49,7 @@ April 2016 - Present
 ### Design for the Homeless
 Design Researcher
 February 2019 - Present
-* Conducting ethnographic research by contact organizations that serve people experiencing homelessness, interviewing people within the community impacted by homelessness, and gathering data
+* Conducting ethnographic research by contacting organizations that serve people experiencing homelessness, interviewing people within the community impacted by homelessness, and gathering data
 * Analyzing data related to the homelessness experience to inform how better to design services, products, and human experiences
 * Particpating in the design process and applying a systems lens throughout the design research project
 
