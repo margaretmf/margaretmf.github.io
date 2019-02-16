@@ -53,6 +53,7 @@ layout: default
 * [Human-Centric Leading](https://www.meetup.com/Design-Thinking-DC/events/257033378/)
 * [Human-Centered Design for Nonprofits](https://www.eventbrite.com/e/human-centered-design-for-nonprofits-government-tickets-53654536162)
 * [Workplace Religious Diversity & Inclusion Training](https://religiousfreedomandbusiness.org/2/post/2019/01/save-the-date-feb-13-washington-dc-workplace-religious-diversity-inclusion-training-resources.html?utm_campaign=shareaholic&utm_medium=twitter&utm_source=socialnetwork)
+* [Solutions Journalism](https://www.eventbrite.com/e/solutions-journalism-101-workshop-tickets-56514028982)
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Hindi Language, International Language Institute](http://ilidc.com)
