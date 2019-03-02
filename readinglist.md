@@ -12,7 +12,6 @@ layout: default
 * [Emotional Agility: Get Unstuck, Embrace Change, Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [Creating Sustainable Societies: The Rebirth of Democracy and Local Economies](https://www.amazon.com/Creating-Sustainable-Societies-Democracy-Economies/dp/1470120968) by John Boik
 * [The Solution Revolution: How Business, Government, and Social Enterprises Are Teaming Up to Solve Society's Toughest Problems](https://www.amazon.com/Solution-Revolution-Business-Government-Enterprises/dp/1422192199) by William Eggers
-* [Transformative Scenario Planning: Working Together to Change the Future ](https://www.amazon.com/Transformative-Scenario-Planning-Working-Together/dp/1609944909) by Adam Kahane
 * [Smartcuts: How Hackers, Innovators, and Icons Accelerate Success](https://www.amazon.com/Smartcuts-Hackers-Innovators-Accelerate-Success/dp/0062302450) by Shane Snow
 * [Democratic by Design: How Carsharing, Co-ops, and Community Land Trusts Are Reinventing America](https://www.amazon.com/Democratic-Design-Carsharing-Community-Reinventing/dp/1137279672) by Gabriel Metcalf
 * [An Everyone Culture: Becoming a Deliberately Developmental Organizaiton](https://www.amazon.com/Everyone-Culture-Deliberately-Developmental-Organization/dp/1625278624) by Robert Kegan, Lisa Laskow Lahey, Matthew Miller, Andy Fleming, & Deborah Helsin
@@ -91,6 +90,7 @@ layout: default
 * [Presence: Bringing Your Boldest Self to Your Biggest Challenges](https://www.amazon.com/Presence-Bringing-Boldest-Biggest-Challenges/dp/1478930152) by Amy Cuddy
 * [Thinking in Systems: A Primer](https://www.amazon.com/Thinking-Systems-Donella-H-Meadows/dp/1603580557) by Donella Meadows
 * [A New Earth: Awakening to Your Life's Purpose](https://www.amazon.com/New-Earth-Awakening-Purpose-Selection/dp/0452289963/ref=pd_cp_14_1?pd_rd_w=iTJYK&pf_rd_p=ef4dc990-a9ca-4945-ae0b-f8d549198ed6&pf_rd_r=30Q419G7DP5B10K41QGN&pd_rd_r=62b6cf7e-2a87-11e9-b5a3-830356680a3c&pd_rd_wg=3Wu3d&pd_rd_i=0452289963&psc=1&refRID=30Q419G7DP5B10K41QGN) by Eckhart Tolle
+* [Transformative Scenario Planning: Working Together to Change the Future ](https://www.amazon.com/Transformative-Scenario-Planning-Working-Together/dp/1609944909) by Adam Kahane
 
 
 ## 2018
