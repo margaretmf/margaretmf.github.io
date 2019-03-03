@@ -8,16 +8,13 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
-I am **Margaret Furr**, and I am developing expertise in **data-driven narratives**, **data analysis and impact measurement**, 
-**systems practice and systems thinking**, **project planning**, **requirements specificiation**, and **looking at events and problems creatively from multiple perspectives**.
+I am **Margaret Furr**, and I am developing expertise in **data-driven narratives**, **systems practice and systems thinking**, **ethnographic interviewing**, **requirements specificiation**, and **looking at events and problems creatively from multiple perspectives**.
 
-I am a versatile and multidimensional **technical product professional** within the **social innovation workspace** that also aspires to **write narratives** across a lifetime.
+I am a versatile and multidimensional **systems** professional within the **social innovation workspace** that also aspires to build bridges across functions and creative narratives. I love to draw from **multiple disciplines and angles** to understand the world and develop solutions.
 
-I love to draw from **multiple disciplines and angles** to understand the world and solve problems.  
+Currently, I work as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
 
-Currently, I, **Margaret Furr**, work as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
-
-I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). 
+I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
 
 Outside of work, one can find me **running**, **reading**, **following world affairs**, **understanding 21st century trends**, **taking photos**, **dancing**, **committing to peacemaking**, and **[appreciating broader views around the power (or lack of power) in churches and church divides across the world and its languages](https://www.theatlantic.com/ideas/archive/2018/11/what-should-america-do-its-empty-church-buildings/576592/?utm_source=twb)**. 
 
@@ -27,11 +24,13 @@ A new co-working, collective consciousness space that I love is **[The Assemblag
 
 ## Skills
 
-**Writing:** data-driven narratives, technical writing, report writing, user story writing, historical writing, blog writing
+**Writing:** data-driven narratives, technical writing, report writing, user story writing, historical writing; learning about solutions journalism
 
-**Product and Project Management:** project structure analysis, project planning, stakeholder communication, data management QA process management; systems analysis, stakeholder analysis, requirements and use case analysis, requirements specification, technical product prototyping, interviewing, knowledge management; familiar with UX research
+**Systems Practice, Design Research, and Mission-Driven Consulting**: systems analysis, systems practice and design for social justice, ethnographic interviewing and focus groups, systems mapping and systems narrative development, requirements facilitation, user story and requirements writing, chatbot systems design; nonprofit strategic alignment 
 
-**Data Analytics:** data visualization, survey analysis, regression analysis, cluster analysis, geospatial analysis, classification analysis, hypothesis testing, principal component analysis and dimensionality reduction; familiar with database schema design, neural network analysis, natural language processing, time series analysis, social network analysis, feature engineering
+**Data Analytics**: data-driven storytelling, analytical dashboard development, data wrangling and management framework development, advanced statistical modeling (regression, clustering, principal components, association rules, random forest), geospatial analysis, survey analysis; familiar with machine learning concepts (neural networks, training and testing datasets, cross-fold validation), and social network analysis
+
+**Project Management**: project proposal review, project scope analysis, project roadmapping, and project progress reporting
 
 **Software and Programming Languages:** R, Python, SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github, Jira, Trello; familiar with Tableau, MapReduce, Java, AWS, SAS, Ruby on Rails
 
