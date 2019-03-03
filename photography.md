@@ -172,6 +172,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="glimpse-of-spring.jpg">
+
+
+
 <b>
 
 <b>
