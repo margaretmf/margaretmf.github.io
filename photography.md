@@ -12,6 +12,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="spring-freedom.jpg"
+
+
+
 <img class="profile-picture" src="bookbag.jpg">
 
 
