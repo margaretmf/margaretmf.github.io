@@ -124,6 +124,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="tree.jpg">
+
+
+
 <img class="profile-picture" src="libraries-children.jpg">
 
 
