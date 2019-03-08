@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst, interviewer, and writer, with an interest in world affairs, international cultures, data journalism, markets, design research, product management, business sustainability, and spirituality and a background in systems practice, systems thinking, and data science. Passionate about looking at narratives around events and problems from multiple perspectives.
+Versatile data analyst, ethnographic interviewer, and writer, with an interest in systems practice, design research, data journalism, product management, and data science. Passionate about looking at narratives and problems from multiple perspectives.
 
  <br>
  
