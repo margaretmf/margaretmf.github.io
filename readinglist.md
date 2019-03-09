@@ -91,6 +91,7 @@ layout: default
 * [Thinking in Systems: A Primer](https://www.amazon.com/Thinking-Systems-Donella-H-Meadows/dp/1603580557) by Donella Meadows
 * [A New Earth: Awakening to Your Life's Purpose](https://www.amazon.com/New-Earth-Awakening-Purpose-Selection/dp/0452289963/ref=pd_cp_14_1?pd_rd_w=iTJYK&pf_rd_p=ef4dc990-a9ca-4945-ae0b-f8d549198ed6&pf_rd_r=30Q419G7DP5B10K41QGN&pd_rd_r=62b6cf7e-2a87-11e9-b5a3-830356680a3c&pd_rd_wg=3Wu3d&pd_rd_i=0452289963&psc=1&refRID=30Q419G7DP5B10K41QGN) by Eckhart Tolle
 * [Transformative Scenario Planning: Working Together to Change the Future ](https://www.amazon.com/Transformative-Scenario-Planning-Working-Together/dp/1609944909) by Adam Kahane
+* [As "I" See It : The Scientifically Spiritual Perspective](https://www.amazon.com/As-see-scientifically-spiritual-perspective/dp/0964563223)
 
 
 ## 2018
