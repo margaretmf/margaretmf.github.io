@@ -93,6 +93,7 @@ layout: default
 * [Transformative Scenario Planning: Working Together to Change the Future ](https://www.amazon.com/Transformative-Scenario-Planning-Working-Together/dp/1609944909) by Adam Kahane
 * [As "I" See It : The Scientifically Spiritual Perspective](https://www.amazon.com/As-see-scientifically-spiritual-perspective/dp/0964563223) by John Hargreaves
 * [Leading from Within: Conscious Social Change and Mindfulness for Social Innovation](https://www.amazon.com/Leading-Within-Conscious-Mindfulness-Innovation/dp/026203719X) by Gretchen Ki Steidle
+* [Homeless Lives Matter: Homeless My Story](https://www.amazon.com/Homeless-Lives-Matter-story/dp/1523731370) by Leo Gnawa
 
 
 ## 2018
