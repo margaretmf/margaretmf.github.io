@@ -7,7 +7,7 @@ Currently, as we live through [the age of the algorithm](https://maisonneuve.org
 
 <br>
 
-### A Year of Reading Reported through Data + Data-Driven Recommended Reading
+### A Year of Reading Reported through Data
 At the beginning of 2018, I set a goal to start reading **books** more and listing what I am reading. Between November 2018 and February 2019, I expect to run some experiments with data using my **[reading list](https://margaretmf.github.io/readinglist)**.
 
 <img class="picture" src="count_of_books_read.jpg">
