@@ -93,6 +93,7 @@ layout: default
 * [As "I" See It : The Scientifically Spiritual Perspective](https://www.amazon.com/As-see-scientifically-spiritual-perspective/dp/0964563223) by John Hargreaves
 * [Leading from Within: Conscious Social Change and Mindfulness for Social Innovation](https://www.amazon.com/Leading-Within-Conscious-Mindfulness-Innovation/dp/026203719X) by Gretchen Ki Steidle
 * [Homeless Lives Matter: Homeless My Story](https://www.amazon.com/Homeless-Lives-Matter-story/dp/1523731370) by Leo Gnawa
+* [On Dialogue](https://www.amazon.com/Dialogue-Routledge-Classics-76/dp/0415336414) by David Bohm
 
 
 ## 2018
