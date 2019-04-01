@@ -95,6 +95,7 @@ layout: default
 * [Homeless Lives Matter: Homeless My Story](https://www.amazon.com/Homeless-Lives-Matter-story/dp/1523731370) by Leo Gnawa
 * [On Dialogue](https://www.amazon.com/Dialogue-Routledge-Classics-76/dp/0415336414) by David Bohm
 * [Spiritual Cross-Training: Searching through Silence, Stretch, and Song](https://www.amazon.com/Spiritual-Cross-Training-Searching-Through-Silence/dp/1503950484) by Benjamin Shalva
+* [On Creativity](https://www.amazon.com/Creativity-Routledge-Classics-75/dp/0415336406) by David Bohm
 
 
 ## 2018
