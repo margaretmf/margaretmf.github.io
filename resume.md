@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-Versatile data analyst, ethnographic interviewer, and writer, with an interest in systems practice, design research, data journalism, product management, and data science. Passionate about looking at narratives and problems from multiple perspectives.
+I am a versatile data analyst, interviewer, systems researcher, and writer, with an interest in systems practice, design research, data journalism, product management, and data science. Passionate about looking at narratives and problems from multiple perspectives.
 
  <br>
  
