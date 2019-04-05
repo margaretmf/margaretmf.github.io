@@ -42,7 +42,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 
 ## Interests
 
-**World Affairs, Organizations and Cultures:** world affairs, learning organizations, theory of emergence, network science, international cultures, creative process, democratic process
+**World Affairs, Organizations and Cultures:** world affairs, learning organizations, theory of emergence, network science, international cultures, creative process, democratic process, community building
 
 **Technology/Information:** algorithmic biases and prejudices, neural patterns, patterns in data, flow-based programming, technological and social change, technological ecosystems, interactions between technology and humans, participatory design, public infrastructure, effective information flow, data integration, technology policy and governance
 
