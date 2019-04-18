@@ -5,12 +5,17 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 5
-* [Breaking News: The Remaking of Journalism and Why It Matters Now](https://github.com/margaretmf/margaretmf.github.io/edit/master/readinglist.md) by Alan Rusbridger
+#### Up Next - Top 10
+* [Systems Thinking for Social Change](https://www.amazon.com/Systems-Thinking-Social-Change-Consequences/dp/160358580X/ref=pd_lpo_sbs_14_t_2?_encoding=UTF8&psc=1&refRID=JNMVW8Y6J9ADFFR8FACF) by David Peter Stroh
+* [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](http://www.peterawallner.com/faith-on-trial-book.html) by Peter Wallner
 * [Them: Why We Hate Each Other and How to Heal](https://www.amazon.com/Them-Hate-Each-Other-Heal-ebook/dp/B079YL56S3) by Ben Sasse
+* [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
+* [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
+* [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [Conscious: The Power of Awareness in Business and Life](https://www.amazon.com/Conscious-Power-Awareness-Business-Life/dp/1119508452) by Bob Rosen
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [Church Forsaken: Practicing Presence in Neglected Neighborhoods](https://www.amazon.com/Church-Forsaken-Practicing-Neglected-Neighborhoods/dp/0830845550) by Jonathan Brooks
+* [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
 
 ## 2019
 
@@ -32,6 +37,7 @@ layout: default
 * [Spiritual Cross-Training: Searching through Silence, Stretch, and Song](https://www.amazon.com/Spiritual-Cross-Training-Searching-Through-Silence/dp/1503950484) by Benjamin Shalva
 * [On Creativity](https://www.amazon.com/Creativity-Routledge-Classics-75/dp/0415336406) by David Bohm
 * [Ambition Addiction: How to Go Slow, Give Thanks, and Discover Joy Within](https://www.amazon.com/Ambition-Addiction-Thanks-Discover-Within/dp/1503938638) by Benjamin Shalva
+* [Breaking News: The Remaking of Journalism and Why It Matters Now](https://github.com/margaretmf/margaretmf.github.io/edit/master/readinglist.md) by Alan Rusbridger
 
 
 ## 2018
