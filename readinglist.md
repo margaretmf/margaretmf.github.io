@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Up Next - Top 10
-* [Systems Thinking for Social Change](https://www.amazon.com/Systems-Thinking-Social-Change-Consequences/dp/160358580X/ref=pd_lpo_sbs_14_t_2?_encoding=UTF8&psc=1&refRID=JNMVW8Y6J9ADFFR8FACF) by David Peter Stroh
 * [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](http://www.peterawallner.com/faith-on-trial-book.html) by Peter Wallner
 * [Them: Why We Hate Each Other and How to Heal](https://www.amazon.com/Them-Hate-Each-Other-Heal-ebook/dp/B079YL56S3) by Ben Sasse
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
@@ -38,6 +37,7 @@ layout: default
 * [On Creativity](https://www.amazon.com/Creativity-Routledge-Classics-75/dp/0415336406) by David Bohm
 * [Ambition Addiction: How to Go Slow, Give Thanks, and Discover Joy Within](https://www.amazon.com/Ambition-Addiction-Thanks-Discover-Within/dp/1503938638) by Benjamin Shalva
 * [Breaking News: The Remaking of Journalism and Why It Matters Now](https://github.com/margaretmf/margaretmf.github.io/edit/master/readinglist.md) by Alan Rusbridger
+* [Systems Thinking for Social Change](https://www.amazon.com/Systems-Thinking-Social-Change-Consequences/dp/160358580X/ref=pd_lpo_sbs_14_t_2?_encoding=UTF8&psc=1&refRID=JNMVW8Y6J9ADFFR8FACF) by David Peter Stroh
 
 
 ## 2018
