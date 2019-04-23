@@ -10,13 +10,13 @@ layout: default
 
 I am **Margaret Furr**, and I am developing expertise in **data-driven narratives**, **systems practice and systems thinking**, **ethnographic interviewing**, **requirements specificiation**, and **looking at events and problems creatively from multiple perspectives**.
 
-I am a versatile and multidimensional **systems** professional within the **social innovation workspace** that also aspires to build bridges across functions and creative narratives. I love to draw from **multiple disciplines and angles** to understand the world and develop solutions.
+I am a versatile professional within the **social innovation workspace** that loves to build bridges. I love to draw from **multiple disciplines and angles** to understand the world and develop solutions.
 
 Currently, I work as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
 
 I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
 
-Outside of work, one can find me **running**, **reading**, **following world affairs**, **understanding 21st century trends**, **taking photos**, **dancing**, **committing to peacemaking**.
+Outside of work, one can find me **running**, **reading**, **following world affairs**, **understanding 21st century trends**, **taking photos**, **dancing**, and **committing to peacemaking**.
 
 Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is **"Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all."** 
 
