@@ -10,7 +10,6 @@ layout: default
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
-* [Conscious: The Power of Awareness in Business and Life](https://www.amazon.com/Conscious-Power-Awareness-Business-Life/dp/1119508452) by Bob Rosen
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [Church Forsaken: Practicing Presence in Neglected Neighborhoods](https://www.amazon.com/Church-Forsaken-Practicing-Neglected-Neighborhoods/dp/0830845550) by Jonathan Brooks
 * [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
@@ -38,6 +37,7 @@ layout: default
 * [Breaking News: The Remaking of Journalism and Why It Matters Now](https://github.com/margaretmf/margaretmf.github.io/edit/master/readinglist.md) by Alan Rusbridger
 * [Systems Thinking for Social Change](https://www.amazon.com/Systems-Thinking-Social-Change-Consequences/dp/160358580X/ref=pd_lpo_sbs_14_t_2?_encoding=UTF8&psc=1&refRID=JNMVW8Y6J9ADFFR8FACF) by David Peter Stroh
 * [Them: Why We Hate Each Other and How to Heal](https://www.amazon.com/Them-Hate-Each-Other-Heal-ebook/dp/B079YL56S3) by Ben Sasse
+* [Conscious: The Power of Awareness in Business and Life](https://www.amazon.com/Conscious-Power-Awareness-Business-Life/dp/1119508452) by Bob Rosen
 
 
 ## 2018
