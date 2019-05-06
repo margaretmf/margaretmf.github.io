@@ -7,11 +7,11 @@ layout: default
 ### Books
 #### Up Next - Top 10
 * [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](http://www.peterawallner.com/faith-on-trial-book.html) by Peter Wallner
+* [Christian Science Revolution in Thought](https://www.mulberrypress.com/product/the-christian-science-revolution-in-thought/) by John Hargreaves
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [The Economics of Religion in India](https://www.amazon.com/Economics-Religion-India-Sriya-Iyer/dp/0674979648/ref=asc_df_0674979648/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541090055&psc=1)
-* [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
 * [Reality Is Not What It Seems: The Journey to Quantum Gravity](https://www.amazon.com/Reality-Not-What-Seems-Journey/dp/0735213925) by Carlo Rovelli
 * [Becoming Supernatural: How Common People are Doing the Uncommon](https://www.amazon.com/Becoming-Supernatural-Common-People-Uncommon/dp/1401953115) by Dr. Joe Dispenza
 * [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
@@ -42,6 +42,7 @@ layout: default
 * [Them: Why We Hate Each Other and How to Heal](https://www.amazon.com/Them-Hate-Each-Other-Heal-ebook/dp/B079YL56S3) by Ben Sasse
 * [Conscious: The Power of Awareness in Business and Life](https://www.amazon.com/Conscious-Power-Awareness-Business-Life/dp/1119508452) by Bob Rosen
 * [Church Forsaken: Practicing Presence in Neglected Neighborhoods](https://www.amazon.com/Church-Forsaken-Practicing-Neglected-Neighborhoods/dp/0830845550) by Jonathan Brooks
+* [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
 
 
 ## 2018
