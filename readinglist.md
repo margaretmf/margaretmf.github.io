@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Up Next - Top 10
-* [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](http://www.peterawallner.com/faith-on-trial-book.html) by Peter Wallner
 * [Christian Science Revolution in Thought](https://www.mulberrypress.com/product/the-christian-science-revolution-in-thought/) by John Hargreaves
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -16,6 +15,7 @@ layout: default
 * [Becoming Supernatural: How Common People are Doing the Uncommon](https://www.amazon.com/Becoming-Supernatural-Common-People-Uncommon/dp/1401953115) by Dr. Joe Dispenza
 * [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
 * [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
+* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 
 ## 2019
 
@@ -43,6 +43,7 @@ layout: default
 * [Conscious: The Power of Awareness in Business and Life](https://www.amazon.com/Conscious-Power-Awareness-Business-Life/dp/1119508452) by Bob Rosen
 * [Church Forsaken: Practicing Presence in Neglected Neighborhoods](https://www.amazon.com/Church-Forsaken-Practicing-Neglected-Neighborhoods/dp/0830845550) by Jonathan Brooks
 * [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
+* [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](http://www.peterawallner.com/faith-on-trial-book.html) by Peter Wallner
 
 
 ## 2018
