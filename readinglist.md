@@ -5,8 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 10
-* [Christian Science Revolution in Thought](https://www.mulberrypress.com/product/the-christian-science-revolution-in-thought/) by John Hargreaves
+#### Up Next - Top 9
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -45,6 +44,7 @@ layout: default
 * [Smart People Should Build Things: How to Restore Our Culture of Achievement, Build a Path for Entrepreneurs, and Create New Jobs in America](https://www.amazon.com/Smart-People-Should-Build-Things/dp/0062292048) by Andrew Yang
 * [Faith on Trial: Mary Baker Eddy, Christian Science, and the First Amendment](http://www.peterawallner.com/faith-on-trial-book.html) by Peter Wallner
 * [Reality Is Not What It Seems: The Journey to Quantum Gravity](https://www.amazon.com/Reality-Not-What-Seems-Journey/dp/0735213925) by Carlo Rovelli
+* [Christian Science Revolution in Thought](https://www.mulberrypress.com/product/the-christian-science-revolution-in-thought/) by John Hargreaves
 
 
 ## 2018
