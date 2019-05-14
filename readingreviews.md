@@ -7,8 +7,8 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
-### [Beyond clichés: Teen anxiety prompts closer look at young lives[(https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives])**
-On March 7, 2019, Chelsea Sheasley wrote an article, [Beyond clichés: Teen anxiety prompts closer look at young lives[(https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives]), with the Christian Science Monitor. The importance and timeliness of a national health topic makes this article newsworthy.
+### [Beyond clichés: Teen anxiety prompts closer look at young lives](https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives)**
+On March 7, 2019, Chelsea Sheasley wrote an article, [Beyond clichés: Teen anxiety prompts closer look at young lives](https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives), with the Christian Science Monitor. The importance and timeliness of a national health topic makes this article newsworthy.
 
 With insights from interviews with middle schoolers, and results of surveys conducted by Pew Research Center, the report explains why more teenagers experience anxiety. Sheasley summarizes, "There’s no consensus among researchers about what drives teen anxiety, although common theories include fear of failure, the rise of smartphones and social media, changing parenting styles, and a world that feels unusually chaotic." The report informs readers about trends in teen anxiety in concise way and synthesizes data from a variety of sources.
 
