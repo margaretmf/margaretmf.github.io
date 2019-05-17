@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 11
+#### Up Next - Top 12
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -17,6 +17,7 @@ layout: default
 * [Dignity: Its Essential Role in Resolving Conflict](https://www.amazon.com/Dignity-Essential-Role-Resolving-Conflict/dp/0300188056) by Donnah Hicks
 * [The Presence Process: A Journey into Present Moment Awareness](https://www.amazon.com/Presence-Process-Healing-Journey-Awareness/dp/0825305373) by Michael Brown
 * [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures-ebook/dp/B01LZ1A3Q3) by Antonio Damasi
+* [Big Magic: Creative Living Beyond Fear](https://www.amazon.com/Big-Magic-Creative-Living-Beyond/dp/1594634726) by Elizabeth Gilber
 
 ## 2019
 
