@@ -121,15 +121,19 @@ layout: default
 
 
 
-<img class="profile-picture" src="voting.jpg">
-
-
-
 <img class="profile-picture" src="art.jpg">
 
 
 
 <img class="profile-picture" src="chinatown.jpg">
+
+
+
+<img class="profile-picture" src="spiritual.jpg">
+
+
+
+<img class="profile-picture" src="voting.jpg">
 
 
 
@@ -163,10 +167,6 @@ layout: default
 
 
 <img class="profile-picture" src="libraries-children-desks.jpg">
-
-
-
-<img class="profile-picture" src="spiritual.jpg">
 
 
 
