@@ -4,11 +4,36 @@ layout: default
 
 <br>
 
-<img class="profile-picture" src="california.jpg">
+<img class="profile-picture" src="snow-dc.jpg">
+
+
+
+<img class="profile-picture" src="glimpse-of-spring.jpg">
 
 
 
 <img class="profile-picture" src="spring-freedom.jpg">
+
+
+
+<img class="profile-picture" src="yellow-flowers.jpg">
+
+
+
+<img class="profile-picture" src="redwood-tree.jpg">
+
+
+
+<img class="profile-picture" src="california.jpg">
+
+
+
+<img class="profile-picture" src="tree.jpg">
+
+
+
+
+<img class="profile-picture" src="fall-foliage.jpg">
 
 
 
@@ -24,12 +49,7 @@ layout: default
 
 
 
-
 <img class="profile-picture" src="google_datakind.jpg">
-
-
-
-<img class="profile-picture" src="yellow-flowers.jpg">
 
 
 
@@ -62,10 +82,6 @@ layout: default
 
 
 <img class="profile-picture" src="christmas-window.jpg">
-
-
-
-<img class="profile-picture" src="redwood-tree.jpg">
 
 
 
@@ -125,9 +141,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="tree.jpg">
-
-
 
 <img class="profile-picture" src="libraries-children.jpg">
 
@@ -142,10 +155,6 @@ layout: default
 
 
 <img class="profile-picture" src="dancing.jpg">
-
-
-
-<img class="profile-picture" src="snow-dc.jpg">
 
 
 
@@ -165,10 +174,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="fall-foliage.jpg">
-
-
-
 <img class="profile-picture" src="holiday-spirit.jpg">
 
 
@@ -183,9 +188,6 @@ layout: default
 
 <img class="profile-picture" src="snow-water-branches.jpg">
 
-
-
-<img class="profile-picture" src="glimpse-of-spring.jpg">
 
 
 <b>
