@@ -28,7 +28,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="california.jpg">
+<img class="profile-picture" src="playground.jpg">
 
 
 
@@ -36,7 +36,20 @@ layout: default
 
 
 
-<img class="profile-picture" src="playground.jpg">
+<img class="profile-picture" src="california.jpg">
+
+
+
+<img class="profile-picture" src="beauty.jpg">
+
+
+
+<img class="profile-picture" src="christmas-flowers.jpg">
+
+
+
+<img class="profile-picture" src="winter-leaves.jpg">
+
 
 
 
@@ -104,10 +117,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="beauty.jpg">
-
-
-
 <img class="profile-picture" src="dc-gov.jpg">
 
 
@@ -140,7 +149,6 @@ layout: default
 
 
 
-
 <img class="profile-picture" src="libraries-children.jpg">
 
 
@@ -161,10 +169,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="winter-leaves.jpg">
-
-
-
 <img class="profile-picture" src="oysters.jpg">
 
 
@@ -178,10 +182,6 @@ layout: default
 
 
 <img class="profile-picture" src="nature.jpg">
-
-
-
-<img class="profile-picture" src="christmas-flowers.jpg">
 
 
 
