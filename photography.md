@@ -109,6 +109,30 @@ layout: default
 
 
 
+<img class="profile-picture" src="libraries-children.jpg">
+
+
+
+<img class="profile-picture" src="apple-sf.jpg">
+
+
+
+<img class="profile-picture" src="norfolk.jpg">
+
+
+
+<img class="profile-picture" src="voting.jpg">
+
+
+
+<img class="profile-picture" src="art.jpg">
+
+
+
+<img class="profile-picture" src="chinatown.jpg">
+
+
+
 
 <img class="profile-picture" src="building_and_windows.jpg">
 
@@ -125,9 +149,6 @@ layout: default
 <img class="profile-picture" src="vegetables.jpg">
 
 
-<img class="profile-picture" src="apple-sf.jpg">
-
-
 
 <img class="profile-picture" src="christmas-window.jpg">
 
@@ -141,27 +162,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="norfolk.jpg">
-
-
-
 <img class="profile-picture" src="libraries-children-desks.jpg">
 
 
 
 <img class="profile-picture" src="spiritual.jpg">
-
-
-
-<img class="profile-picture" src="art.jpg">
-
-
-
-<img class="profile-picture" src="chinatown.jpg">
-
-
-
-<img class="profile-picture" src="libraries-children.jpg">
 
 
 
@@ -180,8 +185,6 @@ layout: default
 <img class="profile-picture" src="oysters.jpg">
 
 
-
-<img class="profile-picture" src="voting.jpg">
 
 
 
