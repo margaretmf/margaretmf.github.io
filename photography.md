@@ -4,6 +4,8 @@ layout: default
 
 <br>
 
+### Nature
+
 <img class="profile-picture" src="spring-freedom.jpg">
 
 
@@ -60,9 +62,16 @@ layout: default
 
 
 
+<img class="profile-picture" src="christmas.jpg">
+
+
+
 <img class="profile-picture" src="nature.jpg">
 
 
+<br>
+
+### Washington, DC
 
 <img class="profile-picture" src="building_and_windows.jpg">
 
@@ -77,10 +86,6 @@ layout: default
 
 
 <img class="profile-picture" src="google_datakind.jpg">
-
-
-
-<img class="profile-picture" src="christmas.jpg">
 
 
 
@@ -149,10 +154,6 @@ layout: default
 
 
 <img class="profile-picture" src="dc-beauty.jpg">
-
-
-
-<img class="profile-picture" src="holiday-spirit.jpg">
 
 
 
