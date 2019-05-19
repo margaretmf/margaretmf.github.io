@@ -48,16 +48,17 @@ April 2016 - Present
  
 ### Breastfeeding Center for Greater Washington
 Systems Researcher
-January 2019 - Present
-* Lead comprehensive qualitative research on 5-10 organizations or experts to improve the breastfeeding system’s health
-* Complete 6 systems practice workshops to guide the community with systems goals, maps, and narratives
+January 2019 - May 2019
+* Interviewed 10 system actors to understand how organizations play a role in helping breastfeeding mothers
+* Led secondary research to paint a systems picture of how organizations influence the breastfeeding rate in DC
+* Completed 6 online classes to learn how to guide the community with systems goals, maps, and narratives
 
 ### Design for the Homeless
 Design Researcher
-February 2019 - Present
-* Conducting ethnographic research by contacting organizations that serve people experiencing homelessness, interviewing people within the community impacted by homelessness, and gathering data
-* Segmenting data related to the homelessness experience to inform how better to design services, products, and human experiences with personas
-* Particpating in the design process 
+February 2019 - May 2019
+* Organized 5 interviews with community members to understand experiences of people facing homelessness
+* Practiced photography to capture observations of the needs of people experiencing homelessness visually
+* Developed a user persona to summarize the profile, goals, frustrations, and needs of people interviewed 
 
 ### Compass Pro Bono
 Strategic Alignment Consultant
