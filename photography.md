@@ -93,11 +93,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="snow-dc.jpg">
-
-
-
 <img class="profile-picture" src="snow-governmentbuilding.jpg">
+
+
+
+<img class="profile-picture" src="snow-dc.jpg">
 
 
 
