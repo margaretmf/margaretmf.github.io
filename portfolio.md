@@ -159,6 +159,14 @@ While taking a class on the future of technology as it relates to humanity, I st
 <img class="picture" src="InternetPolicyPaper7.jpg">
 
 
+## Career Explorations Videos
+While a student at UVA, I helped kickstart a larger university initiative to help undergraduate students explore career options. I enjoyed identifying professionals to reach out to, develop interview questions, and create videos of the interviews with the experts. Below are two videos I created with two people who have moved down interesting paths.
+
+https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00
+
+https://www.youtube.com/watch?v=20IZ5WRNHAM
+
+
 ## TOM(TOMRA) - Sustainable/Alternative Investing
 
 Before committing to a liberal arts program at UVA, I considered applying to UVA's Commerce School. While considering applying to the business school, I applied through a rigorous process to the Sustainable Investment group and pitched a cool stock, TOM(TMRAY). Tomra, the company, creates sensor-based solutions for optimal resource productivity. Below is the research report I wrote before the pitch.
