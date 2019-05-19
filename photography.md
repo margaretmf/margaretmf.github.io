@@ -113,6 +113,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="norfolk.jpg">
+
+
+
 <img class="profile-picture" src="libraries-children-desks.jpg">
 
 
@@ -120,8 +124,6 @@ layout: default
 <img class="profile-picture" src="libraries-children.jpg">
 
 
-
-<img class="profile-picture" src="norfolk.jpg">
 
 
 
