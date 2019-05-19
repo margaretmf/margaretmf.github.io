@@ -16,7 +16,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="redwood-tree.jpg">
+<img class="profile-picture" src="tree.jpg">
 
 
 
@@ -24,7 +24,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="tree.jpg">
+<img class="profile-picture" src="redwood-tree.jpg">
 
 
 
@@ -33,6 +33,10 @@ layout: default
 
 
 <img class="profile-picture" src="fall-foliage.jpg">
+
+
+
+<img class="profile-picture" src="playground.jpg">
 
 
 
@@ -97,10 +101,6 @@ layout: default
 
 
 <img class="profile-picture" src="democracy.jpg">
-
-
-
-<img class="profile-picture" src="playground.jpg">
 
 
 
