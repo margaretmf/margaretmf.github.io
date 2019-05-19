@@ -101,7 +101,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="snow-dc.jpg">
+<img class="profile-picture" src="dcbooks.jpg">
 
 
 
@@ -109,7 +109,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="dcbooks.jpg">
+<img class="profile-picture" src="snow-dc.jpg">
 
 
 
