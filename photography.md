@@ -4,7 +4,7 @@ layout: default
 
 <br>
 
-<img class="profile-picture" src="snow-dc.jpg">
+<img class="profile-picture" src="spring-freedom.jpg">
 
 
 
@@ -12,11 +12,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="spring-freedom.jpg">
-
-
-
-<img class="profile-picture" src="yellow-flowers.jpg">
+<img class="profile-picture" src="snow-water-branches.jpg">
 
 
 
@@ -24,12 +20,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="california.jpg">
+<img class="profile-picture" src="yellow-flowers.jpg">
 
 
 
 <img class="profile-picture" src="tree.jpg">
 
+
+
+<img class="profile-picture" src="california.jpg">
 
 
 
@@ -186,7 +185,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="snow-water-branches.jpg">
+<img class="profile-picture" src="snow-dc.jpg">
 
 
 
