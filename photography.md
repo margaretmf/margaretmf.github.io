@@ -65,14 +65,6 @@ layout: default
 
 
 
-<br>
-
-<br>
-
-
-
-### Washington, DC
-
 <img class="profile-picture" src="dc.jpg">
 
 
@@ -101,9 +93,11 @@ layout: default
 
 
 
-<br>
+<img class="profile-picture" src="google_datakind.jpg">
 
-<br>
+
+
+<img class="profile-picture" src="dcbooks.jpg">
 
 
 
@@ -117,11 +111,6 @@ layout: default
 
 
 
-
-<img class="profile-picture" src="google_datakind.jpg">
-
-
-
 <img class="profile-picture" src="dcwindow.jpg">
 
 
@@ -131,11 +120,6 @@ layout: default
 
 
 <img class="profile-picture" src="vegetables.jpg">
-
-
-
-<img class="profile-picture" src="dcbooks.jpg">
-
 
 
 <img class="profile-picture" src="apple-sf.jpg">
