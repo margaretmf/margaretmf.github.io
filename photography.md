@@ -125,10 +125,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="boston-harbor.jpg">
-
-
-
 <img class="profile-picture" src="chinatown.jpg">
 
 
@@ -149,9 +145,8 @@ layout: default
 
 
 
-
-
 <img class="profile-picture" src="bookbag.jpg">
+
 
 
 
@@ -185,6 +180,11 @@ layout: default
 
 
 <img class="profile-picture" src="oysters.jpg">
+
+
+
+<img class="profile-picture" src="boston-harbor.jpg">
+
 
 
 
