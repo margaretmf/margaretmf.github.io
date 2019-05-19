@@ -64,12 +64,48 @@ layout: default
 <img class="profile-picture" src="nature.jpg">
 
 
+
 <br>
 
 <br>
+
 
 
 ### Washington, DC
+
+<img class="profile-picture" src="dc.jpg">
+
+
+
+<img class="profile-picture" src="womens_march.jpg">
+
+
+
+<img class="profile-picture" src="dc-gov.jpg">
+
+
+
+<img class="profile-picture" src="democracy.jpg">
+
+
+
+<img class="profile-picture" src="dc-beauty.jpg">
+
+
+
+<img class="profile-picture" src="snow-dc.jpg">
+
+
+
+<img class="profile-picture" src="snow-governmentbuilding.jpg">
+
+
+
+<br>
+
+<br>
+
+
 
 <img class="profile-picture" src="playground.jpg">
 
@@ -81,15 +117,8 @@ layout: default
 
 
 
-<img class="profile-picture" src="dc.jpg">
-
-
 
 <img class="profile-picture" src="google_datakind.jpg">
-
-
-
-<img class="profile-picture" src="womens_march.jpg">
 
 
 
@@ -129,18 +158,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="democracy.jpg">
-
-
-
-<img class="profile-picture" src="dc-gov.jpg">
-
-
-
-<img class="profile-picture" src="snow-governmentbuilding.jpg">
-
-
-
 <img class="profile-picture" src="libraries-children-desks.jpg">
 
 
@@ -150,10 +167,6 @@ layout: default
 
 
 <img class="profile-picture" src="art.jpg">
-
-
-
-<img class="profile-picture" src="dc-beauty.jpg">
 
 
 
@@ -183,9 +196,6 @@ layout: default
 
 <img class="profile-picture" src="voting.jpg">
 
-
-
-<img class="profile-picture" src="snow-dc.jpg">
 
 
 
