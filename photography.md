@@ -113,15 +113,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="libraries-children.jpg">
-
-
-
 <img class="profile-picture" src="apple-sf.jpg">
 
 
 
 <img class="profile-picture" src="norfolk.jpg">
+
+
+
+<img class="profile-picture" src="libraries-children.jpg">
 
 
 
@@ -141,11 +141,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="dcwindow.jpg">
-
-
-
 <img class="profile-picture" src="building_and_windows.jpg">
+
+
+
+<img class="profile-picture" src="dcwindow.jpg">
 
 
 
@@ -153,16 +153,15 @@ layout: default
 
 
 
+<img class="profile-picture" src="blankets.jpg">
+
+
+
 <img class="profile-picture" src="oysters.jpg">
 
 
 
-
 <img class="profile-picture" src="vegetables.jpg">
-
-
-
-<img class="profile-picture" src="blankets.jpg">
 
 
 
