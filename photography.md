@@ -149,6 +149,9 @@ layout: default
 
 
 
+<img class="profile-picture" src="oysters.jpg">
+
+
 
 
 <img class="profile-picture" src="vegetables.jpg">
@@ -176,10 +179,6 @@ layout: default
 
 
 <img class="profile-picture" src="dancing.jpg">
-
-
-
-<img class="profile-picture" src="oysters.jpg">
 
 
 
