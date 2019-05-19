@@ -22,7 +22,6 @@ I worked heavily on the logistic regression and random forest models after split
 Download full ppt presentation [here](http://margaretmf.github.io/predicting-severe-sepsis.pptx).
 
 <img class="picture" src="predicting-severe-sepsis.jpg">
-
 <br> 
 
 ## DataKind DC and American Red Cross Project - Home Fire Risk Modeling
@@ -41,7 +40,6 @@ To date, over 400,000 alarms have already been installed in over 175,000 househo
 I specifically worked on the [Homefire per Tract Risk Indicator](https://github.com/home-fire-risk/smoke_alarm_models/blob/master/model_2c_ind_RC_response/code/RC_homefire_per_tract_risk_indicator.R).
 
 <img class="picture" src="home-fire-risk-map.jpg">
-
 <br>
 
 ## Clarity Campaign Labs - Free Trump Scoring for National Voters in 5 Primary States
@@ -51,7 +49,6 @@ In the spring of 2016, I spent time doing analytical work to support understandi
 One of my final projects was a little different given the nature of the 2016 presidential primaries. I worked to use the same national voter file data as well as Purpose Labs' free trump score critiera to calculate how Trump views voters, with how he views them being on a scale between "very good" and "very bad" and with criteria coming from ways Trump talked during the debates. Using the scores I calculated, I developed maps for 5 primary states. This is a [blog](https://medium.com/@joshhendler/what-does-donald-trump-think-of-tuesday-s-primary-states-97c8baf7505d) that Purpose Labs wrote on the final results.
 
 <img class="picture" src="free-trump-score.jpg">
-
 <br>
 
 ## UVA Data Mining Class - Crime Modeling
@@ -67,7 +64,6 @@ See some of my code [here](https://github.com/margaretmf/Crime-Data-Project/blob
 <img class="picture" src="crime-data-feb-oct-kde-plots.jpg">
                                                           
 <img class="picture" src="crime-data-feb-oct-auc-plots.jpg">  
-
 <br>
 
 # UVA Computer Science Class - Urbanization in G20 Members
@@ -94,7 +90,6 @@ To answer such questions, I created tables using data from the database using a 
 <img class="picture" src="urbanization-g20-members2.jpg">
 
 Download full ppt presentation [here](http://margaretmf.github.io/urbanization-g20-members.pptx).
-
 <br>
 
 ## DataKind DC - Foster Care Mobility Data Exploration + Random Forest
@@ -102,7 +97,6 @@ Download full ppt presentation [here](http://margaretmf.github.io/urbanization-g
 In fall and winter 2017, I attended as a volunteer a DataKind DC data dive. Here I worked with Foster Care Mobility data and explored how a random forest model worked on the data. The random forest model helped us find important features, including reason children were removed from home, age children enter child services, duration in a spell, and number of placements, for predicting how stable or mobile a foster care case is.
 
 Download full ppt presentation [here](http://margaretmf.github.io/foster-care-mobility.pptx).
-
 <br>
 
 ## Data for Democracy - Women's Marches around the States
@@ -112,7 +106,6 @@ In January 2017, after Trump became the President of the US, women came to DC to
 <img class="picture" src="womens-marches-us.jpg">
 
 <img class="picture" src="womens-marches-world.jpg">
-
 <br>
 
 ## Hack the Pay Gap - Aware
@@ -157,7 +150,7 @@ While taking a class on the future of technology as it relates to humanity, I st
 <img class="picture" src="InternetPolicyPaper6.jpg">
 
 <img class="picture" src="InternetPolicyPaper7.jpg">
-
+<br>
 
 ## Career Explorations Videos
 While a student at UVA, I helped kickstart a larger university initiative to help undergraduate students explore career options. I enjoyed identifying professionals to reach out to, develop interview questions, and create videos of the interviews with the experts. Below are two videos I created with two people who have moved down interesting paths.
@@ -165,11 +158,7 @@ While a student at UVA, I helped kickstart a larger university initiative to hel
 [![Career Explorations - Educational Consultant](https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00/0.jpg)](https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00)
 
 [![Career Explorations - Accounting Graduate Student](https://www.youtube.com/watch?v=20IZ5WRNHAM/0.jpg)](https://www.youtube.com/watch?v=20IZ5WRNHAM)
-
-https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00
-
-https://www.youtube.com/watch?v=20IZ5WRNHAM
-
+<br>
 
 ## TOM(TOMRA) - Sustainable/Alternative Investing
 
@@ -196,7 +185,6 @@ Before committing to a liberal arts program at UVA, I considered applying to UVA
 <img class="picture" src="TOM(TMRAY)-ResearchReport_10.jpg">
 
 <img class="picture" src="TOM(TMRAY)-ResearchReport_11.jpg">
-
 <br>
 
 
@@ -210,7 +198,6 @@ In an undergraduate class on entrepreneurship, my group developed and pitched a 
 <img class="picture" src="market_information_and_strategy_3.jpg">
 
 Download the entire report [here](https://github.com/margaretmf/margaretmf.github.io/blob/master/entrepreneurship_business_report.pdf)
-
 <br>
 
 
