@@ -29,6 +29,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="kentucky_farm.jpg">
+
+
+
 <img class="profile-picture" src="fall-foliage.jpg">
 
 
@@ -37,7 +41,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="kentucky_farm.jpg">
+<img class="profile-picture" src="playground.jpg">
 
 
 
@@ -105,7 +109,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="playground.jpg">
 
 <img class="profile-picture" src="building_and_windows.jpg">
 
