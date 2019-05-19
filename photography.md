@@ -37,6 +37,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="kentucky_farm.jpg">
+
+
+
 <img class="profile-picture" src="beauty.jpg">
 
 
@@ -112,10 +116,6 @@ layout: default
 
 
 <img class="profile-picture" src="dcwindow.jpg">
-
-
-
-<img class="profile-picture" src="kentucky_farm.jpg">
 
 
 
