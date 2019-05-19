@@ -53,15 +53,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="christmas-window.jpg">
-
-
-
 <img class="profile-picture" src="winter-leaves.jpg">
 
 
 
 <img class="profile-picture" src="holiday-spirit.jpg">
+
+
+
+<img class="profile-picture" src="christmas-window.jpg">
 
 
 
