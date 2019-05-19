@@ -52,12 +52,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="nature.jpg">
+<img class="profile-picture" src="holiday-spirit.jpg">
 
 
 
 <img class="profile-picture" src="christmas-flowers-against-wall.jpg">
 
+
+
+<img class="profile-picture" src="nature.jpg">
 
 
 
@@ -178,10 +181,6 @@ layout: default
 
 
 <img class="profile-picture" src="voting.jpg">
-
-
-
-<img class="profile-picture" src="holiday-spirit.jpg">
 
 
 
