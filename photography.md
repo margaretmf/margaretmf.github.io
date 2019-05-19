@@ -33,7 +33,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="fall-foliage.jpg">
+<img class="profile-picture" src="california.jpg">
 
 
 
@@ -41,7 +41,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="california.jpg">
+<img class="profile-picture" src="fall-foliage.jpg">
 
 
 
