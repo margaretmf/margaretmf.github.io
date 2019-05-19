@@ -4,7 +4,6 @@ layout: default
 
 <br>
 
-### Nature
 
 <img class="profile-picture" src="spring-freedom.jpg">
 
@@ -27,10 +26,6 @@ layout: default
 
 
 <img class="profile-picture" src="redwood-tree.jpg">
-
-
-
-<img class="profile-picture" src="playground.jpg">
 
 
 
@@ -75,6 +70,8 @@ layout: default
 
 
 ### Washington, DC
+
+<img class="profile-picture" src="playground.jpg">
 
 <img class="profile-picture" src="building_and_windows.jpg">
 
