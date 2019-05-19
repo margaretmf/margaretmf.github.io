@@ -162,6 +162,10 @@ While taking a class on the future of technology as it relates to humanity, I st
 ## Career Explorations Videos
 While a student at UVA, I helped kickstart a larger university initiative to help undergraduate students explore career options. I enjoyed identifying professionals to reach out to, develop interview questions, and create videos of the interviews with the experts. Below are two videos I created with two people who have moved down interesting paths.
 
+[![Career Explorations - Educational Consultant](https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00/0.jpg)](https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00)
+
+[![Career Explorations - Accounting Graduate Student](https://www.youtube.com/watch?v=20IZ5WRNHAM/0.jpg)](https://www.youtube.com/watch?v=20IZ5WRNHAM)
+
 https://www.youtube.com/watch?time_continue=55&v=sKZJ7pgaV00
 
 https://www.youtube.com/watch?v=20IZ5WRNHAM
