@@ -113,7 +113,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="apple-sf.jpg">
+<img class="profile-picture" src="libraries-children-desks.jpg">
 
 
 
@@ -122,6 +122,14 @@ layout: default
 
 
 <img class="profile-picture" src="libraries-children.jpg">
+
+
+
+<img class="profile-picture" src="data-work.jpg">
+
+
+
+<img class="profile-picture" src="apple-sf.jpg">
 
 
 
@@ -162,14 +170,6 @@ layout: default
 
 
 <img class="profile-picture" src="vegetables.jpg">
-
-
-
-<img class="profile-picture" src="data-work.jpg">
-
-
-
-<img class="profile-picture" src="libraries-children-desks.jpg">
 
 
 
