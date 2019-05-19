@@ -137,7 +137,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="voting.jpg">
+<img class="profile-picture" src="dcwindow.jpg">
 
 
 
@@ -145,7 +145,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="dcwindow.jpg">
+<img class="profile-picture" src="voting.jpg">
 
 
 
