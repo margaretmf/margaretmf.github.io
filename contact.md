@@ -7,5 +7,6 @@ is_contact: true
 2. [Twitter](https://twitter.com/megmfurr)
 3. [LinkedIn](https://www.linkedin.com/in/margaret-furr-1567b062)
 4. [Github](https://github.com/margaretmf)
+5. [Instagram](https://www.instagram.com/megmfurr)
 
 <br>
