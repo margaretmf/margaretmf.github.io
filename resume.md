@@ -5,7 +5,7 @@ layout: default
 ## PROFILE 
 I am a versatile data analyst, interviewer, systems researcher, and writer, with an interest in systems practice, data-driven narratives, entrepreneurship, product management, and data science. Passionate about looking at narratives and problems from multiple perspectives.
 
-[Resume - PDF Form](https://github.com/margaretmf/margaretmf.github.io/blob/master/MargaretFurr_Resume.pdf)
+[Resume](https://github.com/margaretmf/margaretmf.github.io/blob/master/MargaretFurr_Resume.pdf)
 
  <br>
  
