@@ -14,9 +14,9 @@ layout: default
 * [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
 * [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
-* [Dignity: Its Essential Role in Resolving Conflict](https://www.amazon.com/Dignity-Essential-Role-Resolving-Conflict/dp/0300188056) by Donnah Hicks
 * [The Presence Process: A Journey into Present Moment Awareness](https://www.amazon.com/Presence-Process-Healing-Journey-Awareness/dp/0825305373) by Michael Brown
 * [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures-ebook/dp/B01LZ1A3Q3) by Antonio Damasi
+* [The Powers That Be: Theology for a New Millennium](https://www.amazon.com/Powers-That-Be-Theology-Millennium/dp/0385487525) by Walter Wink
 
 
 ## 2019
@@ -50,6 +50,7 @@ layout: default
 * [Christian Science Revolution in Thought](https://www.mulberrypress.com/product/the-christian-science-revolution-in-thought/) by John Hargreaves
 * [Becoming Supernatural: How Common People are Doing the Uncommon](https://www.amazon.com/Becoming-Supernatural-Common-People-Uncommon/dp/1401953115) by Dr. Joe Dispenza
 * [Big Magic: Creative Living Beyond Fear](https://www.amazon.com/Big-Magic-Creative-Living-Beyond/dp/1594634726) by Elizabeth Gilber
+* [Dignity: Its Essential Role in Resolving Conflict](https://www.amazon.com/Dignity-Essential-Role-Resolving-Conflict/dp/0300188056) by Donnah Hicks
 
 
 ## 2018
