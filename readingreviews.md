@@ -24,6 +24,7 @@ Relying on insights from interviews with middle schoolers, and results of survey
 
 Moving the report on anxiety from what causes the illness to ways to help teenagers, the words, 'It's ok to be kind to yourself' highlight how education on self-compassion shifts how students can learn to respond to challenges and setbacks. Education as a solution presented in this article resonates with the products EVERFI delivers to schools so that students can learn about [Mental Health](https://everfi.com/offerings/listing/mental-wellness/), and [Compassion](https://thecompassionproject.com/about/), a way to help students calm down and better relate to one another. As Sheasley writes, anxiety does not have to be permanent, but building awareness of challenges facing teens, as well as how best to work with them inside and outside of the classroom, helps people to address the public health issue.
 
+<br>
 
 
 
