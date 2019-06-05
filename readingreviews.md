@@ -7,8 +7,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
-### Articles Up Next
-[How Hinduism Became a Political Weapon in India](https://www.theatlantic.com/international/archive/2019/05/hindu-nationalism-narendra-modi-india-election/590053/)
+### Articles Up Next - [How Hinduism Became a Political Weapon in India](https://www.theatlantic.com/international/archive/2019/05/hindu-nationalism-narendra-modi-india-election/590053/)
 
 
 ### [Opinion: Community ‘weavers’ create stronger social fabric](https://www2.ljworld.com/opinion/2019/feb/23/opinion-community-weavers-create-stronger-social-fabric/) and [A Nation of Weavers: The social renaissance is happening from the ground up](https://www.nytimes.com/2019/02/18/opinion/culture-compassion.html?action=click&module=RelatedLinks&pgtype=Article)
