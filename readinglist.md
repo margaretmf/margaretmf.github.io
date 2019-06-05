@@ -16,7 +16,7 @@ layout: default
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [The Presence Process: A Journey into Present Moment Awareness](https://www.amazon.com/Presence-Process-Healing-Journey-Awareness/dp/0825305373) by Michael Brown
 * [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures-ebook/dp/B01LZ1A3Q3) by Antonio Damasi
-* [The Powers That Be: Theology for a New Millennium](https://www.amazon.com/Powers-That-Be-Theology-Millennium/dp/0385487525) by Walter Wink
+* [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 
 
 ## 2019
@@ -51,6 +51,7 @@ layout: default
 * [Becoming Supernatural: How Common People are Doing the Uncommon](https://www.amazon.com/Becoming-Supernatural-Common-People-Uncommon/dp/1401953115) by Dr. Joe Dispenza
 * [Big Magic: Creative Living Beyond Fear](https://www.amazon.com/Big-Magic-Creative-Living-Beyond/dp/1594634726) by Elizabeth Gilber
 * [Dignity: Its Essential Role in Resolving Conflict](https://www.amazon.com/Dignity-Essential-Role-Resolving-Conflict/dp/0300188056) by Donnah Hicks
+* [The Powers That Be: Theology for a New Millennium](https://www.amazon.com/Powers-That-Be-Theology-Millennium/dp/0385487525) by Walter Wink
 
 
 ## 2018
