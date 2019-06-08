@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 11
+#### Up Next - Top 10
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -15,7 +15,6 @@ layout: default
 * [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [The Presence Process: A Journey into Present Moment Awareness](https://www.amazon.com/Presence-Process-Healing-Journey-Awareness/dp/0825305373) by Michael Brown
-* [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures-ebook/dp/B01LZ1A3Q3) by Antonio Damasi
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 
 
@@ -52,6 +51,7 @@ layout: default
 * [Big Magic: Creative Living Beyond Fear](https://www.amazon.com/Big-Magic-Creative-Living-Beyond/dp/1594634726) by Elizabeth Gilber
 * [Dignity: Its Essential Role in Resolving Conflict](https://www.amazon.com/Dignity-Essential-Role-Resolving-Conflict/dp/0300188056) by Donnah Hicks
 * [The Powers That Be: Theology for a New Millennium](https://www.amazon.com/Powers-That-Be-Theology-Millennium/dp/0385487525) by Walter Wink
+* [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures-ebook/dp/B01LZ1A3Q3) by Antonio Damasi
 
 
 ## 2018
