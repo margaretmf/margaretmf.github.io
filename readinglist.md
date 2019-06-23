@@ -15,7 +15,7 @@ layout: default
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
-* [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalioo
+* [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 
 
 ## 2019
