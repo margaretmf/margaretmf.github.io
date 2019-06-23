@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 8
+#### Up Next - Top 10
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -14,6 +14,8 @@ layout: default
 * [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
+* [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
+* [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalioo
 
 
 ## 2019
