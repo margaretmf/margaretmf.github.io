@@ -54,6 +54,7 @@ layout: default
 * [The Strange Order of Things: Life, Feeling, and the Making of Cultures](https://www.amazon.com/Strange-Order-Things-Feeling-Cultures-ebook/dp/B01LZ1A3Q3) by Antonio Damasi
 * [The Presence Process: A Journey into Present Moment Awareness](https://www.amazon.com/Presence-Process-Healing-Journey-Awareness/dp/0825305373) by Michael Brown
 * [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
+* [The Hidden Souls of Words: Key to Transformation Through the Power of Words](https://www.amazon.com/Hidden-Souls-Words-Transformation-Through/dp/1590790596) by Mary Cox Garner
 
 
 ## 2018
