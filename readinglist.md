@@ -11,12 +11,12 @@ layout: default
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [The Economics of Religion in India](https://www.amazon.com/Economics-Religion-India-Sriya-Iyer/dp/0674979648/ref=asc_df_0674979648/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541090055&psc=1) by Sriya Iyer 
-* [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
+* [City of Girls: A Novel](https://www.amazon.com/City-Girls-Novel-Elizabeth-Gilbert/dp/1594634734) by Elizabeth Gilbert
 
 
 ## 2019
@@ -56,6 +56,7 @@ layout: default
 * [The Presence Process: A Journey into Present Moment Awareness](https://www.amazon.com/Presence-Process-Healing-Journey-Awareness/dp/0825305373) by Michael Brown
 * [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
 * [The Hidden Souls of Words: Key to Transformation Through the Power of Words](https://www.amazon.com/Hidden-Souls-Words-Transformation-Through/dp/1590790596) by Mary Cox Garner
+* [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
 
 
 ## 2018
