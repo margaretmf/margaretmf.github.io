@@ -19,7 +19,7 @@ July 2014 - December 2015
  
 BA in [History](http://as.virginia.edu)
 August 2010 - May 2014
-* Advisor: Sophia Rosenfeld
+* Advisors: Sophia Rosenfeld, Raf Alvarado
 * Major Papers: History of Children's Play in the Victorian Era, History of Musicology during the Scientific Revolution
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
@@ -35,7 +35,7 @@ January - May 2019
 
 ### EVERFI
 Data Analyst
-April 2016 - Present
+April 2016 - January 2019
 * Own data-driven white paper writing, educational impact evaluation management framework development, exploratory data analysis, initial product requirements discussion, project tracking, and cross-functional teamwork
 * Write two-three white papers per year covering trends in digital education and insights from survey analysis to support partner education and company-wide thought leadership ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
 * Develop a technical framework to streamline the process of reporting 2,000 survey and assessment data points
@@ -64,7 +64,7 @@ February 2019 - May 2019
 
 ### Compass Pro Bono
 Strategic Alignment Consultant
-October 2016 - Present
+October 2016 - June 2019
 * Clients: Jubilee Jumpstart, Homeless Children's Playtime Project, The Welders
 * Write client engagement letters to communicate the organizational challenge, project goal, and project plan
 * Develop and design surveys to understand organizational stakeholders' opinions on organizational change (expansion and relocation)
@@ -96,27 +96,27 @@ December 2015 - January 2016
 * Demoed the final solution, which enabled the firm to engineer a workflow solution and write a [blogpost](https://medium.com/bluestone-logic/these-are-in-fact-the-bots-we-were-looking-for-4ec2ca108fc2) on the final results
 * Completed ISO 9001 Quality Management Systems training
 
+<br>
+ 
+## LEADERSHIP, VOLUNTEER, AND EXTRACURRICULAR EXPERIENCE
+ 
+### America India Foundation
+Event Particpant and Committee Member
+March 2018 - Present
+
 ### Margaret's News Analysis
 Videographer, News Curator, Trend Analyst, and Blogger
 * Recorded six video shots and took phots for the Cavalier Daily; edited videos with Apple Final Cut Pro
 * Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and attend data and solutions journalism workshops
 * Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year
 
-<br>
- 
-## LEADERSHIP AND VOLUNTEER EXPERIENCE
- 
-### Byte Back
-Next Gen Council Member and Data Process Mapping Project Team Lead
-June 2017 - Present
-
 ### UVA
 5 Year Giving Committee
 July 2018 - July 2019
 
-### America India Foundation
-Event Particpant and Committee Member
-March 2018 - Present
+### Byte Back
+Next Gen Council Member and Data Process Mapping Project Team Lead
+June 2017 - June 2019
 
 ### White House Hack the Pay Gap
 Product Designer
