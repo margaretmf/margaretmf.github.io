@@ -16,6 +16,7 @@ layout: default
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
+* [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
 
 
 ## 2019
