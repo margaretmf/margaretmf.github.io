@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 10
+#### Up Next - Top 11
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -17,6 +17,7 @@ layout: default
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
 * [City of Girls: A Novel](https://www.amazon.com/City-Girls-Novel-Elizabeth-Gilbert/dp/1594634734) by Elizabeth Gilbert
+* [The Tao of Systems Thinking: Exploring the Parallels Between Eastern Mysticism and Systems Thinking](https://www.amazon.com/Tao-Systems-Thinking-Exploring-Parallels/dp/1517128161) by Michael McCurley
 
 
 ## 2019
@@ -57,6 +58,7 @@ layout: default
 * [Tribe: On Homecoming and Belonging](https://www.amazon.com/Tribe-Homecoming-Belonging-Sebastian-Junger/dp/1455566381) by Sebastian Junger
 * [The Hidden Souls of Words: Key to Transformation Through the Power of Words](https://www.amazon.com/Hidden-Souls-Words-Transformation-Through/dp/1590790596) by Mary Cox Garner
 * [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
+* [Praying the Scriptures for Your Adult Children: Trusting God with the Ones You Love](https://www.amazon.com/Praying-Scriptures-Your-Adult-Children/dp/0310348048) by Jodie Berndt
 
 
 ## 2018
