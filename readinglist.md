@@ -17,7 +17,6 @@ layout: default
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
 * [City of Girls: A Novel](https://www.amazon.com/City-Girls-Novel-Elizabeth-Gilbert/dp/1594634734) by Elizabeth Gilbert
-* [The Tao of Systems Thinking: Exploring the Parallels Between Eastern Mysticism and Systems Thinking](https://www.amazon.com/Tao-Systems-Thinking-Exploring-Parallels/dp/1517128161) by Michael McCurley
 
 
 ## 2019
@@ -59,6 +58,7 @@ layout: default
 * [The Hidden Souls of Words: Key to Transformation Through the Power of Words](https://www.amazon.com/Hidden-Souls-Words-Transformation-Through/dp/1590790596) by Mary Cox Garner
 * [The Radiance Sutras: 112 Gateways to the Yoga of Wonder & Delight](https://www.amazon.com/Radiance-Sutras-Gateways-Delight-Sanskrit/dp/1604076593) by Lorin Roche
 * [Praying the Scriptures for Your Adult Children: Trusting God with the Ones You Love](https://www.amazon.com/Praying-Scriptures-Your-Adult-Children/dp/0310348048) by Jodie Berndt
+* [The Tao of Systems Thinking: Exploring the Parallels Between Eastern Mysticism and Systems Thinking](https://www.amazon.com/Tao-Systems-Thinking-Exploring-Parallels/dp/1517128161) by Michael McCurley
 
 
 ## 2018
