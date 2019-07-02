@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 11
+#### Up Next - Top 10
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
@@ -16,7 +16,6 @@ layout: default
 * [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [City of Girls: A Novel](https://www.amazon.com/City-Girls-Novel-Elizabeth-Gilbert/dp/1594634734) by Elizabeth Gilbert
-* [Living Buddha, Living Christ](https://www.amazon.com/Living-Buddha-Christ-Thich-Nhat/dp/1573220183) by Thich Nhat Hanh
 
 
 ## 2019
@@ -60,6 +59,7 @@ layout: default
 * [Praying the Scriptures for Your Adult Children: Trusting God with the Ones You Love](https://www.amazon.com/Praying-Scriptures-Your-Adult-Children/dp/0310348048) by Jodie Berndt
 * [The Tao of Systems Thinking: Exploring the Parallels Between Eastern Mysticism and Systems Thinking](https://www.amazon.com/Tao-Systems-Thinking-Exploring-Parallels/dp/1517128161) by Michael McCurley
 * [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
+* [Living Buddha, Living Christ](https://www.amazon.com/Living-Buddha-Christ-Thich-Nhat/dp/1573220183) by Thich Nhat Hanh
 
 
 ## 2018
