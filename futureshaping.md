@@ -10,7 +10,8 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 
 ### Topics Up Next
 * Natural Design
-* Homes
+* Home
+* Community
 
 
 <br>
