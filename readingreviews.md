@@ -13,7 +13,12 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [How to Talk to Small Kids about Big Issues Like Border Walls](https://qz.com/1659920/how-to-talk-to-kids-about-immigration-and-trumps-border-wall/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite)
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [Onstage, Democrats Clash on Ideas. Offstage, is There More Common Ground?](https://www.csmonitor.com/USA/Politics/2019/0628/Onstage-Democrats-clash-on-ideas.-Offstage-is-there-more-common-ground)
-* [Why Democrats can’t break out of the ‘electability’ box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
+* [Why Democrats Can’t Break Out of the ‘Electability’ Box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
+* [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
+* [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
+* [A Twenty-Four-Thousand-Mile Walk Across Human History](https://www.newyorker.com/news/out-of-eden/a-twenty-four-thousand-mile-walk-across-human-history?utm_social-type=owned&mbid=social_twitter&utm_medium=social&utm_brand=tny&utm_source=twitter)
+* [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
+* [Community in Starbucks](https://www.citylab.com/equity/2019/06/finding-community-coffee-shop-starbucks-flushing-queens/591370/)
 
 
 <br>
