@@ -7,6 +7,13 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
+### Reviews Up Next
+* [Democracies try to boost public service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
+* [Independence day in a divided America](https://www.theatlantic.com/ideas/archive/2019/07/unity-fourth-of-july/593206/?utm_term=2019-07-04T20%3A08%3A53&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo&utm_source=twitter)
+* [How to talk to small kids about big issues like border walls](https://qz.com/1659920/how-to-talk-to-kids-about-immigration-and-trumps-border-wall/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite)
+* [A roadmap for reshaping capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
+
+
 ### [How Hinduism Became a Political Weapon in India](https://www.theatlantic.com/international/archive/2019/05/hindu-nationalism-narendra-modi-india-election/590053/)
 On May 24, 2019, Jonah Blank wrote an article on how religion drives politics in India. With eloquent language, the author, Blank, depicts the landscape in which Hindu priests read Sanksrit chants and engage in other religious activities. Then, he states "the creed of the governing Bharatiya Janata Party (BJP)" - Hindutva, which differs from the Hinduism religion; and the relationship between faith and politics drives the politics of one of the largest nations on Earth. While the author uses great language and explains the difference between Hindutvi and Hinduism well, Blank fails to depict the conflict between Hindus and Muslims, which makes stronger the point of religion influencing politics.
 
