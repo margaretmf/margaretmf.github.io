@@ -8,10 +8,12 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 ### Reviews Up Next
-* [Democracies try to boost public service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
-* [Independence day in a divided America](https://www.theatlantic.com/ideas/archive/2019/07/unity-fourth-of-july/593206/?utm_term=2019-07-04T20%3A08%3A53&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo&utm_source=twitter)
-* [How to talk to small kids about big issues like border walls](https://qz.com/1659920/how-to-talk-to-kids-about-immigration-and-trumps-border-wall/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite)
-* [A roadmap for reshaping capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
+* [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
+* [Independence Day in a Divided America](https://www.theatlantic.com/ideas/archive/2019/07/unity-fourth-of-july/593206/?utm_term=2019-07-04T20%3A08%3A53&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo&utm_source=twitter)
+* [How to Talk to Small Kids about Big Issues Like Border Walls](https://qz.com/1659920/how-to-talk-to-kids-about-immigration-and-trumps-border-wall/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite)
+* [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
+* [Onstage, Democrats Clash on Ideas. Offstage, is There More Common Ground?](https://www.csmonitor.com/USA/Politics/2019/0628/Onstage-Democrats-clash-on-ideas.-Offstage-is-there-more-common-ground)
+* [Why Democrats can’t break out of the ‘electability’ box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
 
 
 <br>
