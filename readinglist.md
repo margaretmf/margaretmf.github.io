@@ -7,7 +7,6 @@ layout: default
 ### Books
 #### Up Next - Top 10
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
-* [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [The Economics of Religion in India](https://www.amazon.com/Economics-Religion-India-Sriya-Iyer/dp/0674979648/ref=asc_df_0674979648/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541090055&psc=1) by Sriya Iyer 
@@ -60,6 +59,7 @@ layout: default
 * [The Tao of Systems Thinking: Exploring the Parallels Between Eastern Mysticism and Systems Thinking](https://www.amazon.com/Tao-Systems-Thinking-Exploring-Parallels/dp/1517128161) by Michael McCurley
 * [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
 * [Living Buddha, Living Christ](https://www.amazon.com/Living-Buddha-Christ-Thich-Nhat/dp/1573220183) by Thich Nhat Hanh
+* [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 
 
 ## 2018
