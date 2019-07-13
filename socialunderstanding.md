@@ -6,7 +6,17 @@ layout: default
 Currently, as we live through a time of great change - not only technological but also social, I explore [social theories](https://www.thoughtco.com/sociology-research-and-statistics-s2-3026650)
 in relation to daily observations.
 
+
 <br>
+
+### Topics Up Next
+* [Social Solidarity Theory](http://routledgesoc.com/category/profile-tags/social-solidarity) in Community Building
+
+
+<br>
+
+<br>
+
 
 ### [Structural Strain Theory](https://www.thoughtco.com/structural-strain-theory-3026632) in Education and Innovation as a Positive Deviation
 
