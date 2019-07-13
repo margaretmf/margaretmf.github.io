@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 10
+#### Up Next - Top 11
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [Where Do We Go from Here: Chaos or Community?](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000760/ref=asc_df_0807000760/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166933&psc=1)
 * [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
