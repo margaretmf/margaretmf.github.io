@@ -7,13 +7,36 @@ Currently, as we live through [the age of the algorithm](https://maisonneuve.org
 
 <br>
 
-### Topics Up Next
-* Metadata and Frameworks
 
+### Exploring How Ontology Influences Technological Development
+Technology touches much of human beings' lives when humans commute, work, communicate, and engage in business transactions. Structures and frameworks support the effective flow of technology components as technology integrates in human beings' daily activities. Ontology has influenced the development of strong structures and frameworks in IT.
+
+Ontology, in philosophy, stands for metaphysics, the study of being and reality; fundamentally, ontology reveals a set of beings in the universe, including human beings, objects in beings' lives, the underlying cause of being, and the structure overarching and underarching the relationships between beings and categories of being. One definition in the dictionary for ontology is ["a set of concepts and categories in a subject area or domain that shows their properties and the relations between them"](https://www.bing.com/search?q=ontology&pc=cosp&ptag=G6C102N1234D010317A316A5D3C6E&form=CONBDF&conlogo=CT3210127). Ontology, applied in the world of engineering and IT, supports developing structure around data and code so that data and code are categorized based on their properties and so that entities within data and code can flow properly through points of connection that relate them. Understanding the big picture around data and software code through the study of ontology and ontologies helps to build structures and frameworks that best support effective flow.
+
+<img class="picture" src="ontology-definition.png">
+
+According to experts at Stanford, Natalya Noy and Deborah McGuinness, [ontologies](https://protege.stanford.edu/publications/ontology_development/ontology101-noy-mcguinness.html) have been common in the development of the World Wide Web and Artificial Intelligence. The experts write, "An ontology defines a common vocabulary for researchers who need to share information in a domain. It includes machine-interpretable definitions of basic concepts in the domain and relations among them", and the authors share the reasons why technologists would want to develop an ontology:
+* To share common understanding of the structure of information among people or software
+* To enable reuse of domain knowledge
+* To make domain assumptions explicit
+* To separate domain knowledge from the operational knowledge
+* To analyze domain knowledge
+
+Describing the relationship between metaphysics, the study of being and existence in philosophy, and ontology applied in AI, Noy and McGuinnes write the following:
+
+"An ontology is an explicit specification of a conceptualization. The term is borrowed from philosophy, where an Ontology is a systematic account of Existence. For AI systems, what "exists" is that which can be represented. When the knowledge of a domain is represented in a declarative formalism, the set of objects that can be represented is called the universe of discourse. This set of objects, and the describable relationships among them, are reflected in the representational vocabulary with which a knowledge-based program represents knowledge. Thus, in the context of AI, we can describe the ontology of a program by defining a set of representational terms. In such an ontology, definitions associate the names of entities in the universe of discourse (e.g., classes, relations, functions, or other objects) with human-readable text describing what the names mean, and formal axioms that constrain the interpretation and well-formed use of these terms. Formally, an ontology is the statement of a logical theory."
+
+In my experience, understanding ontologies and the relationships between data in databases and dictionaries is important when writing code functions, software code, and frameworks. Developing an understanding these concepts helps created useful specifications for future software code that engineers in an organization write with an overall mindset that seeks to understand the system. In experimenting with the topic, it has interesting to learn about how Twitter relies upon metadata and an ontology.
+
+<img class="picture" src="map_of_a_tweet.png">
+<img class="picture" src="metadata.png">
+
+Some people talk about how through all of the information collection by software like Twitter, scientists can begin to understand the nature of the collective consciousness. This type of science is interesting to understand, and the data is interesting to experiment with; and even more interesting it's interesting to relate this science back to the origin of the word ("ontology")[https://plato.stanford.edu/entries/phenomenology/#PhenOntoEpisLogiEthi], which is the study of existence, being, and what keeps being consciousness, moving, and living.
 
 <br>
 
 <br>
+
 
 
 ### A Year of Reading Reported through Data
