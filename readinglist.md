@@ -5,8 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 11
-* [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
+#### Up Next - Top 10
 * [Where Do We Go from Here: Chaos or Community?](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000760/ref=asc_df_0807000760/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166933&psc=1)
 * [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
@@ -62,6 +61,7 @@ layout: default
 * [anonymous: Jesus' hidden years... and yours](https://www.amazon.com/Jesus-hidden-years-yours/dp/0785298398) by alicia britt chole
 * [Living Buddha, Living Christ](https://www.amazon.com/Living-Buddha-Christ-Thich-Nhat/dp/1573220183) by Thich Nhat Hanh
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
+* [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 
 
 ## 2018
