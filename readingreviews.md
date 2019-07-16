@@ -3,13 +3,12 @@ layout: default
 ---
 
 ## BLOG
-As I read books and news through 2019, I will review outstanding stories critically to share light on them and the authors.
+As I read books and news through 2019, I will review outstanding stories critically to share light on them and the authors. ALso this year and next year, I hope to look at patterns in the news and develop an artistic expression of a framework around news event, based on my understanding of technology.
 
 <br>
 
 ### Reviews Up Next
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
-* [Independence Day in a Divided America](https://www.theatlantic.com/ideas/archive/2019/07/unity-fourth-of-july/593206/?utm_term=2019-07-04T20%3A08%3A53&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo&utm_source=twitter)
 * [How to Talk to Small Kids about Big Issues Like Border Walls](https://qz.com/1659920/how-to-talk-to-kids-about-immigration-and-trumps-border-wall/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite)
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [Onstage, Democrats Clash on Ideas. Offstage, is There More Common Ground?](https://www.csmonitor.com/USA/Politics/2019/0628/Onstage-Democrats-clash-on-ideas.-Offstage-is-there-more-common-ground)
@@ -24,6 +23,16 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [Independence Day in a Divided America](https://www.theatlantic.com/ideas/archive/2019/07/unity-fourth-of-july/593206/?utm_term=2019-07-04T20%3A08%3A53&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo&utm_source=twitter)
+Conor Friedersdorf, a staff writer with The Atlantic, wrote on Independence Day, during this time of 21st century political fragmentation. Directing words to citizens of the US on the 4th of July, he captures the ability of the US to find common ground amidst polarizing viewpoints through Abraham Lincoln's words: “A husband and wife may be divorced and go out of the presence and beyond the reach of each other,” Abraham Lincoln observed, “but the different parts of our country can not do this. They can not but remain face to face, and intercourse, either amicable or hostile, must continue.” Through this statement, Friedersdorf expresses confidence in the solidity of the United States of America and in the American people's ability to stand undivorced; and no better day than the 4th of July exists to remind us of our united, unseparated states.
+
+Writing on the history of the country's celebration of its independence during major periods - the signing of the declaration of independence, the emancipation of slaves, the common ground proclaimed a decade after the civil war, the fighting for freedom by new immigrants in the early 1900s, and the post-Cold War period - Friedersdorf highlights moment in which Americans stood united and overcame challenges to reawaken the nation's purpose. Initially, only nine of the original 13 colonies voted for independence; but three days later, three more colonies joined in to vote, leading to solid support behind the new nation. And despite the new nation not living up to its ideals at first, Frederick Douglass praised the Founders' best qualities in his oration during the civil war period, expressing confidence in the country's ability to overcome racial divides. Although at the end of the civil war period, the "new black 'freedmen'" felt more free to celebrate the country's national holiday than did the African Americans, a decade later, Americans declared the Fourth of July to be a "common heritage." Americans continued to explore how to find this common heritage as a new wave of immigrants entered into the country seeking from in the 1900s; the immigrants fought for the barriers between newly naturalized citizens and native borns to be swept aside. And after the tumult of the Cold War years, Americans found healing through the celebration of the Bicentennial and felt free to unite around the spirit, with someone writing, "This has rejuvenated my faith in America."
+
+As demonstrated through each of these major periods, America finds ways to evolve from a nation faced with trials into an even stronger country; and Friedersdorf purposefully presents this point to us. He closes off the article encouraging the country to be transformed once again through the final sentences, "The principles of the declaration are still there to unite us, even amid the persistent divisions that define this moment. Much more so than in 1776, there is a widely held belief that all humans are created equal and “endowed by their Creator with certain unalienable Rights, that among these are Life, Liberty and the pursuit of Happiness.” 
+
+While Friedersdorf applies an understanding of history to make a statement and to capture the heart of the common citizen on a national holiday, I do not think the theme overarching the article is strong enough, and I do not think he weaves the theme throughout the article from period to period well enough. I also do not think his main argument is strong enough because it leaves out the many details that press on both the minds of citizens and politicians in the debates and that lead to the fragmentation.
 
 
 ### [How Hinduism Became a Political Weapon in India](https://www.theatlantic.com/international/archive/2019/05/hindu-nationalism-narendra-modi-india-election/590053/)
