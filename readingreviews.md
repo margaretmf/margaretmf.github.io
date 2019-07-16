@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## BLOG
-As I read books and news through 2019, I will review outstanding stories critically to share light on them and the authors. ALso this year and next year, I hope to look at patterns in the news and develop an artistic expression of a framework around news event, based on my understanding of technology.
+As I read books and news through 2019, I will review outstanding stories critically to share light on them and the authors. Also this year and next year, I hope to look at patterns in the news, develop an artistic expression of a framework around news events, and apply an understanding of technology and photography.
 
 <br>
 
