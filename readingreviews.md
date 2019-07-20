@@ -7,16 +7,21 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
-### Reviews Up Next
-* [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
-* [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
+### Reviews Up Next - Politics and Government
 * [Debate Deadline Day: 20 Candidates Set to Crowd the Stage in Detroit](https://www.politico.com/story/2019/07/16/democratic-debate-candidates-deadline-1417060)
 * [Why Democrats Can’t Break Out of the ‘Electability’ Box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
+* [What Americans Do Now Will Define Us Forever](https://www.theatlantic.com/ideas/archive/2019/07/send-her-back-battle-will-define-us-forever/594307/)
 * [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
+* [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
+
+### Reviews Up Next - Capitalism and Innovation
+* [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
-* [A Twenty-Four-Thousand-Mile Walk Across Human History](https://www.newyorker.com/news/out-of-eden/a-twenty-four-thousand-mile-walk-across-human-history?utm_social-type=owned&mbid=social_twitter&utm_medium=social&utm_brand=tny&utm_source=twitter)
 * [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
 * [Community in Starbucks](https://www.citylab.com/equity/2019/06/finding-community-coffee-shop-starbucks-flushing-queens/591370/)
+
+### Reviews Up Next - Human History
+* [A Twenty-Four-Thousand-Mile Walk Across Human History](https://www.newyorker.com/news/out-of-eden/a-twenty-four-thousand-mile-walk-across-human-history?utm_social-type=owned&mbid=social_twitter&utm_medium=social&utm_brand=tny&utm_source=twitter)
 
 
 <br>
