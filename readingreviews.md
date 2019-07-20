@@ -24,6 +24,26 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+### [How President Trump Became the GOP’s ‘New Normal’](https://www.csmonitor.com/USA/Politics/2019/0715/How-President-Trump-became-the-GOP-s-new-normal)
+Amidst the Democratic party's debates, Republicans consider how President Donald Trump's provocative style changed public discourse as they prepare to make decisions that impact the future. In the middle of July, 15 days after the first series of the Democratic party's clashing of ideas, Linda Feldman highlights how a staunch Republican, Ari Fleischer, who served as President George Bush's press secretary, left the ballot blank because of his dislike of Trump's approach. While three years later, Mr. Fleisher says he would vote for President Trump because of his policies, he claims that "the president rhetorically goes too far", and Republicans need to speak up to prevent his speaking style from becoming normalized.
+
+Everyone paying attention to Twitter from the White House has seen Trump's rhetoric, and it's disgusting. Feldman shares a recent example of his words that go too far in Mr. Fleischer's opinion. 
+
+"The president went on a Twitter tirade against a group of Democratic congresswomen of color – calling on them to 'go back' to their countries of origin, though all but one are American-born. By Monday afternoon, only about a dozen Republicans in Congress had contradicted him.
+
+One of Mr. Trump’s closest allies on Capitol Hill, Republican Sen. Lindsey Graham of South Carolina, doubled down on the president’s point. 
+
+'We all know that AOC and this crowd are a bunch of communists. ... They’re anti-Semitic. They’re anti-America,' Senator Graham said on Fox News, referring to Rep. Alexandria Ocasio-Cortez, D-N.Y., who was born in New York.  
+
+Mr. Trump then reinforced Mr. Graham’s commentary by tweeting it out. 
+
+For his part, Mr. Fleischer tweeted Monday that Mr. Trump’s statement was 'completely inappropriate.' But he says the incident doesn’t change his support for the president."
+
+While Mr. Fleischer applauds Trump's stance on policy, he does not support his inappropriate communication style. But with limited pushback on Trump's manners from other Republicans, is the party submitting to a "new normal"? Party leaders like Mr. Fleischer hope to reconsider whether they submit fully to this and think carefully while heading into the future. Other Republican leaders have begun to speak up also. Feldman explains, "on Capitol Hill, negative Republican reactions began trickling in Monday afternoon. The two African American GOP members – Rep. Will Hurd of Texas and Sen. Tim Scott of South Carolina – registered their objections. Most of the other Republicans who pushed back on Mr. Trump have been known to criticize him before, including Sen. Susan Collins of Maine. She said she disagrees 'strongly' with House progressives on policy but called Mr. Trump’s tweet 'way over the line.'" But dominant Republicans still stand behind Trump in leading with aggressive tactics, opening the way for American citizens to ask "what is normal?"
+
+Feldman supports citizen readers in answering this question by defining normal. She writes, "The word 'normal' is deceptively simple. It can refer to a statistical norm in scientifically measurable phenomena, such as weather, and it can also be deployed in the highly subjective world of politics. The philosopher Ian Hacking once called the use of the word 'one of the most powerful ideological tools of the 20th century.'" Trump's way of making false statements through "misspeaking, dissembling, exaggerating in a way typical for politicians and salesmen, or lying outright" is nothing like what the American people have seen before in an era where Twitter, Youtube videos, and Facebook lie in our hands; and his "outisize[d] presidential personalit[y]" compares to historic ones, including Andrew Jackson's and Teddy Roosevelt's. Historically, more conventional figures - Martin Van Buren and William Howard Taft - have succeeded these types of presidents and shifted the country back to "normal", or moderacy. "'The political system is making choices every day about how much of this we accept,'" however, as Ms. Greenberg says, and people on both sides of the aisle, within a country of free men and women, can speak up to decide what becomes normalized within the country.
+
+
 ### [Onstage, Democrats Clash on Ideas. Offstage, Is There More Common Ground?](https://www.csmonitor.com/USA/Politics/2019/0628/Onstage-Democrats-clash-on-ideas.-Offstage-is-there-more-common-ground)
 During the second night of the Democratic presidential candidates debate in Miami, FL, Jessica Mendoza wrote on how onstage, the audience saw the chaotic, clashing of ideas, but offstage, citizens asked the question, "can everyone stand on more common ground and against the threat that President Donald Trump poses?". After painting the picture of the first night of debates well with a vibrant vocabulary, the political chaos came to greater life after the second night with 20 candidates in the Democratic party disagreeing over how to unify the party and the nation.
 
