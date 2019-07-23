@@ -7,14 +7,14 @@ layout: default
 ### Books
 #### Up Next - Top 12
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
-* [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
+* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
+* [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
 * [The Economics of Religion in India](https://www.amazon.com/Economics-Religion-India-Sriya-Iyer/dp/0674979648/ref=asc_df_0674979648/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541090055&psc=1) by Sriya Iyer 
-* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
 * [City of Girls: A Novel](https://www.amazon.com/City-Girls-Novel-Elizabeth-Gilbert/dp/1594634734) by Elizabeth Gilbert
 * [An End to Upside Down Thinking: Dispelling the Myth That the Brain Produces Consciousness, and the Implications for Everyday Life](https://www.amazon.com/End-Upside-Down-Thinking-Consciousness/dp/1947637851) by Mark Gober
@@ -65,6 +65,7 @@ layout: default
 * [Wholeness and the Implicate Order](https://www.amazon.com/dp/0415289793/?tag=mh0b-20&hvadid=77653060657638&hvqmt=e&hvbmt=be&hvdev=c&ref=pd_sl_16asi8c7vy_e) by David Bohm
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [Where Do We Go from Here: Chaos or Community?](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000760/ref=asc_df_0807000760/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166933&psc=1) by Martin Luther King, Jr.
+* [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
 
 
 ## 2018
