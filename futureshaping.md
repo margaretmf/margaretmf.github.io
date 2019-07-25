@@ -10,7 +10,7 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 
 ### Topics Up Next
 * Home and [The Future of Housing](https://www.fastcompany.com/90342219/the-future-of-housing-looks-nothing-like-todays?utm_source=pocket-newtab)
-* Community
+* Community, Radical Mutuality, and [Community in Starbucks](https://www.citylab.com/equity/2019/06/finding-community-coffee-shop-starbucks-flushing-queens/591370/)
 
 
 <br>
