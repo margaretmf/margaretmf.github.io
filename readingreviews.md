@@ -8,11 +8,11 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 ### Reviews Up Next - Politics and Government
-* [Debate Deadline Day: 20 Candidates Set to Crowd the Stage in Detroit](https://www.politico.com/story/2019/07/16/democratic-debate-candidates-deadline-1417060)
-* [Why Democrats Can’t Break Out of the ‘Electability’ Box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
+* [Why Democrats Can't Break Out of the 'Electability' Box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
 * [What Americans Do Now Will Define Us Forever](https://www.theatlantic.com/ideas/archive/2019/07/send-her-back-battle-will-define-us-forever/594307/)
 * [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
+* [The Mueller Report: An Educational Tool for Teachers — and a Surprising Hit with Book Clubs](https://www.washingtonpost.com/education/2019/07/24/mueller-report-an-educational-tool-teachers-surprising-hit-with-book-clubs/?utm_term=.1ec6c4a69fa0)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
@@ -27,6 +27,16 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [Debate Deadline Day: 20 Candidates Set to Crowd the Stage in Detroit](https://www.politico.com/story/2019/07/16/democratic-debate-candidates-deadline-1417060)
+To prepare Politico's audience for the second series of debates, Zach Montellaro shares the names of the 20 candidates that have qualified for an opportunity to argue a political viewpoint, in Detroit on July 30-31. For Montana Gov. Steve Bullock, who missed the first debates in June but gained the tiebreaker for the 20th spot, this round will be his first chance to win support in the public polls; many of the candidates will not have another chance to debate after this one.
+
+Listing out the 20 candidates, Montellaro names the politicians: "Michael Bennet, Joe Biden, Cory Booker, Bullock, Pete Buttigieg, Julián Castro, Bill de Blasio, John Delaney, Tulsi Gabbard, Kirsten Gillibrand, Kamala Harris, John Hickenlooper, Jay Inslee, Amy Klobuchar, Beto O’Rourke, Tim Ryan, Bernie Sanders, Elizabeth Warren, Marianne Williamson, and Andrew Yang."
+
+After naming the candidates, Montellaro covers the importance of the debates for fundraising, a challenge that all candidates face; they all share the risk of running out of money, and the debate on CNN provides them with attention so that they can attract interested fundraisers and shift the course of their campaigns. Currently, "candidates need 2 percent in four national polls and 130,000 unique donors", and six Democratic presidential candidates - Biden, Buttigieg, Harris, O'Rourke, Sanders, and Warren - have met both of the increased thresholds. The DNC's polling and fundraising thresholds will rise, so lesser-known candidates will experience pressure, and gaining a national audience with a major media group will not grow easier. 
+
+Unlike journalists in other news outlets, Montellaro writes less about the political issues and the candidates themselves, and he writes more about the reality of the political competition, the fundraising thresholds, and the importance of media coverage. His article helps readers understand the importance of the debate and the CNN coverage for the campaigns, and his article prepares readers to listen closely to the arguments on July 30-31 amdist the pressure on the politicians. Reading other articles covering the candidates' individual backgrounds and the deeper issues will prepare readers further to hear the arguments.
 
 
 ### [How President Trump Became the GOP’s ‘New Normal’](https://www.csmonitor.com/USA/Politics/2019/0715/How-President-Trump-became-the-GOP-s-new-normal)
