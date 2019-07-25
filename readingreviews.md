@@ -18,7 +18,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
 * [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
-* [Community in Starbucks](https://www.citylab.com/equity/2019/06/finding-community-coffee-shop-starbucks-flushing-queens/591370/)
 
 ### Reviews Up Next - Human History
 * [A Twenty-Four-Thousand-Mile Walk Across Human History](https://www.newyorker.com/news/out-of-eden/a-twenty-four-thousand-mile-walk-across-human-history?utm_social-type=owned&mbid=social_twitter&utm_medium=social&utm_brand=tny&utm_source=twitter)
