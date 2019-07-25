@@ -5,12 +5,18 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 12
+#### Up Next - Top 17
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
+* [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by 
+Peter Frankopan
+* [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
+* [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
+* [Janesville: An American Story](https://www.amazon.com/Janesville-American-Story-Amy-Goldstein/dp/1501102230) by Amy Goldstein
+* [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
