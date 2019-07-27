@@ -11,7 +11,7 @@ in relation to daily observations.
 
 ### Topics Up Next
 * [Social Solidarity Theory](http://routledgesoc.com/category/profile-tags/social-solidarity) in Community Building
-
+* [Conflict Theory and Social Fragmentation](https://www.thoughtco.com/sociology-research-and-statistics-s2-3026650) in the Workplace
 
 <br>
 
