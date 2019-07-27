@@ -24,6 +24,8 @@ Peter Frankopan
 * [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
 * [City of Girls: A Novel](https://www.amazon.com/City-Girls-Novel-Elizabeth-Gilbert/dp/1594634734) by Elizabeth Gilbert
 * [An End to Upside Down Thinking: Dispelling the Myth That the Brain Produces Consciousness, and the Implications for Everyday Life](https://www.amazon.com/End-Upside-Down-Thinking-Consciousness/dp/1947637851) by Mark Gober
+* [Novacene: The Coming Age of Hyperintelligence](https://www.amazon.co.uk/Novacene-Coming-Hyperintelligence-James-Lovelock/dp/024139936X) by James Lovelock
+* [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
 
 
 ## 2019
