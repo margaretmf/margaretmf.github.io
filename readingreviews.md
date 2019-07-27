@@ -13,14 +13,26 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
 * [The Mueller Report: An Educational Tool for Teachers — and a Surprising Hit with Book Clubs](https://www.washingtonpost.com/education/2019/07/24/mueller-report-an-educational-tool-teachers-surprising-hit-with-book-clubs/?utm_term=.1ec6c4a69fa0)
+* [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
+* [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
 * [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
+* [Art Is At The Core Of Entrepreneurship, Ignore It At Your Peril](https://www.forbes.com/sites/sophiamatveeva/2019/07/25/art-is-at-the-core-of-entrepreneurship-ignore-it-at-your-peril/#2abe67c965fa)
+* [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
 
-### Reviews Up Next - Human History
+### Reviews Up Next - Technology 
+* [Judges Can’t Decide Whether Freedom Extends to Your Car](https://www.citylab.com/equity/2019/07/road-police-power-has-few-limits/593989/?utm_term=2019-07-19T20%3A08%3A56&utm_campaign=citylab&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
+* [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
+* [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
+
+### Reviews Up Next - Human History, Social Science, Culture, and Environment
 * [A Twenty-Four-Thousand-Mile Walk Across Human History](https://www.newyorker.com/news/out-of-eden/a-twenty-four-thousand-mile-walk-across-human-history?utm_social-type=owned&mbid=social_twitter&utm_medium=social&utm_brand=tny&utm_source=twitter)
+* [Who Maps the World?](https://www.citylab.com/equity/2018/03/who-maps-the-world/555272/?utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2019-07-25T15%3A49%3A35&utm_campaign=citylab)
+* [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
+* [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 
 
 <br>
