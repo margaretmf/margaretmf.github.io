@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 17
+#### Up Next - Top 19
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
