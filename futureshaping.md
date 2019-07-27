@@ -10,7 +10,25 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 
 ### Topics Up Next
 * Home and [The Future of Housing](https://www.fastcompany.com/90342219/the-future-of-housing-looks-nothing-like-todays?utm_source=pocket-newtab)
-* Community, Radical Mutuality, and [Community in Starbucks](https://www.citylab.com/equity/2019/06/finding-community-coffee-shop-starbucks-flushing-queens/591370/)
+
+
+<br>
+
+<br>
+
+
+### Community
+Community, the word for a "unified body of individuals" helps people connect. People have not been born to live alone because while people need solitude to think, people would die alone; people have been born to come together to interact, think, and communicate with those around them and live, love, and express fully.
+
+In 2019, I first woke up to the spirit of community while visiting a local Starbucks in the neighborhood and seeing the vibrant scene where employees sell coffee and local residents drink, eat, and work. In Starbucks coffeeshops, I can feel the community around and in the space. The spirit of community exists also on the sidewalks, in the public library across the street, and in the art shows around the city.
+
+In a recent article, [Why I Found My Community in a Starbucks](https://www.citylab.com/equity/2019/06/finding-community-coffee-shop-starbucks-flushing-queens/591370/), Amir Khafagy writes about how he has found community in the local neighborhood Starbucks also. While buying a drink or food, eating, or writing, reading, or chatting, customers build a vibrant, open place to have fun, think, and connect. Khafagy explains how with few public spaces, "Starbucks has emerged for some as a de facto town square. It's where many of the eclectic personalities that shape the community converge." People similarly come together to read books, hear public talks, meditate, or create social gatherings at coffeeshops that owners run independently.
+
+Outside of these coffeeshops people can feel a sense of community by walking on the street. While to many individuals, it may feel like strangers pass by them, all individuals move as members of one human race and participate in a broader social system.
+
+Other public spaces like libraries contribute to the common unity within the city, where people can work on more rigorous study and work with other citizens there to guide them to books, activities, or jobs; and art shows support transforming our social systems of oppression into social systems of original expression.
+
+Martin Luther King, Jr. wrote on community in ["Where Do We Go from Here: Chaos or Community?"](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000671) to heal racial divides. His words provide a spiritual and moral compass for community, which can be fully expressed in some of the outlets shared in this blogpost. I envision our communities growing more solid, true, artistic, and diverse as the human race advances in the 21st century and people break out of states of being isolated and victimized into states of being valued.
 
 
 <br>
