@@ -109,11 +109,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="google_datakind.jpg">
-
-
-
 <img class="profile-picture" src="snow-dc.jpg">
+
+
+
+<img class="profile-picture" src="google_datakind.jpg">
 
 
 
@@ -159,7 +159,15 @@ layout: default
 
 
 
+<img class="profile-picture" src="dancing.jpg">
+
+
+
 <img class="profile-picture" src="building_and_windows.jpg">
+
+
+
+<img class="profile-picture" src="blankets.jpg">
 
 
 
@@ -175,23 +183,8 @@ layout: default
 
 
 
-<img class="profile-picture" src="blankets.jpg">
-
-
-
 <img class="profile-picture" src="rowers.jpg">
 
-
-
-<img class="profile-picture" src="oysters.jpg">
-
-
-
-<img class="profile-picture" src="vegetables.jpg">
-
-
-
-<img class="profile-picture" src="dancing.jpg">
 
 
 <b>
