@@ -173,15 +173,19 @@ layout: default
 
 
 
-<img class="profile-picture" src="zen.jpg">
-
-
-
 <img class="profile-picture" src="revolution.jpg">
 
 
 
 <img class="profile-picture" src="color.jpg">
+
+
+
+<img class="profile-picture" src="camp.jpg">
+
+
+
+<img class="profile-picture" src="zen.jpg">
 
 
 
