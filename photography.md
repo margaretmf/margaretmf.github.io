@@ -173,6 +173,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="zen.jpg">
+
+
+
+<img class="profile-picture" src="revolution.jpg">
+
+
+
+<img class="profile-picture" src="color.jpg">
+
+
+
 <img class="profile-picture" src="ducks.jpg">
 
 
@@ -181,11 +193,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="color.jpg">
-
-
-
 <img class="profile-picture" src="rowers.jpg">
+
+
+
+<img class="profile-picture" src="camp-water.jpg">
 
 
 
