@@ -129,8 +129,6 @@ layout: default
 
 
 
-
-
 <img class="profile-picture" src="data-work.jpg">
 
 
@@ -180,6 +178,10 @@ layout: default
 
 
 <img class="profile-picture" src="boston-harbor.jpg">
+
+
+
+<img class="profile-picture" src="color.jpg">
 
 
 
