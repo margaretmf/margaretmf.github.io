@@ -105,6 +105,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="american-flag.jpg">
+
+
+
 <img class="profile-picture" src="google_datakind.jpg">
 
 
@@ -163,11 +167,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="blankets.jpg">
+<img class="profile-picture" src="ducks.jpg">
 
 
 
 <img class="profile-picture" src="boston-harbor.jpg">
+
+
+
+<img class="profile-picture" src="blankets.jpg">
 
 
 
