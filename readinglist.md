@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 19
+#### Up Next - Top 20
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
@@ -26,6 +26,8 @@ Peter Frankopan
 * [Novacene: The Coming Age of Hyperintelligence](https://www.amazon.co.uk/Novacene-Coming-Hyperintelligence-James-Lovelock/dp/024139936X) by James Lovelock
 * [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
 * [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439/ref=pd_sbs_14_8?_encoding=UTF8&pd_rd_i=0801018439&pd_rd_r=7836442d-382e-4405-9a86-9a1bf78bcfc6&pd_rd_w=lb57L&pd_rd_wg=9F2jV&pf_rd_p=43281256-7633-49c8-b909-7ffd7d8cb21e&pf_rd_r=0R1AZ5Q6HDQ6QS1SY048&psc=1&refRID=0R1AZ5Q6HDQ6QS1SY048) by Deidra Riggs
+* [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet ](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
+* [The Power of Collective Wisdom: And the Trap of Collective Folly](https://www.amazon.com/Power-Collective-Wisdom-Trap-Folly/dp/1576754456?pf_rd_p=eedd298f-b000-4128-8f7f-6db0e5f9b31f&pd_rd_wg=YDGNs&pf_rd_r=5ZBWCT0AH1RQHTYA64ME&ref_=pd_gw_msx_wsixn_v1&pd_rd_w=B9EDK&pd_rd_r=05ad2211-86e5-4ff2-a9c8-d6b57bacf718) by Alan Briskin
 
 
 ## 2019
