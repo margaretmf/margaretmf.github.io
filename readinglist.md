@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Up Next - Top 19
-* [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
@@ -26,6 +25,7 @@ Peter Frankopan
 * [An End to Upside Down Thinking: Dispelling the Myth That the Brain Produces Consciousness, and the Implications for Everyday Life](https://www.amazon.com/End-Upside-Down-Thinking-Consciousness/dp/1947637851) by Mark Gober
 * [Novacene: The Coming Age of Hyperintelligence](https://www.amazon.co.uk/Novacene-Coming-Hyperintelligence-James-Lovelock/dp/024139936X) by James Lovelock
 * [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
+* [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439/ref=pd_sbs_14_8?_encoding=UTF8&pd_rd_i=0801018439&pd_rd_r=7836442d-382e-4405-9a86-9a1bf78bcfc6&pd_rd_w=lb57L&pd_rd_wg=9F2jV&pf_rd_p=43281256-7633-49c8-b909-7ffd7d8cb21e&pf_rd_r=0R1AZ5Q6HDQ6QS1SY048&psc=1&refRID=0R1AZ5Q6HDQ6QS1SY048) by Deidra Riggs
 
 
 ## 2019
@@ -74,6 +74,7 @@ Peter Frankopan
 * [Principles](https://www.amazon.com/Principles-Life-Work-Ray-Dalio/dp/1501124021) by Ray Dalio
 * [Where Do We Go from Here: Chaos or Community?](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000760/ref=asc_df_0807000760/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166933&psc=1) by Martin Luther King, Jr.
 * [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
+* [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 
 
 ## 2018
