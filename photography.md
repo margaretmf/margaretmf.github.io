@@ -201,7 +201,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="camp-water.jpg">
+<img class="profile-picture" src="water-canoes.jpg">
+
+
+
+<img class="profile-picture" src="canoes.jpg">
 
 
 
