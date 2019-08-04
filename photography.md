@@ -189,6 +189,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="colored-pencils.jpg">
+
+
+
+<img class="profile-picture" src="paint.jpg">
+
+
+
+<img class="profile-picture" src="creative-window.jpg">
+
+
+
 <img class="profile-picture" src="ducks.jpg">
 
 
