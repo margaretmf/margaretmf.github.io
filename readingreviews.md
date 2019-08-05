@@ -9,7 +9,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - Politics and Government
 * [Why Democrats Can't Break Out of the 'Electability' Box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
-* [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
 * [The Mueller Report: An Educational Tool for Teachers — and a Surprising Hit with Book Clubs](https://www.washingtonpost.com/education/2019/07/24/mueller-report-an-educational-tool-teachers-surprising-hit-with-book-clubs/?utm_term=.1ec6c4a69fa0)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
@@ -38,6 +37,25 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
+Politics often starts in family members' backyards, where spouses, siblings, or uncles hold radically competing political views. How do family members make peace and not war in their own homes and neighborhoods? How do I choose whether to respond with love, understanding, or rage towards my family member? Stephen Humphries responds to this issue through an article covering Jeanne Safer, a psychotherapist, who for years "has received letters from people whose personal relationships have been upended by political differences", and her book. The article's author shares how since Safer, as a liberal New Yorker, has been in a politically mixed marriage with a senior editor at the National Review, she has been able to write about her experiences in ["I Love You, But I hate Your Politics: How to Protect Your Intimate Relationships in a Poisonous Partisan World"](https://www.amazon.com/Love-Hate-Your-Politics-Relationships/dp/1250200393). Stephen Humphries lists the questions the book answers and summarizes the responses to each issue.
+
+* Why do people take politics so personally? 
+Politics involves people making arguments, and people tend to feel compelled to change people's minds because otherwise they don't have emotional effect on people and feel like others have power over them. People will never persuade someone who has a different view of the world, and once people realize this they will more freely begin in actual discourse because they start from a place where they can radically respect the other person's selfhood and right to hold an independent view.
+
+* With you and Richard, what is the difference of values between you? 
+Values drive politics and world views; but values differ from political philosophies. For this reason, Safer covers values in the chapter called "What is a core value?". She explains through a story how people, who may fight with each other and hold different world views, may discover that they share core, fundamental human values in common.
+
+* So, to understand where people are coming from, you have to have mutual respect?
+To understand others, people have to understand themselves and their prejudices, resistance, and motives. Sharing articles capturing one's own point of view will not ever help to bring light to a situation with someone else from another perspective.
+
+* Has social media made it more difficult to have real dialogue?
+Social media does not support dialogue, and this is why the Safer commands to avoid social media. Social media presents someone's diary, and people feel more tempted to react destructively on social media when they see personal information. If someone has something to say to someone more seriously, write a letter, call, or go see them, and taking these things will save relationships.
+
+* So it is possible to preserve relationships in this fraught era?
+Think about the good qualities of people who hold different views, and think of people as friends as children. Thinking these things can help shine the light on what is right with people and in relationships rather than what is wrong; thinking these things helps people avoid politics.
 
 
 ### [What Americans Do Now Will Define Us Forever](https://www.theatlantic.com/ideas/archive/2019/07/send-her-back-battle-will-define-us-forever/594307/)
