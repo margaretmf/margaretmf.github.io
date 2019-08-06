@@ -28,6 +28,7 @@ Peter Frankopan
 * [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439/ref=pd_sbs_14_8?_encoding=UTF8&pd_rd_i=0801018439&pd_rd_r=7836442d-382e-4405-9a86-9a1bf78bcfc6&pd_rd_w=lb57L&pd_rd_wg=9F2jV&pf_rd_p=43281256-7633-49c8-b909-7ffd7d8cb21e&pf_rd_r=0R1AZ5Q6HDQ6QS1SY048&psc=1&refRID=0R1AZ5Q6HDQ6QS1SY048) by Deidra Riggs
 * [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet ](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
 * [The Power of Collective Wisdom: And the Trap of Collective Folly](https://www.amazon.com/Power-Collective-Wisdom-Trap-Folly/dp/1576754456?pf_rd_p=eedd298f-b000-4128-8f7f-6db0e5f9b31f&pd_rd_wg=YDGNs&pf_rd_r=5ZBWCT0AH1RQHTYA64ME&ref_=pd_gw_msx_wsixn_v1&pd_rd_w=B9EDK&pd_rd_r=05ad2211-86e5-4ff2-a9c8-d6b57bacf718) by Alan Briskin
+* [I Love You, but I Hate Your Politics: How to Protect Your Intimate Relationships in a Poisonous Partisan World](https://www.amazon.com/Love-Hate-Your-Politics-Relationships/dp/1250200393) by Jeanne Safer
 
 
 ## 2019
