@@ -33,6 +33,14 @@ January - May 2019
  
 ## RELEVANT WORK EXPERIENCE
 
+### VIBRANT WORLD
+Trends and News Reviewer, Blog Writer, Media Manager, Researcher, & Ideator
+January 2019 - Present
+* Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
+* Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
+* Manage over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
+* Research trends and organize design and systems research meetup groups to understand patterns, problems, and solutions
+
 ### EVERFI
 Data Analyst
 April 2016 - January 2019
@@ -103,12 +111,6 @@ December 2015 - January 2016
 ### America India Foundation
 Event Particpant and Committee Member
 March 2018 - Present
-
-### Margaret's News Analysis
-Videographer, News Curator, Trend Analyst, and Blogger
-* Recorded six video shots and took phots for the Cavalier Daily; edited videos with Apple Final Cut Pro
-* Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and attend data and solutions journalism workshops
-* Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year
 
 ### UVA
 5 Year Giving Committee
