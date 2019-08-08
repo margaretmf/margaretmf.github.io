@@ -189,6 +189,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="masks.jpg">
+
+
+
 <img class="profile-picture" src="colored-pencils.jpg">
 
 
@@ -218,6 +222,14 @@ layout: default
 
 
 <img class="profile-picture" src="canoes.jpg">
+
+
+
+<img class="profile-picture" src="water.jpg">
+
+
+
+<img class="profile-picture" src="drips.jpg">
 
 
 
