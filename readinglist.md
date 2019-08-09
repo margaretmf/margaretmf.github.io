@@ -5,11 +5,10 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 20
+#### Up Next - Top 21
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
-* [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
 * [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by 
 Peter Frankopan
 * [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
@@ -78,6 +77,7 @@ Peter Frankopan
 * [Where Do We Go from Here: Chaos or Community?](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000760/ref=asc_df_0807000760/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583863980166933&psc=1) by Martin Luther King, Jr.
 * [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
+* [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
 
 
 ## 2018
