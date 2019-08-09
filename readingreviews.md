@@ -51,7 +51,7 @@ The author shares the thoughts of an innovator, Marianne Moore, who created her 
 
 Through the author's reports of successful business leaders, she shares how creativity drives successful entrepreneurship. While the world has worshipped STEM, art and humanity provide sustaining value to the STEM-driven society and change things up.
 
-This article covers an interesting trend and captures an aspect of the business world that some overlook. Books and articles exist on this topic, and the author does not cover everyone in the domain of entrepreneurship who has discovered the importance of being creative and understanding the human condition. Regardless, she highlights good innovative activity in a business journal.
+This article covers an interesting trend and captures an aspect of the business world that some overlook. Books and articles exist on this topic, and the author does not cover everyone in the domain of entrepreneurship who has discovered the importance of being creative and understanding the human condition. She also does not write about the trend in the form of a deep news story. Regardless, she reports good innovative activity in a business journal.
 
 
 ### [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
