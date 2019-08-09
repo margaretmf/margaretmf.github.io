@@ -9,7 +9,13 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - Politics and Government
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
+* [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860
+* [Busing in America: Race Relations, Revisited](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
+* [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
 * [The Mueller Report: An Educational Tool for Teachers — and a Surprising Hit with Book Clubs](https://www.washingtonpost.com/education/2019/07/24/mueller-report-an-educational-tool-teachers-surprising-hit-with-book-clubs/?utm_term=.1ec6c4a69fa0)
+* [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
+* [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
+* [Mississippi Immigration Raids Lead To Arrests Of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
@@ -25,12 +31,17 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Judges Can’t Decide Whether Freedom Extends to Your Car](https://www.citylab.com/equity/2019/07/road-police-power-has-few-limits/593989/?utm_term=2019-07-19T20%3A08%3A56&utm_campaign=citylab&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
 * [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
 * [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
+* [The Amazon Publishing Juggernaut](https://www.theatlantic.com/technology/archive/2019/08/amazons-plan-take-over-world-publishing/595630/)
 
 ### Reviews Up Next - Human History, Social Science, Culture, and Environment
 * [A Twenty-Four-Thousand-Mile Walk Across Human History](https://www.newyorker.com/news/out-of-eden/a-twenty-four-thousand-mile-walk-across-human-history?utm_social-type=owned&mbid=social_twitter&utm_medium=social&utm_brand=tny&utm_source=twitter)
 * [Who Maps the World?](https://www.citylab.com/equity/2018/03/who-maps-the-world/555272/?utm_medium=social&utm_source=twitter&utm_content=edit-promo&utm_term=2019-07-25T15%3A49%3A35&utm_campaign=citylab)
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
+
+
+### Reviews Up Next - The Choices of Facing Community Colleges
+* [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
 
 
 <br>
