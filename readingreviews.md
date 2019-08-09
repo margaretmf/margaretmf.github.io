@@ -8,7 +8,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 ### Reviews Up Next - Politics and Government
-* [Why Democrats Can't Break Out of the 'Electability' Box](https://www.csmonitor.com/USA/Politics/2019/0626/Why-Democrats-can-t-break-out-of-the-electability-box)
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
 * [The Mueller Report: An Educational Tool for Teachers — and a Surprising Hit with Book Clubs](https://www.washingtonpost.com/education/2019/07/24/mueller-report-an-educational-tool-teachers-surprising-hit-with-book-clubs/?utm_term=.1ec6c4a69fa0)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
@@ -37,6 +36,22 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [Art Is At The Core Of Entrepreneurship, Ignore It At Your Peril](https://www.forbes.com/sites/sophiamatveeva/2019/07/25/art-is-at-the-core-of-entrepreneurship-ignore-it-at-your-peril/#55c1b9e65fa9)
+Sophia Matveeva, contributor at Forbes Media, covers the relationship between art and entrepreneurship. The author highlights two creators, Noble.AI's CEO and Marianne Moore, who to report how art and lateral thinking positively impact the business world.
+
+To open the article, the author reports on how people currently tend to revere STEM, with technology speedily moving the world, and neglect art and humanity; employers tend to hire students with degrees in STEM more than they employ ones with experience in the arts or humanities. Countering the trend, Matveeva shares that the most interesting people she personally knows have diverse interests, understand both the arts and the science, and live like Renaissance men and women; and she explains the fact that art, of any form, expresses universal and eternal truths about the human condition. Because humans use the majority of products - software, dresses, watches, or a book - a narrow focus on technology or financial metrics dismisses what users need, how people will use the product, or how a product differs from others. Two people working in the business world share why this is true for them.
+
+Noble.AI, a California-based company, makes Articial Intelligence, and the CEO has placed an emphasis on aesthetics in addition to the technology. People must experience ease when using the technology, and the product must please users. The startup recognizes the importance of humans, who have a wide range of interests, because they use the products at the end of the day. 
+
+Matveeva covers the startup to show how art contributes to the technology-driven world and makes it more advanced. People tend to avoid taking the risk of sitting with people different from them because of fear; but when hearing only the beliefs and thoughts of colleagues that reinforce one's own perspectives, people do not hear new, unconventional ideas that contribute to a better product experience. Thus the founder of Noble.AI promotes diversity and encourages people to develop wider interests so that they produce more original work, draw connections they would never anticipate making, and see the needs of the customers. Without artistic, creative thinking, entrepreneurs would not succeed in growing a successful business; and without the freedom to think laterally, entrepreneurs would not have as much fun in the process of building a business.
+
+The author shares the thoughts of an innovator, Marianne Moore, who created her own consultancy, Justice Studio, and paints on the side. Matveeva reports that Moore sees "creating art and creating a company" as "extensions of the same trait: seeing an idea in your head and then making it come to life." A STEM-driven world does not like people who break out of the box and do things differently, and society often tells people to just be one thing, though; if Moore had listened to the world, she would not be so successful as a "creatrix of art and companies."
+
+Through the author's reports of successful business leaders, she shares how creativity drives successful entrepreneurship. While the world has worshipped STEM, art and humanity provide sustaining value to the STEM-driven society and change things up.
+
+This article covers an interesting trend and captures an aspect of the business world that some overlook. Books and articles exist on this topic, and the author does not cover everyone in the domain of entrepreneurship who has discovered the importance of being creative and understanding the human condition. Regardless, she highlights good innovative activity in a business journal.
 
 
 ### [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
