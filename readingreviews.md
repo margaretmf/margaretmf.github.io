@@ -146,6 +146,11 @@ In response to the president's "declarations of immunity from oversight", the De
 As Sewer intertwines insights from both a historical analysis and the analysis of current events in his story, he covers multiple perspectives, defends a multiracial country, and calls people to action by saying that the time is now. While he successfully does this, he fails to cover thoughts on what will happen after politicians and citizens making defining decisions. His article well informs readers of events happening in the United States and guides politicians' and citizens' in making decisions and developing opinions.
 
 
+<br>
+
+<br>
+
+
 ### [Debate Deadline Day: 20 Candidates Set to Crowd the Stage in Detroit](https://www.politico.com/story/2019/07/16/democratic-debate-candidates-deadline-1417060)
 To prepare Politico's audience for the second series of debates, Zach Montellaro shares the names of the 20 candidates that have qualified for an opportunity to argue a political viewpoint, in Detroit on July 30-31. For Montana Gov. Steve Bullock, who missed the first debates in June but gained the tiebreaker for the 20th spot, this round will be his first chance to win support in the public polls; many of the candidates will not have another chance to debate after this one.
 
@@ -154,6 +159,11 @@ Listing out the 20 candidates, Montellaro names the politicians: "Michael Bennet
 After naming the candidates, Montellaro covers the importance of the debates for fundraising, a challenge that all candidates face; they all share the risk of running out of money, and the debate on CNN provides them with attention so that they can attract interested fundraisers and shift the course of their campaigns. Currently, "candidates need 2 percent in four national polls and 130,000 unique donors", and six Democratic presidential candidates - Biden, Buttigieg, Harris, O'Rourke, Sanders, and Warren - have met both of the increased thresholds. The DNC's polling and fundraising thresholds will rise, so lesser-known candidates will experience pressure, and gaining a national audience with a major media group will not grow easier. 
 
 Unlike journalists in other news outlets, Montellaro writes less about the political issues and the candidates themselves, and he writes more about the reality of the political competition, the fundraising thresholds, and the importance of media coverage. His article helps readers understand the importance of the debate and the CNN coverage for the campaigns, and his article prepares readers to listen closely to the arguments on July 30-31 amdist the pressure on the politicians. Reading other articles covering the candidates' individual backgrounds and the deeper issues will prepare readers further to hear the arguments.
+
+
+<br>
+
+<br>
 
 
 ### [How President Trump Became the GOP’s ‘New Normal’](https://www.csmonitor.com/USA/Politics/2019/0715/How-President-Trump-became-the-GOP-s-new-normal)
@@ -176,6 +186,11 @@ While Mr. Fleischer applauds Trump's stance on policy, he does not support his i
 Feldman supports citizen readers in answering this question by defining normal. She writes, "The word 'normal' is deceptively simple. It can refer to a statistical norm in scientifically measurable phenomena, such as weather, and it can also be deployed in the highly subjective world of politics. The philosopher Ian Hacking once called the use of the word 'one of the most powerful ideological tools of the 20th century.'" Trump's way of making false statements through "misspeaking, dissembling, exaggerating in a way typical for politicians and salesmen, or lying outright" is nothing like what the American people have seen before in an era where Twitter, Youtube videos, and Facebook lie in our hands; and his "outisize[d] presidential personalit[y]" compares to historic ones, including Andrew Jackson's and Teddy Roosevelt's. Historically, more conventional figures - Martin Van Buren and William Howard Taft - have succeeded these types of presidents and shifted the country back to "normal", or moderacy. "'The political system is making choices every day about how much of this we accept,'" however, as Ms. Greenberg says, and people on both sides of the aisle, within a country of free men and women, can speak up to decide what becomes normalized within the country.
 
 
+<br>
+
+<br>
+
+
 ### [Onstage, Democrats Clash on Ideas. Offstage, Is There More Common Ground?](https://www.csmonitor.com/USA/Politics/2019/0628/Onstage-Democrats-clash-on-ideas.-Offstage-is-there-more-common-ground)
 During the second night of the Democratic presidential candidates debate in Miami, FL, Jessica Mendoza wrote on how onstage, the audience saw the chaotic, clashing of ideas, but offstage, citizens asked the question, "can everyone stand on more common ground and against the threat that President Donald Trump poses?". After painting the picture of the first night of debates well with a vibrant vocabulary, the political chaos came to greater life after the second night with 20 candidates in the Democratic party disagreeing over how to unify the party and the nation.
 
@@ -184,6 +199,11 @@ As the party and the nation search for a "unifying figure", candidates debated t
 Onstage during the debate, the American people saw disagreement, but offstage, Mendoza shared how debate attendees observed "a kind of camaraderie emerg[ing]...as candidates and their staff were forced to interact and at times even work together." Offstage, all candidates agreed on seeing President Donald Trump as a threat to the nation's health, particularly due to the destructive immigration policy; and citizens at the debate outside witnessed candidates mutually denouncing the Trump administration's immigration policy outside of the Homestead Temporary Shelter for Unaccompanied Children, a migrant children's detention center. As debate attendees saw candidates yelling "We love you!" in Spanish to the locked-in children with heart-shaped signs. Leaving idealist readers with hope, Mendoza summarizes, "It was somewhat remarkable to see a group of candidates who, less than 10 hours earlier, had been battling it out onstage now sharing a microphone and nodding together as each spoke in turn. It was a reminder that, for all their differences, the Democrats still have more that unifies them than divides them."
 
 Ending the story, Mendoza writes that "Game 1" sends the overall vibe of the event preceding a series of debates leading into 2020, with [the second round occurring in Detroit on July 30 and 31](https://www.politico.com/story/2019/07/16/democratic-debate-candidates-deadline-1417060). Many standing with politicians, like political observers, Democratic voters, and campaign managers, at the end of the day, have their eyes and ears open simply for a "candidate who speaks to them - someone who has conviction, who conveys compassion and authority"; Mendoza provides comments from people on how the party can't be subdivided as much as they appear to be in the media when everyone grows united around the shared values that underly agendas. I think these statements ignore the nuances of the different, competing means to achieve certain ends; but Mendoza captures multiple sides of the story in this article, including pro-Trump protesters at the event.
+
+
+<br>
+
+<br>
 
 
 ### [How to Talk to Small Kids about Big Issues Like Border Walls](https://qz.com/1659920/how-to-talk-to-kids-about-immigration-and-trumps-border-wall/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite)
@@ -200,6 +220,11 @@ But the monarch says he is, so his assistant follows instructions, driving out e
 These paragraphs bring visually the news article's audience into a childlike reading experience, sharing a new way to teach kids about controversial, world affairs. Livni uses few of his own words and ideas, but he shares a new type of story for children that can help students engage with the news. I think that the article would improve with more of Livni's own interpretation and commentation; I think he needs to express a larger overarching argument that uses sources other than just [The Wall]((https://www.goodreads.com/book/show/43973339-the-wall)) as supporting evidence for how and why adults can educate their kids about social issues in the media. Despite the weakness of the article, I love the topic and hope to read the book! And I hope to see more like this book also!
 
 
+<br>
+
+<br>
+
+
 ### [Independence Day in a Divided America](https://www.theatlantic.com/ideas/archive/2019/07/unity-fourth-of-july/593206/?utm_term=2019-07-04T20%3A08%3A53&utm_campaign=the-atlantic&utm_medium=social&utm_content=edit-promo&utm_source=twitter)
 Conor Friedersdorf, a staff writer with The Atlantic, wrote on Independence Day, during this time of 21st century political fragmentation. Directing words to US citizens on the 4th of July, he captures the ability of the US people to find common ground amidst polarizing viewpoints through Abraham Lincoln's words: “A husband and wife may be divorced and go out of the presence and beyond the reach of each other,” Abraham Lincoln observed, “but the different parts of our country can not do this. They cannot but remain face to face, and intercourse, either amicable or hostile, must continue." Through this statement, Friedersdorf expresses confidence in the solidity of the United States of America and in the American people's ability to stand undivorced; and no better day than the 4th of July exists to remind us of our united, unseparated states.
 
@@ -210,6 +235,11 @@ In the late 1700s, initially, only nine of the original 13 colonies voted for in
 As demonstrated through each of these major periods, America finds ways to evolve from a nation faced with trials into an even stronger country with belief in the words, "all humans are created equal and 'endowed by their Creator with certain unalienable Rights, that among these are Life, Liberty and the pursuit of Happiness'", at the end of the day. Though sometimes these words may seem like ["luminous rhetoric"](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000671) only, Friedersdorf purposefully presents how "the principles of the declaration are still there to unite us, even amid the persistent divisions that define this moment".
 
 While Friedersdorf applies an understanding of history to make a statement and to capture the heart of the common citizen on a national holiday, I do not think he expresses the theme overarching the article strongly enough, and I do not think he weaves the theme throughout the article from period to period well enough. I do not think he successfully conveys the main point because he leaves out the many details that press on the minds of both citizens and politicians in the debates, lead to collective psychosis, and create a sense that the statement, "all humans are created equal", is filled only with ["luminous rhetoric"](https://www.amazon.com/Where-Do-We-Here-Community/dp/0807000671); and I think he loosely ties together the historic periods he highlights with an interconnecting argument for a binding belief. At the end of the article, however, I do believe that the country can put rhetoric into practice and overcome the current crisis of polarizing viewpoints; but collectively we must move from carrying belief in an idealistic dream to fulfilling the beautiful dream.
+
+
+<br>
+
+<br>
 
 
 ### [How Hinduism Became a Political Weapon in India](https://www.theatlantic.com/international/archive/2019/05/hindu-nationalism-narendra-modi-india-election/590053/)
@@ -226,12 +256,22 @@ As Modi amplifies the Hindutva pitch, Hindus war against Muslims and Muslims war
 To further provide evidence in support of the article's main point, Blank moves the focus onto Delhi, another city. Hindutva determined the election results in this city; and Hindutva dominated the debates. Hindutva is helping through the heart to change the country and reshape it and the caste system ([India: how some Hindu nationalists are rewriting caste history in the name of decolonisation](http://theconversation.com/india-how-some-hindu-nationalists-are-rewriting-caste-history-in-the-name-of-decolonisation-114133)). The reshaping is not on the basis of religious ideology, however; the reshaping is on the basis of something deeper than the eyes - the heart of identity: "Hindutva is not about what your eyes tell you; it’s about what your heart tells you. It’s not about what you see; it’s about how you see yourself. How you see your identity, your brand, your place in the world. Understand this, and you can better understand the changes under way in India."
 
 
+<br>
+
+<br>
+
+
 ### [Opinion: The People Screaming for Blood Have No Idea How Tech Actually Works](https://www.nytimes.com/2019/06/04/opinion/facebook-google-regulation.html) 
 On June 4, 2019, Kara Swisher wrote an opinion article on how regulators have grown more concerned with controlling technology but in haphazard ways. Swisher explains how over the past decade, technological risks have existed, but legislators have not cared what technology companies do with sloppy management of data and infrastructure a few years ago; warning signs of "rampant disinformation, egregious privacy breaches and in-plain-sight addictive elements built right into the medium" existed a decade ago, but regulators have never mitigated problems proactively or taken steps to understand the technology. Now, once problems grow more severe, legislators and policy makers enter the scene with legal pads to address privacy and security issues, but they do so in thoughtless ways that demonstrate poor understanding of the best solutions. Ultimately, Swisher argues that while she agrees that America must regulate technology, self-interest drives the current efforts, making them reactive; and America needs more proactive and collaborative work.
 
 The author's negative sentiment on how the time has passed for regulators to step in and that they have not implemented a forward-thinking approach makes sense; but technology companies expect to build bigger, more expansive tools that may create even more risk  over the next ten years, so it is imperative that regulators do thoughtful work now. Swisher fails to mention the work that groups likes [Aspen Technology Policy Hub](https://www.aspentechpolicyhub.org/#/) and [The Bridge](https://thebridgework.com/) have coordinated to connect policy makers, regulators, and technologists. As demonstrated by the thought from these groups, potential for creative collaboration and positive solutions lies ahead, and their work resonates with the author's concluding opinion:
 
 "Instead of just reacting, we need our government to be creatively proactive. Regulators should be thinking about how to use federal incentives to spur small business creation to bring meaningful jobs and new innovations to this country; how to persuade investors to spread more venture capital beyond the three states (California, Massachusetts and New York) that get most of it; how to push for a more diverse work force and fund ambitious education programs, which other countries do without pause; how to anticipate the human impact of the next group of technologies like artificial intelligence and advanced robotics; how to create the most forward-thinking infrastructure plan to modernize our cities; and how to encourage tech to focus on innovations to combat existential issues like climate change, and food and water shortages."
+
+
+<br>
+
+<br>
 
 
 ### [Opinion: Community ‘Weavers’ Create Stronger Social Fabric](https://www2.ljworld.com/opinion/2019/feb/23/opinion-community-weavers-create-stronger-social-fabric/) and [A Nation of Weavers: The Social Renaissance is Happening from the Ground Up](https://www.nytimes.com/2019/02/18/opinion/culture-compassion.html?action=click&module=RelatedLinks&pgtype=Article)
@@ -242,6 +282,11 @@ In a world where there's a rise in social isolation, a decline in commitment to 
 Brooks acknowledges well that highly political people likely will object to his critiques on the state of society, capitalism, and focus on spiritual well-being. Recognizing sources of pushback, and what the counter arguments are, conveys to the reader that he sees other perspectives. However, Brooks remains firm in his opinion that coming together to seek solutions in unity with one another can help individually and collectively to heal within during a time of political fragmentation. Community is not the only way to support people in a time of great change, mental sickness, and divisiveness, but it is a central part to health, and other solutions, products, or forms of human expression can flow out. Recognizing neighbors as whole and encouraging them to bring their full selves to their day to day work through "radical mutuality" underpins the opinion.
 
 It's meaningful that Brooks refers to thoughts of deep thinkers when he writes, "Relationalism had clear (and acknowledged) debts to the Catholic idea of the common good, to Martin Luther King Jr.’s conception of “the beloved community,” to Alexis de Tocqueville’s celebration of American volunteerism and to Edmund Burke’s preference for the small and natural over the large and ideological" to support his opinion. It will be exciting to learn of how people apply his opinion through action.
+
+
+<br>
+
+<br>
 
 
 ### [Beyond clichés: Teen Anxiety Prompts Closer Look at Young Lives](https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives)
