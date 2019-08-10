@@ -7,6 +7,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
+## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics and Government
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
 * [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
@@ -30,7 +31,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Instagram is Helping Save the Indie Bookstore](https://www.vox.com/the-goods/2018/12/19/18146500/independent-bookstores-instagram-social-media-growth)
 
 ### Reviews Up Next - Technology 
-* [Judges Can’t Decide Whether Freedom Extends to Your Car](https://www.citylab.com/equity/2019/07/road-police-power-has-few-limits/593989/?utm_term=2019-07-19T20%3A08%3A56&utm_campaign=citylab&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
 * [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
 * [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
 * [The Amazon Publishing Juggernaut](https://www.theatlantic.com/technology/archive/2019/08/amazons-plan-take-over-world-publishing/595630/)
@@ -49,6 +49,16 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [Judges Can’t Decide Whether Freedom Extends to Your Car](https://www.citylab.com/equity/2019/07/road-police-power-has-few-limits/593989/?utm_term=2019-07-19T20%3A08%3A56&utm_campaign=citylab&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
+Sarah A. Seo in July 2019 reports on the wide descretion that officers have when pulling over motorists with City Lab. Sparking attention to the trend, a week before Seo wrote the article, police arrested and charged a former sheriff's deputy in Florida, Zachary Wester, for professional misconduct when stopping motorists on the rode; because of the wide discretion he had when pulling over motorists for traffic offences, he stopped innocent people planted drugs while searching their cars, and led motorists to prison. This crime that Seo introduces the article with reveals a symptom of a larger issue: poor rules on the road. How much power do police offers have on the road, and how much of it do they abuse rather than use with good conduct? How much freedom do drivers have?
+
+To open draw readers into the search for answers to these questions, Seo, summarizes common road knowledge when writing that "in American culture, driving is an expression of personal liberty", "but under the law, driving is a privilege, not a right, and drivers are subject to extensive police surveillance." With little cited research or quotations backing her up, the author reports that for years, lawyers have questioned how to regulate road safety. Should police officers search the entire car of a suspect pulled over for a traffic violation and impose on motorists' freedom? Or do limits exists before police enforce laws on the operation of motor vehicles? What type of evidence of a suspicious crime do police need before conducting a search? Seo reports that courts struggle to answer these questions, and "jurists have usually punted on them", leaving serious "consequences for our civil liberties."
+
+Cars symbolize liberty culturally, and Americas see their cars as "private spaces." To highlight evidence for this fact, Seo cites a 1924 Ford advertisement: "To own a Ford car is to be free to venture into new and untried places". A century later, the car symbolizes the same concept in a Dodge tagline: "Here's a couple things America got right: cars and freedom." Ideally, according to culture, drivers can experience freedom on the road, but because of regulation on the road, drivers often experience threats to liberty; drivers' safety rules over drivers freedom, and rules help to ensure safety.
+
+Regulation helps to ensure safety, and ideally the laws protect drivers from traffic violations and prevent police offers from having too much liberty. Seo presents the Mitchell vs. Wisconsin case in which police ordered a blood test on a drunk driver without first obtaining a warrant; Wisconsin "authorizes warrantless action if a motorist is unconscious." Seo reports on states' laws in more detail and explains issues around implied-consent. The ultimate question is "what are the limits on the state when dealing with serious problems like reckless driving?", and the Supreme Court defers answering these questions to the judgment of the police, giving them freedom to use their own discretion; thereby, police have leeway in emergency situations without judicial oversight. The Wester case that Seo reports on at the beginning of the article represents the negative symptoms of low judicial oversight; police with leeway may abuse their position of authority. While reasoning exists behind the current legal structure, Seo draws readers' attention to why the failure of the course in "plac[ing] stricter limits on what the police can do while enforcing the rules of the road" poses troubling problems that need monitoring like the oversight that Wester needed.
 
 
 ### [Art Is At The Core Of Entrepreneurship, Ignore It At Your Peril](https://www.forbes.com/sites/sophiamatveeva/2019/07/25/art-is-at-the-core-of-entrepreneurship-ignore-it-at-your-peril/#55c1b9e65fa9)
