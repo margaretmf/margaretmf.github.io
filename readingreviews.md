@@ -63,6 +63,11 @@ Where are the women who engage in mapping? According to Holder's research, women
 Mapping helps people to navigate the world safely. Holder reports that without womens' perspectives, the safety of women in less developed countries would be harder to secure. Maps consist not just of bridges and tunnels like those that men traditionally have created, but they also help to locate safe places, reveal the least dangerous path from point A to point B, and highlight other intangibles. Including women, people of diverse races, and people from the LGBTQ community in the 21st century mapmaking process helps the world "know, classify, and value" space differently. Holder covers ways that people of other races and people from the LGBTQ have been involved in creating maps less because they have not been involved as much; but the author highlights why including more diverse people in projects adds value. Traditionally mapping has been a technical process, not a community-based process, but by proactively including more diverse people, educating people differently, and communicating about cartography in new ways, the final products better serve communities.
 
 
+<br>
+
+<br>
+
+
 ### [Judges Can’t Decide Whether Freedom Extends to Your Car](https://www.citylab.com/equity/2019/07/road-police-power-has-few-limits/593989/?utm_term=2019-07-19T20%3A08%3A56&utm_campaign=citylab&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
 Sarah A. Seo in July 2019 reports on the wide descretion that officers have when pulling over motorists with City Lab. Sparking attention to the trend, a week before Seo wrote the article, police arrested and charged a former sheriff's deputy in Florida, Zachary Wester, for professional misconduct when stopping motorists on the rode; because of the wide discretion he had when pulling over motorists for traffic offences, he stopped innocent people planted drugs while searching their cars, and led motorists to prison. This crime that Seo introduces the article with reveals a symptom of a larger issue: poor rules on the road. How much power do police offers have on the road, and how much of it do they abuse rather than use with good conduct? How much freedom do drivers have?
 
@@ -71,6 +76,11 @@ To open draw readers into the search for answers to these questions, Seo, summar
 Cars symbolize liberty culturally, and Americas see their cars as "private spaces." To highlight evidence for this fact, Seo cites a 1924 Ford advertisement: "To own a Ford car is to be free to venture into new and untried places". A century later, the car symbolizes the same concept in a Dodge tagline: "Here's a couple things America got right: cars and freedom." Ideally, according to culture, drivers can experience freedom on the road, but because of regulation on the road, drivers often experience threats to liberty; drivers' safety rules over drivers freedom, and rules help to ensure safety.
 
 Regulation helps to ensure safety, and ideally the laws protect drivers from traffic violations and prevent police offers from having too much liberty. Seo presents the Mitchell vs. Wisconsin case in which police ordered a blood test on a drunk driver without first obtaining a warrant; Wisconsin "authorizes warrantless action if a motorist is unconscious." Seo reports on states' laws in more detail and explains issues around implied-consent. The ultimate question is "what are the limits on the state when dealing with serious problems like reckless driving?", and the Supreme Court defers answering these questions to the judgment of the police, giving them freedom to use their own discretion; thereby, police have leeway in emergency situations without judicial oversight. The Wester case that Seo reports on at the beginning of the article represents the negative symptoms of low judicial oversight; police with leeway may abuse their position of authority. While reasoning exists behind the current legal structure, Seo draws readers' attention to why the failure of the course in "plac[ing] stricter limits on what the police can do while enforcing the rules of the road" poses troubling problems that need monitoring like the oversight that Wester needed.
+
+
+<br>
+
+<br>
 
 
 ### [Art Is At The Core Of Entrepreneurship, Ignore It At Your Peril](https://www.forbes.com/sites/sophiamatveeva/2019/07/25/art-is-at-the-core-of-entrepreneurship-ignore-it-at-your-peril/#55c1b9e65fa9)
@@ -87,6 +97,11 @@ The author shares the thoughts of an innovator, Marianne Moore, who created her 
 Through the author's reports of successful business leaders, she shares how creativity drives successful entrepreneurship. While the world has worshipped STEM, art and humanity provide sustaining value to the STEM-driven society and change things up.
 
 This article covers an interesting trend and captures an aspect of the business world that some overlook. Books and articles exist on this topic, and the author does not cover everyone in the domain of entrepreneurship who has discovered the importance of being creative and understanding the human condition. She also does not write about the trend in the form of a deep news story. Regardless, she reports good innovative activity in a business journal.
+
+
+<br>
+
+<br>
 
 
 ### [How to Save Politically ‘Mixed Marriages’ in Trump Era](https://www.csmonitor.com/Daily/2019/20190708#1091867)
@@ -106,6 +121,11 @@ Social media does not support dialogue, and this is why the Safer commands to av
 
 * So it is possible to preserve relationships in this fraught era?
 Think about the good qualities of people who hold different views, and think of people as friends as children. Thinking these things can help shine the light on what is right with people and in relationships rather than what is wrong; thinking these things helps people avoid politics.
+
+
+<br>
+
+<br>
 
 
 ### [What Americans Do Now Will Define Us Forever](https://www.theatlantic.com/ideas/archive/2019/07/send-her-back-battle-will-define-us-forever/594307/)
