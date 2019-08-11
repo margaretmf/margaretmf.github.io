@@ -14,7 +14,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Busing in America: Race Relations, Revisited](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
 * [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
-* [The Mueller Report: An Educational Tool for Teachers — and a Surprising Hit with Book Clubs](https://www.washingtonpost.com/education/2019/07/24/mueller-report-an-educational-tool-teachers-surprising-hit-with-book-clubs/?utm_term=.1ec6c4a69fa0)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
 * [Mississippi Immigration Raids Lead To Arrests Of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
@@ -43,6 +42,28 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### The Mueller Report: An Educational Tool for Teachers — and A Surprising Hit with Book Clubs]
+Valerie Strauss, a journalist for The Washington Post, covers The Mueller Report - the report on the investigation into Russian interference, in the 2016 presidential election - a report that has developed into a book that Amazon and local book shops alike put on the shelf for customers to buy. She highlights this phenomenon of The Mueller Report growing into a "surprising hit" not only in bookstores but also in classrooms and book clubs in her news story. She opens the article reporting that Walter Isaacson, a renowned professor at Tulane University, teaches the history of the digital revolution and began to use Mueller's report last year as a tool for students to understand the impact Facebook and Twitter have on politics; other high school teachers and college and law school professors have begun to use the report also in social science and law classes, and Strauss reports that book clubs, like the online Muellerbookclub.com have formed to read and discuss the bestsller.
+
+In sharing this trend in how citizens have been reading about and discussing Mueller's report in bookshops, classrooms, and book clubs, the article's author puts in context Mueller's appearance to testify before two House committees. As political affairs continue, the public should stay informed and understand current events. Strauss further reports on how educators, who want to use the report but don't feel literate enough, can find resources that the News Literacy Project provides to help students learn to distinguish truth from fiction in the digital age; and university professors have worked to make the report more accessible to citizens. The digital, data-driven technologies, which people use to share news and engage in other activities, present a new set of challenges to the government leaders and to citizens. Strauss's article shows how multiple types of organizations have worked swiftly to help the public grow more politically and digitally literate, with people discussing impeachment, historic impeachment controversies, Truth vs. fiction shared through digital technologies, and data security issues, so that people can stay informed and contribute to a healthy society.
+
+Strauss concludes the article with a summary of The Mueller Report. The lessons from the report seem complex, controversial, and daunting to discuss. The report, however, provides an opportunity to address issues like the following:
+* Straight news reporting vs. opinion writing/commentary
+* Misinformation spread through technology platforms 
+* The falsity of a conspiracy theory
+* Details of Russia's use of social media platforms
+* How the White House misled or lied to the press
+
+After listing and explaining the issues, Strauss covers ideas that people can think about and questions for people to ask when they engage in the classroom or in book groups.
+
+The author, an educator writer, ties together a controversial government issue with a news report on trends in classrooms, bookclubs, and bookstores in her article; and in writing this, she helps readers to grow more informed in the public discourse and supports a country of citizens who desire to understand current events.
 
 
 <br>
@@ -289,7 +310,7 @@ It's meaningful that Brooks refers to thoughts of deep thinkers when he writes, 
 <br>
 
 
-### [Beyond clichés: Teen Anxiety Prompts Closer Look at Young Lives](https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives)
+### [Beyond Clichés: Teen Anxiety Prompts Closer Look at Young Lives](https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives)
 On March 7, 2019, Chelsea Sheasley wrote an article, [Beyond clichés: Teen Anxiety Prompts Closer Look at Young Lives](https://www.csmonitor.com/The-Culture/2019/0307/Beyond-cliches-Teen-anxiety-prompts-closer-look-at-young-lives), with the Christian Science Monitor. The importance and timeliness of a national health topic makes this article newsworthy. This sits online as one of many reports analyzing the challenge facing teenagers.
 
 Relying on insights from interviews with middle schoolers, and results of surveys conducted by Pew Research Center, the report explains why more teenagers experience anxiety. Sheasley summarizes, "There’s no consensus among researchers about what drives teen anxiety, although common theories include fear of failure, the rise of smartphones and social media, changing parenting styles, and a world that feels unusually chaotic." The report informs readers about trends in teen anxiety in concise way and synthesizes data from a variety of sources; however, the report could improve with deeper statistcal analysis of data on anxiety as evidence.
