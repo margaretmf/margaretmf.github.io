@@ -7,6 +7,8 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
+## 2019 BOOK REVIEWS
+
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics and Government
 * [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
