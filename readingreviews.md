@@ -8,6 +8,13 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 ## 2019 BOOK REVIEWS
+### Reviews Up Next - [The War for Kindness - Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
+
+
+<br>
+
+<br>
+
 
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics and Government
