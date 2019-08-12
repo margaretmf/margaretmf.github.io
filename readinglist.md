@@ -11,10 +11,10 @@ layout: default
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by 
 Peter Frankopan
-* [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
 * [Janesville: An American Story](https://www.amazon.com/Janesville-American-Story-Amy-Goldstein/dp/1501102230) by Amy Goldstein
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
+* [The Mueller Report](https://www.amazon.com/Mueller-Report-Washington-Post/dp/1982129735) by  
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
@@ -26,7 +26,7 @@ Peter Frankopan
 * [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
 * [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439/ref=pd_sbs_14_8?_encoding=UTF8&pd_rd_i=0801018439&pd_rd_r=7836442d-382e-4405-9a86-9a1bf78bcfc6&pd_rd_w=lb57L&pd_rd_wg=9F2jV&pf_rd_p=43281256-7633-49c8-b909-7ffd7d8cb21e&pf_rd_r=0R1AZ5Q6HDQ6QS1SY048&psc=1&refRID=0R1AZ5Q6HDQ6QS1SY048) by Deidra Riggs
 * [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet ](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
-* [The Power of Collective Wisdom: And the Trap of Collective Folly](https://www.amazon.com/Power-Collective-Wisdom-Trap-Folly/dp/1576754456?pf_rd_p=eedd298f-b000-4128-8f7f-6db0e5f9b31f&pd_rd_wg=YDGNs&pf_rd_r=5ZBWCT0AH1RQHTYA64ME&ref_=pd_gw_msx_wsixn_v1&pd_rd_w=B9EDK&pd_rd_r=05ad2211-86e5-4ff2-a9c8-d6b57bacf718) by Alan Briskin
+* [The Art of Living](https://www.amazon.com/Art-Living-Peace-Freedom-Here/dp/B06Y6GSZQS/ref=sr_1_1?keywords=the+art+of+living+thich+nhat+hanh&qid=1565571938&s=books&sr=1-1) by Thich Nhat Hanh
 * [I Love You, but I Hate Your Politics: How to Protect Your Intimate Relationships in a Poisonous Partisan World](https://www.amazon.com/Love-Hate-Your-Politics-Relationships/dp/1250200393) by Jeanne Safer
 
 
@@ -79,6 +79,7 @@ Peter Frankopan
 * [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
+* [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
 
 
 ## 2018
