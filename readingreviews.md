@@ -25,6 +25,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
+* [Here's Why The Census Bureau May Be In Your Neighborhood Before The 2020 Count](https://www.npr.org/2019/08/12/748694985/heres-why-the-census-bureau-may-be-in-your-neighborhood-before-the-2020-count?utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
