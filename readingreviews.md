@@ -19,13 +19,13 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics and Government
+* [How the El Paso Killer Echoed the Incendiary Words of Conservative Media Stars](https://www.nytimes.com/interactive/2019/08/11/business/media/el-paso-killer-conservative-media.html) by Jeremy W. Peters, Michael M. Grynbaum, Keith Collins, Rich Harris and Rumsey Taylor
 * [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
-* [Busing in America: Race Relations, Revisited](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
+* [Mississippi Immigration Raids Lead To Arrests Of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
 * [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
-* [Mississippi Immigration Raids Lead To Arrests Of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
@@ -51,6 +51,29 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
+Uri Friedman, staff writer with The Atlantic, informs readers how the incentives for foreign countries to meddle as Russia did in 2016 have increased. Foreign influence will look different over the next few years.
+
+In opening the article with a stray line from the testimony on Capitol Hill, "Russia is 'doing it' [meddling] 'as we sit here'", Friedman covers the bottom line to lawmakers, suggesting that while they are fighting the war from the previous election cycle in the court room, they really need to brace themselves for the coming war in 2020. Friedman reports the special counsel's words: "The Russians 'expect to do it during the next campaign,' and 'many more countries are developing capability to replicate' Moscow’s model."
+
+Donald Trump no longer surprises people as he did in 2016; Friedman writes that he has grown into "an all-consuming reality that is disrupting America's alliances, role in the world, and relationships with great powers like China and Russia." Given this all-consuming reality and the changing nature of warfare that shocked the American government, incentives have increased for other countries to meddle in elections. Friedman shares the perspective of Ben Freeman, the director of the Foreign Influence Transparency Initiative at the Center for International Policy: "The opportunities to interfere in the election are just so rampant, reflecting on the dirt-cheap social-media manipualtions that Russia made famous a few years ago, and the barriers to entry for foreign governments have been blown apart."
+
+No clarity exists on how the Russians will interact with the American government in the upcoming years. The Russian government has repeated tactics in other countries' elections and feuds. But Friedman informs readers that "no such effort" to meddle "succeeded during the 2018 U.S. midterm elections", and "Joe Biden and some of the other Democratic candidates have pledged to not use fabricated or hacked material during the 2020 race", with Trump "similarly committed to not exploiting material stolen by a foreign adversary." Department of Homeland Security officials have taken steps to secure messaging apps and multifactor authentication for digital services. While the government secures the country, high-ranking national-security lawyers explain to Friedman that countries other than Russia like North Korea, Iran, and Chinal could attempt to engage in cyberwarfare; and with Trump's approach to leadership, he may provoke foreign actors to escalate.
+
+The article's author highlights that America has moved into a new age of disinformation. Friedman covers how since 2016, social-media giants have developed more savvy ways to detect and disable foreign campaigns of misinformation and fake accounts. Not only has the government taken steps to increase security, but so have technology companies. As social-media companies research the cyberwarfare, they confirm that other countries have developed schemes to manipulate political processes not just in the U.S. but also in other nations. Friedman provides findings from studies in detail to explain the issue and concludes with the fact that some technology companies have not developed more sophisticated tools in the way Twitter and Facebook have done, and Facebook struggled to stop the dissemination of "deepfakes", so risk lurks.
+
+Apart from interfering with social media sites, a Senate Intelligence Committe report revealed no evidence for manipulated vote tallies in the 2016 U.S. presidential election but provided evidence that Russians targeted systems and successfully breached state election infrastructure. Potentially countries can take advantage of these vulnerable systems, suppress votes, and undermine confidence in the democratic process. Friedman shares detailed insights from key leaders and covers "the soft underbelly of America’s election infrastructure" thoroughly.
+
+"The influence hid[es] in plain(ish) sight," states Friedman, to close the article. Foreign governments poke into U.S. politics every day; it's not just happening on one election day, and foreign countries engage in legal ways to influence elections, e.g. through "dark money", just as much as illicit ways. Sharing these facts informs readers that what Russia did in 2016 was not a one-off tactic. Russia and other foreign countries continue to find new ways to engage in illegal measures, and they may surprise the U.S. in new ways; and while illegal methods currently live in the spotlight, other governments insert themselves into American politics in legal ways just as much.
+
+Friedman covers the set of issues to a great extent and engages readers well with a current problem facing the American democracy.
 
 
 <br>
