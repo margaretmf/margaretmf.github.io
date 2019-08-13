@@ -19,7 +19,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics and Government
-* [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
 * [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
 * [Busing in America: Race Relations, Revisited](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
 * [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
@@ -52,6 +51,25 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### [Democracies Try to Boost Public Service](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0701/Democracies-try-to-boost-public-service?cmpid=TW&utm_medium=Social&utm_source=Twitter#Echobox=1562012124)
+At the beginning of July, the Christian Science Monitor's Editorial Board shared news of new incentives for volunteering that government leaders have proposed to rebuilt trust in the U.S.; the board covers this news because two presidential candidates have made it a campaign issue during a time when people fear the government failing the public.
+
+The board opens up the article sharing a story of public service: a group of 633 scuba divers volunteered to pick up trash off Deerfield Beach, Florida. Then the board reports that politicians from four western democracies think that this type of public service can help to heal political divisons and lead to more social trust; politicians think that more young adults should serve the public.
+* The French government launched a national service program for a group of 2,000 teenagers in June 2019
+* The Canada government created a "service corps" for young people
+* A political candidate in Britain introduced a compulsory service program for every 16-year-old
+* Two Democratic candidates in the US have proposed a service program for all young adults
+
+The board presents the trend that "for 15 years, volunteering has declined in the U.S.", but now politicians see the need to revive public service, and more young Americans desire to serve as they see challenges the country faces. Some politicians see rewarding recent college graduates financially for public service as a way to solve the student loan problem; other politicians argue that engaging in public service should become a social norm, with people asking young adults, “Where did you do your year of service?” Volunteering can help people build trust, increase unconditional affection toward others, and promote social values, and it can help the country's government achieve more.
+
+Through this short article, the board covers a new way in wich government leaders from four countries have proposed solutions and engaged youth amidst all of the political turbulence, leaving readers engaged in ways people can impact their communities.
 
 
 <br>
