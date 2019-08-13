@@ -11,7 +11,7 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 ### Topics Up Next
 * Home and [The Future of Housing](https://www.fastcompany.com/90342219/the-future-of-housing-looks-nothing-like-todays?utm_source=pocket-newtab)
 * Meditation, Prayer, and Worship (see [They Tried to Start a Church Without God. For a While, It Worked](https://www.theatlantic.com/ideas/archive/2019/07/secular-churches-rethink-their-sales-pitch/594109/?utm_term=2019-07-21T10%3A00%3A13&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter&utm_content=edit-promo))
-* Medicine and Healthcare
+* Medicine, Technology, and Healthcare
 * School Turnarounds and [Art](https://www.kqed.org/mindshift/50874/what-happens-to-student-behavior-when-schools-prioritize-art)
 
 
