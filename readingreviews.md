@@ -22,7 +22,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [How the El Paso Killer Echoed the Incendiary Words of Conservative Media Stars](https://www.nytimes.com/interactive/2019/08/11/business/media/el-paso-killer-conservative-media.html) by Jeremy W. Peters, Michael M. Grynbaum, Keith Collins, Rich Harris and Rumsey Taylor
 * [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
 * [Mississippi Immigration Raids Lead To Arrests Of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
-* [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
