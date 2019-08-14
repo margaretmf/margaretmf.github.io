@@ -25,7 +25,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
-* [Here's Why The Census Bureau May Be In Your Neighborhood Before The 2020 Count](https://www.npr.org/2019/08/12/748694985/heres-why-the-census-bureau-may-be-in-your-neighborhood-before-the-2020-count?utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
@@ -60,19 +59,10 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
-### [The 2020 Census Is Already in Big Trouble](https://www.theatlantic.com/politics/archive/2018/07/census-2020-russia-citizenship/566384/)
-Vann R. Newkirk II in The Atlantic covers the 2020 census in a different tone than Hansi Lo Wang does with NPR.
-
-
-<br>
-
-<br>
-
-
 ### [What You Need To Know About The 2020 Census](https://www.npr.org/2019/03/31/707899218/what-you-need-to-know-about-the-2020-census)
 In March 2019, Hansi Lo Wang reports information about the 2020 Census that government prepares for. For the 2020 census, the federal government plans to ask citizens some questions. 
 
-What is the census? Lo Wang summarizes how every decade, the Constitution requires that Census Bureau sends questions to count the number living in the U.S by April 1. The Constitution has called for an "actual enumeration" since 1790. Calculated population numbers help to determine the number of congressional seats and electoral college votes each state receives; they also help to guide how an estimated $880 billion a year in funding is shared among public institutions, and businesses use the demographic data collected to make decisions impacting the public good.
+What is the census? Lo Wang summarizes how every decade, the Constitution requires that Census Bureau sends questions to count the number living in the U.S by April 1. The Constitution has called for an "actual enumeration" since 1790, and there have been 22 in U.S. history. Calculated population numbers help to determine the number of congressional seats and electoral college votes each state receives; they also help to guide how an estimated $880 billion a year in funding is shared among public institutions, and businesses use the demographic data collected to make decisions impacting the public good.
 
 The census that will begin officially on Jan. 21, 2020 will ask via paper forms, home visits, and online forms the following questions:
 
@@ -87,9 +77,11 @@ Lo Wang shares that most of these questions have been asked before in decades pa
 
 All households must respond for accurate information, regardless of citizenship or immigration status, so census workers will begin to knock on doors in early April 2020 to conduct interviews. If people refuse to answer a question or respond dishonestly, they may receive a fine; and if people do not fill out the questionnaire fully, a census worker may call them for more answers.
 
-With the 2020 census the first in which U.S. households can respond online, and the first to be managed since the rise of social media, the government has been working to combat disinformation campaigns. And with the sensitive and controversial issue of citizenship in American politics under President Donald Trump, the federal courts' thwarting the Trump administration from adding the question, 'Is this person a citizen of the United States?'; though other forms tailored to specific goals ask a citizenship question. Lo Wang reports that "while the 2020 census won't include a citizenship question, the administration has directed the Census Bureau to compile government records on citizenship from the Social Security Administration, the Department of Homeland Security and other federal agencies", and "President Trump says the information could be used to redraw voting districts in a way that, a GOP strategist concluded, would be "advantageous to Republicans and Non-Hispanic Whites."
+With the 2020 census the first in which U.S. households can respond online, and the first to be managed since the rise of social media, the government has been working to combat disinformation campaigns. And with the controversial issue of citizenship in American politics under President Donald Trump and his anti-immigrant rhetoric, the federal courts' thwarting the Trump administration from adding the question, 'Is this person a citizen of the United States?' is significant for the protection of immigrants; though other forms tailored to specific goals ask a citizenship question. Lo Wang reports that "while the 2020 census won't include a citizenship question, the administration has directed the Census Bureau to compile government records on citizenship from the Social Security Administration, the Department of Homeland Security and other federal agencies", and "President Trump says the information could be used to redraw voting districts in a way that, a GOP strategist concluded, would be "advantageous to Republicans and Non-Hispanic Whites."
 
 How can the government use census responses? The government cannot share personally identifying information until 72 years after they collect the data. They can share "anonymized census information about specific demographic groups at a level as detailed as a neighborhood", however, and businesses and government often use these data to impact the public.
+
+Hansi Lo Wang writes an interesting report. Van Newkirk reports on the same content with a different tone in [The Atlantic](https://www.theatlantic.com/politics/archive/2018/07/census-2020-russia-citizenship/566384/), and reading them side by side reveals a similar account of events. Hansi Lo Wang also follows up with another [report](https://www.npr.org/2019/08/12/748694985/heres-why-the-census-bureau-may-be-in-your-neighborhood-before-the-2020-count) of the census being in neighborhoods in 2019.
 
 
 <br>
