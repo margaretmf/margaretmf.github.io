@@ -60,6 +60,43 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+### [The 2020 Census Is Already in Big Trouble](https://www.theatlantic.com/politics/archive/2018/07/census-2020-russia-citizenship/566384/)
+Vann R. Newkirk II in The Atlantic covers the 2020 census in a different tone than Hansi Lo Wang does with NPR.
+
+
+<br>
+
+<br>
+
+
+### [What You Need To Know About The 2020 Census](https://www.npr.org/2019/03/31/707899218/what-you-need-to-know-about-the-2020-census)
+In March 2019, Hansi Lo Wang reports information about the 2020 Census that government prepares for. For the 2020 census, the federal government plans to ask citizens some questions. 
+
+What is the census? Lo Wang summarizes how every decade, the Constitution requires that Census Bureau sends questions to count the number living in the U.S by April 1. The Constitution has called for an "actual enumeration" since 1790. Calculated population numbers help to determine the number of congressional seats and Electoral College votes each state receives; they also help to guide how an estimated $880 billion a year in funding is shared among public institutions, and businesses use the demographic data collected to make decisions impacting the public good.
+
+The census that will begin officially on Jan. 21, 2020 will ask via paper forms, home visits, and online forms the following questions:
+
+* The number of people living or staying in a home on April 1, 2020.
+* Whether the home is owned with or without a mortgage, rented or occupied without rent.
+* A phone number for a person in the home.
+* The name, sex, age, date of birth and race of each person in the home.
+* Whether each person is of Hispanic, Latino or Spanish origin.
+* The relationship of each person to a central person in the home.
+
+Lo Wang shares that most of these questions have been asked before in decades past. But as reported by the NPR contributor, "notable changes for 2020 include new write-in areas under the race question for the non-Hispanic origins of those who identify as white and/or black ('German' and 'Jamaican' are among the provided examples)", and "there are also new household relationship categories that allow couples living together to identify their relationships as either 'same-sex' or 'opposite-sex.'" New questions reflect a more open attitude towards more citizens.
+
+All households must to respond for accurate information, regardless of citizenship or immigration status, so people will begin to knock on doors in early April 2020 to conduct interviews. If people refuse to answer a question or respond dishonestly, they may receive a fine; and if people do not fill out the questionnaire fully, a census worker may call them for more answers.
+
+With the 2020 census the first in which U.S. households can respond online, and the first to be managed since the rise of social media, the government has been working to combat disinformation campaigns. And with the sensitive and controversial issue of citizenship in American politics under President Donald Trump, the federal courts' thwarting the Trump administration from adding the question, 'Is this person a citizen of the United States?'; though other forms tailored to specific goals ask a citizenship question. Lo Wang reports that "while the 2020 census won't include a citizenship question, the administration has directed the Census Bureau to compile government records on citizenship from the Social Security Administration, the Department of Homeland Security and other federal agencies", and "President Trump says the information could be used to redraw voting districts in a way that, a GOP strategist concluded, would be "advantageous to Republicans and Non-Hispanic Whites."
+
+How can the government use census responses? The government cannot share personally identifying information until 72 years after they collect the data. They can share "anonymized census information about specific demographic groups at a level as detailed as a neighborhood", however, and businesses and government often use these data to impact the public.
+
+
+<br>
+
+<br>
+
+
 ### [Here’s What Foreign Interference Will Look Like in 2020](https://www.theatlantic.com/politics/archive/2019/08/foreign-election-interference-united-states/595741/)
 Uri Friedman, staff writer with The Atlantic, informs readers how the incentives for foreign countries to meddle as Russia did in 2016 have increased. Foreign influence will look different over the next few years.
 
