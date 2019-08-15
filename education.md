@@ -5,6 +5,7 @@ layout: default
 ## 2018
 
 ### Continuing Education - Coursera Courses Audited
+* Participating in [Human-Centered Design](https://www.plusacumen.org/courses/introduction-human-centered-design)
 * Audited [Making Sense of the News: News Literacy Lessons for Digital Citizens](https://www.coursera.org/learn/news-literacy)
 * Audited [Journalism, The Future, and You](https://www.coursera.org/learn/international-journalism)
 * Audited [What is News?](https://www.coursera.org/learn/what-is-news)
@@ -57,7 +58,6 @@ layout: default
 
 ### Continuing Education - Interesting Certificates, Conferences,and Retreats
 * [Hindi Language, International Language Institute](http://ilidc.com)
-* [Business Social Responsibility Conference](https://bsr18.org)
 
 <br>
 
