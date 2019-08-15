@@ -25,6 +25,10 @@ August 2010 - May 2014
 * Award: International Residential College Leadership
  
 ### ACUMEN PLUS 
+Human-Centered Design
+September - November 2019
+* Completing course on human-centered design process with Acumen Plus to master four steps of the human-cenetered design process to create innovative solutions to real-world challenges, build an effective interview guide to learn and document research, practice creative techniques for rapid prototyping builds, and effectively test prototypes
+
 Systems Practice
 January - May 2019
 * Completing course on systems practice with Acumen Plus and participating in group systems practice project for a social justice challenge in which we conduct qualitiatve research on a system, develop systems map and systems narratives, and identify leverage points within the system
