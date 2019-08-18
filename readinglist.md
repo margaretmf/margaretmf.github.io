@@ -26,7 +26,6 @@ Peter Frankopan
 * [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
 * [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439/ref=pd_sbs_14_8?_encoding=UTF8&pd_rd_i=0801018439&pd_rd_r=7836442d-382e-4405-9a86-9a1bf78bcfc6&pd_rd_w=lb57L&pd_rd_wg=9F2jV&pf_rd_p=43281256-7633-49c8-b909-7ffd7d8cb21e&pf_rd_r=0R1AZ5Q6HDQ6QS1SY048&psc=1&refRID=0R1AZ5Q6HDQ6QS1SY048) by Deidra Riggs
 * [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet ](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
-* [The Art of Living](https://www.amazon.com/Art-Living-Peace-Freedom-Here/dp/B06Y6GSZQS/ref=sr_1_1?keywords=the+art+of+living+thich+nhat+hanh&qid=1565571938&s=books&sr=1-1) by Thich Nhat Hanh
 * [I Love You, but I Hate Your Politics: How to Protect Your Intimate Relationships in a Poisonous Partisan World](https://www.amazon.com/Love-Hate-Your-Politics-Relationships/dp/1250200393) by Jeanne Safer
 
 
@@ -80,6 +79,7 @@ Peter Frankopan
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
 * [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
+* [The Art of Living](https://www.amazon.com/Art-Living-Peace-Freedom-Here/dp/B06Y6GSZQS/ref=sr_1_1?keywords=the+art+of+living+thich+nhat+hanh&qid=1565571938&s=books&sr=1-1) by Thich Nhat Hanh
 
 
 ## 2018
