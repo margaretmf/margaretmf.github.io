@@ -5,7 +5,7 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next - Top 21
+#### Up Next - Top 20
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
@@ -80,6 +80,7 @@ Peter Frankopan
 * [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
 * [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
 * [The Art of Living](https://www.amazon.com/Art-Living-Peace-Freedom-Here/dp/B06Y6GSZQS/ref=sr_1_1?keywords=the+art+of+living+thich+nhat+hanh&qid=1565571938&s=books&sr=1-1) by Thich Nhat Hanh
+* [No Mud, No Lotus: The Art of Transforming Suffering](https://www.amazon.com/No-Mud-Lotus-Transforming-Suffering/dp/1937006859/ref=asc_df_1937006859/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663267002&psc=1) by Thich Nhat Hanh
 
 
 ## 2018
