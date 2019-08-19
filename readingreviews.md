@@ -19,12 +19,10 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics and Government
-* [How the El Paso Killer Echoed the Incendiary Words of Conservative Media Stars](https://www.nytimes.com/interactive/2019/08/11/business/media/el-paso-killer-conservative-media.html) 
 * [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
-* [Mississippi Immigration Raids Lead To Arrests Of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
+* [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
-* [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
@@ -35,7 +33,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Art Is At The Core Of Entrepreneurship, Ignore It At Your Peril](https://www.forbes.com/sites/sophiamatveeva/2019/07/25/art-is-at-the-core-of-entrepreneurship-ignore-it-at-your-peril/#2abe67c965fa)
 * [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
 * [Why Some ESG-Friendly Financial Advisers are Careful about Mixing Politics and Portfolios](https://www.marketwatch.com/story/why-some-esg-friendly-financial-advisers-are-careful-about-mixing-politics-and-portfolios-2019-07-02) and [Impact Investing, Just A Trend Or The Best Strategy To Help Save Our World?](https://www.forbes.com/sites/jpdallmann/2018/12/31/impact-investing-just-a-trend-or-the-best-strategy-to-help-save-our-world/#3344da9375d1)
-* [Instagram is Helping Save the Indie Bookstore](https://www.vox.com/the-goods/2018/12/19/18146500/independent-bookstores-instagram-social-media-growth)
 * [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
 
 ### Reviews Up Next - Technology 
@@ -52,6 +49,36 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### [How the El Paso Killer Echoed the Incendiary Words of Conservative Media Stars](https://www.nytimes.com/interactive/2019/08/11/business/media/el-paso-killer-conservative-media.html)
+In early August 2019, after the El Paso killer reached people's concerns in the national media, five people - Jeremy W. Peters, Michael M. Grynbaum, Keith Collins, Rich Harris and Rumsey Taylor - covered the story to share how the shooter echoed conservative media stars.
+
+The reporters open the article highlighting the language Fox News uses when talking about Mexican immigrants. Since 2018, Tucker Carlson has talked on Fox News about "border jumpers", not refugees. Six months later, someone else on Fox News, in response to the concern over migrants, commented that people can shoot them to stop them from invading the U.S. And Rush Limbaugh similarly expressed that the immigrants "dilute and eventually eliminate or erase what is known as the distinct or unique American culture." The NYT, through a review, found that the media rarely used "words like 'invaders' or 'invasion", but the use of these terms has increased, "appearing on more than 300 Fox News broadcasts."
+
+The reporters of the article then highlight the overlap between the words Fox News uses and the words of the El Passo killer, who wrote that in the shooting, he was "defending [his] country from cultural and ethnic replacement brought on by an invasion." The reporters share this because while people do not know what shaped the perspective of the 21-year-old gunman, his language resembles the ideas and ideologies that people on right-wing media platforms increasingly convey. The killer and right-wing media platforms share a "vocabulary of intolerance that strokes fears centered on immigrants of color."
+
+The NYT uses visual tools to portray the language used on the media platforms and how they relate to the killing. The Times found that "in the four years since Mr. Trump electrified Republican voters with slashing comments about Muslims and Mexicans, demonizing references to immigrants have become more widespread in the news media." "Denigrating sentiments about immigrants" has grown common in the "public dialogue." The reports quote a conservative writer William Kristol, "It's a bit of a vicious cycle...Something is said on Fox News, and Trump repeats it, and that legitimizes it - and then someone else goes a little further." The El Passo killing took place in this environment - the environment in which Republicans portray "immigration as a menace" - and contributes to the cycle of treating immigrants as "predator[s]", "killer[s]", "animal[s]", and "invadors."
+
+Killers in four other mass shootings have also drawn language from "white supremacist conspiracy theories" that mirror the words that many prominent conservatives use. The article's authors report that people like Lawrence Rosenthal, a professor at the Berkeley Center for Right-Wing Studies, find "the shared vocabulary of white nationalists and many prominent conservatives" to be "chilling." Other critics argue that "the overlap between fringe ideology and the words of conservative talk show hosts is not accidental", with Carl Cameron, the former chief political correspondent for Fox News saying that "Fox goes out and looks for stuff that is inherently on fire and foments fear and anger."
+
+Through this article, it's interesting for readers to learn about the increase in the use of "invasion" and "invaders" in describing Mexican immigrants. The NYT visualizes well the rhetoric showing the relationship between the media and national killings. While a relationship exists between the two, the reporters end the article with an interesting point: the right-wing media after the massacre proclaimed that "white supremacy was 'actually not a real problem in America'" and encouraged the audience to "calm down." The media did not do this as much in 2018, but a new culture around "invaders" has been born.
+
+
+<br>
+
+<br>
+
+
+### [Treasury Declares China A 'Currency Manipulator,' Escalating Trade War](https://www.npr.org/2019/08/05/748439036/treasury-declares-china-a-currency-manipulator-escalating-trade-war)
+Scott Horsley in early August 2019 reported with NPR that the treasury department formally accused China of manipulating currency since Beijing has "allowed its currency to fall to an 11-year low." Horsley explains that President Trump "has long accused China of tinkering with its currency", but this accusation "mark[s] the latest escalation in the two countries' trade war." To respond to the accusation, Horsley reports that the treasury secretary plans to "work with the International Monetary Fund 'to eliminate the unfair competitive advantage'" that China created with its latest moves. Trump had planned to "level new tariffs", and the countries dig deeper into a trade war, leading investors to let go of the potential scenario of the two nations' presidents shaking hands in their minds.
+
+Horsley writes a short report, but he provides an overview of the current clashes between the U.S. and China and informs the audience.
 
 
 <br>
