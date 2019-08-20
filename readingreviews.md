@@ -27,6 +27,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 
 ### Reviews Up Next - Capitalism and Innovation
+* [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
 * [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
@@ -49,6 +50,27 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### [Instagram is Helping Save the Indie Bookstore](https://www.vox.com/the-goods/2018/12/19/18146500/independent-bookstores-instagram-social-media-growth)
+Nisha Chittal reports that countering readers' assumptions that "the internet is killing independent bookstores", data show that social media correlates with the number of independent bookstores growing. While the dominant narrative has been that the internet causes bookstores to die, with the online bookseller, Amazon, shattering the brick-and-mortar store, Barnes and Noble, research reveals that internet sites like Instagram have helped to revive independent bookstores.
+
+Chittal writes, "between 2009 and 2015, the number of independent bookstores grew by 35 percent, according to the American Booksellers Association", and the "sales of physical books have increased every year since 2013." What explains this trend? The social media hashtag, "#Boostagram" does because it creates a way for people online to connect a physical space to the online community. After explaining how Instagram and other social media sites work, Chittal reports that users have used #bookstagram more than 25 million times. It has become trendy for people to document online the bookstores they visit and the books they read physically; the tags signal "sophisticated literary preferences." Chattal explains that during a time when people spend more time online, reading books physically and connecting with ideas in a physical space promotes personal growth, but tying the physical spaces to the digital spaces means something for the interconnected communities.
+
+From people recording challenges they set to read 100 books in a year with the hashtag #100booksin2018 to people sharing color-coded bookshelves they like, social media drives the increase in attention to physical bookreading. Chattal highlights, "All this bookstagramming has led to a thriving space for book lovers on social media, and that’s been a good thing for independent bookstores too — because it plays to their key strength: creating community."
+
+During a time when Amazon receives attention as a dominant bookselling business, Ryan Raffaelli, a Harvard Business School professor studies the business of independent bookstores. He shares with Chattal that "the key to indie bookstores' growth in the digital era is building community, which they're well-poised to do thanks to 'strong and deep' ties to their neighbors. 'They're seen as authentic members of the community that have been there for, often in many cases, decades or generations." Now, social media offers a new perspective on the hidden gems within neighborhoods as the online platforms create community around the physical spaces in new ways. Raffaelli explains to Chattal that "You have a new generation of buyer who thinks about building community not only in terms of a local community, a physical space, but also an online community. And a lot of the independent booksellers capture this and understand this."
+
+Not only do bookshop customers use social media to build bookreading communities but so do the Indie stores. Chattal shines the light on "the most Instagrammable bookstore", the Last Bookstore in Los Angeles. The store "is a book-loving Instagrammer's dream" and the building's structures "make for perfect photographs" to broadcast. As people share photographs of the store on social media sites, more visitors learn about the hip place, and the store "inspires such deep loyalty" because of its culture. Brooklyn's Books Are Magic similarly centers their business strategy around social media and attracts loyal customers to a "lifestyle brand."
+
+Authors use social media to share books and information and to connect with the stores as well, explains Chattal.
+
+And in summary, reports Chattal, "the Instagramification of everything has been good for indie bookstores."
 
 
 <br>
