@@ -71,6 +71,11 @@ Sarah Alvarez writes on the usage of technology in shaping the news. News organi
 Douglas Smith, the final writer, addresses that "health local democracy requires healthy local journalism." Evidence shows that technology platforms, which change news consumption, weaken community ties and democracy. So, what's next? Smith shares how "in 2015, leaders of the Knight Foundation chose to combat this." The foundation with close to 100 local news organizations started a movement in which organizations "boil down to focusing maniacally on the needs of different local audiences." The organizes worked with their communities and saw results like new products, skills, and mind-sets "that put audiences first." Smith reports that "amid all this, local newsrooms reaffirmed that high-quality local journalism - not clickbait - is the pathway to restore sustainable local journalism." While restoring local journalism "won't happen in a month or a year", Smith reports that community members yearn to read high-quality, audience-centric journalism, so it is on the radar screen.
 
 
+<br>
+
+<br>
+
+
 ### [Instagram is Helping Save the Indie Bookstore](https://www.vox.com/the-goods/2018/12/19/18146500/independent-bookstores-instagram-social-media-growth)
 Nisha Chittal reports that countering readers' assumptions that "the internet is killing independent bookstores", data show that social media correlates with the number of independent bookstores growing. While the dominant narrative has been that the internet causes bookstores to die, with the online bookseller, Amazon, shattering the brick-and-mortar store, Barnes and Noble, research reveals that internet sites like Instagram have helped to revive independent bookstores.
 
