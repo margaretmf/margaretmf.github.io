@@ -34,7 +34,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
 * [Why Some ESG-Friendly Financial Advisers are Careful about Mixing Politics and Portfolios](https://www.marketwatch.com/story/why-some-esg-friendly-financial-advisers-are-careful-about-mixing-politics-and-portfolios-2019-07-02) and [Impact Investing, Just A Trend Or The Best Strategy To Help Save Our World?](https://www.forbes.com/sites/jpdallmann/2018/12/31/impact-investing-just-a-trend-or-the-best-strategy-to-help-save-our-world/#3344da9375d1)
 * [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
-* [Why Corporations Redefine Progress](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0819/Why-corporations-redefine-progress?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566317354)
 
 ### Reviews Up Next - Technology 
 * [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
@@ -55,6 +54,20 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [Why Corporations Redefine Progress](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0819/Why-corporations-redefine-progress?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566317354)
+The Christian Science Monitor Board in August 2019 shines the light on "the influential Business Roundtable's new purpose for corporations", which "reflects the global search for less-material definitions of progress."
+
+The Monitor Board reports that this month senior executives from 200 American businesses published a statement that redefines progress. Businesses now focus on the social return on investment rather than just on maximizing profits and share prices, and companies look to deliver value to diverse stakeholders ("employees, local communities, and society writ large"). Through monitoring the value of business to stakeholders, senior leaders work towards "protecting the environment, investing in workers, and dealing ethically with suppliers." A new age for business social responsibility has dawned, and businesses will grow to become more driven by values.
+
+The Monitor Board addresses that "this is not the first time the Roundtable has changed its view on the purpose of a corporation. And it may not be the last." Businesses continuously adapt and modify organizational behavior in order to succeed amidst competing market pressures and demands. However, "a July survey for Fortune magazine found nearly two-thirds of Americans say a company's 'primary purpose' should include 'making the world better'", indicating a shift in attitudes on the purpose of business.
+
+Covering the global level, the Christian Science Monitor board writes that businesses and countries internationally have recognized the need for broader ways to measure economic progress; on a global level, people have realized that the growth in gross domestic product metric tracks prosperity in too narrow of a way.
+
+Using statistical tools, the United Nations built a "human development index" to track how organizations contribute to social goals like income equality and happiness. And the Monitor Board reports that the "search continues to put numbers on concepts such as 'well-being', 'sustainable development', or 'scientific advancement' so that corporations can contribute to the progress of societies.
+
+This article enlightens readers on the advancement in businesses', economists', and scientists' efforts to make the world a better place rather than just define economic progress in a narrow, self-oriented way.
 
 
 ### [A Future Without the Front Page](https://www.nytimes.com/2019/08/01/us/news-deserts-future.html)
