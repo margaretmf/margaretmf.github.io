@@ -34,7 +34,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
 * [Why Some ESG-Friendly Financial Advisers are Careful about Mixing Politics and Portfolios](https://www.marketwatch.com/story/why-some-esg-friendly-financial-advisers-are-careful-about-mixing-politics-and-portfolios-2019-07-02) and [Impact Investing, Just A Trend Or The Best Strategy To Help Save Our World?](https://www.forbes.com/sites/jpdallmann/2018/12/31/impact-investing-just-a-trend-or-the-best-strategy-to-help-save-our-world/#3344da9375d1)
 * [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
-# [Why Corporations Redefine Progress](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0819/Why-corporations-redefine-progress?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566317354)
+* [Why Corporations Redefine Progress](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0819/Why-corporations-redefine-progress?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566317354)
 
 ### Reviews Up Next - Technology 
 * [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
@@ -45,7 +45,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 * [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
-# [The Hopefulness and Hopelessness of 1619: Marking the 400-year African American Struggle to Survive and to Be Free of Racism](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
+* [The Hopefulness and Hopelessness of 1619: Marking the 400-year African American Struggle to Survive and to Be Free of Racism](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
