@@ -70,6 +70,11 @@ Using statistical tools, the United Nations built a "human development index" to
 This article enlightens readers on the advancement in businesses', economists', and scientists' efforts to make the world a better place rather than just define economic progress in a narrow, self-oriented way.
 
 
+<br>
+
+<br>
+
+
 ### [A Future Without the Front Page](https://www.nytimes.com/2019/08/01/us/news-deserts-future.html)
 With the recent collapse of local journalism, the NYT reports on how industry innovators envision the future of local news "without the front page." 
 
