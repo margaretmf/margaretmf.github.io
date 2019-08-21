@@ -31,10 +31,10 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
 * [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
 * [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
-* [Art Is At The Core Of Entrepreneurship, Ignore It At Your Peril](https://www.forbes.com/sites/sophiamatveeva/2019/07/25/art-is-at-the-core-of-entrepreneurship-ignore-it-at-your-peril/#2abe67c965fa)
 * [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
 * [Why Some ESG-Friendly Financial Advisers are Careful about Mixing Politics and Portfolios](https://www.marketwatch.com/story/why-some-esg-friendly-financial-advisers-are-careful-about-mixing-politics-and-portfolios-2019-07-02) and [Impact Investing, Just A Trend Or The Best Strategy To Help Save Our World?](https://www.forbes.com/sites/jpdallmann/2018/12/31/impact-investing-just-a-trend-or-the-best-strategy-to-help-save-our-world/#3344da9375d1)
 * [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
+# [Why Corporations Redefine Progress](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0819/Why-corporations-redefine-progress?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566317354)
 
 ### Reviews Up Next - Technology 
 * [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
@@ -45,7 +45,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 * [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
-* [A Future Without the Front Page](https://www.nytimes.com/2019/08/01/us/news-deserts-future.html)
+# [The Hopefulness and Hopelessness of 1619: Marking the 400-year African American Struggle to Survive and to Be Free of Racism](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
@@ -55,6 +55,20 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [A Future Without the Front Page](https://www.nytimes.com/2019/08/01/us/news-deserts-future.html)
+With the recent collapse of local journalism, the NYT reports on how industry innovators envision the future of local news "without the front page." 
+
+Steven Waldman and Charles Sennott, in sharing their vision for people powering the future of journalism, start with sharing the data: "more than 1,300 communities across the United States are without local news coverage." The breakdown in local journalism correlates with "greater polarization, lower voter turnout, less government accountability, and less trust." Technology will not offer the solution. Report for America, a program that involves emerging journalists in writing stories on "crucially important, neglected areas", with reduced cost, helps to contribute to a solution. These innovators foresee Report for America' success in providing spirited people to underresourced areas and reviving local journalism through a public service model.
+
+Bene Cipolla addresses the issue of "what's next for local news" by covering the question, "How did we miss this?" in response to reports of "two online charter schools [taking] $40 million in taxpayer dollars for enrolling students who didn't actually attend." Without Chalkbeat's news reports on the issue, education officials would not have realized they had missed it. And Chalkbeat writes stories on local news with a mantra, "local first." Chalkbeat exists as one of few newsrooms lucky enough to have strong education reporters; and without new business models like Chalkbeat's, "covering education on a daily basis will remain an endangered species."
+
+How does Chalkbeat succeed with a "new business model"? The organization has not done it with ease, but they apply a "local-first mantra" to everything. The whole model has been centered on this mantra, and the organization must track impact metrics, not just readership and revenue, to measure the effect of local news. Chartbeat lights the way in managing "local news that is sustainable, accessible and equitable."
+
+Sarah Alvarez writes on the usage of technology in shaping the news. News organizations like the one in Detroit have decreased in size due to pressure; but local news stories matter to people, and without successful organizations, an information gap exists. Outlier Media helps to address the information gap; the 21st century organization has built databases so that Detroiters can access data-driven reporting via text message "since most residents don't have broadband at home or generous data plans." The organziation collects data on everyday issues like rent and then weaves stastistical insights from data into enterprise stories with newsrooms. Doing this reshapes how citizens engage with news and uses technology in a new way.
+
+Douglas Smith, the final writer, addresses that "health local democracy requires healthy local journalism." Evidence shows that technology platforms, which change news consumption, weaken community ties and democracy. So, what's next? Smith shares how "in 2015, leaders of the Knight Foundation chose to combat this." The foundation with close to 100 local news organizations started a movement in which organizations "boil down to focusing maniacally on the needs of different local audiences." The organizes worked with their communities and saw results like new products, skills, and mind-sets "that put audiences first." Smith reports that "amid all this, local newsrooms reaffirmed that high-quality local journalism - not clickbait - is the pathway to restore sustainable local journalism." While restoring local journalism "won't happen in a month or a year", Smith reports that community members yearn to read high-quality, audience-centric journalism, so it is on the radar screen.
 
 
 ### [Instagram is Helping Save the Indie Bookstore](https://www.vox.com/the-goods/2018/12/19/18146500/independent-bookstores-instagram-social-media-growth)
