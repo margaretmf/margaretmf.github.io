@@ -12,7 +12,21 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 * Home and [The Future of Housing](https://www.fastcompany.com/90342219/the-future-of-housing-looks-nothing-like-todays?utm_source=pocket-newtab)
 * Meditation, Prayer, and Worship (see [They Tried to Start a Church Without God. For a While, It Worked](https://www.theatlantic.com/ideas/archive/2019/07/secular-churches-rethink-their-sales-pitch/594109/?utm_term=2019-07-21T10%3A00%3A13&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter&utm_content=edit-promo))
 * Medicine, Technology, and Healthcare
-* School Turnarounds and [Art](https://www.kqed.org/mindshift/50874/what-happens-to-student-behavior-when-schools-prioritize-art)
+
+
+<br>
+
+<br>
+
+
+### School Turnarounds and Art
+Traditionally schools have followed strict curriculum guides, but as schools in the 21st century realize they need to turnaround, incorporating art and embracing innovative teaching practices helps them to modernize. I envision a public school system in which providing ways for students to think outside the box and engage in creative activities becomes normalized. I envision these creative activities supporting students' test scores and longer-term careers as well.
+
+Recently, KQED published an article, [What Happens to Student Behavior When Schools Prioritize Art](https://www.kqed.org/mindshift/50874/what-happens-to-student-behavior-when-schools-prioritize-art), sharing an example of school like the ones I envision in the future. In the article, Sir Ken Robinson and Lou Aronica write about how while traditionally the education system sees no ways to change the rigid operations, "innovative schools everywhere are breaking the mold of convention to meet the best interests of their students, families, and communities", and schools are embracing "visionary leadership" styles. As schools embrace change, they turnaround and benefit more students in healthy ways.
+
+Students do not only need to perform highly on standardized tests and in STEM; particiapting in school activities, engaging in hands-on projects, and expressing artistically lead to higher flexibility in life, and when teachers support more creative and global learning opportunities, students' test scores tend to increase because the children have the ability to think more freely as well as logically. The authors of the KQED article present Orchard Gardens Elementary School in Roxbury, Massachusetts as one example of a school in which investing in arts and culture programs helped turnaround the students' experiences; "test scores were in the bottom 5 percent of all Massachusetts schools" before 2010, but when Principal Andrew Bott arrived he devised "a radically different solution" to address the school's challenges and "invested...money in arts programs" as well as second language classes. After implementing the new programs, the school found that "the arts classes gave the students fresh enthusiasm for learning", and the art "created a more stimulating environment and sense of ownership by the children"; students similarly enjoyed learning a second language. With a new approach to education - a broader curriculum, Principal Andrew Bott designed a school where teachers embrace students' whole selves, students want to learn, and test scores increase.
+
+I envision an education system in which embracing students' whole selves and letting people grow more expressive, and subsequently healthy grows normalized. As people voice concerns for "systems of oppression" in society, I see creating "systems of expression" starting within schools as key to turning the American culture around.
 
 
 <br>
