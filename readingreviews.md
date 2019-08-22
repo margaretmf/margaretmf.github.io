@@ -72,7 +72,15 @@ Carta starts the article by summarizing how "algorithms, software, and smart tec
 
 Carta shares a recent study that unpacks how algorithms operate to help report the impact that the high technology have in urban contexts (streets, squares, and cafes). She explains specifically research showing how technology "see[s]" the world people live in.
 
-How do algorithms "see"? Carta writes that to answer this, people must learn "to think like computers", which means to "discount everything" that people "usually perceive" with the "senses" and "go through a step-by-step process of data acquisition."
+How do algorithms "see"? Carta writes that to answer this, people must learn "to think like computers", which means to "discount everything" that people "usually perceive" with their physical "senses" and "go through a step-by-step process of data acquisition." Algorithms see computationally, and in reporting on [The Machine's Eye](https://vimeo.com/346684535?cjevent=dfa78f96c51911e983d000cc0a240612), Carta invites readers to understand how computers views their physical environment and personal information. Portraying to readers how the machine gains a picture of people's atmosphere person, she writes:
+
+"It starts from a pitch-black situation—with no information—and gradually gathers data from a number of interconnected devices: smartphones, microphones, CCTV, and other sensors. It starts by detecting and organizing information directly from the physical environment: the dimension of the room, type of establishment, the number of people inside, their languages, accents, genders, and types of conversation. It then interpolates these data with what can be found about each individual online, data mining from social media, online posts, databases, and personal pages.
+
+Our AI machine is finally able to bring all these data together into an accurate profile of a targeted individual, inferring the likelihood of personal relationships, family prospects, life expectancy, productivity, or “social worth”—that is, their contribution to society in financial and social terms, within the context of this fiction."
+
+Carta reports that new companies increasingly test how to build and deploy algorithms to enhance user experiences. Some businesses working on algorithmic advancement include Numina, Volvo, City Scanner, and UPS. While they have just begun "scratching the surface" of reading a nuanced picture, Carta summarizes that "algorithms can be trained to 'see' our cities in more detail, and navigate through them more efficiently, than any human", but "they are essentially mathematical and statistical models, applied to real-life problems", so "it's...crucial to demystify these black-box technologies—in order to understand and make the best use of them."
+
+This article, while not as well-written as other news articles are, provides to readers a thorough dive into understanding how algorithms work and a video for people to watch visually how code and statistical processing tools work. Carta writes an analysis of her research rather than a pure news story, however. And in the future, with the rise of "data journalism", reporters can improve these types of articles by giving glimpses of how algorithms work to readers through embedded code and data-driven tools.
 
 
 <br>
