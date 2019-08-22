@@ -9,7 +9,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ## 2019 BOOK REVIEWS
 ### Reviews Up Next
-* [The War for Kindness - Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
+### [The War for Kindness - Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
 <img class="picture" src="TheWarForKindness-BuildingEmpathyInAFracturedWorld.jpg">
 
 
@@ -18,7 +18,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
-* [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by Peter Frankopan
+### [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by Peter Frankopan
 <img class="picture" src="TheNewSilkRoads-ThePresentAndFutureOfTheWorld.jpg">
 
 
