@@ -46,7 +46,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
 
 ### Reviews Up Next - Technology 
-* [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
 * [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
 * [The Amazon Publishing Juggernaut](https://www.theatlantic.com/technology/archive/2019/08/amazons-plan-take-over-world-publishing/595630/)
 
@@ -59,6 +58,21 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### [This Is What Algorithms See When They Spy on You in Public](https://www.fastcompany.com/90381079/this-is-what-algorithms-see-when-they-spy-on-you-in-public)
+Silvio Carta writes for Fast Company on algorithms and how much computers know about people. The author, explaining how algorithms work, reports that data-driven systems "see a lot more than" people realize and "can make inferences about everything from personal relationships to life expectancy to 'social worth'."
+
+Carta starts the article by summarizing how "algorithms, software, and smart technologies have a growning presence." Leaders employ the data-driven systems in many of cities' decision-making processes, and passive citizens have information being collected on them without full realization. The author addresses the issue of city-dwellers not understanding what these deployed systems know about them. And she reports that if citizens were to better understand how the systems work, they would gain better ability to "judge what data they're comfortable with sharing" and "safeguard their privacy as they nagivate" in tracked areas.
+
+Carta shares a recent study that unpacks how algorithms operate to help report the impact that the high technology have in urban contexts (streets, squares, and cafes). She explains specifically research showing how technology "see[s]" the world people live in.
+
+How do algorithms "see"? Carta writes that to answer this, people must learn "to think like computers", which means to "discount everything" that people "usually perceive" with the "senses" and "go through a step-by-step process of data acquisition."
 
 
 <br>
