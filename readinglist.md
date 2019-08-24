@@ -14,7 +14,7 @@ Peter Frankopan
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
 * [Janesville: An American Story](https://www.amazon.com/Janesville-American-Story-Amy-Goldstein/dp/1501102230) by Amy Goldstein
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
-* [The Mueller Report](https://www.amazon.com/Mueller-Report-Washington-Post/dp/1982129735) by  
+* [The Mueller Report](https://www.amazon.com/Mueller-Report-Washington-Post/dp/1982129735) 
 * [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
 * [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
