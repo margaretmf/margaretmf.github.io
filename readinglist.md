@@ -79,6 +79,7 @@ layout: default
 * [No Mud, No Lotus: The Art of Transforming Suffering](https://www.amazon.com/No-Mud-Lotus-Transforming-Suffering/dp/1937006859/ref=asc_df_1937006859/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663267002&psc=1) by Thich Nhat Hanh
 * [The Sacred Enneagram: Finding Your Unique Path to Spiritual Growth](https://www.amazon.com/Sacred-Enneagram-Finding-Unique-Spiritual/dp/0310348277/ref=asc_df_0310348277/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726540946022&psc=1) by Christopher L. Heuertz
 * [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by Peter Frankopan
+* [The Meaning of Marriage: Facing the Complexities of Commitment with the Wisdom of God](https://www.amazon.com/Meaning-Marriage-Facing-Complexities-Commitment/dp/1594631875/ref=asc_df_1594631875/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584345016102524&psc=1) by Timothy Keller with Kathy Keller
 
 
 ## 2018
