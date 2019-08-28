@@ -85,13 +85,15 @@ Alex Shashkevich in Stanford's publication of news on how language influences pe
 Through research, linguistics scholars seek to understand how "cultural, social, and pscyhological phenomenon" shape language, and how langugage reversely influences these phenomenon. Dan Jurafsky, the Jackson Eli Reynolds professor in Humanities shared with Shashkevich that "understanding why and how language differs tells about the range of what is human", and "discovering what's universal about languages can help us understand the core of our humanity." The article's author shares the following stories to visualize portray aspects of language, including semantics, syntax, phonetics, and phonology.
 
 * Understanding Stereotypes
-"Relatively harmless sentence[s] like 'girls are as good as boys at math' can subtly perpetuate sexist stereotypes." The grammatical structure implies something that may not be true scientifically, and the language influences people unconsciously.
+"Relatively harmless sentences like 'girls are as good as boys at math' can subtly perpetuate sexist stereotypes." The grammatical structure implies something that may not be true scientifically, and the language influences people unconsciously.
 
 * How Other Languages Inform Our Own
 "People speak 7,00 languages worldwide", each one has a unique structure, and each one reflects a different culture to which people contribute. Studying other languages and how languages develop helps understand diverse ways in which humans have learned to communicate. Each different language reveals something different about humanity.
 
 * Language As a Lens Into Behavior
 "Speech patterns correspond to particular behaviors" like buying items or using social media. Researching differences in how Republicans and Democrats communicate helps researchers understand polarization of beliefs. "Understanding what different groups of people say and why is the first step in determining how we can help bring people together."
+
+The author of the article does not report on the stories in great detail, but the article communicates interesting academic research on an important area in the humanities and social sciences. Understanding this research will help a lot of people in our world progress.
 
 
 <br>
