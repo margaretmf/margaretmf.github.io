@@ -29,10 +29,8 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics, Government, and Civil Rights
-* [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
 * [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
-* [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 * [Rep. John Lewis on the ‘Unfinished Work’ in the Civil Rights Movement](https://www.aspeninstitute.org/blog-posts/rep-john-lewis-on-the-unfinished-work-in-the-civil-rights-movement/)
@@ -68,14 +66,70 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 * [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
 * [The Hopefulness and Hopelessness of 1619: Marking the 400-year African American Struggle to Survive and to Be Free of Racism](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
-* [The Power of Language: How Words Shape People, Culture](https://news.stanford.edu/2019/08/22/the-power-of-language-how-words-shape-people-culture/)
 * [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
 * [The Hopefulness and Hopelessness of 1619](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 * [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
-* [What Mapping Every Nonprofit in the U.S. Tells Us About the State of the Industry](https://www.fastcompany.com/90356802/what-mapping-every-nonprofit-in-the-u-s-tells-us-about-the-state-of-the-industry)
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+
+<br>
+
+<br>
+
+
+### [The Power of Language: How Words Shape People and Culture](https://news.stanford.edu/2019/08/22/the-power-of-language-how-words-shape-people-culture/)
+Alex Shashkevich in Stanford's publication of news on how language influences people and culture. With communication playing a central role in daily living, and people employing language in "speaking, writing, and reading", understanding how people decide "what words and phrases" to use can provide insights into individual and collective behavior. Shashkevich reports that linguistics scholars currently do the work to research language acquisition and usage.
+
+Through research, linguistics scholars seek to understand how "cultural, social, and pscyhological phenomenon" shape language, and how langugage reversely influences these phenomenon. Dan Jurafsky, the Jackson Eli Reynolds professor in Humanities shared with Shashkevich that "understanding why and how language differs tells about the range of what is human", and "discovering what's universal about languages can help us understand the core of our humanity." The article's author shares the following stories to visualize portray aspects of language, including semantics, syntax, phonetics, and phonology.
+
+* Understanding Stereotypes
+"Relatively harmless sentence[s] like 'girls are as good as boys at math' can subtly perpetuate sexist stereotypes." The grammatical structure implies something that may not be true scientifically, and the language influences people unconsciously.
+
+* How Other Languages Inform Our Own
+"People speak 7,00 languages worldwide", each one has a unique structure, and each one reflects a different culture to which people contribute. Studying other languages and how languages develop helps understand diverse ways in which humans have learned to communicate. Each different language reveals something different about humanity.
+
+* Language As a Lens Into Behavior
+"Speech patterns correspond to particular behaviors" like buying items or using social media. Researching differences in how Republicans and Democrats communicate helps researchers understand polarization of beliefs. "Understanding what different groups of people say and why is the first step in determining how we can help bring people together."
+
+
+<br>
+
+<br>
+
+
+### [What Mapping Every Nonprofit in the U.S. Tells Us About the State of the Industry](https://www.fastcompany.com/90356802/what-mapping-every-nonprofit-in-the-u-s-tells-us-about-the-state-of-the-industry)
+Ben Paynter, reporting on the future of philanthropy, shares how Civis Analytics "examined the public tax filings of 353,000 nonprofits" to analyze the most popular causes, and tells a story on where people give their money.
+
+Paynter starts the article, writing about the top nonprofit hubs with different metrics. When counting the number of nonprofits, California and Washington shine as the most thriving cities for organizations tackling social issues. When calculating the average funding per organization, however, the Midwest stands out. "It's there-in places like Idaho, Nebraska, and Oklahoma-that groups receive the most money to do their work." Different metrics lead to different narratives.
+
+Civis Analytics, a data science firm, developed maps plotting the public tax filings within the nonprofit sector to visualize nonprofit hubs. The firm collaborated with the IRS and AWS to collect the data for 353,000 nonprofits that had filed forms with both financial and mission statements. Using an analytical method called "topic modeling", the data scientists found 15 different topics that words in mission statements fall under, and they ranked the subjects by state, and city, for the largest ones; then they discovered which topics received the most funding and who are the top five funders per subject.
+
+Paynter reports that according to research, "roughly 1.4 million nonprofits operate in America", and they create "10% of all jobs in the private sector." He also shares that according to Giving USA, "Americans gave nearly $428 billion to various causes", which is 2% lower than what they gave in 2017 as a result of less incentives for charitable donations. The applied data science director at Civis shared with the author's article that doing this mapping helps people understand the sector's changing needs and where organizations tackling social issues thrive, even though they only have data for one year.
+
+Paynter shares information on other hubs other than the Midwest ones; and he reports that "on average, healthcare organizations and medical benefit and insurance groups receive the highest funding per state, because some major medical plans and university medical centers qualify as nonprofits". Some of the groups addressing "the most common issues aren't necessarily the best funded", so similar people start similar organizations to end the same problem; and with less incentives for charitable donations to smaller, local non-profits, from middle-class Americans, these organizations will face challenges in the next few years. But the maps can help guide decisions to overcome challenges.
+
+Paynter explains advance data science concepts and visualizes data well in this story. The story could improve with more insights and quotes from nonprofits making decisions. But the article informs readers of a significant trend relating to a tax pocliy in the nonprofit sector, and makes the audience more aware of information that guides the future of the nonprofit sector.
+
+
+<br>
+
+<br>
+
+
+### [Tensions Continue High Over Kashmir, With 500 Arrests and A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
+On NPR's All Things Considered, Sasha Ingber and Lauren Frayer report on the tensions between India and Pakistan as they disagree over Kashmir. They quote India's Prime Minister Narendra Modi, who said that the government's decision to "revoke Kashmir's special status mark[s] 'a new era' that would free the region of 'terrorism and separatism'" and turn the area into a "union territory" in a recent speech to the public. They further quoted Modi, "'I fully believe that the people of Jammu and Kashmir will move forward with fresh hopes, dreams and motivations'" as the state transforms.
+
+Modi's statements on the government's decision provoked uncivil reactions and brought the disagreements between India and Pakistan to light. And Ingber and Frayer share that the upheaval coincided with a communications blackout as a result of arrests in the Muslim-majority region.
+
+What does the decision entail? Ingber and Frayer explain the constitutional change: "revoking Article 370 of India's constitution strips Kashmiris of exclusive rights to buy property and hold certain government positions, allowing outsiders to influence laws and own a part of the contested land. Indian-administered Kashmir can no longer fly its own flag", and citizens have concerns that this change will ruin their culture. 
+
+Modi, in his speech, blamed this constitutional change for "widespread corruption" in the region, where the state no longer protects minorities and low-income citizens, and the public breaks out in disobedience. Modi argued that the change does not benefit people, as the Hindu nationalist government sends military leaders to arrest more than 500 people, including authority figures. As a result of the the turmoil, the government shut down communication lines and internet connection, and this puts a stop to normalized action in the region; Modi thus characterized the shutdown as an "inconvenience." And the Prime Minister responds with reassurance and confidence in better development opportunities in the future.
+
+Ingber and Frayer report that after Modi's speech, Pakistan "downgraded its diplomatic ties with India" through ending trade agreements and train services. And any reactions from Indians "exacerbate" the socio-political issues. Tensions between the two countries have increased, with conflict echoing the disagreement between the two nations in 1947 after they won independence from Britain; but Pakistani leaders hope that people will resolve the issues peacefully and help those most vulnerable to violence.
+
+This report in a straightforward way shares current events in a region where conflict has occurred since 1947. Sharing how historical conflict influences and differs from tension in the beginning of the report, rather than just the end of the report would strengthen the coverage.
 
 
 <br>
