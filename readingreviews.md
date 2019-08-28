@@ -28,13 +28,20 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ## 2019 NEWS REVIEWS
-### Reviews Up Next - Politics and Government
+### Reviews Up Next - Politics, Government, and Civil Rights
 * [After Most Shootings, Congress Does Nothing. This Time May Be Different](https://www.csmonitor.com/Daily/2019/20190808?cmpid=ema:bundle:20190808&id=1093860)
 * [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
 * [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [Tensions Continue High Over Kashmir, With 500 Arrests And A Communications Blackout](https://www.npr.org/2019/08/08/749349432/tensions-continue-high-over-kashmir-with-500-arrests-and-a-communications-blacko)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
+* [Rep. John Lewis on the ‘Unfinished Work’ in the Civil Rights Movement](https://www.aspeninstitute.org/blog-posts/rep-john-lewis-on-the-unfinished-work-in-the-civil-rights-movement/)
+* [The Poverty of Partisan Identity](https://thefulcrum.us/civic-ed/the-poverty-of-partisan-identity)
+* [China’s Spies Are on the Offensive](https://www.theatlantic.com/politics/archive/2019/08/inside-us-china-espionage-war/595747/?utm_medium=social&utm_source=twitter&utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2019-08-26T09%3A00%3A23)
+* [Trump’s Two G7 Summits](https://www.theatlantic.com/international/archive/2019/08/donald-trump-g7-summit/596788/?utm_content=edit-promo&utm_term=2019-08-25T19%3A33%3A11&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter)
+* [Encircling the Interrupters with Civility](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0823/Encircling-the-interrupters-with-civility?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566586019)
+* [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
+* [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
@@ -44,17 +51,28 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
 * [Why Some ESG-Friendly Financial Advisers are Careful about Mixing Politics and Portfolios](https://www.marketwatch.com/story/why-some-esg-friendly-financial-advisers-are-careful-about-mixing-politics-and-portfolios-2019-07-02) and [Impact Investing, Just A Trend Or The Best Strategy To Help Save Our World?](https://www.forbes.com/sites/jpdallmann/2018/12/31/impact-investing-just-a-trend-or-the-best-strategy-to-help-save-our-world/#3344da9375d1)
 * [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
+* [America’s First Hub for Restorative Justice Will Open in Oakland](https://www.citylab.com/design/2019/08/oakland-incarceration-restorative-justice-job-training/595198/)
+* [Working In While Eating Out: The Evolution of Doing Business While Dining](https://www.npr.org/sections/thesalt/2019/08/26/753718969/working-in-while-eating-out-the-evolution-of-doing-business-while-dining?utm_term=nprnews&utm_medium=social&utm_source=twitter.com&utm_campaign=npr)
+* [The Next Recession Will Destroy Millennials](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
+* [The Resume of the Future Will Tell Employers Who You Are, and Not Just What You've Done](https://qz.com/work/1232692/the-resume-of-the-future/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=30a275eccc39e7028bd012481c1f1e36)
 
 ### Reviews Up Next - Technology 
 * [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
 * [The Amazon Publishing Juggernaut](https://www.theatlantic.com/technology/archive/2019/08/amazons-plan-take-over-world-publishing/595630/)
+* [Inside India’s Messy Electric Vehicle Revolution](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
+* [In Afghanistan, Weaving Ancient Industry Back into Global Market](https://www.csmonitor.com/World/Middle-East/2019/0821/In-Afghanistan-weaving-ancient-industry-back-into-global-market?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566803284)
+* [Can You Guess Which of These Paintings Was Not Made by a Human?](https://qz.com/work/1390121/can-you-guess-which-of-these-paintings-was-not-made-by-a-human/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=14f9ea0f3736138f5992111e20b2768f)
 
-### Reviews Up Next - Human History, Social Science, Culture, and Environment
+### Reviews Up Next - Human History, Social Science, Culture, Communication, Education, and Environment
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 * [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
 * [The Hopefulness and Hopelessness of 1619: Marking the 400-year African American Struggle to Survive and to Be Free of Racism](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
-
+* [The Power of Language: How Words Shape People, Culture](https://news.stanford.edu/2019/08/22/the-power-of-language-how-words-shape-people-culture/)
+* [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
+* [The Hopefulness and Hopelessness of 1619](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
+* [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
+* [What Mapping Every Nonprofit in the U.S. Tells Us About the State of the Industry](https://www.fastcompany.com/90356802/what-mapping-every-nonprofit-in-the-u-s-tells-us-about-the-state-of-the-industry)
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
