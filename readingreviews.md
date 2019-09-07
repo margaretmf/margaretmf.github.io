@@ -27,6 +27,15 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+### [Range: Why Generalists Triumph in a Specialized World](https://www.amazon.com/Range/dp/1509843507) by David Epstein
+<img class="picture" src="Range-HowGeneralistsTriumphInASpecializedWorld.jpg">
+
+
+<br>
+
+<br>
+
+
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics, Government, and Civil Rights
 * [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
