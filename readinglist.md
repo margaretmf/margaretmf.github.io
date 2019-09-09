@@ -74,13 +74,14 @@ layout: default
 * [Kundalini: The Evolutionary Energy in Man](https://www.amazon.com/Kundalini-Evolutionary-Energy-Krishna-Gopi/dp/1570622809/ref=asc_df_1570622809/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583932699407374&psc=1) by Gopi Krishna
 * [How American Work, American Business, and the American Dream Became Temporary](https://www.amazon.com/Temp-American-Business-Became-Temporary/dp/0735224072) by Louis Hyman
 * [No Man Is an Island](https://www.amazon.com/No-Man-Island-Thomas-Merton/dp/0156027739) by Thomas Merton
-* [The War for Kindness: Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
+* [The War for Kindness: Building Empathy in A Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
 * [The Art of Living](https://www.amazon.com/Art-Living-Peace-Freedom-Here/dp/B06Y6GSZQS/ref=sr_1_1?keywords=the+art+of+living+thich+nhat+hanh&qid=1565571938&s=books&sr=1-1) by Thich Nhat Hanh
 * [No Mud, No Lotus: The Art of Transforming Suffering](https://www.amazon.com/No-Mud-Lotus-Transforming-Suffering/dp/1937006859/ref=asc_df_1937006859/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663267002&psc=1) by Thich Nhat Hanh
 * [The Sacred Enneagram: Finding Your Unique Path to Spiritual Growth](https://www.amazon.com/Sacred-Enneagram-Finding-Unique-Spiritual/dp/0310348277/ref=asc_df_0310348277/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726540946022&psc=1) by Christopher L. Heuertz
 * [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by Peter Frankopan
 * [The Meaning of Marriage: Facing the Complexities of Commitment with the Wisdom of God](https://www.amazon.com/Meaning-Marriage-Facing-Complexities-Commitment/dp/1594631875/ref=asc_df_1594631875/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584345016102524&psc=1) by Timothy Keller with Kathy Keller
 * [single. dating. engaged. married. navigating life + love in the modern age](https://www.amazon.com/Single-Dating-Engaged-Married-Navigating/dp/0718097890) by ben stuart
+* [Range: Why Generalists Triumph in A Specialized World](https://www.amazon.com/Range-Generalists-Triumph-Specialized-World/dp/0735214484) by David Epstein
 
 
 ## 2018
