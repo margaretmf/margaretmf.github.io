@@ -82,6 +82,7 @@ layout: default
 * [The Meaning of Marriage: Facing the Complexities of Commitment with the Wisdom of God](https://www.amazon.com/Meaning-Marriage-Facing-Complexities-Commitment/dp/1594631875/ref=asc_df_1594631875/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584345016102524&psc=1) by Timothy Keller with Kathy Keller
 * [single. dating. engaged. married. navigating life + love in the modern age](https://www.amazon.com/Single-Dating-Engaged-Married-Navigating/dp/0718097890) by ben stuart
 * [Range: Why Generalists Triumph in A Specialized World](https://www.amazon.com/Range-Generalists-Triumph-Specialized-World/dp/0735214484) by David Epstein
+* [The Art of Communication](https://www.amazon.com/Art-Communicating-Thich-Nhat-Hanh/dp/0062224662) by Thich Nhat Hanh
 
 
 ## 2018
