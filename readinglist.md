@@ -83,6 +83,7 @@ layout: default
 * [single. dating. engaged. married. navigating life + love in the modern age](https://www.amazon.com/Single-Dating-Engaged-Married-Navigating/dp/0718097890) by ben stuart
 * [Range: Why Generalists Triumph in A Specialized World](https://www.amazon.com/Range-Generalists-Triumph-Specialized-World/dp/0735214484) by David Epstein
 * [The Art of Communication](https://www.amazon.com/Art-Communicating-Thich-Nhat-Hanh/dp/0062224662) by Thich Nhat Hanh
+* [Make Your Life Worthwhile](https://www.amazon.com/Make-Your-Life-Worthwhile-Emmet/dp/0060629134) by Emmet Fox
 
 
 ## 2018
