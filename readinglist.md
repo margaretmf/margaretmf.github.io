@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Up Next 
-* [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
@@ -84,6 +83,7 @@ layout: default
 * [Range: Why Generalists Triumph in A Specialized World](https://www.amazon.com/Range-Generalists-Triumph-Specialized-World/dp/0735214484) by David Epstein
 * [The Art of Communication](https://www.amazon.com/Art-Communicating-Thich-Nhat-Hanh/dp/0062224662) by Thich Nhat Hanh
 * [Make Your Life Worthwhile](https://www.amazon.com/Make-Your-Life-Worthwhile-Emmet/dp/0060629134) by Emmet Fox
+* [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 
 
 ## 2018
