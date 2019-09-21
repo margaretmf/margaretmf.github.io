@@ -84,6 +84,7 @@ layout: default
 * [The Art of Communication](https://www.amazon.com/Art-Communicating-Thich-Nhat-Hanh/dp/0062224662) by Thich Nhat Hanh
 * [Make Your Life Worthwhile](https://www.amazon.com/Make-Your-Life-Worthwhile-Emmet/dp/0060629134) by Emmet Fox
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
+* [The Purpose-Driven Life: What On Earth Am I Here For?](https://www.christianbook.com/purpose-driven-life-what-earth-here/rick-warren/9780310337508/pd/337508?en=bing-pla&event=SHOP&kw=christian-living-0-20%7C337508&p=1179517&dv=c&msclkid=0d8224d1674a1b28be5e79572206b70f&utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20Main&utm_term=4580221845592405&utm_content=s-christian%20living) by Rick Warren
 
 
 ## 2018
