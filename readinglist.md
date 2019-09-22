@@ -6,6 +6,8 @@ layout: default
 
 ### Books
 #### Up Next 
+* [The Wisdom of Jesus: Transforming Heart and Mind - A New Perspective on Christ and His Message](https://www.amazon.com/Wisdom-Jesus-Transforming-Mind-Perspective/dp/1590305809) by Cynthia Bourgeault
+* [Love Does: Discover a Secretly Incredible Life in an Ordinary World](https://www.amazon.com/Love-Does-Discover-Secretly-Incredible/dp/1400203759) by Bob Goff
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
