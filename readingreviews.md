@@ -39,12 +39,10 @@ As I read books and news through 2019, I will review outstanding stories critica
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics, Government, and Civil Rights
 * [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
-* [A Trade War Over History? Sort Of. Why Japan and South Korea are Feuding.](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
 * [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
 * [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 * [Rep. John Lewis on the ‘Unfinished Work’ in the Civil Rights Movement](https://www.aspeninstitute.org/blog-posts/rep-john-lewis-on-the-unfinished-work-in-the-civil-rights-movement/)
 * [The Poverty of Partisan Identity](https://thefulcrum.us/civic-ed/the-poverty-of-partisan-identity)
-* [China’s Spies Are on the Offensive](https://www.theatlantic.com/politics/archive/2019/08/inside-us-china-espionage-war/595747/?utm_medium=social&utm_source=twitter&utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2019-08-26T09%3A00%3A23)
 * [Trump’s Two G7 Summits](https://www.theatlantic.com/international/archive/2019/08/donald-trump-g7-summit/596788/?utm_content=edit-promo&utm_term=2019-08-25T19%3A33%3A11&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter)
 * [Encircling the Interrupters with Civility](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0823/Encircling-the-interrupters-with-civility?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566586019)
 * [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
@@ -86,6 +84,22 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 <br>
+
+
+### [China’s Spies Are on the Offensive](https://www.theatlantic.com/politics/archive/2019/08/inside-us-china-espionage-war/595747/?utm_medium=social&utm_source=twitter&utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2019-08-26T09%3A00%3A23)
+Mike Giglio, in late August 2019 covered the espionage offensive against the United States, which China's spies have been waging. In his article, he asks whether America has what it takes to stop them. Reporting on the warfare between China and the United States, Giglio explains the story of Kevin Mallory, a military member and a CIA and Defense Intelligence Agency officer, who after struggling financially for years, ventured into the private sector potentially for better prospects but experienced trouble with the Chinese.
+
+Giglio shares how while Mallory's private consulting business floundered, a Chinese recruitor began messaging him on LinkedIn, and conversations with this individual led him down the wrong path. Communication with the recruitor led him to Shanghai, and in China, an "espionage relationship" began that saw him "receive $25,000 over two months in exchange for handing over government secrets." The FBI ultimately caught him with secret, classified documents; and under the Espionage Act, the FBI charged him "with selling U.S. secrets to China and convicted by a jury last spring", accused him of "uncovering Chinese spies", and sentenced him to 20 years in prison. 
+
+Other Americans have experienced this same tragedy, and an "alarming sign for the U.S. intelligence community, which sees China in the same tier as Russia as America's top espionage threat" exists. Ron Hansen, a former DIA officer, has been in trouble with the Chinese, and a DIA case officer caught him. And Jerry Chun Shing Lee's, a former CIA officer, represents the most enigmatic example of espionage.
+
+Explaining the significance of these three espionage cases caught, Giglio writes that "espionage and counterespionage have been essential tools of statecraft for centuries, of course, and U.S. and Chinese intelligence agencies have been battling one another for decades"; but evidence shows that "the intelligence war is escalating" and that "China has increased both the scope and the sophistication of its efforts to steal secrets from the U.S." More people maybe have engaged in this crime, indiciating a serious problem.
+
+In an effort to uncover crime, Giglio highlights that the public sees few of these cases. Quoting a U.S. intelligence official, he reports, "Some of the cases rarely see the light of a courtoom, because there's classified material we're not willing to risk...sometimes they're not charged at all and are handled through other means. And there are others that remain ongoing that have not and will not become public." The cases that reach the public, however, reveal a "growing intelligence war" between the U.S. and China, "in the shadows"; and as China advances, the intelligence officers grow more sophisticated with more ability to exploit former American intelligence officers through espionage operations.
+
+Presenting to readers more details on China's methods, targets, and goals, and what the U.S. needs to do combat the problem, Giglio provides background information. While China has played this game for decades, the rules of the game have changed. Based on information from Americans legally researching communication from the Chinese spies, tactics have moved from being basic human ones to amplified ones on social media to convince a target to go to the country.
+
+In response to the problem, Donald Trump has made growing tougher on the country central to his efforts to change foreign policy. Explaining a shift in how the U.S. must work with China, Giglio writes, that after decades of the U.S. embracing trade with China, evidence of aggressive espionage tactics show that trust and hope have been misplaced. And as China becomes better resourced and more sophisticated, Americans must learn to play the new game. Giglio reports that "if America is indeed entering an era of 'great power' conflict with China, then the crux of the struggle will likely take place not on a battlefield, but in the race for information, at least for now", and "U.S. officials have been warning companies and research instiutions not just of the strings that might be attached to Chinese money, but of the danger of corrupted employees turned spies."
 
 
 ### [The Power of Language: How Words Shape People and Culture](https://news.stanford.edu/2019/08/22/the-power-of-language-how-words-shape-people-culture/)
