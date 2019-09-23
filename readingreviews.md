@@ -86,6 +86,14 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+### [A Trade War Over History? Sort of. Why Japan and South Korea are Feuding](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
+
+
+<br>
+
+<br>
+
+
 ### [China’s Spies Are on the Offensive](https://www.theatlantic.com/politics/archive/2019/08/inside-us-china-espionage-war/595747/?utm_medium=social&utm_source=twitter&utm_campaign=the-atlantic&utm_content=edit-promo&utm_term=2019-08-26T09%3A00%3A23)
 Mike Giglio, in late August 2019 covered the espionage offensive against the United States, which China's spies have been waging. In his article, he asks whether America has what it takes to stop them. Reporting on the warfare between China and the United States, Giglio explains the story of Kevin Mallory, a military member and a CIA and Defense Intelligence Agency officer, who after struggling financially for years, ventured into the private sector potentially for better prospects but experienced trouble with the Chinese.
 
@@ -99,7 +107,16 @@ In an effort to uncover crime, Giglio highlights that the public sees few of the
 
 Presenting to readers more details on China's methods, targets, and goals, and what the U.S. needs to do combat the problem, Giglio provides background information. While China has played this game for decades, the rules of the game have changed. Based on information from Americans legally researching communication from the Chinese spies, tactics have moved from being basic human ones to amplified ones on social media to convince a target to go to the country.
 
-In response to the problem, Donald Trump has made growing tougher on the country central to his efforts to change foreign policy. Explaining a shift in how the U.S. must work with China, Giglio writes, that after decades of the U.S. embracing trade with China, evidence of aggressive espionage tactics show that trust and hope have been misplaced. And as China becomes better resourced and more sophisticated, Americans must learn to play the new game. Giglio reports that "if America is indeed entering an era of 'great power' conflict with China, then the crux of the struggle will likely take place not on a battlefield, but in the race for information, at least for now", and "U.S. officials have been warning companies and research instiutions not just of the strings that might be attached to Chinese money, but of the danger of corrupted employees turned spies."
+In response to the problem, Donald Trump has grown tougher on the country through his foreign policy efforts. Explaining a shift in how the U.S. must work with China, Giglio writes, that after decades of the U.S. embracing trade with China, evidence of aggressive espionage tactics show that trust and hope have been misplaced. And as China becomes more sophisticated, Americans must learn to play the new game. Giglio reports that "if America is indeed entering an era of 'great power' conflict with China, then the crux of the struggle will likely take place not on a battlefield, but in the race for information, at least for now", and "U.S. officials have been warning companies and research instiutions not just of the strings that might be attached to Chinese money, but of the danger of corrupted employees turned spies."
+
+Giglio reports further on the state of national intelligence, big data, and security in the U.S., Russia, and China, and the tactics China takes to recruit former U.S. officers for a seemingly attractive "business opportunity". He reports that once an intelligence officer in China recruits someone successfully, Chinese operatives ask the people to pass over sensitive information, and Americans find themselves in a trap. And Giglio summarizes a book that James Olson wrote to capture how China's espionage services work and explains how counterintelligence has become a top priority to combat the pernicious spying. Giglio writes, "in a sense, going after American spies and government officials is fair game in the intelligence world. The U.S. does the same against the Chinese. 'Intelligence operations are universal, with every country—other than a few isolated island-states who are concerned mainly with the danger of approaching cyclones—engaging in them, to one degree or another,'" according to Loch K. Johnson, the author of Spy Watching: Intelligence Accountability in the United States, and one of America's foremost intelligence scholars. What is the difference between the two countries' tactics? Giglio reports that "China's aggressive approach to economic espionage" differs, and China sees America as a threat; China regularly holds America's past covert action against them, and the Asian country denies spying on the U.S.
+
+Summarizing the economic nature of the espionage and the business environment, Giglio writes the following: "The open business climate between America and China—the sort of climate that did not exist between America and the Soviet Union during the Cold War—makes addressing Chinese espionage trickier: China is both a rival and a top trade partner. The economic and research relationship between the two countries benefits them both. At the same time, Chinese immigrants and visitors to America risk being unfairly targeted if U.S. officials fail to find the right balance, which would cast a chill on legitimate exchange between the two countries while raising the specter of American overreactions during past struggles, from the Cold War to the War on Terror. As U.S. officials warn about the Chinese espionage threat and the U.S. intelligence community reorients to face it, they must be careful not to undermine the American values—openness, civil liberty, enterprise—that remain perhaps the country’s greatest advantage over China." Quoting Rodney Faraon, he reports "'The approach must be whole of government and must involve the private sector. The Chinese use and value intelligence better than we do, seeing its applicability in nearly every aspect of private and public life—military, social, commercial. We have been slow to recognize this for ourselves.'”
+
+
+<br>
+
+<br>
 
 
 ### [The Power of Language: How Words Shape People and Culture](https://news.stanford.edu/2019/08/22/the-power-of-language-how-words-shape-people-culture/)
