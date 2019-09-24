@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Up Next 
-* [The Wisdom of Jesus: Transforming Heart and Mind - A New Perspective on Christ and His Message](https://www.amazon.com/Wisdom-Jesus-Transforming-Mind-Perspective/dp/1590305809) by Cynthia Bourgeault
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
@@ -87,6 +86,7 @@ layout: default
 * [Unoffendable: How Just One Change Can Make All of Life Better](https://www.amazon.com/Unoffendable-Just-Change-Make-Better/dp/0529123851) by Brant Hansen
 * [The Purpose-Driven Life: What On Earth Am I Here For?](https://www.christianbook.com/purpose-driven-life-what-earth-here/rick-warren/9780310337508/pd/337508?en=bing-pla&event=SHOP&kw=christian-living-0-20%7C337508&p=1179517&dv=c&msclkid=0d8224d1674a1b28be5e79572206b70f&utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20Main&utm_term=4580221845592405&utm_content=s-christian%20living) by Rick Warren
 * [Love Does: Discover a Secretly Incredible Life in an Ordinary World](https://www.amazon.com/Love-Does-Discover-Secretly-Incredible/dp/1400203759) by Bob Goff
+* [The Wisdom of Jesus: Transforming Heart and Mind - A New Perspective on Christ and His Message](https://www.amazon.com/Wisdom-Jesus-Transforming-Mind-Perspective/dp/1590305809) by Cynthia Bourgeault
 
 
 ## 2018
