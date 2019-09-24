@@ -47,6 +47,9 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Encircling the Interrupters with Civility](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0823/Encircling-the-interrupters-with-civility?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566586019)
 * [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
 * [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
+* [Why the World Needs India to Win](https://www.csmonitor.com/Commentary/upfront-blog/2019/0904/Why-the-world-needs-India-to-win?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1567699962)
+* [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
+* [Lima’s ‘Wall of Shame’ and the Art of Building Barriers](https://www.theatlantic.com/international/archive/2019/09/peru-lima-wall/597085/?utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter&utm_term=2019-09-07T10%3A00%3A13&utm_content=edit-promo)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
@@ -60,12 +63,14 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Working In While Eating Out: The Evolution of Doing Business While Dining](https://www.npr.org/sections/thesalt/2019/08/26/753718969/working-in-while-eating-out-the-evolution-of-doing-business-while-dining?utm_term=nprnews&utm_medium=social&utm_source=twitter.com&utm_campaign=npr)
 * [The Next Recession Will Destroy Millennials](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
 * [The Resume of the Future Will Tell Employers Who You Are, and Not Just What You've Done](https://qz.com/work/1232692/the-resume-of-the-future/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=30a275eccc39e7028bd012481c1f1e36)
+* [Young People Are Going to Save Us All From Office Life](https://www.nytimes.com/2019/09/17/style/generation-z-millennials-work-life-balance.html)
 
 ### Reviews Up Next - Technology 
 * [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
 * [The Amazon Publishing Juggernaut](https://www.theatlantic.com/technology/archive/2019/08/amazons-plan-take-over-world-publishing/595630/)
 * [Inside India’s Messy Electric Vehicle Revolution](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
 * [Can You Guess Which of These Paintings Was Not Made by a Human?](https://qz.com/work/1390121/can-you-guess-which-of-these-paintings-was-not-made-by-a-human/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=14f9ea0f3736138f5992111e20b2768f)
+* [The Devastating Consequences of Being Poor in the Digital Age](https://www.nytimes.com/2019/04/25/opinion/privacy-poverty.html)
 
 ### Reviews Up Next - Human History, Social Science, Culture, Communication, Education, and Environment
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
@@ -75,6 +80,13 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
 * [The Hopefulness and Hopelessness of 1619](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 * [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
+* [Using Dance to Promote SEL Skills](https://www.edutopia.org/article/using-dance-promote-sel-skills?utm_source=twitter&utm_medium=socialflow)
+* [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
+* [Every Student Matters: Cultivating Belonging in the Classroom](https://www.edutopia.org/article/every-student-matters-cultivating-belonging-classroom)
+* [More Public Schools are Embracing the Bible. Is it Literature, or Religion?](https://www.csmonitor.com/USA/Education/2019/0918/More-public-schools-are-embracing-the-Bible.-Is-it-literature-or-religion?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1568851947)
+* [This Chilling Video from Sandy Hook Promise Shows How Gun Violence is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
+* [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
+* [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
 
 ### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
@@ -94,7 +106,13 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ### [A Trade War Over History? Sort of. Why Japan and South Korea are Feuding](https://www.csmonitor.com/Daily/2019/20190809?cmpid=ema:bundle:20190809&id=1093889)
-Ann Scott Tyson and Howard LaFranchi, two staff writers with the Christian Science Monitor, wrote on Japan's and South Korea's trade war, which threatens business globally and increases the divides between the U.S.'s allies in East Asia. How did the trade war start? The article's writers explain how historical events contributed to the war beginning.
+Ann Scott Tyson and Howard LaFranchi, two staff writers with the Christian Science Monitor, wrote on Japan's and South Korea's trade war, which threatens business globally and increases the tension between the U.S.'s allies in East Asia. How did the trade war start? The article's writers explain how historical events contributed to the war beginning.
+
+Narrating how the trade conflict started, the Tyson and LaFranchi report on the need "to look back to at least 1910, when Japan annexed Korea." Ever since this historical event, Japan and Korea have fought over trade, and animosity between the two nations has governed their relations. The recent export restrictions that Tokyo, Japan has placed on South Korea evolves from past tension; and the restraint on the export of over 1,000 key chemicals, materials, and products to South Korea impacts the manufacturing of technology like smartphone screens and semiconductors. The trade war will impact business globally.
+
+Anticipating readers' interest in the issue, the writers answer the question, "What is the United States doing – or not – to help smooth tensions?" The U.S. does not normally intervene the conflict between Japan and South Korea. Since this conflict influences the global marketplace, however, will the U.S. respond differently? The authors report that the Trump administration is "being particularly hands-off." According to government leaders that the authors talked with, the "Trump administration faces a 'much more challenging environment'" as the tradewar impacts global economics and security.
+
+Further reporting on the U.S.'s role, the writers explain that the country no longer works as a "dominant power" in Asia as it did a decade ago. As as the U.S.'s involvement wanes, the two East Asian allies "turn their backs on one another to pursue perceived national interests." According to experts, international relations do now show evidence that the U.S. is not dependable, as the two East Asian countries are not growing closer together, and they are rather drifting apart with Japan "looking to Australia" and South Korea "focus[ing] on North Korea."
 
 
 <br>
