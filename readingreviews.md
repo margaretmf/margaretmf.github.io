@@ -87,9 +87,9 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [This Chilling Video from Sandy Hook Promise Shows How Gun Violence is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
 * [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
 * [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
-
-### Reviews Up Next - The Choices of Facing Community Colleges
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+
+### Reviews Up Next - [1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html)
 
 
 <br>
@@ -98,6 +98,17 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ### [In Afghanistan, Weaving Ancient Industry Back into Global Market](https://www.csmonitor.com/World/Middle-East/2019/0821/In-Afghanistan-weaving-ancient-industry-back-into-global-market?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566803284)
+Scott Peterson, a staff writer with the Christian Science Monitor in August 2019 reported on the "soul" of the Afghan carpets that vendors sell. He shares a story with readers how the Afghans have been reclaiming their best work of art.
+
+While nothing has changed with women in Afghanistan sitting at looms, creating carpets in Kabul, the art of weaving has become a part of a broader project to transform the industry. Peterson reports that the weavers hope to break the pattern of isolating the industry off and begin to share their gift to the world within the international market. Supporting the Afghans' finest talents and products, "the British development organization Turquoise Mountain aims to herald a renaissance in Afghan carpet weaving."
+
+To provide more background on the industry, Peterson provides readers with a fact: 1.6 million Afghans work in the carpet business, and most of them work from home. Because of political conflict, however, they sent many of the carpets to Pakistan, and businessmen put "Made in Pakistan" labels on the products. The British organization, Turquoise Mountain, has been working to bring the carpets back to Afghanistan, and bring attention to the home country. Painting the full picture of the importance of the rugs, Peterson quotes Nathalie Paarlberg, the Afghanistan deputy country director of Turquoise Mountain in Kabul, who said, "'Carpets have been produced in this region for millennia - not even hundreds of years, but thousands of years. And when people speak about Afghan rugs, it resonates. ...An 'Afghan carpet' is a thing.'" 
+
+Because of the importance of the rugs, the market should not stay in isolated like it has for the past four decades due to political warfare. One of the aims of Turquoise Mountain's project is to "change that equation for buyers"; other goals include "creating 4,750 jobs" and "selling $19 million worth of consistently high-quality Afghan carpets from the 15 producers they work with." Peterson writes that "despite being out of the global market for a generation, Afghanistan still holds a grip on the imagination"; the carpets possess a "magical quality" and represent the "soul" of the nation. The story behind the rugs at the looms, where women traditionally weave in a well-lit space, is a beautiful part of Afghan culture.
+
+Sharing more information on the project, Peterson reports that "weaving producers can easily employ 2,000 families each", and "10 weaving centers" work with Turquoise Mountain in the cities. And Turquoise Mountain serves as the "trusted partner for international buyers" to support the Afghan business; the British development organization "oversee[s] production", "make[s] sure the design is interpreted and graphed correctly", and "take[s] care of all shipping and logistics." Peterson concludes the article with Ms. Paarlberg's words: "A middleman is often a dirty word in development terms"..."But trusted partners [are necessary]..."
+
+Peterson captures an interesting shift in how the Afghans do business in the international market after forty years of conlict and "Made in Pakistan" labels being marked on their rugs. He shares well the living spirit within Afghanistan.
 
 
 <br>
