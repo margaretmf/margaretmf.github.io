@@ -49,7 +49,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
 * [Why the World Needs India to Win](https://www.csmonitor.com/Commentary/upfront-blog/2019/0904/Why-the-world-needs-India-to-win?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1567699962)
 * [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
-* [Lima’s ‘Wall of Shame’ and the Art of Building Barriers](https://www.theatlantic.com/international/archive/2019/09/peru-lima-wall/597085/?utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter&utm_term=2019-09-07T10%3A00%3A13&utm_content=edit-promo)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
@@ -89,7 +88,18 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
 
-### Reviews Up Next - [1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html)
+
+### [The Hopefulness and Hopelessness of 1619](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
+In August 2019, Ibram Kendi wrote on the first enslaved African-Americans who contributed to the founding of America around the same time that the New York Times produced [the 1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html).
+
+
+<br>
+
+<br>
+
+
+### [Lima’s ‘Wall of Shame’ and the Art of Building Barriers](https://www.theatlantic.com/international/archive/2019/09/peru-lima-wall/597085/?utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter&utm_term=2019-09-07T10%3A00%3A13&utm_content=edit-promo)
+In September 2019, Megan Janetsky reported on the construction workers, who built a wall in Lima, Peru to put barriers up around Raquel Yanac.
 
 
 <br>
