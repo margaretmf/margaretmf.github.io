@@ -87,6 +87,7 @@ layout: default
 * [The Purpose-Driven Life: What On Earth Am I Here For?](https://www.christianbook.com/purpose-driven-life-what-earth-here/rick-warren/9780310337508/pd/337508?en=bing-pla&event=SHOP&kw=christian-living-0-20%7C337508&p=1179517&dv=c&msclkid=0d8224d1674a1b28be5e79572206b70f&utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20Main&utm_term=4580221845592405&utm_content=s-christian%20living) by Rick Warren
 * [Love Does: Discover a Secretly Incredible Life in an Ordinary World](https://www.amazon.com/Love-Does-Discover-Secretly-Incredible/dp/1400203759) by Bob Goff
 * [The Wisdom of Jesus: Transforming Heart and Mind - A New Perspective on Christ and His Message](https://www.amazon.com/Wisdom-Jesus-Transforming-Mind-Perspective/dp/1590305809) by Cynthia Bourgeault
+* [The Case Against Reality: Why Evolution Hid the Truth from Our Eyes](https://www.amazon.com/Case-Against-Reality-Evolution-Truth/dp/1799709302/ref=asc_df_1799709302/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451667775393&psc=1)
 
 
 ## 2018
