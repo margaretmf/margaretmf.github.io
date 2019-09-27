@@ -49,6 +49,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
 * [Why the World Needs India to Win](https://www.csmonitor.com/Commentary/upfront-blog/2019/0904/Why-the-world-needs-India-to-win?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1567699962)
 * [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
+* [Trump, Pelosi, and the ‘Fog of Politics’](https://www.csmonitor.com/Daily/2019/20190926#1096280)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
@@ -75,13 +76,9 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 * [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
-* [The Hopefulness and Hopelessness of 1619: Marking the 400-year African American Struggle to Survive and to Be Free of Racism](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 * [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
-* [The Hopefulness and Hopelessness of 1619](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 * [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
-* [Using Dance to Promote SEL Skills](https://www.edutopia.org/article/using-dance-promote-sel-skills?utm_source=twitter&utm_medium=socialflow)
 * [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
-* [Every Student Matters: Cultivating Belonging in the Classroom](https://www.edutopia.org/article/every-student-matters-cultivating-belonging-classroom)
 * [More Public Schools are Embracing the Bible. Is it Literature, or Religion?](https://www.csmonitor.com/USA/Education/2019/0918/More-public-schools-are-embracing-the-Bible.-Is-it-literature-or-religion?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1568851947)
 * [This Chilling Video from Sandy Hook Promise Shows How Gun Violence is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
 * [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
@@ -89,8 +86,56 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
 
 
+<br>
+
+<br>
+
+
+### [Every Student Matters: Cultivating Belonging in the Classroom](https://www.edutopia.org/article/every-student-matters-cultivating-belonging-classroom)
+In September 2019, Michael Dunlea wrote on classroom strategies that help all students belong.
+
+
+<br>
+
+<br>
+
+
+### [Using Dance to Promote SEL Skills](https://www.edutopia.org/article/using-dance-promote-sel-skills?utm_source=twitter&utm_medium=socialflow)
+In August 2019, Margot Toppen covered how dance class in school helps students develop social and emotional learning skills.
+
+
+<br>
+
+<br>
+
+
 ### [The Hopefulness and Hopelessness of 1619](https://www.theatlantic.com/ideas/archive/2019/08/historical-significance-1619/596365/?utm_content=edit-promo&utm_term=2019-08-20T10%3A30%3A19&utm_source=twitter&utm_medium=social&utm_campaign=the-atlantic)
 In August 2019, Ibram Kendi wrote on the first enslaved African-Americans who contributed to the founding of America around the same time that the New York Times produced [the 1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html).
+
+Creatively, Kendi introduces readers to Angela and John, a black woman and a white man, who moved to Point Comfort, Virginia. "Her name was Angela, one of the first known Africans in British North America. His name was John, the first known antiblack racist in colonial America...Angela was the original embodiment of enslavement, of survival, of the 400-year African American struggle to survive, to be free of racism. John was the original embodiment of elite white male power, of the democracy of racists, of its 400-year struggle to survive, to be free of anti-racism." Traditionally, people share stories from the perspective of the elite, or those in power; but 400 years after the first African Americans moved to Virginia, people work to share stories from the perspectives of others and capture the full picture. 
+
+As an essayist in the New York Times project wrote, African Americans have fought over the past centuries for the ideals that the country's founder envisioned but did not live up to. And in retelling the history, Kendi portrays African America in a positive light; in reality, African Americans have "hopefully and hopelessly [fought] off the giant John from 1619 to 2019 for life, liberty, and the pursuit of happiness", with Angela representing "the beginning of hope, the North Star essential to anti-racism."  He writes that African Americans today have a right to feel both hopeful and hopeless; but choosing hope leads to Americans' ability to live up to the founding ideals.
+
+Not only did Angela arrive to North America as an enslaved woman from Africa 400 years ago; so did 22 or 23 others from the country. Kendi quotes historian Thomas C. Holt, reporting that "'A muster roll for March 1619 shows that there were already thirty-two African slaves' in Virginia. But no one knows when and how they arrived." After they arrived, people did little work to record when enslaved African Americans were born, and they themselves never learned their birthday; hence Kendi and other African-Americans rightfully "feel more like" this year marks "the day [they were] diagnosed with metastatic cancer" and "live in fear that metastatic racism will never go away." While ideals behind America promote hopefulness, every day, African Americans battle hopelessness; 400 years after the first African Americans arrived to North America, Kendi explains how they can choose to battle the "original hopelessness" or fight for the ideals with hopefulness.
+
+Kendi further recaps America's racist history. Typically, people write history from John's perspective; "someone like John is indispensable", and "John is still harming Angela, brewing our hopelessness" with white men dominating government and legislation. Kendi writes, "it is hardly coincidental that this nation's first experiment in (wealthy, white male) democracy emerged alonside the first experiment with black enslavement (and Native assimilation), that the history of African America and American democracy are both rooted in 1619..." when "...John's freedom begot Angela's enslavement." And this "is all happening now" also, even though today, more people have the freedom and hope to tell stories in a new way and shine the light on those who have always deserved to be free, equal, and happy like the white men in power.
+
+Reporting the story of Angela, Kendi writes the following: "No one knows when Angela was born. But she was probably young. If she was 19 years old in 1619, she’d have been born in 1600, the year John translated into English and published A Geographical Historie of Africa, a book of racist ideas about Angela’s race. First written in 1526, and popular as late as the 19th century, its racist ideas apparently had to be true since they were written by an African Moor, Leo Africanus (who probably sought favor from the Italian court that had freed and converted him). 'The Negroes likewise leade a beastly kinde of life, being utterly destitute of the use of reason, of dexteritie of wit, and of all artes,' Africanus wrote. 'Yea they so behave themselves, as if they had continually lived in a forrest among wilde beasts.'" He further reports how John writes about Angela and the African Americans. While racists wrote about people like Angela being "beastly", Kendi writes that "Angela was no wild best, but she was an enslaved one" when "among the 350 Angolans herded onto an overcrowded slaveship in 1619"; and men like John so no problem with making these Angolans their servants. 
+
+Kendi covers the fact that 300 years after the first Africans arrived to America, Angela's descendents "were still mostly disenfrancised domestics like she was, or working in the fields for subsistence wages." And 400 years later, Donald Trump and his followers echo the dominant class that treated African Americans despicably in the past. Rightfully, this class of people in the world feel hopeless; but they have demonstrated hope and persistence in fighting for liberty and justice in the third and fourth centuries since their original arrival, with Angela being the first to find ways to "resist and survive", and others like Frederick Douglass, Ida B. Wells, Martin LUther King, Jr. Whitney Houston, Barack Obama, and Oal Tometi marching the whole of humanity forward into a more free state. Reporting on the hopelessness and the hopefulness, the article's author writes, "it is unbearably tough to be hopeful amid all this denial, while living in this so-called heaven that feels worse than hell. I feel connected to the hopelessness Angela must have felt stepping off that ship of terror into the terror of slavery. Then again, I know hope is essential to African Americans surviving racism another 400 years. In order to bring about change, we have to believe change is possible. We can’t be cynics believing racism is permanent, since it has been ailing us for 400 years. Cynicism is the kryptonite of change." After writing this, Kendi closes with hope for Angela in the next 400 years.
+
+Kendi connects his perspective with the experience of Angela and the challenges for African-Americas well through the use of language and emotion. After reading his story, it's enlightening to read the following essays from [the 1619 Project](https://www.nytimes.com/interactive/2019/08/14/magazine/1619-america-slavery.html) by the following writers:
+
+* [Nikole Hannah-Jones](https://www.nytimes.com/interactive/2019/08/14/magazine/black-history-american-democracy.html), "Our democracy’s founding ideals were false when they were written. Black mericans have fought to make them true."
+* [Matthew Desmond](https://www.nytimes.com/interactive/2019/08/14/magazine/slavery-capitalism.html), "In order to understand the brutality of American capitalism, you have to start on the plantation."
+* [Linda Villarosa](https://www.nytimes.com/interactive/2019/08/14/magazine/racial-differences-doctors.html), "Myths about physical racial differences were used to justify slavery — and are still believed by doctors today."
+* [Jamelle Bouie](https://www.nytimes.com/interactive/2019/08/14/magazine/republicans-racism-african-americans.html), "America holds onto an undemocratic assumption from its founding: that some people deserve more power than others."
+* [Wesley Morris](https://www.nytimes.com/interactive/2019/08/14/magazine/music-black-culture-appropriation.html), "For centuries, black music, forged in bondage, has been the sound of complete artistic freedom. No wonder everybody is always stealing it."
+* [Kevin Kruse](https://www.nytimes.com/interactive/2019/08/14/magazine/traffic-atlanta-segregation.html), "What does a traffic jam in tlanta have to do with segregation? Quite a lot."
+* [Jeneen Interlandi](https://www.nytimes.com/interactive/2019/08/14/magazine/universal-health-care-racism.html), "Why doesn’t the United tates have universal health care? The answer has everything to do with race."
+* [Bryan Stevenson](https://www.nytimes.com/interactive/2019/08/14/magazine/prison-industrial-complex-slavery-racism.html), "Slavery gave America a fear of black people and a taste for violent punishment. Both still define our criminal-justice system."
+* [Khalil Gibran Muhammad](https://www.nytimes.com/interactive/2019/08/14/magazine/sugar-slave-trade-slavery.html), "The sugar that saturates the merican diet has a barbaric history as the ‘white gold’ that fueled slavery."
+* [Trymaine Lee](https://www.nytimes.com/interactive/2019/08/14/magazine/racial-wealth-gap.html), "A vast wealth gap, driven by segregation, redlining, evictions and exclusion, separates black and white merica."
 
 
 <br>
