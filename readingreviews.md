@@ -47,7 +47,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Encircling the Interrupters with Civility](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0823/Encircling-the-interrupters-with-civility?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566586019)
 * [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
 * [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
-* [Why the World Needs India to Win](https://www.csmonitor.com/Commentary/upfront-blog/2019/0904/Why-the-world-needs-India-to-win?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1567699962)
 * [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
 * [Trump, Pelosi, and the ‘Fog of Politics’](https://www.csmonitor.com/Daily/2019/20190926#1096280)
 
@@ -102,6 +101,25 @@ In September 2019, Michael Dunlea wrote on classroom strategies that help all st
 
 ### [Using Dance to Promote SEL Skills](https://www.edutopia.org/article/using-dance-promote-sel-skills?utm_source=twitter&utm_medium=socialflow)
 In August 2019, Margot Toppen covered how dance class in school helps students develop social and emotional learning skills.
+
+
+<br>
+
+<br>
+
+
+### [Why the World Needs India to Win](https://www.csmonitor.com/Commentary/upfront-blog/2019/0904/Why-the-world-needs-India-to-win?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1567699962)
+Mark Sappenfield, editor with the Christian Science Monitor, asks the question, "Can a country be too diverse for democracy to work?" when covering the current political events in India. He responds, "India’s only path to superpower status lies in proving that the answer is no."
+
+In reporting on India, the editor compares the country to China. He reports that as a correspondent in India in past years, he had viewed the two country "as brothers that had taken different roads to the present. Both were the only members of the world’s billion-citizen club and both shared an agrarian past beset by crushing poverty." In reality, in the Beijing airport, he discovered that the two nations shared nothing in common. The reason, Sappenfields reports is "democracy."
+
+Sappenfield explains that China has done incredible work because it operates as an autocracy, making it effective. He writes, that "the Communist Party didn't need to listen to the people", and when people spoke up, the government stopped them from using their voices. India is different; the country operates as a democracy with many diverse ethnicities, religions, and language groups; representing all these people as "one voice" in such a big country can be "unwieldy." China does not believe in India's potential, so how does India become a "superpower"? Sappenfield writes that the road for India "is much, much harder than" the one "China has taken. But if it can be done, it is exponentially more powerful" because the nation is democratically run.
+
+China was able to do the remarkable because it had the efficiency of autocracy. The Communist Party didn’t need to listen to the people. Quite the opposite. When people tried to get in the way of its grand plans, they were silenced. Slowly, the Communists figured out how to marry economic freedom with absolute political control. The result is an economic juggernaut run with exacting precision.
+
+After Sappenfield's introduction, Howard LaFranchi, a staff writer with the Monitor, shares an "examin[ation]" of India's path to "global superpower status.", and he reports on how the nation fits with with China's work.
+
+India and China are two important countries for people to understand in the 21st century, and Sappenfield succinctly provides a backfround for a study of the current affairs.
 
 
 <br>
