@@ -20,7 +20,7 @@ layout: default
 * [An End to Upside Down Thinking: Dispelling the Myth That the Brain Produces Consciousness, and the Implications for Everyday Life](https://www.amazon.com/End-Upside-Down-Thinking-Consciousness/dp/1947637851) by Mark Gober
 * [Novacene: The Coming Age of Hyperintelligence](https://www.amazon.co.uk/Novacene-Coming-Hyperintelligence-James-Lovelock/dp/024139936X) by James Lovelock
 * [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
-* [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet ](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
+* [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
 * [I Love You, but I Hate Your Politics: How to Protect Your Intimate Relationships in a Poisonous Partisan World](https://www.amazon.com/Love-Hate-Your-Politics-Relationships/dp/1250200393) by Jeanne Safer
 
 
