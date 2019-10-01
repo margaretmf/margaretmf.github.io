@@ -49,6 +49,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
 * [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
 * [Trump, Pelosi, and the ‘Fog of Politics’](https://www.csmonitor.com/Daily/2019/20190926#1096280)
+* [Trump, Impeachment, and US voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
 
 ### Reviews Up Next - Capitalism and Innovation
 * [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
@@ -83,6 +84,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
 * [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
 * [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
+* [Pitch Perfect? How Culture Shapes the Way You Hear Music](https://www.csmonitor.com/Daily/2019/20190927?cmpid=ema:bundle:20190927&id=1096066)
 
 
 <br>
@@ -99,8 +101,27 @@ In September 2019, Michael Dunlea wrote on classroom strategies that help all st
 <br>
 
 
+### [Local News Takes a Stand](https://www.csmonitor.com/Daily/2019/20190930#1096435)
+Doug Struck, a correspondent with the Christian Science Monitor in September 2019 writes are 'news deserts'. "'News deserts' are a reality, and big revenues a thing of the past. To keep providing a public service, local news publishers are using unconventional methods to forge individual models of success."
+
+
+<br>
+
+<br>
+
+
 ### [Using Dance to Promote SEL Skills](https://www.edutopia.org/article/using-dance-promote-sel-skills?utm_source=twitter&utm_medium=socialflow)
-In August 2019, Margot Toppen covered how dance class in school helps students develop social and emotional learning skills.
+In August 2019, Margot Toppen covered how dance class in school helps students develop social and emotional learning skills. She reports that last year, a teacher began incorporating dance into her classes to help special education students connect socially and emotionally. Toppen writes that "the energy of the music and the students' focus on the steps helped them forget about any differences they felt between themselves and the classmates." And she reports that the classroom strategy worked; "the lessons" from the dancing "helped students explore ideas of diversity and social engagement."
+
+The strategy that this teacher used confirms that "the most successful social and emotional learning (SEL) programs use active forms of learning", like art or physical education to draw out students' natural abilities, strengths, and goodness. Toppen reports that despite the evidence, however, most schools do not "include or prioritize" dance in the curriculum.
+
+What prevents schools from incorporating dance and the arts into schools? Most people do not feel comfortable with that form of teaching, however, most students find that music relieves tension and increases their happiness. Toppin reinforces the main point in the news report that "dance can be used to foster students' intrapersonal and interpersonal SEL skills." Teachers can start with something simple like a "free Dance-of-the-Month lesson" from EduMotion or the H.Y.P.E.
+
+Researchers find that "self-awareness and self-management are fundamentally rooted in the body", so dance helps to build "emotional awareness, self-perception, and impulse control." Toppin explains how teachers can connect understanding their emotions to understanding their body through dance and music.
+
+Additionally, the dance can help students work with their peers and use their bodies together. Dance is a nonverbal communication technique, and students can learn to bond with others in this way.
+
+Finally, dance represents culture, so dance and music can help teachers share lessons on diversity, equity, and inclusion. Toppin reports that "by studying dance forms that originate in other parts of the world, students gain understanding of the history, identities, and values of others."
 
 
 <br>
