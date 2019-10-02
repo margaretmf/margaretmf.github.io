@@ -39,13 +39,10 @@ As I read books and news through 2019, I will review outstanding stories critica
 ## 2019 NEWS REVIEWS
 ### Reviews Up Next - Politics, Government, and Civil Rights
 * [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
-* [To Fight Trump, Take to the Streets!](https://www.thenation.com/article/trump-protest-march-revolution/)
-* [The Millennial Left Is Tired of Waiting](https://www.theatlantic.com/ideas/archive/2019/07/democrats-are-experiencing-clash-generations/594808/)
 * [Rep. John Lewis on the ‘Unfinished Work’ in the Civil Rights Movement](https://www.aspeninstitute.org/blog-posts/rep-john-lewis-on-the-unfinished-work-in-the-civil-rights-movement/)
 * [The Poverty of Partisan Identity](https://thefulcrum.us/civic-ed/the-poverty-of-partisan-identity)
 * [Trump’s Two G7 Summits](https://www.theatlantic.com/international/archive/2019/08/donald-trump-g7-summit/596788/?utm_content=edit-promo&utm_term=2019-08-25T19%3A33%3A11&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter)
 * [Encircling the Interrupters with Civility](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0823/Encircling-the-interrupters-with-civility?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566586019)
-* [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
 * [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
 * [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
 * [Trump, Pelosi, and the ‘Fog of Politics’](https://www.csmonitor.com/Daily/2019/20190926#1096280)
@@ -63,7 +60,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 * [Working In While Eating Out: The Evolution of Doing Business While Dining](https://www.npr.org/sections/thesalt/2019/08/26/753718969/working-in-while-eating-out-the-evolution-of-doing-business-while-dining?utm_term=nprnews&utm_medium=social&utm_source=twitter.com&utm_campaign=npr)
 * [The Next Recession Will Destroy Millennials](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
 * [The Resume of the Future Will Tell Employers Who You Are, and Not Just What You've Done](https://qz.com/work/1232692/the-resume-of-the-future/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=30a275eccc39e7028bd012481c1f1e36)
-* [Young People Are Going to Save Us All From Office Life](https://www.nytimes.com/2019/09/17/style/generation-z-millennials-work-life-balance.html)
 
 ### Reviews Up Next - Technology 
 * [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
@@ -75,11 +71,9 @@ As I read books and news through 2019, I will review outstanding stories critica
 ### Reviews Up Next - Human History, Social Science, Culture, Communication, Education, and Environment
 * [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
 * [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
-* [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
 * [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
 * [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
 * [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
-* [More Public Schools are Embracing the Bible. Is it Literature, or Religion?](https://www.csmonitor.com/USA/Education/2019/0918/More-public-schools-are-embracing-the-Bible.-Is-it-literature-or-religion?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1568851947)
 * [This Chilling Video from Sandy Hook Promise Shows How Gun Violence is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
 * [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
 * [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
@@ -92,8 +86,51 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+### [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
+
+
+<br>
+
+<br>
+
+
+### [Young People Are Going to Save Us All From Office Life](https://www.nytimes.com/2019/09/17/style/generation-z-millennials-work-life-balance.html)
+
+
+<br>
+
+<br>
+
+
+### [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
+
+
+<br>
+
+<br>
+
+
+### [More Public Schools are Embracing the Bible. Is it Literature, or Religion?](https://www.csmonitor.com/USA/Education/2019/0918/More-public-schools-are-embracing-the-Bible.-Is-it-literature-or-religion?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1568851947)
+
+
+<br>
+
+<br>
+
+
 ### [Every Student Matters: Cultivating Belonging in the Classroom](https://www.edutopia.org/article/every-student-matters-cultivating-belonging-classroom)
-In September 2019, Michael Dunlea wrote on classroom strategies that help all students belong.
+In September 2019, Michael Dunlea wrote on classroom strategies that help students belong at school. Dunlea begins the story sharing how she received gratitude supporting a mom's son, "who had come out as gay" by affirming that "all people have equal value in the world."
+
+When teaching young students in the first few years of K12 schooling, educators engage in "plant[ing]" the first few seeds in children's hearts and minds. And sewing the seeds of feeling like they belong in the place where they are secures them for life. The author of the article shares the fact that she has worked in an "inclusion classroom" where people have learning differences; including all students helps them feel more confident in moving beyond their comfort zones, and gives them a strong foundation.
+
+Dunlea clarifies how she defines "belonging." In this article, she reports that "belonging in the classroom means ensuring that all students feel welcomed, comfortable, and part of the school family." How can teachers cultivate this? Dunlea reports five strategies:
+(1) Shine a light on each student - this helps students recognize greatness within themselves and their peers
+(2) Foster student identity building - this supports students in feeling empowered by their interests and passions
+(3) Always leave one desk empty - this leaves room for people and signals that the classroom is waiting to welcome any extra individual
+(4) Make sure that each child feels chosen - this helps create social equity and helps students form unlikely friendships
+(5) Weave social and emotional practices throughout the day - this helps build a social and emotional foundation for everyone and creates integration
+
+Dunlea closes the article, writing, "We can never take for granted the importance of our students feeling they belong. In a world that does not yet fully welcome everyone, schools can reinforce existing divisions or provide students a safe community that feels like a second home. That former second-grade student of mine went on to attend the prom with his boyfriend in our very conservative town and initiated a town-wide pride campaign. I have never felt more proud of my impact as a teacher. As educators, we really can help change the world, one child at a time." 
 
 
 <br>
