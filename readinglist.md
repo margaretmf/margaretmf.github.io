@@ -5,28 +5,6 @@ layout: default
 ## 2019
 
 ### Books
-#### Up Next 
-* [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918) by Martin Luther King, Jr.
-* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490) by Susan David
-* [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose/dp/0735215588) by Chris Wilson
-* [Janesville: An American Story](https://www.amazon.com/Janesville-American-Story-Amy-Goldstein/dp/1501102230) by Amy Goldstein
-* [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
-* [The Mueller Report](https://www.amazon.com/Mueller-Report-Washington-Post/dp/1982129735) 
-* [Synchronicity: An Acausal Connecting Principle](https://www.amazon.com/Synchronicity-Connecting-Principle-Collected-Extracts/dp/0691150508/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=07Y9GTEH0G70RNDKFF60) by C. G. Jung
-* [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
-* [Makers of Modern India](https://www.amazon.com/Makers-Modern-India-Ramachandra-Guha/dp/0674725964) edited by Ramachandra Guha
-* [The Economics of Religion in India](https://www.amazon.com/Economics-Religion-India-Sriya-Iyer/dp/0674979648/ref=asc_df_0674979648/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541090055&psc=1) by Sriya Iyer 
-* [What Works: Gender Equality by Design](https://www.amazon.com/What-Works-Gender-Equality-Design/dp/0674089030) by Iris Bohnet
-* [An End to Upside Down Thinking: Dispelling the Myth That the Brain Produces Consciousness, and the Implications for Everyday Life](https://www.amazon.com/End-Upside-Down-Thinking-Consciousness/dp/1947637851) by Mark Gober
-* [Novacene: The Coming Age of Hyperintelligence](https://www.amazon.co.uk/Novacene-Coming-Hyperintelligence-James-Lovelock/dp/024139936X) by James Lovelock
-* [A Rough Ride to the Future](https://www.amazon.co.uk/Rough-Ride-Future-James-Lovelock/dp/0241961416/ref=pd_sim_14_4/257-7503209-8127448?_encoding=UTF8&pd_rd_i=0241961416&pd_rd_r=4ffafa75-d0a5-40ad-9335-754ab8c6357f&pd_rd_w=BSowk&pd_rd_wg=KL4tJ&pf_rd_p=1b8636ae-4f21-4403-a813-e8849dd46de4&pf_rd_r=1497AW0RGG82M0CRHXTD&psc=1&refRID=1497AW0RGG82M0CRHXTD) by James Lovelock
-* [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_3?keywords=mary+magdalene&qid=1564886536&s=gateway&sr=8-3) by Meggan Watterson
-* [I Love You, but I Hate Your Politics: How to Protect Your Intimate Relationships in a Poisonous Partisan World](https://www.amazon.com/Love-Hate-Your-Politics-Relationships/dp/1250200393) by Jeanne Safer
-
-
-## 2019
-
-### Books
 #### Completed
 * [God in the Qur'an](https://www.amazon.com/God-Quran-Three-Classic-Scriptures/dp/0307269574) by Jack Miles
 * [The Art of Gathering: How We Meet and Why It Matters](https://www.amazon.com/dp/1594634920/ref=sxbs_sxwds-stvpv2_1?pf_rd_p=6375e697-f226-4dbd-a63a-5ec697811ee1&pd_rd_wg=zy2VK&pf_rd_r=2XJ1GJ7DXAM813GCK6T8&pd_rd_i=1594634920&pd_rd_w=Sp46F&pd_rd_r=07beb4b9-bf2c-48eb-ac2d-df1872025e68&ie=UTF8&qid=1544820837&sr=1) by Priya Parker
