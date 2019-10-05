@@ -69,7 +69,7 @@ layout: default
 * [Introverted Mom: Your Guide to More Calm, Less Guilt, and Quiet Joy](https://www.amazon.com/Introverted-Mom-Guide-Guilt-Quiet/dp/0310354978/ref=asc_df_0310354978/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451666736526&psc=1) by Jamie Martin
 * [Mindful Loving: 10 Practices for Creating Deeper Connections](https://www.amazon.com/Mindful-Loving-Practices-Creating-Connections/dp/1592400612/ref=asc_df_1592400612/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583657821600320&psc=1) by Henry Grayson
 * [The Way to Love: The Last Meditations](https://www.amazon.com/Way-Love-Meditations-Anthony-Classics/dp/038524939X) by Anthony de Mello
-* [The Art of Listening Prayer](https://www.amazon.com/Art-Listening-Prayer-Finding-Amidst/dp/0975430564) by Seth Barnes
+* [The Art of Listening Prayer: Finding God's Voice Amidst Life's Noise](https://www.amazon.com/Art-Listening-Prayer-Finding-Amidst/dp/0975430564) by Seth Barnes
 
 
 ## 2018
