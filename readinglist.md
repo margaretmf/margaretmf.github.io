@@ -70,6 +70,8 @@ layout: default
 * [Mindful Loving: 10 Practices for Creating Deeper Connections](https://www.amazon.com/Mindful-Loving-Practices-Creating-Connections/dp/1592400612/ref=asc_df_1592400612/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583657821600320&psc=1) by Henry Grayson
 * [The Way to Love: The Last Meditations](https://www.amazon.com/Way-Love-Meditations-Anthony-Classics/dp/038524939X) by Anthony de Mello
 * [The Art of Listening Prayer: Finding God's Voice Amidst Life's Noise](https://www.amazon.com/Art-Listening-Prayer-Finding-Amidst/dp/0975430564) by Seth Barnes
+* [Friend-ish: Reclaiming Real Friendship in a Culture of Confusion](https://www.amazon.com/Friend-ish-Reclaiming-Friendship-Culture-Confusion/dp/1400213517) by Kelly Needham
+* [The Hermetica: The Lost Wisdom of the Pharaohs](https://www.amazon.com/Hermetica-Lost-Wisdom-Pharaohs/dp/158542692X/ref=asc_df_158542692X/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663536758&psc=1) by Timothy Freke and Peter Gandy
 
 
 ## 2018
