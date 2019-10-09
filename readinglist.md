@@ -5,6 +5,11 @@ layout: default
 ## 2019
 
 ### Books
+#### Reading
+* [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439) by Deidra Riggs
+
+
+### Books
 #### Completed
 * [God in the Qur'an](https://www.amazon.com/God-Quran-Three-Classic-Scriptures/dp/0307269574) by Jack Miles
 * [The Art of Gathering: How We Meet and Why It Matters](https://www.amazon.com/dp/1594634920/ref=sxbs_sxwds-stvpv2_1?pf_rd_p=6375e697-f226-4dbd-a63a-5ec697811ee1&pd_rd_wg=zy2VK&pf_rd_r=2XJ1GJ7DXAM813GCK6T8&pd_rd_i=1594634920&pd_rd_w=Sp46F&pd_rd_r=07beb4b9-bf2c-48eb-ac2d-df1872025e68&ie=UTF8&qid=1544820837&sr=1) by Priya Parker
