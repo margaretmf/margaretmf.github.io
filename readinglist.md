@@ -7,6 +7,9 @@ layout: default
 ### Books
 #### Reading
 * [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439) by Deidra Riggs
+* [When the Heart Waits: Spiritual Direction for Life's Sacred Questions](https://www.amazon.com/When-Heart-Waits-Spiritual-Direction/dp/0061144894/ref=asc_df_0061144894/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583520382726589&psc=1) by Sue Monk Kidd
+* [Listening is An Act of Love](https://www.amazon.com/Listening-Act-Love-Celebration-Developmental/dp/0143114344/ref=asc_df_0143114344/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584413735712311&psc=1) by Dave Isay
+* [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
 
 
 ### Books
