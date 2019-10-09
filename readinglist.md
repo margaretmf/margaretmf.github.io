@@ -72,6 +72,7 @@ layout: default
 * [The Art of Listening Prayer: Finding God's Voice Amidst Life's Noise](https://www.amazon.com/Art-Listening-Prayer-Finding-Amidst/dp/0975430564) by Seth Barnes
 * [Friend-ish: Reclaiming Real Friendship in a Culture of Confusion](https://www.amazon.com/Friend-ish-Reclaiming-Friendship-Culture-Confusion/dp/1400213517) by Kelly Needham
 * [The Hermetica: The Lost Wisdom of the Pharaohs](https://www.amazon.com/Hermetica-Lost-Wisdom-Pharaohs/dp/158542692X/ref=asc_df_158542692X/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663536758&psc=1) by Timothy Freke and Peter Gandy
+* [Living in Flow: The Science of Synchronicity and How Your Choices Shape Your World](https://www.amazon.com/Living-Flow-Science-Synchronicity-Choices/dp/1623173116) by Sky Nelson-Isaacs
 
 
 ## 2018
