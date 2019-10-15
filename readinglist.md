@@ -6,10 +6,10 @@ layout: default
 
 ### Books
 #### Reading
-* [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439) by Deidra Riggs
-* [When the Heart Waits: Spiritual Direction for Life's Sacred Questions](https://www.amazon.com/When-Heart-Waits-Spiritual-Direction/dp/0061144894/ref=asc_df_0061144894/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583520382726589&psc=1) by Sue Monk Kidd
 * [Listening is An Act of Love](https://www.amazon.com/Listening-Act-Love-Celebration-Developmental/dp/0143114344/ref=asc_df_0143114344/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584413735712311&psc=1) by Dave Isay
+* [The Art of Community: Seven Principles of Belonging](https://www.amazon.com/Art-Community-Seven-Principles-Belonging/dp/1626568413/ref=asc_df_1626568413/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584070138376203&psc=1) by Charles Vogl
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
+* [New Seeds of Contemplation](https://www.amazon.com/New-Seeds-Contemplation-Thomas-Merton/dp/0811217248/ref=asc_df_0811217248/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584001418892726&psc=1) by Thomas Merton & Sue Monk Kidd
 
 
 ### Books
@@ -81,6 +81,8 @@ layout: default
 * [Friend-ish: Reclaiming Real Friendship in a Culture of Confusion](https://www.amazon.com/Friend-ish-Reclaiming-Friendship-Culture-Confusion/dp/1400213517) by Kelly Needham
 * [The Hermetica: The Lost Wisdom of the Pharaohs](https://www.amazon.com/Hermetica-Lost-Wisdom-Pharaohs/dp/158542692X/ref=asc_df_158542692X/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663536758&psc=1) by Timothy Freke and Peter Gandy
 * [Living in Flow: The Science of Synchronicity and How Your Choices Shape Your World](https://www.amazon.com/Living-Flow-Science-Synchronicity-Choices/dp/1623173116) by Sky Nelson-Isaacs
+* [One: Unity in a Divided World](https://www.amazon.com/One-Unity-Divided-Deidra-Riggs/dp/0801018439) by Deidra Riggs
+* [When the Heart Waits: Spiritual Direction for Life's Sacred Questions](https://www.amazon.com/When-Heart-Waits-Spiritual-Direction/dp/0061144894/ref=asc_df_0061144894/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583520382726589&psc=1) by Sue Monk Kidd
 
 
 ## 2018
