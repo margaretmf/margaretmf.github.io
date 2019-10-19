@@ -10,6 +10,7 @@ layout: default
 * [The Art of Community: Seven Principles of Belonging](https://www.amazon.com/Art-Community-Seven-Principles-Belonging/dp/1626568413/ref=asc_df_1626568413/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584070138376203&psc=1) by Charles Vogl
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
 * [New Seeds of Contemplation](https://www.amazon.com/New-Seeds-Contemplation-Thomas-Merton/dp/0811217248/ref=asc_df_0811217248/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584001418892726&psc=1) by Thomas Merton & Sue Monk Kidd
+* [Face to Face: The Art of Human Connection](https://www.amazon.com/Eye-Contact-Power-Personal-Connection/dp/1501147722) by Brian Grazer
 
 
 ### Books
