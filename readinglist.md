@@ -7,7 +7,6 @@ layout: default
 ### Books
 #### Reading
 * [Listening is An Act of Love](https://www.amazon.com/Listening-Act-Love-Celebration-Developmental/dp/0143114344/ref=asc_df_0143114344/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584413735712311&psc=1) by Dave Isay
-* [The Art of Community: Seven Principles of Belonging](https://www.amazon.com/Art-Community-Seven-Principles-Belonging/dp/1626568413/ref=asc_df_1626568413/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584070138376203&psc=1) by Charles Vogl
 * [Presence: Human Purpose and the Field of the Future](https://www.amazon.com/Presence-Human-Purpose-Field-Future/dp/0385516304) Peter Senge, C. Otto Scharmer, Joseph Jaworski
 * [An Insider's Guide to Praying for the World: Country-By-Country Prayer Guide, Inspiring Faith Stories, On-the-Ground Insights, Up-to-Date-Maps](https://www.amazon.com/Insiders-Praying-country-country-date-maps/dp/0764217275/ref=asc_df_0764217275/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541052581&psc=1) by Brian Stiller
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
@@ -87,6 +86,7 @@ layout: default
 * [New Seeds of Contemplation](https://www.amazon.com/New-Seeds-Contemplation-Thomas-Merton/dp/0811217248/ref=asc_df_0811217248/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584001418892726&psc=1) by Thomas Merton & Sue Monk Kidd
 * [Emergent Strategy: Shaping Changes, Changing Worlds](https://www.amazon.com/Emergent-Strategy-Shaping-Change-Changing/dp/1849352607) by adrienne maree brown
 * [Face to Face: The Art of Human Connection](https://www.amazon.com/Eye-Contact-Power-Personal-Connection/dp/1501147722) by Brian Grazer
+* [The Art of Community: Seven Principles of Belonging](https://www.amazon.com/Art-Community-Seven-Principles-Belonging/dp/1626568413/ref=asc_df_1626568413/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584070138376203&psc=1) by Charles Vogl
 
 
 ## 2018
