@@ -7,6 +7,8 @@ layout: default
 ### Books
 #### Reading
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
+* [Braving the Wilderness: The Quest for True Belonging and the Courage to Stand Alone](https://www.amazon.com/Braving-Wilderness-Quest-Belonging-Courage/dp/0812995848) by Brene Brown
+* [Body Full of Stars: Female Rage and My Passage into Motherhood](https://www.amazon.com/Body-Full-Stars-Passage-Motherhood/dp/1619024896) by Molly Caro May
 
 
 ### Books
