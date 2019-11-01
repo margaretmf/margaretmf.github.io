@@ -87,6 +87,7 @@ layout: default
 * [Presence: Human Purpose and the Field of the Future](https://www.amazon.com/Presence-Human-Purpose-Field-Future/dp/0385516304) Peter Senge, C. Otto Scharmer, Joseph Jaworski
 * [Listening is An Act of Love](https://www.amazon.com/Listening-Act-Love-Celebration-Developmental/dp/0143114344/ref=asc_df_0143114344/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584413735712311&psc=1) by Dave Isay
 * [An Insider's Guide to Praying for the World: Country-By-Country Prayer Guide, Inspiring Faith Stories, On-the-Ground Insights, Up-to-Date-Maps](https://www.amazon.com/Insiders-Praying-country-country-date-maps/dp/0764217275/ref=asc_df_0764217275/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541052581&psc=1) by Brian Stiller
+* [You and Me Forever: Marriage in Light of Eternity](https://www.amazon.com/You-Me-Forever-Marriage-Eternity/dp/0990351416/ref=asc_df_0990351416/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663319568&psc=1) by Francis and Lisa Chan
 
 
 ## 2018
