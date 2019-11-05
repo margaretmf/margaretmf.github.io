@@ -7,8 +7,10 @@ layout: default
 ### Books
 #### Reading
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
-* [Braving the Wilderness: The Quest for True Belonging and the Courage to Stand Alone](https://www.amazon.com/Braving-Wilderness-Quest-Belonging-Courage/dp/0812995848) by Brene Brown
 * [Body Full of Stars: Female Rage and My Passage into Motherhood](https://www.amazon.com/Body-Full-Stars-Passage-Motherhood/dp/1619024896) by Molly Caro May
+* [The Power of Collective Wisdom and the Trap of Collective Folly](https://www.amazon.com/Power-Collective-Wisdom-Trap-Folly/dp/1576754456/ref=pd_sbs_14_t_2/135-1705863-6860911?_encoding=UTF8&pd_rd_i=1576754456&pd_rd_r=3d25147c-55a1-4497-b20d-f1d9df3eca0c&pd_rd_w=IYdzW&pd_rd_wg=ddctV&pf_rd_p=5cfcfe89-300f-47d2-b1ad-a4e27203a02a&pf_rd_r=XGTJ57YACP6MM96ZB118&psc=1&refRID=XGTJ57YACP6MM96ZB118) by Alan Briskin, Sheryl Erickson, John Ott, Tom Callanan
+* [Source: The Inner Path of Knowledge Creation](https://www.amazon.com/Source-Inner-Path-Knowledge-Creation/dp/1576759040/ref=asc_df_1576759040/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584482459054913&psc=1) by Joseph Jaworski
+* [On Writing Well: The Classic Guide to Writing Nonfiction](https://www.amazon.com/Writing-Well-Classic-Guide-Nonfiction/dp/0060891548/ref=asc_df_0060891548/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584276296678258&psc=1) by William Zinsser
 
 
 ### Books
@@ -90,6 +92,7 @@ layout: default
 * [Listening is An Act of Love](https://www.amazon.com/Listening-Act-Love-Celebration-Developmental/dp/0143114344/ref=asc_df_0143114344/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584413735712311&psc=1) by Dave Isay
 * [An Insider's Guide to Praying for the World: Country-By-Country Prayer Guide, Inspiring Faith Stories, On-the-Ground Insights, Up-to-Date-Maps](https://www.amazon.com/Insiders-Praying-country-country-date-maps/dp/0764217275/ref=asc_df_0764217275/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583726541052581&psc=1) by Brian Stiller
 * [You and Me Forever: Marriage in Light of Eternity](https://www.amazon.com/You-Me-Forever-Marriage-Eternity/dp/0990351416/ref=asc_df_0990351416/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4583451663319568&psc=1) by Francis and Lisa Chan
+* [Braving the Wilderness: The Quest for True Belonging and the Courage to Stand Alone](https://www.amazon.com/Braving-Wilderness-Quest-Belonging-Courage/dp/0812995848) by Brene Brown
 
 
 ## 2018
