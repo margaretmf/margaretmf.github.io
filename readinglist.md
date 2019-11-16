@@ -6,9 +6,10 @@ layout: default
 
 ### Books
 #### Reading
-* [On Writing Well: The Classic Guide to Writing Nonfiction](https://www.amazon.com/Writing-Well-Classic-Guide-Nonfiction/dp/0060891548/ref=asc_df_0060891548/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584276296678258&psc=1) by William Zinsser
 * [Kindness and Wonder: Why Mister Rogers Matters Now More Than Ever](https://www.amazon.com/Kindness-Wonder-Mister-Rogers-Matters/dp/0062950746/ref=asc_df_0062950746/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584001425243111&psc=1) by Gavin Edwards
 * [Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again](https://www.amazon.com/Inspired-Slaying-Giants-Walking-Loving/dp/0718022319) by Rachel Held Evans
+* [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
+* [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
 * [Body Full of Stars: Female Rage and My Passage into Motherhood](https://www.amazon.com/Body-Full-Stars-Passage-Motherhood/dp/1619024896) by Molly Caro May
 
@@ -97,6 +98,7 @@ layout: default
 * [The Power of Collective Wisdom and the Trap of Collective Folly](https://www.amazon.com/Power-Collective-Wisdom-Trap-Folly/dp/1576754456/ref=pd_sbs_14_t_2/135-1705863-6860911?_encoding=UTF8&pd_rd_i=1576754456&pd_rd_r=3d25147c-55a1-4497-b20d-f1d9df3eca0c&pd_rd_w=IYdzW&pd_rd_wg=ddctV&pf_rd_p=5cfcfe89-300f-47d2-b1ad-a4e27203a02a&pf_rd_r=XGTJ57YACP6MM96ZB118&psc=1&refRID=XGTJ57YACP6MM96ZB118) by Alan Briskin, Sheryl Erickson, John Ott, Tom Callanan
 * [World Crisis and the Pathway to Peace](https://www.amazon.com/World-Crisis-Pathway-Peace-Masroor-ebook/dp/B00DAGJBX8) by Mirza Masroor Ahmad
 * [A Guide to the Parables](https://www.ebay.com/itm/382548997563) by John Hargreaves
+* [On Writing Well: The Classic Guide to Writing Nonfiction](https://www.amazon.com/Writing-Well-Classic-Guide-Nonfiction/dp/0060891548/ref=asc_df_0060891548/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584276296678258&psc=1) by William Zinsser
 
 
 ## 2018
