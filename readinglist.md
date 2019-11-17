@@ -6,7 +6,7 @@ layout: default
 
 ### Books
 #### Reading
-* [Kindness and Wonder: Why Mister Rogers Matters Now More Than Ever](https://www.amazon.com/Kindness-Wonder-Mister-Rogers-Matters/dp/0062950746/ref=asc_df_0062950746/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584001425243111&psc=1) by Gavin Edwards
+* [The Hundred Story Home: A Journey of Homelessness, Hope, and Healing](https://www.amazon.com/Hundred-Story-Home-Journey-Homelessness/dp/0997778407/ref=cm_cr_arp_d_product_top?ie=UTF8) by Kathy Izard
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
@@ -99,6 +99,7 @@ layout: default
 * [A Guide to the Parables](https://www.ebay.com/itm/382548997563) by John Hargreaves
 * [On Writing Well: The Classic Guide to Writing Nonfiction](https://www.amazon.com/Writing-Well-Classic-Guide-Nonfiction/dp/0060891548/ref=asc_df_0060891548/?tag=bingshoppinga-20&linkCode=df0&hvadid={creative}&hvpos={adposition}&hvnetw=o&hvrand={random}&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl={devicemodel}&hvlocint=&hvlocphy=&hvtargid=pla-4584276296678258&psc=1) by William Zinsser
 * [Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again](https://www.amazon.com/Inspired-Slaying-Giants-Walking-Loving/dp/0718022319) by Rachel Held Evans
+* [Kindness and Wonder: Why Mister Rogers Matters Now More Than Ever](https://www.amazon.com/Kindness-Wonder-Mister-Rogers-Matters/dp/0062950746/ref=asc_df_0062950746/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584001425243111&psc=1) by Gavin Edwards
 
 
 ## 2018
