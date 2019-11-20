@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [The Hundred Story Home: A Journey of Homelessness, Hope, and Healing](https://www.amazon.com/Hundred-Story-Home-Journey-Homelessness/dp/0997778407/ref=cm_cr_arp_d_product_top?ie=UTF8) by Kathy Izard
 * [Telling True Stories: A Nonfiction Writers' Guide from the Nieman Foundation at Harvard University](https://www.amazon.com/Telling-True-Stories-Nonfiction-Foundation/dp/0452287553/ref=sr_1_2?keywords=journalism+true+stories&qid=1574080554&s=books&sr=1-2) by Mark Kramer and Wendy Call
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -103,6 +102,7 @@ layout: default
 * [Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again](https://www.amazon.com/Inspired-Slaying-Giants-Walking-Loving/dp/0718022319) by Rachel Held Evans
 * [Kindness and Wonder: Why Mister Rogers Matters Now More Than Ever](https://www.amazon.com/Kindness-Wonder-Mister-Rogers-Matters/dp/0062950746/ref=asc_df_0062950746/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584001425243111&psc=1) by Gavin Edwards
 * [Writing That Works; How to Communicate Effectively In Business](https://www.amazon.com/Writing-Works-Communicate-Effectively-Business/dp/0060956437/ref=asc_df_0060956437/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584482455422450&psc=1) by Kenneth Roman and Joel Raphaelson
+* [The Hundred Story Home: A Journey of Homelessness, Hope, and Healing](https://www.amazon.com/Hundred-Story-Home-Journey-Homelessness/dp/0997778407/ref=cm_cr_arp_d_product_top?ie=UTF8) by Kathy Izard
 
 
 ## 2018
