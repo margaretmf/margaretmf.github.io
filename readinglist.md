@@ -6,11 +6,15 @@ layout: default
 
 ### Books
 #### Reading
-* [Telling True Stories: A Nonfiction Writers' Guide from the Nieman Foundation at Harvard University](https://www.amazon.com/Telling-True-Stories-Nonfiction-Foundation/dp/0452287553/ref=sr_1_2?keywords=journalism+true+stories&qid=1574080554&s=books&sr=1-2) by Mark Kramer and Wendy Call
+* [Foresight: How the Chemistry of Life Reveals Planning and Purpose](https://www.amazon.com/Foresight-Chemistry-Reveals-Planning-Purpose/dp/1936599651) by Marcos Eberlin
+* [Radical Love](https://www.amazon.com/Radical-Love-Teachings-Mystical-Tradition/dp/0300225814/ref=sr_1_1?keywords=radical+love+omid+saf&qid=1574700821&s=books&sr=1-1) by Omid Safi
+* [First You Write a Sentence](https://www.amazon.com/First-You-Write-Sentence-Elements/dp/0241978491) by Joe Moran
+* [The Prodigal God: Recovering the Heart of the Christain Faith](https://www.amazon.com/Prodigal-God-Recovering-Heart-Christian/dp/0525950796/ref=asc_df_0525950796/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583932699489779&psc=1) by Timothy Keller
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 * [Body Full of Stars: Female Rage and My Passage into Motherhood](https://www.amazon.com/Body-Full-Stars-Passage-Motherhood/dp/1619024896) by Molly Caro May
+* [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 
 
 ### Books
@@ -103,6 +107,8 @@ layout: default
 * [Writing That Works; How to Communicate Effectively In Business](https://www.amazon.com/Writing-Works-Communicate-Effectively-Business/dp/0060956437/ref=asc_df_0060956437/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584482455422450&psc=1) by Kenneth Roman and Joel Raphaelson
 * [The Hundred Story Home: A Journey of Homelessness, Hope, and Healing](https://www.amazon.com/Hundred-Story-Home-Journey-Homelessness/dp/0997778407/ref=cm_cr_arp_d_product_top?ie=UTF8) by Kathy Izard
 * [The Master Plan: My Journey from Life in Prison to a Life of Purpose](https://www.amazon.com/Master-Plan-Journey-Prison-Purpose-ebook/dp/B07FRTZXBS/ref=sr_1_2?keywords=prison+to+purpose&qid=1570649404&s=digital-text&sr=1-2) by Chris Wilson
+* [Telling True Stories: A Nonfiction Writers' Guide from the Nieman Foundation at Harvard University](https://www.amazon.com/Telling-True-Stories-Nonfiction-Foundation/dp/0452287553/ref=sr_1_2?keywords=journalism+true+stories&qid=1574080554&s=books&sr=1-2) by Mark Kramer and Wendy Call
+* [Synchronicity: The Inner Path of Leadership](https://www.amazon.com/Synchronicity-Inner-Leadership-Joseph-Jaworski/dp/1609940172/ref=sr_1_4?keywords=Synchronicity&qid=1574625446&sr=8-4) by Joseph Jaworski
 
 
 ## 2018
