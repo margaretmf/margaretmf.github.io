@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [Radical Love](https://www.amazon.com/Radical-Love-Teachings-Mystical-Tradition/dp/0300225814/ref=sr_1_1?keywords=radical+love+omid+saf&qid=1574700821&s=books&sr=1-1) by Omid Safi
 * [First You Write a Sentence](https://www.amazon.com/First-You-Write-Sentence-Elements/dp/0241978491) by Joe Moran
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
@@ -109,6 +108,7 @@ layout: default
 * [Synchronicity: The Inner Path of Leadership](https://www.amazon.com/Synchronicity-Inner-Leadership-Joseph-Jaworski/dp/1609940172/ref=sr_1_4?keywords=Synchronicity&qid=1574625446&sr=8-4) by Joseph Jaworski
 * [Foresight: How the Chemistry of Life Reveals Planning and Purpose](https://www.amazon.com/Foresight-Chemistry-Reveals-Planning-Purpose/dp/1936599651) by Marcos Eberlin
 * [The Prodigal God: Recovering the Heart of the Christain Faith](https://www.amazon.com/Prodigal-God-Recovering-Heart-Christian/dp/0525950796/ref=asc_df_0525950796/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583932699489779&psc=1) by Timothy Keller
+* [Radical Love](https://www.amazon.com/Radical-Love-Teachings-Mystical-Tradition/dp/0300225814/ref=sr_1_1?keywords=radical+love+omid+saf&qid=1574700821&s=books&sr=1-1) by Omid Safi
 
 
 ## 2018
