@@ -109,6 +109,7 @@ layout: default
 * [Foresight: How the Chemistry of Life Reveals Planning and Purpose](https://www.amazon.com/Foresight-Chemistry-Reveals-Planning-Purpose/dp/1936599651) by Marcos Eberlin
 * [The Prodigal God: Recovering the Heart of the Christain Faith](https://www.amazon.com/Prodigal-God-Recovering-Heart-Christian/dp/0525950796/ref=asc_df_0525950796/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583932699489779&psc=1) by Timothy Keller
 * [Radical Love](https://www.amazon.com/Radical-Love-Teachings-Mystical-Tradition/dp/0300225814/ref=sr_1_1?keywords=radical+love+omid+saf&qid=1574700821&s=books&sr=1-1) by Omid Safi
+* [When Should Law Forgive?](https://www.amazon.com/When-Should-Forgive-Martha-Minow/dp/0393081761/ref=asc_df_0393081761/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584070144379844&psc=1) by Martha Minow
 
 
 ## 2018
