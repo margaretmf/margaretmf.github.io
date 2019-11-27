@@ -8,13 +8,13 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
-I am **Margaret Furr**, and I am developing expertise in **writing**, **data-driven narratives**, **systems practice and systems thinking**, **ethnographic interviewing**, **requirements specificiation**, and **looking at events and problems creatively from multiple perspectives**. 
+I am **Margaret Furr**, and I am developing expertise in **writing**, **ethnographic interviewing**, **photography**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
 
 Most recently, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
 
 I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
 
-Outside of work, one can find me **reading**, **jogging**, **swimming**, **following world affairs**, **understanding trends and patterns**, **taking photos**, **dancing**, and **committing to peacemaking**. I am most excited about communities, communication, frameworks, and the balance of art and science.
+Outside of work, one can find me **reading**, **jogging**, **swimming**, **following world affairs**, **managing Instagram and Twitter accounts**, **dancing**, and **committing to peacemaking**. I am most excited about communities, communication, frameworks, and the balance of art and science.
 
 Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is **"Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all."** 
 
