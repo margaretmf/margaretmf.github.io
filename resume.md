@@ -3,26 +3,26 @@ layout: default
 ---
 
 ## PROFILE 
-I am a versatile data analyst, interviewer, systems researcher, and writer, with an interest in systems practice, data-driven narratives, entrepreneurship, product management, and data science. Passionate about looking at narratives and problems from multiple perspectives.
+I am a versatile researcher, interviewer, and writer, with an interest in writing, news media, spirituality, and liberal arts education. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
 
 [Resume](https://github.com/margaretmf/margaretmf.github.io/blob/master/MargaretFurr_Resume.pdf)
 
  <br>
  
 ## EDUCATION
-### UNIVERSITY OF VIRGINIA
-MS in [Data Science](https://dsi.virginia.edu/)  
-July 2014 - December 2015
-* Capstone Advisor: Laura Barnes  
-* GPA: 3.91
-* Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
- 
 BA in [History](http://as.virginia.edu)
 August 2010 - May 2014
 * Advisors: Sophia Rosenfeld, Raf Alvarado
 * Major Papers: History of Children's Play in the Victorian Era, History of Musicology during the Scientific Revolution
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
+ 
+### UNIVERSITY OF VIRGINIA
+MS in [Data Science](https://dsi.virginia.edu/)  
+July 2014 - December 2015
+* Capstone Advisor: Laura Barnes  
+* GPA: 3.91
+* Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
  
 ### ACUMEN PLUS 
 Human-Centered Design
