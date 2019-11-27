@@ -7,70 +7,9 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 <br>
 
-## 2019 BOOK REVIEWS
-### Reviews Up Next
-### [The War for Kindness - Building Empathy in a Fractured World](https://www.amazon.com/War-Kindness-Building-Empathy-Fractured/dp/0451499247) by Jamil Zaki
-<img class="picture" src="TheWarForKindness-BuildingEmpathyInAFracturedWorld.jpg">
-
-
-<br>
-
-<br>
-
-
-### [The New Silk Roads: The Present and Future of the World](https://www.amazon.com/New-Silk-Roads-Present-Future/dp/0525656405) by Peter Frankopan
-<img class="picture" src="TheNewSilkRoads-ThePresentAndFutureOfTheWorld.jpg">
-
-
-<br>
-
-<br>
-
-
-### [Range: Why Generalists Triumph in a Specialized World](https://www.amazon.com/Range/dp/1509843507) by David Epstein
-<img class="picture" src="Range-HowGeneralistsTriumphInASpecializedWorld.jpg">
-
-
-<br>
-
-<br>
-
 
 ## 2019 NEWS REVIEWS
-### Reviews Up Next - Politics, Government, and Civil Rights
-* [Mississippi Immigration Raids Lead To Arrests of Hundreds Of Workers](https://www.npr.org/2019/08/07/749243985/mississippi-immigration-raids-net-hundreds-of-workers)
-* [Rep. John Lewis on the ‘Unfinished Work’ in the Civil Rights Movement](https://www.aspeninstitute.org/blog-posts/rep-john-lewis-on-the-unfinished-work-in-the-civil-rights-movement/)
-* [The Poverty of Partisan Identity](https://thefulcrum.us/civic-ed/the-poverty-of-partisan-identity)
-* [Trump’s Two G7 Summits](https://www.theatlantic.com/international/archive/2019/08/donald-trump-g7-summit/596788/?utm_content=edit-promo&utm_term=2019-08-25T19%3A33%3A11&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter)
-* [Encircling the Interrupters with Civility](https://www.csmonitor.com/Commentary/the-monitors-view/2019/0823/Encircling-the-interrupters-with-civility?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1566586019)
-* [The Global Machine Behind the Rise of Far-Right Nationalism](https://www.nytimes.com/2019/08/10/world/europe/sweden-immigration-nationalism.html)
-* [Andrew Yang’s Quest to ‘Make America Think Harder’](https://www.nytimes.com/2019/09/06/us/politics/andrew-yang-2020.html?smid=tw-nytimes&smtyp=cur)
-* [Trump, Pelosi, and the ‘Fog of Politics’](https://www.csmonitor.com/Daily/2019/20190926#1096280)
-* [Trump, Impeachment, and US voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
-
-### Reviews Up Next - Capitalism and Innovation
-* [Low Interest Rates Are Often A Cure - Now They’re Also a Symptom](https://www.csmonitor.com/Daily/2019/20190816?cmpid=ema:bundle:20190816&id=1094239)
-* [A Roadmap for Reshaping Capitalism](https://www.forbes.com/sites/stevedenning/2019/07/07/a-roadmap-for-reshaping-capitalism/#2ea912b6716f)
-* [What Innovation Really Means](https://www.aspeninstitute.org/blog-posts/what-innovation-really-means/)
-* [Match Group’s CEO on Innovating in a Fast-Changing Industry](https://hbr.org/2019/07/match-groups-ceo-on-innovating-in-a-fast-changing-industry?utm_medium=social&utm_source=twitter&utm_campaign=hbr)
-* [Startups Are Abandoning Suburbs for Cities With Good Transit](https://www.citylab.com/transportation/2019/07/startup-cities-public-transportation-new-business-development/594286/?utm_term=2019-07-25T16%3A27%3A49&utm_medium=social&utm_campaign=citylab&utm_source=twitter&utm_content=edit-promo)
-* [Why Some ESG-Friendly Financial Advisers are Careful about Mixing Politics and Portfolios](https://www.marketwatch.com/story/why-some-esg-friendly-financial-advisers-are-careful-about-mixing-politics-and-portfolios-2019-07-02) and [Impact Investing, Just A Trend Or The Best Strategy To Help Save Our World?](https://www.forbes.com/sites/jpdallmann/2018/12/31/impact-investing-just-a-trend-or-the-best-strategy-to-help-save-our-world/#3344da9375d1)
-* [Can Britain’s Top Bookseller Save Barnes & Noble?](https://www.nytimes.com/2019/08/08/books/watersones-barnes-and-noble-james-daunt.html?fallback=0&recId=1PO5C49kRfjL0jJgYEAHpFz1lU3&locked=0&geoContinent=NA&geoRegion=DC&recAlloc=als1&geoCountry=US&blockId=home-featured&imp_id=231462043&action=click&module=editorsPicks&pgtype=Article&region=Footer)
-* [America’s First Hub for Restorative Justice Will Open in Oakland](https://www.citylab.com/design/2019/08/oakland-incarceration-restorative-justice-job-training/595198/)
-* [Working In While Eating Out: The Evolution of Doing Business While Dining](https://www.npr.org/sections/thesalt/2019/08/26/753718969/working-in-while-eating-out-the-evolution-of-doing-business-while-dining?utm_term=nprnews&utm_medium=social&utm_source=twitter.com&utm_campaign=npr)
-* [The Next Recession Will Destroy Millennials](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
-* [The Resume of the Future Will Tell Employers Who You Are, and Not Just What You've Done](https://qz.com/work/1232692/the-resume-of-the-future/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=30a275eccc39e7028bd012481c1f1e36)
-
-### Reviews Up Next - Technology 
-* [Natural Intelligence](https://naturalintelligence.com/aron-cramer/)
-* [The Amazon Publishing Juggernaut](https://www.theatlantic.com/technology/archive/2019/08/amazons-plan-take-over-world-publishing/595630/)
-* [Inside India’s Messy Electric Vehicle Revolution](https://www.theatlantic.com/ideas/archive/2019/08/millennials-are-screwed-recession/596728/?utm_content=edit-promo&utm_term=2019-08-26T10%3A00%3A26&utm_source=twitter&utm_campaign=the-atlantic&utm_medium=social)
-* [Can You Guess Which of These Paintings Was Not Made by a Human?](https://qz.com/work/1390121/can-you-guess-which-of-these-paintings-was-not-made-by-a-human/?utm_source=Twitter&utm_medium=qz-organic&utm_campaign=hootsuite&hootPostID=14f9ea0f3736138f5992111e20b2768f)
-* [The Devastating Consequences of Being Poor in the Digital Age](https://www.nytimes.com/2019/04/25/opinion/privacy-poverty.html)
-
 ### Reviews Up Next - Human History, Social Science, Culture, Communication, Education, and Environment
-* [What Internet Memes Get Wrong About Breezewood, Pennsylvania](https://www.citylab.com/design/2019/07/breezewood-meme-pennsylvania-turnpike-i-70-rest-stop-photos/594559/?utm_campaign=citylab-daily-newsletter&utm_medium=email&silverid=%25%25RECIPIENT_ID%25%25&utm_source=newsletter)
-* [Small Towns Fear They Are Unprepared For Future Climate-Driven Flooding](https://www.npr.org/2019/07/25/744203716/small-towns-fear-they-are-unprepared-for-future-climate-driven-flooding?utm_source=newsletter&utm_medium=email&utm_campaign=citylab-daily-newsletter&silverid=%25%25RECIPIENT_ID%25%25)
 * [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
 * [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
 * [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
@@ -111,6 +50,23 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ### [More Public Schools are Embracing the Bible. Is it Literature, or Religion?](https://www.csmonitor.com/USA/Education/2019/0918/More-public-schools-are-embracing-the-Bible.-Is-it-literature-or-religion?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1568851947)
+In September 2019, Chelsea Sheasley and Patrik Jonsson wrote on the debate brewing on "what role the world's bestselling book should play in education."
+
+To invite readers into the debate, the writers quote the question that Jamie Davis, "a local youth pastor in Cochran, Georgia" asked seventh graders studying the Bible for academic credit, "'What does holy mean?'" The articles' writers report that the students do not know how to respond; "they [were] all stumped." The students' being stumped points to the controversy that exists over the Bible's role in public education. The reporters write, "that notion of holy as separate is at the crux of a growing controversy around Bible literacy classes that are springing up in public schools around the country – or offered in coordination with the school system, as here in Cochran."
+
+The reporters back up the writing with facts: in 2019, 13 bills for Bible elective classes were proposed and signed into law. The new, optional classes are academic in nature, but people worry that conservatives use these classes to promote a Christian worldview in a country where people see Muslims as a risk.
+
+The debate over the role the Bible should play in American public schools is not new; it is a decades-old one. The reporters write that the debate "centers around strongly held views of the importance of the Bible...that clash with opponents' desire to be inclusive of those of differing - or no - faith." The debate over the Bible brings attention to the fact that some community members feel in different ways that "their vision of what the United States represents is under threat and is being challenged."
+
+People supporting the Bible elective bills point literary references and allusions to the Bible by Shakespeare, Toni Morrison, and others. Anti-supporters have concern for using the Bible to promote a one-dimensional way of living in the world. Supporters like Steven Fitschen, president of the National Legal Foundation believe that Bible literacy "is a really important part of cultural literacy" and in "understand[ing] art and music and history."
+
+Sharing the history of court rulings against religion, the reporters write that "in the famous 1962 Engel v. Vitale case, the court ruled school-sponsored prayer", and "a year later, "in Abington School District v. Schempp, the court banned school-sponsored Bible readings, such as reading scriptural passages during daily announcements." Prayer differs from the academic study of the Holy Book, however, and the articles' authors note that "the majority opinion in the Abington decision also included a statement opening the door to a purely academic study of the Bible, as long as it's 'presented objectively as part of a secular program of education.'" Other court cases followed these two.
+
+Recently, educator associations have conducted research on whether the public believes schools should include Bible studies; "58% of American adults surveyed said they should, 77% of adults supported offering comparative religion classes, and 4 in 10 Americans 'express concern that Bible studies may improperly promote Judeo-Christian religious beliefs.'" Regarding the law around the classes, a professor at SMU points out that "there is no need for new legislation for schools to teach the Bible in an academic manner - the Supreme Court has already given leeway for that." But legal research on the classes have revealed 'mixed quality', with some classes being "'blatantly and thoroughly sectarian, presenting religious views as fact and implicity or explicitly encourage[d] students to adopt these views.'" And "Amanda Tyler, executive director of the Baptist Joint Committee for Religious Liberty (BJC), a faith-based group that advocates for religious freedom for all...raises concerns about states showing a religious preference and 'send[ing] a problematic message that to be a full or true American one must be Christian.'"
+
+Covering the perspective of atheists, the reporters share how in one Bible class, the teacher, a Christian Pastor, who takes the First Amendment seriously, thought that the best student was a non-believer. Mr. Davis, the teacher shared with the articles' authors that this atheist "was super smart, asked the best questions, and was [there] to honestly try to understand, discuss, and learn", so attitude triumphed over religious beliefs. Christian students express how they enjoy the class also because "it is about stepping outside of church and looking at the Bible in a different way."
+
+The authors report on an important topic regarding a debate over the state, a book related to church and culture, and education; and the responses to the debate may vary by local need.
 
 
 <br>
