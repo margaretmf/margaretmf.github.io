@@ -49,8 +49,17 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+### [This Chilling Video from Sandy Hook Promise Shows How Gun Violence Is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
+In September 2019, Annalisa Merelli wrote for Quartz on the school gun shootings, robbing America of its children's innocence.
+
+
+<br>
+
+<br>
+
+
 ### [More Public Schools are Embracing the Bible. Is it Literature, or Religion?](https://www.csmonitor.com/USA/Education/2019/0918/More-public-schools-are-embracing-the-Bible.-Is-it-literature-or-religion?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1568851947)
-In September 2019, Chelsea Sheasley and Patrik Jonsson wrote on the debate brewing on "what role the world's bestselling book should play in education."
+In September 2019, Chelsea Sheasley and Patrik Jonsson wrote for the Christian Science Monitor on the debate brewing on "what role the world's bestselling book should play in education."
 
 To invite readers into the debate, the writers quote the question that Jamie Davis, "a local youth pastor in Cochran, Georgia" asked seventh graders studying the Bible for academic credit, "'What does holy mean?'" The articles' writers report that the students do not know how to respond; "they [were] all stumped." The students' being stumped points to the controversy that exists over the Bible's role in public education. The reporters write, "that notion of holy as separate is at the crux of a growing controversy around Bible literacy classes that are springing up in public schools around the country – or offered in coordination with the school system, as here in Cochran."
 
