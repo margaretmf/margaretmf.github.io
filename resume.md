@@ -10,6 +10,7 @@ I am a versatile researcher, interviewer, and writer, with an interest in writin
  <br>
  
 ## EDUCATION
+### UNIVERSITY OF VIRGINIA
 BA in [History](http://as.virginia.edu)
 August 2010 - May 2014
 * Advisors: Sophia Rosenfeld, Raf Alvarado
@@ -17,7 +18,6 @@ August 2010 - May 2014
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
  
-### UNIVERSITY OF VIRGINIA
 MS in [Data Science](https://dsi.virginia.edu/)  
 July 2014 - December 2015
 * Capstone Advisor: Laura Barnes  
@@ -32,6 +32,10 @@ September - November 2019
 Systems Practice
 January - May 2019
 * Completing course on systems practice with Acumen Plus and participating in group systems practice project for a social justice challenge in which we conduct qualitiatve research on a system, develop systems map and systems narratives, and identify leverage points within the system
+
+
+### Religious Freedom Center, DC Interfaith Summit, Soliya
+Sustained Dialogue Faciliation
 
 <br>
  
