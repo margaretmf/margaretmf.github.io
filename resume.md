@@ -34,7 +34,7 @@ January - May 2019
 * Completing course on systems practice with Acumen Plus and participating in group systems practice project for a social justice challenge in which we conduct qualitiatve research on a system, develop systems map and systems narratives, and identify leverage points within the system
 
 
-### Religious Freedom Center, DC Interfaith Summit, Soliya
+### RELIGIOUS FREEDOM CENTER, DC INTERFAITH SUMMIT, AND SOLIYA
 Sustained Dialogue Faciliation
 
 <br>
