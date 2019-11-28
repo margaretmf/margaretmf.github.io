@@ -57,14 +57,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
-### [Young People Are Going to Save Us All From Office Life](https://www.nytimes.com/2019/09/17/style/generation-z-millennials-work-life-balance.html)
-
-
-<br>
-
-<br>
-
-
 ### [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
 
 
