@@ -9,15 +9,39 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ## 2019 NEWS REVIEWS
-### Reviews Up Next - Human History, Social Science, Culture, Communication, Education, and Environment
-* [Digital Note Taking Strategies That Deepen Student Thinking](https://www.kqed.org/mindshift/48902/digital-note-taking-strategies-that-deepen-student-thinking)
-* [The Light Triad vs. Dark Triad of Personality](https://blogs.scientificamerican.com/beautiful-minds/the-light-triad-vs-dark-triad-of-personality/)
-* [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
-* [This Chilling Video from Sandy Hook Promise Shows How Gun Violence is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
-* [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
-* [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
-* [The Choices Facing Community Colleges](https://www.theatlantic.com/notes/2019/08/choices-community-colleges/595696/)
-* [Pitch Perfect? How Culture Shapes the Way You Hear Music](https://www.csmonitor.com/Daily/2019/20190927?cmpid=ema:bundle:20190927&id=1096066)
+### [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
+
+
+<br>
+
+<br>
+
+
+### [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
+
+
+<br>
+
+<br>
+
+
+### [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
+
+
+<br>
+
+<br>
+
+
+### [Trump, Impeachment, and US Voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
+
+
+<br>
+
+<br>
+
+
+### [Oakland’s Restorative-Justice Hub Wants to Redefine Public Safety](https://www.citylab.com/design/2019/08/oakland-incarceration-restorative-justice-job-training/595198/)
 
 
 <br>
@@ -52,6 +76,11 @@ As I read books and news through 2019, I will review outstanding stories critica
 ### [This Chilling Video from Sandy Hook Promise Shows How Gun Violence Is Destroying Childhood in America](https://qz.com/1710900/sandy-hook-promises-shocking-video-on-gun-violence-in-schools/?utm_source=dlvr.it&utm_medium=twitter)
 In September 2019, Annalisa Merelli wrote for Quartz on the school gun shootings, robbing America of its children's innocence.
 
+With the start of a new school year, because of recent shootings, American children now receive training since the country's laws do not prevent gun violence effectively. The Sandy Hook Promise video shows the horror and fear that many American children have grown up living with as a result of the association between school and gun violence.
+
+The reporter writes how many of the country's citizens believe tougher gun laws would benefit the public and reduce violence. The writer backs up this first sentence sharing, "for the first time in decades, more Americans dislike the National Rifle Assocation", and Trump has swung back and forth in deciding whether "to toughen background checks for gun purchases."
+
+A video on the current issue supports this text, and the author does not write much more on the event.
 
 <br>
 
