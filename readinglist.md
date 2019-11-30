@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [The Book of Rumi: 105 Stories and Fables that Illumine, Delight, and Inform](https://www.amazon.com/Book-Rumi-Stories-Illumine-Delight/dp/157174746X/ref=asc_df_157174746X/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726541141941&psc=1) by Rumi and Maryam Mafi
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
@@ -112,6 +111,7 @@ layout: default
 * [First You Write a Sentence](https://www.amazon.com/First-You-Write-Sentence-Elements/dp/0241978491) by Joe Moran
 * [Body Full of Stars: Female Rage and My Passage into Motherhood](https://www.amazon.com/Body-Full-Stars-Passage-Motherhood/dp/1619024896) by Molly Caro May
 * [The Good Neighbor: The Life and Work of Fred Rogers](https://www.amazon.com/Good-Neighbor-Life-Work-Rogers/dp/1419727729) by Maxwell King
+* [The Book of Rumi: 105 Stories and Fables that Illumine, Delight, and Inform](https://www.amazon.com/Book-Rumi-Stories-Illumine-Delight/dp/157174746X/ref=asc_df_157174746X/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726541141941&psc=1) by Rumi and Maryam Mafi
 
 
 ## 2018
