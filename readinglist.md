@@ -6,8 +6,8 @@ layout: default
 
 ### Books
 #### Reading
-* [LovingKindness: The Revolutionary Art of Happiness](https://www.amazon.com/Lovingkindness-Revolutionary-Happiness-Shambhala-Library/dp/1611806240/ref=asc_df_1611806240/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583932699530318&psc=1) by Sharon Salzberg
 * [Nonduality: In Buddhism and Beyond](https://www.amazon.com/Nonduality-Buddhism-David-R-Loy/dp/1614295247/ref=asc_df_1614295247/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584070142192755&psc=1) by David Loy
+* [Educated: A Memoir](https://www.amazon.com/Educated-Memoir-Tara-Westover/dp/0399590501) by Tara Westover
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -115,6 +115,7 @@ layout: default
 * [The Good Neighbor: The Life and Work of Fred Rogers](https://www.amazon.com/Good-Neighbor-Life-Work-Rogers/dp/1419727729) by Maxwell King
 * [The Book of Rumi: 105 Stories and Fables that Illumine, Delight, and Inform](https://www.amazon.com/Book-Rumi-Stories-Illumine-Delight/dp/157174746X/ref=asc_df_157174746X/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726541141941&psc=1) by Rumi and Maryam Mafi
 * [I and Thou](https://www.amazon.com/I-Thou-Martin-Buber/dp/0684717255/ref=asc_df_0684717255/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583795260612828&psc=1) by Martin Buber
+* [LovingKindness: The Revolutionary Art of Happiness](https://www.amazon.com/Lovingkindness-Revolutionary-Happiness-Shambhala-Library/dp/1611806240/ref=asc_df_1611806240/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583932699530318&psc=1) by Sharon Salzberg
 
 
 ## 2018
