@@ -9,7 +9,7 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ## 2019 NEWS REVIEWS
-### [One of the Biggest Threats to Children Across the World Begins in Hospitals](https://qz.com/1674518/theres-a-world-shortage-of-pediatric-surgeons/?utm_source=dlvr.it&utm_medium=twitter)
+### [Trump, Impeachment, and US Voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
 
 
 <br>
@@ -25,14 +25,6 @@ Chelsea reports that the boy's parents considered hiring nannies, but finding su
 Taking care of the children does not necessarily burden the grandparents; researchers find that "it is a nearly universal finding that grandparents do experience a lot of joy around their grandchildren." Katy Dermott, a grandparent in Washington, DC reports, "'I think it's better than I hoped, being able to be so closely involved...when you're a parent...you have lots of things going on in the back of your mind. It's such a delight to be able to bask in each moment.'"
 
 The article's author reports that while grandparents enjoy taking care of children, they still have room to learn how to play this role. Sometimes grandparents juggle their own jobs or experience marital strife, so they have to figure out how to balance their time. Also, Chelsea reports that "communication with their own children can be challenging because grandparents navigate differing opinions about how young ones should be raised, yet they typically also want to respect their adult children in the parenting role." Grandparents learn that they must check in regularly with their children to smooth over the stresses for all three generations.
-
-
-<br>
-
-<br>
-
-
-### [Trump, Impeachment, and US Voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
 
 
 <br>
