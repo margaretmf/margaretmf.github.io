@@ -116,6 +116,7 @@ layout: default
 * [The Book of Rumi: 105 Stories and Fables that Illumine, Delight, and Inform](https://www.amazon.com/Book-Rumi-Stories-Illumine-Delight/dp/157174746X/ref=asc_df_157174746X/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726541141941&psc=1) by Rumi and Maryam Mafi
 * [I and Thou](https://www.amazon.com/I-Thou-Martin-Buber/dp/0684717255/ref=asc_df_0684717255/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583795260612828&psc=1) by Martin Buber
 * [LovingKindness: The Revolutionary Art of Happiness](https://www.amazon.com/Lovingkindness-Revolutionary-Happiness-Shambhala-Library/dp/1611806240/ref=asc_df_1611806240/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583932699530318&psc=1) by Sharon Salzberg
+* [An End to Upside Down Thinking: Dispelling the Myth That the Brain Produces Consciousness, and the Implications for Everyday Life](https://www.amazon.com/End-Upside-Down-Thinking-Consciousness/dp/1947637851) by Mark Gober
 
 
 ## 2018
