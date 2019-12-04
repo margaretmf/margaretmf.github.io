@@ -17,15 +17,14 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
-### [Why Schools Should Be Organized To Prioritize Relationships](https://www.kqed.org/mindshift/53091/why-schools-should-be-organized-to-prioritize-relationships?fbclid=IwAR2Mfpq0euAnjAB_Q_KlKCVfYVdtfpSD0DVlUnSY8OA_GPnTYGUkgUS5zoo)
-
-
-<br>
-
-<br>
-
-
 ### [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
+In September 2019, Chelsea Sheasley wrote with the Christian Science Monitor on how grandparents care for children in the 21st century. She begins the article highlighting grandmother Judy Dion's 78 mile drive to Cambridge, MA, where she watches her grandson for two days per week.
+
+Chelsea reports that the boy's parents considered hiring nannies, but finding support from the grandmother proved to be more practical; and receiving help from the child's grandmother helped the family bond. Other grandparents like Ms. Dion have been providing this "intensive" care for their children's little ones as well; "grandparents raising grandchildren full time has grown to 7% of all grandparents in many cases due to parents harmed by the opioid and mental health crises in the U.S." Why do sociologists see an increase in "intensive grandparenting"? According to the article's author, "demographic and cultural changes play a role, as well as lack of structural support for working parents." Madonna Harrington Meyer, professor of sociology at Syracuse University, shares with the CSM reporter that "'what we're seeing now is grandparents providing care that looks more like parenting'" because parents have more tasks, stress, and personal problems and grandparents have the freedom to step in.  
+
+Taking care of the children does not necessarily burden the grandparents; researchers find that "it is a nearly universal finding that grandparents do experience a lot of joy around their grandchildren." Katy Dermott, a grandparent in Washington, DC reports, "'I think it's better than I hoped, being able to be so closely involved...when you're a parent...you have lots of things going on in the back of your mind. It's such a delight to be able to bask in each moment.'"
+
+The article's author reports that while grandparents enjoy taking care of children, they still have room to learn how to play this role. Sometimes grandparents juggle their own jobs or experience marital strife, so they have to figure out how to balance their time. Also, Chelsea reports that "communication with their own children can be challenging because grandparents navigate differing opinions about how young ones should be raised, yet they typically also want to respect their adult children in the parenting role." Grandparents learn that they must check in regularly with their children to smooth over the stresses for all three generations.
 
 
 <br>
@@ -34,30 +33,6 @@ As I read books and news through 2019, I will review outstanding stories critica
 
 
 ### [Trump, Impeachment, and US Voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
-
-
-<br>
-
-<br>
-
-
-### [Oakland’s Restorative-Justice Hub Wants to Redefine Public Safety](https://www.citylab.com/design/2019/08/oakland-incarceration-restorative-justice-job-training/595198/)
-
-
-<br>
-
-<br>
-
-
-### [Governors Are Losing the Space to Govern](https://www.theatlantic.com/ideas/archive/2019/08/hickenloopers-campaign-serves-as-a-warning-for-governors/596281/?utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2019-08-19T10%3A30%3A23&utm_content=edit-promo)
-
-
-<br>
-
-<br>
-
-
-### [American Culture Wars](https://www.theatlantic.com/politics/archive/2015/07/what-every-american-should-know/397334/)
 
 
 <br>
