@@ -11,6 +11,7 @@ layout: default
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
+* [The Deep History of Ourselves: The Four-Billion-Year Story of How We Got Conscious Brains](https://www.amazon.com/Deep-History-Ourselves-Microbes-Conscious/dp/0735223831/ref=asc_df_0735223831/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583451667985845&psc=1) by Joseph LeDoux
 
 
 ### Books
