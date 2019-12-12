@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [We Knew Mary Baker Eddy](https://www.amazon.com/Knew-Baker-Expanded-Firsthand-Accounts/dp/0875104851/ref=asc_df_0875104851/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584138860300220&psc=1) by Christian Science Publishers
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -120,6 +119,7 @@ layout: default
 * [Nonduality: In Buddhism and Beyond](https://www.amazon.com/Nonduality-Buddhism-David-R-Loy/dp/1614295247/ref=asc_df_1614295247/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584070142192755&psc=1) by David Loy
 * [Educated: A Memoir](https://www.amazon.com/Educated-Memoir-Tara-Westover/dp/0399590501) by Tara Westover
 * [Journalistic Writing: Building the Skills, Honing the Craft](https://www.amazon.com/Journalistic-Writing-Building-Skills-Honing/dp/1933338385/ref=sr_1_4?keywords=Journalism&qid=1568047428&s=books&sr=1-4) by Robert Knight
+* [We Knew Mary Baker Eddy](https://www.amazon.com/Knew-Baker-Expanded-Firsthand-Accounts/dp/0875104851/ref=asc_df_0875104851/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584138860300220&psc=1) by Christian Science Publishers
 
 
 ## 2018
