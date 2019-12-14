@@ -120,6 +120,7 @@ layout: default
 * [Educated: A Memoir](https://www.amazon.com/Educated-Memoir-Tara-Westover/dp/0399590501) by Tara Westover
 * [Journalistic Writing: Building the Skills, Honing the Craft](https://www.amazon.com/Journalistic-Writing-Building-Skills-Honing/dp/1933338385/ref=sr_1_4?keywords=Journalism&qid=1568047428&s=books&sr=1-4) by Robert Knight
 * [We Knew Mary Baker Eddy](https://www.amazon.com/Knew-Baker-Expanded-Firsthand-Accounts/dp/0875104851/ref=asc_df_0875104851/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584138860300220&psc=1) by Christian Science Publishers
+* [Rediscovering Life: Awaken to Reality](https://www.amazon.com/Rediscovering-Life-Reality-Anthony-Mello/dp/030798494X) by Anthony De Mello
 
 
 ## 2018
