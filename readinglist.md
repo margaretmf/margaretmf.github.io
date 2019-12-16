@@ -6,11 +6,11 @@ layout: default
 
 ### Books
 #### Reading
+* [Discussions on Youth](https://www.amazon.com/Discussions-Youth-Leaders-Future-Diasaku/dp/1932911936) by Daisaku Ikeda
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
-* [The Deep History of Ourselves: The Four-Billion-Year Story of How We Got Conscious Brains](https://www.amazon.com/Deep-History-Ourselves-Microbes-Conscious/dp/0735223831/ref=asc_df_0735223831/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583451667985845&psc=1) by Joseph LeDoux
 
 
 ### Books
@@ -121,6 +121,7 @@ layout: default
 * [Journalistic Writing: Building the Skills, Honing the Craft](https://www.amazon.com/Journalistic-Writing-Building-Skills-Honing/dp/1933338385/ref=sr_1_4?keywords=Journalism&qid=1568047428&s=books&sr=1-4) by Robert Knight
 * [We Knew Mary Baker Eddy](https://www.amazon.com/Knew-Baker-Expanded-Firsthand-Accounts/dp/0875104851/ref=asc_df_0875104851/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584138860300220&psc=1) by Christian Science Publishers
 * [Rediscovering Life: Awaken to Reality](https://www.amazon.com/Rediscovering-Life-Reality-Anthony-Mello/dp/030798494X) by Anthony De Mello
+* [The Deep History of Ourselves: The Four-Billion-Year Story of How We Got Conscious Brains](https://www.amazon.com/Deep-History-Ourselves-Microbes-Conscious/dp/0735223831/ref=asc_df_0735223831/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583451667985845&psc=1) by Joseph LeDoux
 
 
 ## 2018
