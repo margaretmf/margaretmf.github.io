@@ -7,6 +7,8 @@ layout: default
 ### Books
 #### Reading
 * [Discussions on Youth](https://www.amazon.com/Discussions-Youth-Leaders-Future-Diasaku/dp/1932911936) by Daisaku Ikeda
+* [A Hidden Wholeness: The Journey Toward An Undivied Life - Welcoming the Soul and Weaving Community in a Wounded World](https://www.amazon.com/Hidden-Wholeness-Journey-Toward-Undivided/dp/0470453761) by Parker J. Palmer
+* [The Tao of Ordinariness: Humility and Simplicity in a Narcissistic Age](https://www.amazon.com/Tao-Ordinariness-Humility-Simplicity-Narcissistic/dp/0190937173) by Robert J. Wicks
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
