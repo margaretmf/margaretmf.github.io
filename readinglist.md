@@ -6,9 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [Discussions on Youth](https://www.amazon.com/Discussions-Youth-Leaders-Future-Diasaku/dp/1932911936) by Daisaku Ikeda
-* [A Hidden Wholeness: The Journey Toward An Undivied Life - Welcoming the Soul and Weaving Community in a Wounded World](https://www.amazon.com/Hidden-Wholeness-Journey-Toward-Undivided/dp/0470453761) by Parker J. Palmer
-* [The Tao of Ordinariness: Humility and Simplicity in a Narcissistic Age](https://www.amazon.com/Tao-Ordinariness-Humility-Simplicity-Narcissistic/dp/0190937173) by Robert J. Wicks
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -124,6 +121,10 @@ layout: default
 * [We Knew Mary Baker Eddy](https://www.amazon.com/Knew-Baker-Expanded-Firsthand-Accounts/dp/0875104851/ref=asc_df_0875104851/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584138860300220&psc=1) by Christian Science Publishers
 * [Rediscovering Life: Awaken to Reality](https://www.amazon.com/Rediscovering-Life-Reality-Anthony-Mello/dp/030798494X) by Anthony De Mello
 * [The Deep History of Ourselves: The Four-Billion-Year Story of How We Got Conscious Brains](https://www.amazon.com/Deep-History-Ourselves-Microbes-Conscious/dp/0735223831/ref=asc_df_0735223831/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583451667985845&psc=1) by Joseph LeDoux
+* [Discussions on Youth](https://www.amazon.com/Discussions-Youth-Leaders-Future-Diasaku/dp/1932911936) by Daisaku Ikeda
+* [A Hidden Wholeness: The Journey Toward An Undivied Life - Welcoming the Soul and Weaving Community in a Wounded World](https://www.amazon.com/Hidden-Wholeness-Journey-Toward-Undivided/dp/0470453761) by Parker J. Palmer
+* [The Tao of Ordinariness: Humility and Simplicity in a Narcissistic Age](https://www.amazon.com/Tao-Ordinariness-Humility-Simplicity-Narcissistic/dp/0190937173) by Robert J. Wicks
+* [Abundant Simplicity: Discovering the Unhurried Rhythms of Grace](https://www.amazon.com/Abundant-Simplicity-Discovering-Unhurried-Rhythms/dp/0830835474/ref=sr_1_43?keywords=simplicity&qid=1574965980&sr=8-43) by Jan Johnson
 
 
 ## 2018
