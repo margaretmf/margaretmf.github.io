@@ -2,7 +2,7 @@
 layout: default
 ---
 
-## 2019
+## 2020
 
 ### Books
 #### Reading
@@ -11,6 +11,9 @@ layout: default
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 
+
+#### Completed
+* [Spiritual Healing In A Scientific Age](https://www.amazon.com/Spiritual-Healing-Scientific-Robert-Peel/dp/0060664851) by Robert Peel and Mary Baker Eddy
 
 ### Books
 #### Completed
