@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [Peace, Justice, and the Poetic Mind](https://www.amazon.com/Peace-Justice-Poetic-Mind/dp/1887917195/ref=sr_1_fkmr1_1?keywords=peace+justice+and+the+poetic+mind+conversations+on+the+path+of+nonviolence&qid=1578512526&s=books&sr=1-1-fkmr1) by Stuart Rees * Daisaku Ikeda
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -16,6 +15,8 @@ layout: default
 #### Completed
 * [Spiritual Healing In A Scientific Age](https://www.amazon.com/Spiritual-Healing-Scientific-Robert-Peel/dp/0060664851) by Robert Peel and Mary Baker Eddy
 * [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_2?keywords=mary+magdalene&qid=1578512454&sr=8-2) by Meggan Watterson
+* [Peace, Justice, and the Poetic Mind](https://www.amazon.com/Peace-Justice-Poetic-Mind/dp/1887917195/ref=sr_1_fkmr1_1?keywords=peace+justice+and+the+poetic+mind+conversations+on+the+path+of+nonviolence&qid=1578512526&s=books&sr=1-1-fkmr1) by Stuart Rees * Daisaku Ikeda
+* [Owning Your Own Shadow: Understanding the Dark Side of the Psyche](https://www.amazon.com/Owning-Your-Own-Shadow-Understanding/dp/0062507540) by Robert Johnson
 
 ### Books
 #### Completed
