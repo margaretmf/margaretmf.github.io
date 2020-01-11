@@ -17,6 +17,7 @@ layout: default
 * [Mary Magdalene Revealed: The First Apostle, Her Feminist Gospel & the Christianity We Haven't Tried Yet](https://www.amazon.com/Mary-Magdalene-Revealed-Feminist-Christianity/dp/1401954901/ref=sr_1_2?keywords=mary+magdalene&qid=1578512454&sr=8-2) by Meggan Watterson
 * [Peace, Justice, and the Poetic Mind](https://www.amazon.com/Peace-Justice-Poetic-Mind/dp/1887917195/ref=sr_1_fkmr1_1?keywords=peace+justice+and+the+poetic+mind+conversations+on+the+path+of+nonviolence&qid=1578512526&s=books&sr=1-1-fkmr1) by Stuart Rees * Daisaku Ikeda
 * [Owning Your Own Shadow: Understanding the Dark Side of the Psyche](https://www.amazon.com/Owning-Your-Own-Shadow-Understanding/dp/0062507540) by Robert Johnson
+* [Culture of Revival - A Revivalist Field Manual](https://www.amazon.com/Culture-Revival-Revivalist-Lacking-2013-05-03/dp/B01FEKSWWI/ref=pd_sbs_14_t_0/135-1705863-6860911?_encoding=UTF8&pd_rd_i=B01FEKSWWI&pd_rd_r=c6c282d5-0c0b-4e06-9df9-b668f888470f&pd_rd_w=TTg58&pd_rd_wg=QQ0hy&pf_rd_p=5cfcfe89-300f-47d2-b1ad-a4e27203a02a&pf_rd_r=GPVKBZPR3B0MHYVCM83Y&psc=1&refRID=GPVKBZPR3B0MHYVCM83Y) by Andy Byrd & Sean Feucht
 
 ### Books
 #### Completed
