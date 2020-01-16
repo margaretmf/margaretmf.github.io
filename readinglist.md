@@ -19,6 +19,7 @@ layout: default
 * [Owning Your Own Shadow: Understanding the Dark Side of the Psyche](https://www.amazon.com/Owning-Your-Own-Shadow-Understanding/dp/0062507540) by Robert Johnson
 * [Culture of Revival - A Revivalist Field Manual](https://www.amazon.com/Culture-Revival-Revivalist-Lacking-2013-05-03/dp/B01FEKSWWI/ref=pd_sbs_14_t_0/135-1705863-6860911?_encoding=UTF8&pd_rd_i=B01FEKSWWI&pd_rd_r=c6c282d5-0c0b-4e06-9df9-b668f888470f&pd_rd_w=TTg58&pd_rd_wg=QQ0hy&pf_rd_p=5cfcfe89-300f-47d2-b1ad-a4e27203a02a&pf_rd_r=GPVKBZPR3B0MHYVCM83Y&psc=1&refRID=GPVKBZPR3B0MHYVCM83Y) by Andy Byrd & Sean Feucht
 * [Simplicity Parenting: Using the Extraordinary Power of Less to Raise Calmer, Happier, and More Secure Kids](https://www.amazon.com/Simplicity-Parenting-Extraordinary-Calmer-Happier/dp/0345507983/ref=asc_df_0345507983/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583451663315950&psc=1) by Kim John Payne, Lisa M. Ross
+* [Keep It Moving: Lessons for the Rest of Your Life](https://www.amazon.com/Keep-Moving-Lessons-Rest-Your/dp/1508294801/ref=asc_df_1508294801/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4584207583733130&psc=1) by Twyal Tharp
 
 ### Books
 #### Completed
