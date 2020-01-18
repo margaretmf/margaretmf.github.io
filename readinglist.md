@@ -135,6 +135,7 @@ layout: default
 * [A Hidden Wholeness: The Journey Toward An Undivied Life - Welcoming the Soul and Weaving Community in a Wounded World](https://www.amazon.com/Hidden-Wholeness-Journey-Toward-Undivided/dp/0470453761) by Parker J. Palmer
 * [The Tao of Ordinariness: Humility and Simplicity in a Narcissistic Age](https://www.amazon.com/Tao-Ordinariness-Humility-Simplicity-Narcissistic/dp/0190937173) by Robert J. Wicks
 * [Abundant Simplicity: Discovering the Unhurried Rhythms of Grace](https://www.amazon.com/Abundant-Simplicity-Discovering-Unhurried-Rhythms/dp/0830835474/ref=sr_1_43?keywords=simplicity&qid=1574965980&sr=8-43) by Jan Johnson
+* [Integrity: Character of the Kingdom](https://www.amazon.com/Integrity-Character-Kingdom-Sean-Feucht/dp/1629115509) by Sean Feucht, Pastor Bill Johnson, & Andy Byrd
 
 
 ## 2018
