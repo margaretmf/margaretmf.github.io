@@ -24,6 +24,8 @@ layout: default
 * [Why Have Kids?: A New Mom Explores the Truth About Parenting and Happiness](https://www.amazon.com/Why-Have-Kids-Parenting-Happiness/dp/1477800093/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1574711672&sr=1-3) by Jessica Valenti
 * [Heaven is for Real: A Little Boy's Astounding Story of His Trip to Heaven and Back](https://www.amazon.com/Heaven-Real-Little-Astounding-Story/dp/0849946158/ref=sr_1_11?keywords=heaven&qid=1574709534&s=books&sr=1-11) by Todd Burpo  & Lynn Vincent
 * [Sadhana, a Way to God: Christian Exercises in Eastern Form](https://www.amazon.com/Sadhana-Way-God-Christian-Exercises/dp/0385196148) by Anthony de Mello
+* [The Song of the Bird](https://www.amazon.com/Song-Bird-Anthony-Mello/dp/0385196156) by Anthony De Mello
+[How to Create a Successful Children's Picture Book](https://www.amazon.com/Create-Successful-Childrens-Picture-Book/dp/0978679199) by Bobbie Hinman
 
 
 ### Books
