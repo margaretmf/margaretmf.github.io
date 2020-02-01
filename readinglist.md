@@ -145,6 +145,7 @@ layout: default
 * [The Tao of Ordinariness: Humility and Simplicity in a Narcissistic Age](https://www.amazon.com/Tao-Ordinariness-Humility-Simplicity-Narcissistic/dp/0190937173) by Robert J. Wicks
 * [Abundant Simplicity: Discovering the Unhurried Rhythms of Grace](https://www.amazon.com/Abundant-Simplicity-Discovering-Unhurried-Rhythms/dp/0830835474/ref=sr_1_43?keywords=simplicity&qid=1574965980&sr=8-43) by Jan Johnson
 * [Integrity: Character of the Kingdom](https://www.amazon.com/Integrity-Character-Kingdom-Sean-Feucht/dp/1629115509) by Sean Feucht, Pastor Bill Johnson, & Andy Byrd
+* [Ask Powerful Questions: Create Conversations That Matter](https://www.amazon.com/Ask-Powerful-Questions-Create-Conversations/dp/1545322996) by Will Wise & Chad Littlefield 
 
 
 ## 2018
