@@ -146,6 +146,7 @@ layout: default
 * [Abundant Simplicity: Discovering the Unhurried Rhythms of Grace](https://www.amazon.com/Abundant-Simplicity-Discovering-Unhurried-Rhythms/dp/0830835474/ref=sr_1_43?keywords=simplicity&qid=1574965980&sr=8-43) by Jan Johnson
 * [Integrity: Character of the Kingdom](https://www.amazon.com/Integrity-Character-Kingdom-Sean-Feucht/dp/1629115509) by Sean Feucht, Pastor Bill Johnson, & Andy Byrd
 * [Ask Powerful Questions: Create Conversations That Matter](https://www.amazon.com/Ask-Powerful-Questions-Create-Conversations/dp/1545322996) by Will Wise & Chad Littlefield 
+* [Give Your Child the World: Raising Globally Minded Kids One Book at a Time](https://www.amazon.com/Give-Your-Child-World-Globally/dp/0310344131) by Jamie C. Martin
 
 
 ## 2018
