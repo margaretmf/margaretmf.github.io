@@ -29,6 +29,7 @@ layout: default
 * [Small Talk: How to Develop Your Child’s Language Skills from Birth to Age Four](https://www.amazon.com/Small-Talk-Develop-Childs-Language/dp/1615192034/ref=sxbs_sxwds-stvp?keywords=babies+parenting+talking&pd_rd_i=1615192034&pd_rd_r=bc07265b-a8c1-4439-9dc0-ea1562cab3c2&pd_rd_w=4Enl0&pd_rd_wg=cVwGe&pf_rd_p=a6d018ad-f20b-46c9-8920-433972c7d9b7&pf_rd_r=4FQRR4BNKS83XHDS47DF&qid=1574914058&s=books) by Nicola Lathey & Tracey Blake 
 * [Oneness](https://www.amazon.com/Oneness-Rasha/dp/0965900312/ref=sr_1_2?keywords=oneness&qid=1574966782&sr=8-2) by Rasha
 * [Returning to Oneness: The Seven Keys of Ascension](https://www.amazon.com/Returning-Oneness-Seven-Keys-Ascension/dp/096601829X) by Leslie Temple-Thurston & Brad Laughlin 
+* [Rise Sister Rise: A Guide to Unleashing the Wise, Wild Woman Within](https://www.amazon.com/Rise-Sister-Guide-Unleashing-Within/dp/1401951899) by Rebecca Campbell
 
 
 ### Books
