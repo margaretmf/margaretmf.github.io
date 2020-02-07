@@ -30,6 +30,7 @@ layout: default
 * [Oneness](https://www.amazon.com/Oneness-Rasha/dp/0965900312/ref=sr_1_2?keywords=oneness&qid=1574966782&sr=8-2) by Rasha
 * [Returning to Oneness: The Seven Keys of Ascension](https://www.amazon.com/Returning-Oneness-Seven-Keys-Ascension/dp/096601829X) by Leslie Temple-Thurston & Brad Laughlin 
 * [Rise Sister Rise: A Guide to Unleashing the Wise, Wild Woman Within](https://www.amazon.com/Rise-Sister-Guide-Unleashing-Within/dp/1401951899) by Rebecca Campbell
+* [The Enchanted Hour: The Miraculous Power of Reading Aloud in the Age of Distraction](https://www.amazon.com/Enchanted-Hour-Miraculous-Reading-Distraction/dp/0062562819) by Meghan Cox Gurdon
 
 
 ### Books
