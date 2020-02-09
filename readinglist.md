@@ -32,6 +32,7 @@ layout: default
 * [Rise Sister Rise: A Guide to Unleashing the Wise, Wild Woman Within](https://www.amazon.com/Rise-Sister-Guide-Unleashing-Within/dp/1401951899) by Rebecca Campbell
 * [The Enchanted Hour: The Miraculous Power of Reading Aloud in the Age of Distraction](https://www.amazon.com/Enchanted-Hour-Miraculous-Reading-Distraction/dp/0062562819) by Meghan Cox Gurdon
 * [Heaven Is Beautiful: How Dying Taught Me That Death Is Just the Beginning](https://www.amazon.com/Heaven-Beautiful-Dying-Taught-Beginning/dp/1571747346) by Peter Baldwin Panagore
+* [Lightworker: Understand Your Sacred Role as Healer, Guide, and Being of Light](https://www.amazon.com/Lightworker-Understand-Sacred-Healer-Guide/dp/160163188X/ref=sr_1_1?keywords=Lightworker&qid=1581212686&sr=8-1) by Sahvanna Arienta
 
 
 ### Books
