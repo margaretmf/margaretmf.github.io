@@ -6,6 +6,8 @@ layout: default
 
 ### Books
 #### Reading
+* [The Elements of Journalism: What Newspeople Should Know and the Public Should Expect](https://www.amazon.com/Elements-Journalism-Revised-Updated-3rd/dp/0804136785) by Bill Kovach & Tom Rosenthiel
+* [Living as Learning: John Dewey in the 21st Century](https://www.amazon.com/Living-Learning-John-Dewey-Century/dp/1887917128/ref=sr_1_1?keywords=living+as+learning&qid=1581273186&s=books&sr=1-1) by Jim Garrison, Larry Hickman, Daisaku Ikeda
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -33,6 +35,7 @@ layout: default
 * [The Enchanted Hour: The Miraculous Power of Reading Aloud in the Age of Distraction](https://www.amazon.com/Enchanted-Hour-Miraculous-Reading-Distraction/dp/0062562819) by Meghan Cox Gurdon
 * [Heaven Is Beautiful: How Dying Taught Me That Death Is Just the Beginning](https://www.amazon.com/Heaven-Beautiful-Dying-Taught-Beginning/dp/1571747346) by Peter Baldwin Panagore
 * [Lightworker: Understand Your Sacred Role as Healer, Guide, and Being of Light](https://www.amazon.com/Lightworker-Understand-Sacred-Healer-Guide/dp/160163188X/ref=sr_1_1?keywords=Lightworker&qid=1581212686&sr=8-1) by Sahvanna Arienta
+* [The Magic Words: Writing Great Books for Children and Young Adults](https://www.amazon.com/Magic-Words-Writing-Children-Adults/dp/039329224X/ref=sr_1_1?crid=DPUODCECQKP8&keywords=the+magic+words+by+cheryl+klein&qid=1581273219&s=books&sprefix=the+magic+words%2Cstripbooks%2C139&sr=1-1) by Cheryl B. Klein
 
 
 ### Books
