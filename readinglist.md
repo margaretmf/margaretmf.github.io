@@ -36,6 +36,8 @@ layout: default
 * [Heaven Is Beautiful: How Dying Taught Me That Death Is Just the Beginning](https://www.amazon.com/Heaven-Beautiful-Dying-Taught-Beginning/dp/1571747346) by Peter Baldwin Panagore
 * [Lightworker: Understand Your Sacred Role as Healer, Guide, and Being of Light](https://www.amazon.com/Lightworker-Understand-Sacred-Healer-Guide/dp/160163188X/ref=sr_1_1?keywords=Lightworker&qid=1581212686&sr=8-1) by Sahvanna Arienta
 * [The Magic Words: Writing Great Books for Children and Young Adults](https://www.amazon.com/Magic-Words-Writing-Children-Adults/dp/039329224X/ref=sr_1_1?crid=DPUODCECQKP8&keywords=the+magic+words+by+cheryl+klein&qid=1581273219&s=books&sprefix=the+magic+words%2Cstripbooks%2C139&sr=1-1) by Cheryl B. Klein
+* [Drinking from the River of Light: The Life of Expression](https://www.amazon.com/Drinking-River-Light-Life-Expression/dp/1683642309) by Mark Nepo
+* [Rediscover the Saints: Twenty-Five Questions That Will Change Your Life](https://www.amazon.com/Rediscover-Saints-Twenty-Five-Questions-Change/dp/1929266634) by Matthew Kelly
 
 
 ### Books
