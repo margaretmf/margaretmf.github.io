@@ -38,6 +38,7 @@ layout: default
 * [The Magic Words: Writing Great Books for Children and Young Adults](https://www.amazon.com/Magic-Words-Writing-Children-Adults/dp/039329224X/ref=sr_1_1?crid=DPUODCECQKP8&keywords=the+magic+words+by+cheryl+klein&qid=1581273219&s=books&sprefix=the+magic+words%2Cstripbooks%2C139&sr=1-1) by Cheryl B. Klein
 * [Drinking from the River of Light: The Life of Expression](https://www.amazon.com/Drinking-River-Light-Life-Expression/dp/1683642309) by Mark Nepo
 * [Rediscover the Saints: Twenty-Five Questions That Will Change Your Life](https://www.amazon.com/Rediscover-Saints-Twenty-Five-Questions-Change/dp/1929266634) by Matthew Kelly
+* [Belonging and Becoming: Creating a Thriving Family Culture](https://www.amazon.com/Belonging-Becoming-Creating-Thriving-Culture/dp/0830844899) by Mark & Lisa Scandrette
 
 
 ### Books
