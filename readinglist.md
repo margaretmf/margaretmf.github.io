@@ -6,7 +6,6 @@ layout: default
 
 ### Books
 #### Reading
-* [The Elements of Journalism: What Newspeople Should Know and the Public Should Expect](https://www.amazon.com/Elements-Journalism-Revised-Updated-3rd/dp/0804136785) by Bill Kovach & Tom Rosenthiel
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
@@ -39,6 +38,8 @@ layout: default
 * [Rediscover the Saints: Twenty-Five Questions That Will Change Your Life](https://www.amazon.com/Rediscover-Saints-Twenty-Five-Questions-Change/dp/1929266634) by Matthew Kelly
 * [Belonging and Becoming: Creating a Thriving Family Culture](https://www.amazon.com/Belonging-Becoming-Creating-Thriving-Culture/dp/0830844899) by Mark & Lisa Scandrette
 * [https://www.amazon.com/Living-Learning-John-Dewey-Century/dp/1887917128/ref=sr_1_1?keywords=living+as+learning&qid=1581273186&s=books&sr=1-1](https://www.amazon.com/Living-Learning-John-Dewey-Century/dp/1887917128/ref=sr_1_1?keywords=living+as+learning&qid=1581273186&s=books&sr=1-1) by Jim Garrison, Larry Hickman, & Daisaku Ikeda 
+* [the Artist's Rule: Nurturing Your Creative Soul with Monastic Wisdom](The Artist's Rule: Nurturing Your Creative Soul with Monastic Wisdom) by Christine Valters Paintner 
+* [The Elements of Journalism: What Newspeople Should Know and the Public Should Expect](https://www.amazon.com/Elements-Journalism-Revised-Updated-3rd/dp/0804136785) by Bill Kovach & Tom Rosenthiel
 
 
 ### Books
