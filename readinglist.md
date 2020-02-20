@@ -38,8 +38,10 @@ layout: default
 * [Rediscover the Saints: Twenty-Five Questions That Will Change Your Life](https://www.amazon.com/Rediscover-Saints-Twenty-Five-Questions-Change/dp/1929266634) by Matthew Kelly
 * [Belonging and Becoming: Creating a Thriving Family Culture](https://www.amazon.com/Belonging-Becoming-Creating-Thriving-Culture/dp/0830844899) by Mark & Lisa Scandrette
 * [https://www.amazon.com/Living-Learning-John-Dewey-Century/dp/1887917128/ref=sr_1_1?keywords=living+as+learning&qid=1581273186&s=books&sr=1-1](https://www.amazon.com/Living-Learning-John-Dewey-Century/dp/1887917128/ref=sr_1_1?keywords=living+as+learning&qid=1581273186&s=books&sr=1-1) by Jim Garrison, Larry Hickman, & Daisaku Ikeda 
-* [the Artist's Rule: Nurturing Your Creative Soul with Monastic Wisdom](The Artist's Rule: Nurturing Your Creative Soul with Monastic Wisdom) by Christine Valters Paintner 
+* [the Artist's Rule: Nurturing Your Creative Soul with Monastic Wisdom](https://www.amazon.com/Artists-Rule-Nurturing-Creative-Monastic/dp/1933495294) by Christine Valters Paintner 
 * [The Elements of Journalism: What Newspeople Should Know and the Public Should Expect](https://www.amazon.com/Elements-Journalism-Revised-Updated-3rd/dp/0804136785) by Bill Kovach & Tom Rosenthiel
+* [Eyes of the Heart: Photography as a Christian Contemplative Practice](https://www.amazon.com/Eyes-Heart-Photography-Christian-Contemplative/dp/1933495545) by Christine Valters Paintner
+* [The Tao Te Ching: Lao Tzu's Book of the Way and of Righteousness](https://www.amazon.com/Tao-Te-Ching-Lao-Tzu/dp/1537196472/ref=sr_1_5?keywords=the+tao+te+ching&qid=1582240716&s=books&sr=1-5) by Charles Johnson 
 
 
 ### Books
