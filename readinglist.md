@@ -7,7 +7,6 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 
@@ -42,6 +41,7 @@ layout: default
 * [The Elements of Journalism: What Newspeople Should Know and the Public Should Expect](https://www.amazon.com/Elements-Journalism-Revised-Updated-3rd/dp/0804136785) by Bill Kovach & Tom Rosenthiel
 * [Eyes of the Heart: Photography as a Christian Contemplative Practice](https://www.amazon.com/Eyes-Heart-Photography-Christian-Contemplative/dp/1933495545) by Christine Valters Paintner
 * [The Tao Te Ching: Lao Tzu's Book of the Way and of Righteousness](https://www.amazon.com/Tao-Te-Ching-Lao-Tzu/dp/1537196472/ref=sr_1_5?keywords=the+tao+te+ching&qid=1582240716&s=books&sr=1-5) by Charles Johnson 
+* [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 
 
 ### Books
