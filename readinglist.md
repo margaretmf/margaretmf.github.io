@@ -6,6 +6,8 @@ layout: default
 
 ### Books
 #### Reading
+* [An Anthology of C.S. Lewis: A Mind Awake](https://www.amazon.com/Mind-Awake-Anthology-C-Lewis/dp/006264355X/ref=sr_1_1?keywords=a+mind+awake&qid=1582482329&s=books&sr=1-1) by C. S. Lewis
+* [Through the Language Glass: Why the World Looks Different In Other Languages](https://www.amazon.com/Through-Language-Glass-Different-Languages/dp/0312610491/ref=sr_1_1?crid=2RLKLAFSCAOUU&keywords=through+the+language+glass+by+guy+deutscher&qid=1582482343&s=books&sprefix=through+the+language+glass%2Cstripbooks%2C136&sr=1-1) by Guy Deutscher
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
@@ -42,6 +44,7 @@ layout: default
 * [Eyes of the Heart: Photography as a Christian Contemplative Practice](https://www.amazon.com/Eyes-Heart-Photography-Christian-Contemplative/dp/1933495545) by Christine Valters Paintner
 * [The Tao Te Ching: Lao Tzu's Book of the Way and of Righteousness](https://www.amazon.com/Tao-Te-Ching-Lao-Tzu/dp/1537196472/ref=sr_1_5?keywords=the+tao+te+ching&qid=1582240716&s=books&sr=1-5) by Charles Johnson 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
+* [Rediscover the Saints: Twenty-Five Questions That Will Change Your Life](https://www.amazon.com/Rediscover-Saints-Twenty-Five-Questions-Change/dp/1929266634/ref=pd_sbs_14_2/133-8559830-7622356?_encoding=UTF8&pd_rd_i=1929266634&pd_rd_r=69db994b-1c7a-45cc-b521-8fbe145c76f9&pd_rd_w=VY1Ar&pd_rd_wg=FIbFY&pf_rd_p=7cd8f929-4345-4bf2-a554-7d7588b3dd5f&pf_rd_r=N81VSM0Y72WJZJ5PZEMA&psc=1&refRID=N81VSM0Y72WJZJ5PZEMA) by Matthew Kelly
 
 
 ### Books
@@ -160,6 +163,9 @@ layout: default
 * [Integrity: Character of the Kingdom](https://www.amazon.com/Integrity-Character-Kingdom-Sean-Feucht/dp/1629115509) by Sean Feucht, Pastor Bill Johnson, & Andy Byrd
 * [Ask Powerful Questions: Create Conversations That Matter](https://www.amazon.com/Ask-Powerful-Questions-Create-Conversations/dp/1545322996) by Will Wise & Chad Littlefield 
 * [Give Your Child the World: Raising Globally Minded Kids One Book at a Time](https://www.amazon.com/Give-Your-Child-World-Globally/dp/0310344131) by Jamie C. Martin
+* [User Stories Applied: For Agile Software Development](https://www.amazon.com/User-Stories-Applied-Software-Development/dp/0321205685) by Mike Cohn
+* [The Collage Workbook: How to Get Started and Stay Inspired](https://www.amazon.com/Collage-Workbook-Started-Stay-Inspired/dp/1454701994/ref=sr_1_6?keywords=collage&qid=1582482113&s=books&sr=1-6) by Randel Plowman
+* [If You Can Cut, You Can Collage: From Paper Scraps to Works of Art](https://www.amazon.com/If-You-Can-Cut-Collage/dp/1631593358/ref=sr_1_4?keywords=collage&qid=1582482145&s=books&sr=1-4) by Hollie Chastain
 
 
 ## 2018
