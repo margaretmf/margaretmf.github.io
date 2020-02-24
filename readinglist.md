@@ -45,6 +45,7 @@ layout: default
 * [The Tao Te Ching: Lao Tzu's Book of the Way and of Righteousness](https://www.amazon.com/Tao-Te-Ching-Lao-Tzu/dp/1537196472/ref=sr_1_5?keywords=the+tao+te+ching&qid=1582240716&s=books&sr=1-5) by Charles Johnson 
 * [The Secret Lives of Colour](https://www.amazon.com/Secret-Lives-Color-Kassia-Clair/dp/0143131141) by Kassia St. Clari
 * [Rediscover the Saints: Twenty-Five Questions That Will Change Your Life](https://www.amazon.com/Rediscover-Saints-Twenty-Five-Questions-Change/dp/1929266634/ref=pd_sbs_14_2/133-8559830-7622356?_encoding=UTF8&pd_rd_i=1929266634&pd_rd_r=69db994b-1c7a-45cc-b521-8fbe145c76f9&pd_rd_w=VY1Ar&pd_rd_wg=FIbFY&pf_rd_p=7cd8f929-4345-4bf2-a554-7d7588b3dd5f&pf_rd_r=N81VSM0Y72WJZJ5PZEMA&psc=1&refRID=N81VSM0Y72WJZJ5PZEMA) by Matthew Kelly
+* [User Stories Applied: For Agile Software Development](https://www.amazon.com/User-Stories-Applied-Software-Development/dp/0321205685) by Mike Cohn
 
 
 ### Books
