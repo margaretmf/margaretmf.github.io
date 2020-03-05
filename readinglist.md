@@ -50,6 +50,7 @@ layout: default
 * [Writing Picture Books: A Hands-On Guide From Story Creation to Publication](https://www.amazon.com/Writing-Picture-Revised-Expanded-Hands/dp/1440353751/ref=asc_df_1440353751/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583589103262544&psc=1) By Ann Whitford Paul
 * [An Anthology of C.S. Lewis: A Mind Awake](https://www.amazon.com/Mind-Awake-Anthology-C-Lewis/dp/006264355X/ref=sr_1_1?keywords=a+mind+awake&qid=1582482329&s=books&sr=1-1) by C. S. Lewis
 * [Through the Language Glass: Why the World Looks Different In Other Languages](https://www.amazon.com/Through-Language-Glass-Different-Languages/dp/0312610491/ref=sr_1_1?crid=2RLKLAFSCAOUU&keywords=through+the+language+glass+by+guy+deutscher&qid=1582482343&s=books&sprefix=through+the+language+glass%2Cstripbooks%2C136&sr=1-1) by Guy Deutscher
+* [Chinese Calligraphy Workbook: 50 Characters to Inspire Peace and Calm](https://www.amazon.com/Chinese-Calligraphy-Characters-Inspire-Practice/dp/1577151305/ref=sr_1_1?keywords=chinese+calligraphy+suvana+lin&qid=1583411554&s=books&sr=1-1) by Suvana Lin
 
 
 ### Books
