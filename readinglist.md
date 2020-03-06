@@ -51,6 +51,7 @@ layout: default
 * [An Anthology of C.S. Lewis: A Mind Awake](https://www.amazon.com/Mind-Awake-Anthology-C-Lewis/dp/006264355X/ref=sr_1_1?keywords=a+mind+awake&qid=1582482329&s=books&sr=1-1) by C. S. Lewis
 * [Through the Language Glass: Why the World Looks Different In Other Languages](https://www.amazon.com/Through-Language-Glass-Different-Languages/dp/0312610491/ref=sr_1_1?crid=2RLKLAFSCAOUU&keywords=through+the+language+glass+by+guy+deutscher&qid=1582482343&s=books&sprefix=through+the+language+glass%2Cstripbooks%2C136&sr=1-1) by Guy Deutscher
 * [Chinese Calligraphy Workbook: 50 Characters to Inspire Peace and Calm](https://www.amazon.com/Chinese-Calligraphy-Characters-Inspire-Practice/dp/1577151305/ref=sr_1_1?keywords=chinese+calligraphy+suvana+lin&qid=1583411554&s=books&sr=1-1) by Suvana Lin
+* [Teaching Montessori in the Home: The Pre-School Years](https://www.amazon.com/Teaching-Montessori-Home-Pre-School-Years/dp/0452279097) by Elizabeth G. Hainstock
 
 
 ### Books
