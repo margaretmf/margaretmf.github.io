@@ -9,7 +9,6 @@ layout: default
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [Jesus in India](https://www.amazon.com/Jesus-India-Mirza-Ghulam-Ahmad/dp/1853727237) by Hadrat Mirza Ghulam Ahmad of Qadian
 * [Talking to Strangers: What We Should Know about the People We Don't Know](https://www.amazon.com/Talking-Strangers-Exhibit-Effectively-Results/dp/0954425103/ref=sr_1_2?crid=18EPLSHW4CKZJ&keywords=talking+to+strangers+malcolm+gladwell&qid=1583194658&sprefix=talking+to+%2Caps%2C145&sr=8-2) by Malcolm Gladwell
-* [It's Not Supposed to Be This Way: Finding Unexpected Strength When Disappointments Leave You Shattered](https://www.amazon.com/Its-Not-Supposed-This-Disappointments/dp/0718039858) by Lysa Terkeurst
 * [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 
@@ -52,6 +51,7 @@ layout: default
 * [Through the Language Glass: Why the World Looks Different In Other Languages](https://www.amazon.com/Through-Language-Glass-Different-Languages/dp/0312610491/ref=sr_1_1?crid=2RLKLAFSCAOUU&keywords=through+the+language+glass+by+guy+deutscher&qid=1582482343&s=books&sprefix=through+the+language+glass%2Cstripbooks%2C136&sr=1-1) by Guy Deutscher
 * [Chinese Calligraphy Workbook: 50 Characters to Inspire Peace and Calm](https://www.amazon.com/Chinese-Calligraphy-Characters-Inspire-Practice/dp/1577151305/ref=sr_1_1?keywords=chinese+calligraphy+suvana+lin&qid=1583411554&s=books&sr=1-1) by Suvana Lin
 * [Teaching Montessori in the Home: The Pre-School Years](https://www.amazon.com/Teaching-Montessori-Home-Pre-School-Years/dp/0452279097) by Elizabeth G. Hainstock
+* [It's Not Supposed to Be This Way: Finding Unexpected Strength When Disappointments Leave You Shattered](https://www.amazon.com/Its-Not-Supposed-This-Disappointments/dp/0718039858) by Lysa Terkeurst
 
 
 ### Books
