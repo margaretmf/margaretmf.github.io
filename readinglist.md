@@ -8,9 +8,9 @@ layout: default
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [Jesus in India](https://www.amazon.com/Jesus-India-Mirza-Ghulam-Ahmad/dp/1853727237) by Hadrat Mirza Ghulam Ahmad of Qadian
+* [Sharing the Rock: Shaping Our Future through Leadership for the Common Good](https://www.amazon.com/Sharing-Rock-Shaping-through-Leadership/dp/0984578609/ref=sr_1_1?keywords=sharing+the+rock+amazon&qid=1584401617&s=books&sr=1-1) by Bill Grace
+* [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
 * [Talking to Strangers: What We Should Know about the People We Don't Know](https://www.amazon.com/Talking-Strangers-Exhibit-Effectively-Results/dp/0954425103/ref=sr_1_2?crid=18EPLSHW4CKZJ&keywords=talking+to+strangers+malcolm+gladwell&qid=1583194658&sprefix=talking+to+%2Caps%2C145&sr=8-2) by Malcolm Gladwell
-* [The Metaphysical Club: A Story of Ideas in America](https://www.amazon.com/Metaphysical-Club-Story-Ideas-America/dp/0374528497) by Louis Menand
-* [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 
 
 #### Completed
