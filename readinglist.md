@@ -52,6 +52,7 @@ layout: default
 * [Teaching Montessori in the Home: The Pre-School Years](https://www.amazon.com/Teaching-Montessori-Home-Pre-School-Years/dp/0452279097) by Elizabeth G. Hainstock
 * [It's Not Supposed to Be This Way: Finding Unexpected Strength When Disappointments Leave You Shattered](https://www.amazon.com/Its-Not-Supposed-This-Disappointments/dp/0718039858) by Lysa Terkeurst
 * [Sharing the Rock: Shaping Our Future through Leadership for the Common Good](https://www.amazon.com/Sharing-Rock-Shaping-through-Leadership/dp/0984578609/ref=sr_1_1?keywords=sharing+the+rock+amazon&qid=1584401617&s=books&sr=1-1) by Bill Grace
+* [The Chronicles of Narnia: The Magician's Nephew](https://www.amazon.com/Magicians-Nephew-C-S-Lewis/dp/0064471101) by C. S. Lewis
 
 
 ### Books
