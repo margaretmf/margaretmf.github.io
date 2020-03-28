@@ -53,6 +53,7 @@ layout: default
 * [Sharing the Rock: Shaping Our Future through Leadership for the Common Good](https://www.amazon.com/Sharing-Rock-Shaping-through-Leadership/dp/0984578609/ref=sr_1_1?keywords=sharing+the+rock+amazon&qid=1584401617&s=books&sr=1-1) by Bill Grace
 * [The Chronicles of Narnia: The Magician's Nephew](https://www.amazon.com/Magicians-Nephew-C-S-Lewis/dp/0064471101) by C. S. Lewis
 * [Talking to Strangers: What We Should Know about the People We Don't Know](https://www.amazon.com/Talking-Strangers-Exhibit-Effectively-Results/dp/0954425103/ref=sr_1_2?crid=18EPLSHW4CKZJ&keywords=talking+to+strangers+malcolm+gladwell&qid=1583194658&sprefix=talking+to+%2Caps%2C145&sr=8-2) by Malcolm Gladwell
+* [The Chronicles of Narnia: The Lion, the Witch, and the Wardrobe](https://www.amazon.com/Lion-Witch-Wardrobe-Chronicles-Narnia-ebook/dp/B001I45UFC/ref=pd_sbsd_14_2/176-3005646-4651724?_encoding=UTF8&pd_rd_i=B001I45UFC&pd_rd_r=01229fd9-d99e-4f34-8191-88609cce098b&pd_rd_w=nvdDa&pd_rd_wg=V5LrT&pf_rd_p=f09bdd2b-90bc-43c5-a713-f5137b408abf&pf_rd_r=Q1VPBG4HHGFB3F9WYM7E&psc=1&refRID=Q1VPBG4HHGFB3F9WYM7E) by C. S. Lewis
 
 
 ### Books
