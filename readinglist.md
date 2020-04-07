@@ -7,8 +7,9 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [Jesus in India](https://www.amazon.com/Jesus-India-Mirza-Ghulam-Ahmad/dp/1853727237) by Hadrat Mirza Ghulam Ahmad of Qadian
 * [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
+* [The Chronicles of Narnia: The Horse and His Boy](https://www.amazon.com/Horse-His-Boy-C-Lewis/dp/0064471063) by C. S. Lewis
+* [Young China: How the Restless Generation will Change Their Country and the World]() by Zak Dychtwald
 
 
 #### Completed
@@ -55,6 +56,7 @@ layout: default
 * [Talking to Strangers: What We Should Know about the People We Don't Know](https://www.amazon.com/Talking-Strangers-Exhibit-Effectively-Results/dp/0954425103/ref=sr_1_2?crid=18EPLSHW4CKZJ&keywords=talking+to+strangers+malcolm+gladwell&qid=1583194658&sprefix=talking+to+%2Caps%2C145&sr=8-2) by Malcolm Gladwell
 * [The Chronicles of Narnia: The Lion, the Witch, and the Wardrobe](https://www.amazon.com/Lion-Witch-Wardrobe-Chronicles-Narnia-ebook/dp/B001I45UFC/ref=pd_sbsd_14_2/176-3005646-4651724?_encoding=UTF8&pd_rd_i=B001I45UFC&pd_rd_r=01229fd9-d99e-4f34-8191-88609cce098b&pd_rd_w=nvdDa&pd_rd_wg=V5LrT&pf_rd_p=f09bdd2b-90bc-43c5-a713-f5137b408abf&pf_rd_r=Q1VPBG4HHGFB3F9WYM7E&psc=1&refRID=Q1VPBG4HHGFB3F9WYM7E) by C. S. Lewis
 * [Freedom and Responsibility: Christian Science Healing for Children](https://www.thriftbooks.com/w/freedom-and-responsibility--christian-science-healing-for-children_scientist-first-church-of-christ/1711145/item/2963360/?mkwid=HQtBD9yx%7cdc&pcrid=11558792766&pkw=&pmt=be&slid=&product=2963360&plc=&pgrid=3970758550&ptaid=pla-1101002858882&utm_source=bing&utm_medium=cpc&utm_campaign=Bing+Shopping+%7c+Everything+Else&utm_term=&utm_content=HQtBD9yx%7cdc%7cpcrid%7c11558792766%7cpkw%7c%7cpmt%7cbe%7cproduct%7c2963360%7cslid%7c%7cpgrid%7c3970758550%7cptaid%7cpla-1101002858882%7c&msclkid=a15c1104a4921c331dad4f803542f95f#isbn=0875102093&idiq=2963360) by The First Church of Christ, Scientist
+* [Jesus in India](https://www.amazon.com/Jesus-India-Mirza-Ghulam-Ahmad/dp/1853727237) by Hadrat Mirza Ghulam Ahmad of Qadian
 
 
 ### Books
