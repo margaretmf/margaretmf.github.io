@@ -43,7 +43,7 @@ Trends and News Reviewer, Blog Writer, Media Manager, Researcher, & Ideator | Ja
 * Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
 * Manage over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
 * Research trends and organize design and systems research meetup groups to understand patterns, problems, and solutions
-* Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns
+* Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
 
 ### EVERFI
 Data Analyst | April 2016 - January 2019
