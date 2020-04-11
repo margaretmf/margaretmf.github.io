@@ -58,7 +58,7 @@ layout: default
 * [Freedom and Responsibility: Christian Science Healing for Children](https://www.thriftbooks.com/w/freedom-and-responsibility--christian-science-healing-for-children_scientist-first-church-of-christ/1711145/item/2963360/?mkwid=HQtBD9yx%7cdc&pcrid=11558792766&pkw=&pmt=be&slid=&product=2963360&plc=&pgrid=3970758550&ptaid=pla-1101002858882&utm_source=bing&utm_medium=cpc&utm_campaign=Bing+Shopping+%7c+Everything+Else&utm_term=&utm_content=HQtBD9yx%7cdc%7cpcrid%7c11558792766%7cpkw%7c%7cpmt%7cbe%7cproduct%7c2963360%7cslid%7c%7cpgrid%7c3970758550%7cptaid%7cpla-1101002858882%7c&msclkid=a15c1104a4921c331dad4f803542f95f#isbn=0875102093&idiq=2963360) by The First Church of Christ, Scientist
 * [Jesus in India](https://www.amazon.com/Jesus-India-Mirza-Ghulam-Ahmad/dp/1853727237) by Hadrat Mirza Ghulam Ahmad of Qadian
 * [The Lord Is My Shepherd: Healing Wisdom of the Twenty-Third Psalm](https://www.amazon.com/Lord-My-Shepherd-Healing-Twenty-third/dp/1400033357) by Harold S. Kushner
-
+* [On Color](https://www.amazon.com/Color-David-Kastan/dp/0300171870) by David Scott Kastan with Stephen Farthing
 
 ### Books
 #### Completed
