@@ -8,7 +8,6 @@ layout: default
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
-* [The Chronicles of Narnia: The Horse and His Boy](https://www.amazon.com/Horse-His-Boy-C-Lewis/dp/0064471063) by C. S. Lewis
 * [Young China: How the Restless Generation will Change Their Country and the World]() by Zak Dychtwald
 
 
@@ -59,6 +58,10 @@ layout: default
 * [Jesus in India](https://www.amazon.com/Jesus-India-Mirza-Ghulam-Ahmad/dp/1853727237) by Hadrat Mirza Ghulam Ahmad of Qadian
 * [The Lord Is My Shepherd: Healing Wisdom of the Twenty-Third Psalm](https://www.amazon.com/Lord-My-Shepherd-Healing-Twenty-third/dp/1400033357) by Harold S. Kushner
 * [On Color](https://www.amazon.com/Color-David-Kastan/dp/0300171870) by David Scott Kastan with Stephen Farthing
+* [The Chronicles of Narnia: The Horse and His Boy](https://www.amazon.com/Horse-His-Boy-C-Lewis/dp/0064471063) by C. S. Lewis
+* [Brilliant Maps for Curious Minds: 100 New Ways to See the World](https://www.amazon.com/Brilliant-Maps-Curious-Minds-World/dp/1615196250) by Ian Wright
+* [101: Sketching Tips - The Urban Sketching Handbook - Tricks, Techniques, and Handy Hacks for Sketching on the Go](https://www.amazon.com/Urban-Sketching-Handbook-Techniques-Handbooks-ebook/dp/B07ZS41MK8/ref=sr_1_1?dchild=1&keywords=101+sketching+tips&qid=1587068492&s=books&sr=1-1) by Stephanie Bower
+
 
 ### Books
 #### Completed
