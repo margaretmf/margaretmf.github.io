@@ -9,8 +9,8 @@ layout: default
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
 * [Shakespeare's Library: Unlocking the Greatest Mystery in Literature](https://www.amazon.com/Shakespeares-Library-Unlocking-Greatest-Literature-ebook/dp/B07FFWFPZS) by Stuart Kells
-* [Shakespeare Saved My Life: Ten Years in Solitary with the Bard](https://www.amazon.com/Shakespeare-Saved-Life-Laura-Bates/dp/1402273142/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1587156698&sr=1-1) by Laura Bates
 * [The Chronicles of Narnia: Prince Caspian](https://www.amazon.com/Prince-Caspian-Publisher-HarperTrophy-Collectors/dp/B004VEOEY4/ref=sr_1_2?dchild=1&keywords=prince+caspian+cs+lewis&qid=1587156741&s=books&sr=1-2)
+* [The Essential Rumi](https://www.amazon.com/Essential-Rumi-New-Expanded/dp/0062509594) by Coleman Barks
 
 
 #### Completed
@@ -64,6 +64,7 @@ layout: default
 * [Brilliant Maps for Curious Minds: 100 New Ways to See the World](https://www.amazon.com/Brilliant-Maps-Curious-Minds-World/dp/1615196250) by Ian Wright
 * [101: Sketching Tips - The Urban Sketching Handbook - Tricks, Techniques, and Handy Hacks for Sketching on the Go](https://www.amazon.com/Urban-Sketching-Handbook-Techniques-Handbooks-ebook/dp/B07ZS41MK8/ref=sr_1_1?dchild=1&keywords=101+sketching+tips&qid=1587068492&s=books&sr=1-1) by Stephanie Bower
 * [Young China: How the Restless Generation will Change Their Country and the World](https://www.amazon.com/Young-China-Restless-Generation-Country/dp/1250078814) by Zak Dychtwald
+* [Shakespeare Saved My Life: Ten Years in Solitary with the Bard](https://www.amazon.com/Shakespeare-Saved-Life-Laura-Bates/dp/1402273142/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1587156698&sr=1-1) by Laura Bates
 
 
 ### Books
