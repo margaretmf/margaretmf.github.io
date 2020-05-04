@@ -66,6 +66,7 @@ layout: default
 * [Shakespeare Saved My Life: Ten Years in Solitary with the Bard](https://www.amazon.com/Shakespeare-Saved-Life-Laura-Bates/dp/1402273142/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1587156698&sr=1-1) by Laura Bates
 * [The Chronicles of Narnia: Prince Caspian](https://www.amazon.com/Prince-Caspian-Publisher-HarperTrophy-Collectors/dp/B004VEOEY4/ref=sr_1_2?dchild=1&keywords=prince+caspian+cs+lewis&qid=1587156741&s=books&sr=1-2)
 * [The Essential Rumi](https://www.amazon.com/Essential-Rumi-New-Expanded/dp/0062509594) by Coleman Barks
+* [The Hidden Life of Trees](https://www.amazon.com/Hidden-Life-Trees-Illustrated/dp/177164348X/ref=sr_1_2?dchild=1&keywords=hidden+life+of+trees&qid=1588551998&s=books&sr=1-2) by Peter Wohlleben & Jane Billinghurst
 
 
 ### Books
