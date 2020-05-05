@@ -7,7 +7,6 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [The Immeasurable World: Journeys in Desert Places](https://www.amazon.com/Immeasurable-World-Journeys-Desert-Places/dp/0385539886) by William Atkins
 * [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
 * [Shakespeare's Library: Unlocking the Greatest Mystery in Literature](https://www.amazon.com/Shakespeares-Library-Unlocking-Greatest-Literature-ebook/dp/B07FFWFPZS) by Stuart Kells
 
@@ -68,6 +67,7 @@ layout: default
 * [The Essential Rumi](https://www.amazon.com/Essential-Rumi-New-Expanded/dp/0062509594) by Coleman Barks
 * [The Hidden Life of Trees](https://www.amazon.com/Hidden-Life-Trees-Illustrated/dp/177164348X/ref=sr_1_2?dchild=1&keywords=hidden+life+of+trees&qid=1588551998&s=books&sr=1-2) by Peter Wohlleben & Jane Billinghurst
 * [The Chronicles of Narnia: The Voyage of the Dawn Treader](https://www.amazon.com/Voyage-Dawn-Treader-Book-Publisher/dp/B004SD812O/ref=sr_1_3?dchild=1&keywords=the+voyage+of+the+dawn+treader&qid=1588554865&s=books&sr=1-3) by C. S. Lewis
+* [The Immeasurable World: Journeys in Desert Places](https://www.amazon.com/Immeasurable-World-Journeys-Desert-Places/dp/0385539886) by William Atkins
 
 
 ### Books
