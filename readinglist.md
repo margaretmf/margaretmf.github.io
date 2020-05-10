@@ -75,6 +75,8 @@ layout: default
 * [The Chronicles of Narnia: The Voyage of the Dawn Treader](https://www.amazon.com/Voyage-Dawn-Treader-Book-Publisher/dp/B004SD812O/ref=sr_1_3?dchild=1&keywords=the+voyage+of+the+dawn+treader&qid=1588554865&s=books&sr=1-3) by C. S. Lewis
 * [The Immeasurable World: Journeys in Desert Places](https://www.amazon.com/Immeasurable-World-Journeys-Desert-Places/dp/0385539886) by William Atkins
 * [The Chronicles of Narnia: The Silver Chair](https://www.amazon.com/Silver-Chair-C-S-Lewis/dp/0064471098) by C. S. Lewis
+* [Ethnography Essentials](https://www.amazon.com/Ethnography-Essentials-Julian-M-Murchison/dp/0470343893) by 	
+Julian M. Murchison
 
 
 ### Books
