@@ -12,7 +12,6 @@ layout: default
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 * [Following in the Buddha's Footsteps](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion-ebook/dp/B07P5HDFR2/ref=sr_1_1?crid=128BP1QQ1PYVW&dchild=1&keywords=following+in+the+buddha%27s+footsteps&qid=1588950804&s=books&sprefix=following+in+the+%2Cstripbooks%2C140&sr=1-1) by The Dalai Lama with Thubten Chodron
 * [Quirky: The Remarkable Story of the Traits, Foibles, and Genius of Breakthrough Innovators Who Changed the World](https://www.amazon.com/Quirky-Remarkable-Foibles-Breakthrough-Innovators/dp/1541724534/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1588950916&sr=1-1) by Melissa A. Schilling
-* [The Power of Myth](https://www.amazon.com/Power-Myth-Joseph-Campbell-1988-05-01/dp/B01LP4GN28/ref=sr_1_2?dchild=1&keywords=the+power+of+myth&qid=1588950975&s=books&sr=1-2) by Joseph Campbell
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490/ref=sr_1_1_sspa?dchild=1&keywords=emotional+agility&qid=1588951005&s=books&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEySVRWU0hVWTVQVThRJmVuY3J5cHRlZElkPUExMDAxMDcxMlVHMjFHRUJHN1hRMiZlbmNyeXB0ZWRBZElkPUEwNjUxMDkwMldFMUY2TUJVWDhQTiZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=) by Susan David
 
 
@@ -77,6 +76,7 @@ layout: default
 * [Ethnography Essentials](https://www.amazon.com/Ethnography-Essentials-Julian-M-Murchison/dp/0470343893) by 	
 Julian M. Murchison
 * [The Chronicles of Narnia: The Last Battle](https://www.amazon.com/Last-Battle-Chronicles-Narnia/dp/B002LITS66/ref=sr_1_2?crid=29EBW71RGTOMM&dchild=1&keywords=the+last+battle+cs+lewis&qid=1588950775&s=books&sprefix=the+last+battle%2Cstripbooks%2C144&sr=1-2) by C. S. Lewis
+* [The Power of Myth](https://www.amazon.com/Power-Myth-Joseph-Campbell-1988-05-01/dp/B01LP4GN28/ref=sr_1_2?dchild=1&keywords=the+power+of+myth&qid=1588950975&s=books&sr=1-2) by Joseph Campbell
 
 
 ### Books
