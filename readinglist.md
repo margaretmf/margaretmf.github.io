@@ -77,6 +77,7 @@ layout: default
 Julian M. Murchison
 * [The Chronicles of Narnia: The Last Battle](https://www.amazon.com/Last-Battle-Chronicles-Narnia/dp/B002LITS66/ref=sr_1_2?crid=29EBW71RGTOMM&dchild=1&keywords=the+last+battle+cs+lewis&qid=1588950775&s=books&sprefix=the+last+battle%2Cstripbooks%2C144&sr=1-2) by C. S. Lewis
 * [The Power of Myth](https://www.amazon.com/Power-Myth-Joseph-Campbell-1988-05-01/dp/B01LP4GN28/ref=sr_1_2?dchild=1&keywords=the+power+of+myth&qid=1588950975&s=books&sr=1-2) by Joseph Campbell
+* [Calligraphy Made Easy](https://www.target.com/p/calligraphy-made-easy-book-piccadilly/-/A-53058649?sid=2203&ref=tgt_adv_XS000000&AFID=bing_pla_df&fndsrc=tgtao&CPNG=PLA_Seasonal%2BShopping&adgroup=SC_Seasonal&LID=700000001230728pbs&network=s&device=c&querystring=calligraphy%20made%20easy&msclkid=5a9e98cdd00919c0c3e5c60c1691552c&gclid=CPuQ_MeEvOkCFQ7JswodoAMA_g&gclsrc=ds)
 
 
 ### Books
