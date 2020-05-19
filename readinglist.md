@@ -79,6 +79,8 @@ Julian M. Murchison
 * [The Power of Myth](https://www.amazon.com/Power-Myth-Joseph-Campbell-1988-05-01/dp/B01LP4GN28/ref=sr_1_2?dchild=1&keywords=the+power+of+myth&qid=1588950975&s=books&sr=1-2) by Joseph Campbell
 * [Calligraphy Made Easy](https://www.target.com/p/calligraphy-made-easy-book-piccadilly/-/A-53058649?sid=2203&ref=tgt_adv_XS000000&AFID=bing_pla_df&fndsrc=tgtao&CPNG=PLA_Seasonal%2BShopping&adgroup=SC_Seasonal&LID=700000001230728pbs&network=s&device=c&querystring=calligraphy%20made%20easy&msclkid=5a9e98cdd00919c0c3e5c60c1691552c&gclid=CPuQ_MeEvOkCFQ7JswodoAMA_g&gclsrc=ds)
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
+* [52 Creative Adventures in Drawing, Painting, Printmaking, Paper, and Mixed Media: Art for Kids](https://www.amazon.com/Art-Lab-Kids-Printmaking-Media/dp/1592537650) by Susan Schwake
+* [Look Closer, Draw Better: Expert Techniques for Realistic Drawing](https://www.amazon.com/Look-Closer-Draw-Better-Techniques-ebook/dp/B07RBSKLPM/ref=sr_1_1?dchild=1&keywords=look+closer%2C+draw+better+expert+techniques+for+realistic+drawing&qid=1589927379&s=books&sr=1-1) by Kateri Ewing
 
 
 ### Books
