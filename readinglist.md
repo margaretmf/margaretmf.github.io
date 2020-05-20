@@ -8,7 +8,6 @@ layout: default
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
-* [Shakespeare's Library: Unlocking the Greatest Mystery in Literature](https://www.amazon.com/Shakespeares-Library-Unlocking-Greatest-Literature-ebook/dp/B07FFWFPZS) by Stuart Kells
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 * [Following in the Buddha's Footsteps](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion-ebook/dp/B07P5HDFR2/ref=sr_1_1?crid=128BP1QQ1PYVW&dchild=1&keywords=following+in+the+buddha%27s+footsteps&qid=1588950804&s=books&sprefix=following+in+the+%2Cstripbooks%2C140&sr=1-1) by The Dalai Lama with Thubten Chodron
 * [Quirky: The Remarkable Story of the Traits, Foibles, and Genius of Breakthrough Innovators Who Changed the World](https://www.amazon.com/Quirky-Remarkable-Foibles-Breakthrough-Innovators/dp/1541724534/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1588950916&sr=1-1) by Melissa A. Schilling
@@ -82,6 +81,7 @@ Julian M. Murchison
 * [52 Creative Adventures in Drawing, Painting, Printmaking, Paper, and Mixed Media: Art for Kids](https://www.amazon.com/Art-Lab-Kids-Printmaking-Media/dp/1592537650) by Susan Schwake
 * [Look Closer, Draw Better: Expert Techniques for Realistic Drawing](https://www.amazon.com/Look-Closer-Draw-Better-Techniques-ebook/dp/B07RBSKLPM/ref=sr_1_1?dchild=1&keywords=look+closer%2C+draw+better+expert+techniques+for+realistic+drawing&qid=1589927379&s=books&sr=1-1) by Kateri Ewing
 * [Math Games Lab for Kids](https://www.amazon.com/Math-Games-Lab-Kids-Hands/dp/1631592521) by Rebecca Rapoport & J. A. Yoder
+* [Shakespeare's Library: Unlocking the Greatest Mystery in Literature](https://www.amazon.com/Shakespeares-Library-Unlocking-Greatest-Literature-ebook/dp/B07FFWFPZS) by Stuart Kells
 
 
 ### Books
