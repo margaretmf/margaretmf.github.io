@@ -81,6 +81,7 @@ Julian M. Murchison
 * [The Invention of Wings](https://www.amazon.com/Invention-Wings-Sue-Monk-Kidd/dp/0143121707) by Sue Monk Kidd
 * [52 Creative Adventures in Drawing, Painting, Printmaking, Paper, and Mixed Media: Art for Kids](https://www.amazon.com/Art-Lab-Kids-Printmaking-Media/dp/1592537650) by Susan Schwake
 * [Look Closer, Draw Better: Expert Techniques for Realistic Drawing](https://www.amazon.com/Look-Closer-Draw-Better-Techniques-ebook/dp/B07RBSKLPM/ref=sr_1_1?dchild=1&keywords=look+closer%2C+draw+better+expert+techniques+for+realistic+drawing&qid=1589927379&s=books&sr=1-1) by Kateri Ewing
+* [Math Games Lab for Kids](https://www.amazon.com/Math-Games-Lab-Kids-Hands/dp/1631592521) by Rebecca Rapoport & J. A. Yoder
 
 
 ### Books
