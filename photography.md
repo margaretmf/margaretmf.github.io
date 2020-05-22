@@ -29,10 +29,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="snow-water-branches.jpg">
-
-
-
 <img class="profile-picture" src="tree.jpg">
 
 
@@ -62,6 +58,10 @@ layout: default
 
 
 <img class="profile-picture" src="beauty.jpg">
+
+
+
+<img class="profile-picture" src="snow-water-branches.jpg">
 
 
 
