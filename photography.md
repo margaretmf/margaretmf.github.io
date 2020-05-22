@@ -5,9 +5,6 @@ layout: default
 <br>
 
 
-<img class="profile-picture" src="yellow-flowers1.jpg">
-
-
 
 <img class="profile-picture" src="yellow-flowers2.jpg">
 
@@ -15,9 +12,6 @@ layout: default
 
 <img class="profile-picture" src="purple-flowers1.jpg">
 
-
-
-<img class="profile-picture" src="purple-flowers2.jpg">
 
 
 <img class="profile-picture" src="light-yellow-flower.jpg">
