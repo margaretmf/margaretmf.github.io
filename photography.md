@@ -17,6 +17,7 @@ layout: default
 <img class="profile-picture" src="light-yellow-flower.jpg">
 
 
+
 <img class="profile-picture" src="flower-house.jpg">
                                                   
                                                   
@@ -224,11 +225,12 @@ layout: default
 <img class="profile-picture" src="colors1.jpg">
 
 
+
 <img class="profile-picture" src="ColoredWall1.jpg">
 
 
 
-<img class="profile-picture" src="colors5.jpg"
+<img class="profile-picture" src="colors5.jpg">
 
 
 
