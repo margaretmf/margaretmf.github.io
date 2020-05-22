@@ -50,6 +50,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="greenery1.jpg">
+
+
+
 <img class="profile-picture" src="kentucky_farm.jpg">
 
 
