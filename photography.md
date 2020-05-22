@@ -221,6 +221,17 @@ layout: default
 
 
 
+<img class="profile-picture" src="colors1.jpg">
+
+
+<img class="profile-picture" src="ColoredWall1.jpg">
+
+
+
+<img class="profile-picture" src="colors5.jpg"
+
+
+
 <img class="profile-picture" src="ducks.jpg">
 
 
