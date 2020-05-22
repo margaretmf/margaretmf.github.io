@@ -238,7 +238,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="chrysler-art.jpg">
+<img class="profile-picture" src="chrysler.jpg">
 
 
 
