@@ -23,7 +23,7 @@ layout: default
 <img class="profile-picture" src="light-yellow-flower.jpg">
 
 
-<img class="profile-picture" src=flower-house.jpg">
+<img class="profile-picture" src="flower-house.jpg">
                                                   
                                                   
                                                   
