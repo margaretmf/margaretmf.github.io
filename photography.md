@@ -162,6 +162,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="dancing.jpg">
+
+
+
 <img class="profile-picture" src="chinatown.jpg">
 
 
@@ -178,7 +182,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="dancing.jpg">
+<img class="profile-picture" src="window-reflection.jpg">
 
 
 
