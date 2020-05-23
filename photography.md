@@ -278,6 +278,22 @@ layout: default
 
 
 
+<img class="profile-picture" src="fountain1.jpg">
+
+
+
+<img class="profile-picture" src="water-norfolk1.jpg">
+
+
+
+<img class="profile-picture" src="water-norfolk3.jpg">
+
+
+
+<img class="profile-picture" src="water-sunlight.jpg">
+
+
+
 <b>
 
 <b>
