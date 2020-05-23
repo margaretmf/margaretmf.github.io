@@ -82,6 +82,7 @@ Julian M. Murchison
 * [Look Closer, Draw Better: Expert Techniques for Realistic Drawing](https://www.amazon.com/Look-Closer-Draw-Better-Techniques-ebook/dp/B07RBSKLPM/ref=sr_1_1?dchild=1&keywords=look+closer%2C+draw+better+expert+techniques+for+realistic+drawing&qid=1589927379&s=books&sr=1-1) by Kateri Ewing
 * [Math Games Lab for Kids](https://www.amazon.com/Math-Games-Lab-Kids-Hands/dp/1631592521) by Rebecca Rapoport & J. A. Yoder
 * [Shakespeare's Library: Unlocking the Greatest Mystery in Literature](https://www.amazon.com/Shakespeares-Library-Unlocking-Greatest-Literature-ebook/dp/B07FFWFPZS) by Stuart Kells
+* [Never Unfriended: The Secret to Finding & Keeping Lasting Friendships](https://www.amazon.com/Never-Unfriended-Finding-Keeping-Friendships/dp/1433643065) by Lisa-Jo Baker
 
 
 ### Books
