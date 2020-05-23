@@ -50,6 +50,9 @@ layout: default
 
 
 
+<img class="profile-picture" src="leaves.jpg">
+
+
 <img class="profile-picture" src="greenery1.jpg">
 
 
