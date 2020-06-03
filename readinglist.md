@@ -85,6 +85,7 @@ Julian M. Murchison
 * [Never Unfriended: The Secret to Finding & Keeping Lasting Friendships](https://www.amazon.com/Never-Unfriended-Finding-Keeping-Friendships/dp/1433643065) by Lisa-Jo Baker
 * [The Partnership: Five Cold Warriors and Their Quest to Ban the Bomb](https://www.amazon.com/Partnership-Five-Warriors-Their-Quest/dp/0061744077/ref=sr_1_1?dchild=1&keywords=the+partnership+five+cold+warriors&qid=1591224317&s=books&sr=1-1) by 	
 Philip Taubman
+* [True Peace Work: Essential Writings on Engaged Buddhism](https://www.amazon.com/True-Peace-Work-Essential-Writings/dp/1946764450/ref=sr_1_1?dchild=1&keywords=true+peace+work&qid=1591224523&s=books&sr=1-1) by Thich Nhat Hanh, the Dalai Lama, Joanna Macy, and Bill McKibben
 
 
 ### Books
