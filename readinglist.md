@@ -83,6 +83,8 @@ Julian M. Murchison
 * [Math Games Lab for Kids](https://www.amazon.com/Math-Games-Lab-Kids-Hands/dp/1631592521) by Rebecca Rapoport & J. A. Yoder
 * [Shakespeare's Library: Unlocking the Greatest Mystery in Literature](https://www.amazon.com/Shakespeares-Library-Unlocking-Greatest-Literature-ebook/dp/B07FFWFPZS) by Stuart Kells
 * [Never Unfriended: The Secret to Finding & Keeping Lasting Friendships](https://www.amazon.com/Never-Unfriended-Finding-Keeping-Friendships/dp/1433643065) by Lisa-Jo Baker
+* [The Partnership: Five Cold Warriors and Their Quest to Ban the Bomb](https://www.amazon.com/Partnership-Five-Warriors-Their-Quest/dp/0061744077/ref=sr_1_1?dchild=1&keywords=the+partnership+five+cold+warriors&qid=1591224317&s=books&sr=1-1) by 	
+Philip Taubman
 
 
 ### Books
