@@ -50,7 +50,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="playground.jpg">
+<img class="profile-picture" src="tree2.jpg">
 
 
 
