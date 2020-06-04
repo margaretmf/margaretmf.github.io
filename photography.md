@@ -190,6 +190,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="window-reflection2.jpg">
+
+
+
 <img class="profile-picture" src="voting.jpg">
 
 
