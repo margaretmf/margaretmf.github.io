@@ -318,7 +318,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="pond-island-reflection.jpg">
+<img class="profile-picture" src="pond-reflection.jpg">
 
 
 
