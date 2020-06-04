@@ -354,6 +354,14 @@ layout: default
 
 
 
+<img class="profile-picture" src="pond.jpg">
+
+
+
+<img class="profile-picture" src="water-leaves.jpg">
+
+
+
 <b>
 
 <b>
