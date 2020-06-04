@@ -210,7 +210,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="rug.jpg">
+<img class="profile-picture" src="rugs.jpg">
 
 
 
@@ -311,6 +311,22 @@ layout: default
 
 
 <img class="profile-picture" src="water-sunlight.jpg">
+
+
+
+<img class="profile-picture" src="fountain.jpg">
+
+
+
+<img class="profile-picture" src="pond-island-reflection.jpg">
+
+
+
+<img class="profile-picture" src="islands-water6.jpg">
+
+
+
+<img class="profile-picture" src="shore.jpg">
 
 
 
