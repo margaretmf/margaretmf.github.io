@@ -30,7 +30,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="tree.jpg">
+<img class="profile-picture" src="pink-flowers.jpg">
 
 
 
@@ -39,6 +39,10 @@ layout: default
 
 
 <img class="profile-picture" src="pink-flowers1.jpg">
+
+
+
+<img class="profile-picture" src="tree.jpg">
 
 
 
