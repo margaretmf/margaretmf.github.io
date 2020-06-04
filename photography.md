@@ -86,6 +86,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="sky-sun-clouds.jpg">
+
+
+
 <img class="profile-picture" src="christmas-flowers.jpg">
 
 
