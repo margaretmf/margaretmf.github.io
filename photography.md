@@ -198,6 +198,14 @@ layout: default
 
 
 
+<img class="profile-picture" src="school-zone.jpg">
+
+
+
+<img class="profile-picture" src="america-gas-station3.jpg">
+
+
+
 <img class="profile-picture" src="apple-sf.jpg">
 
 
@@ -375,6 +383,10 @@ layout: default
 
 
 <img class="profile-picture" src="islands-water6.jpg">
+
+
+
+<img class="profile-picture" src="islands-water2.jpg">
 
 
 
