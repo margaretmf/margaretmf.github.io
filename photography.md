@@ -74,6 +74,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="light.jpg">
+
+
+
 <img class="profile-picture" src="christmas-flowers.jpg">
 
 
