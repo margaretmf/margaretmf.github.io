@@ -394,7 +394,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="islands_water6.jpg">
+<img class="profile-picture" src="islands-water6.jpg">
 
 
 
