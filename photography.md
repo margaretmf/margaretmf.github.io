@@ -186,6 +186,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="school.jpg">
+
+
+
+<img class="profile-picture" src="school-bus.jpg">
+
+
+
+<img class="profile-picture" src="playground.jpg">
+
+
+
 <img class="profile-picture" src="apple-sf.jpg">
 
 
