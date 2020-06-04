@@ -326,6 +326,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="islands1.jpg">
+
+
+
+<img class="profile-picture" src="coconut4.jpg">
+
+
+
+<img class="profile-picture" src="coconut2.jpg">
+
+
+
 <img class="profile-picture" src="fan.jpg">
 
 
