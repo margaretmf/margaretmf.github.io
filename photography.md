@@ -122,6 +122,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="silver.jpg">
+
+
+
 <img class="profile-picture" src="dc.jpg">
 
 
