@@ -202,6 +202,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="rug.jpg">
+
+
+
 <img class="profile-picture" src="blankets.jpg">
 
 
