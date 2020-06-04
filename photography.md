@@ -206,6 +206,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="mirror.jpg">
+
+
+
 <img class="profile-picture" src="voting.jpg">
 
 
@@ -267,6 +271,26 @@ layout: default
 
 
 <img class="profile-picture" src="chrysler.jpg">
+
+
+
+<img class="profile-picture" src="paint.jpg">
+
+
+
+<img class="profile-picture" src="colored-window.jpg">
+
+
+
+<img class="profile-picture" src="stained-glass-window.jpg">
+
+
+
+<img class="profile-picture" src="islands-water1.jpg">
+
+
+
+<img class="profile-picture" src="fan.jpg">
 
 
 
