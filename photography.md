@@ -66,7 +66,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="kentucky_farm.jpg">
+<img class="profile-picture" src="fall-foliage.jpg">
 
 
 
