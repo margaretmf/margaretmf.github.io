@@ -118,6 +118,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="rose-flower-house.jpg">
+
+
+
 <img class="profile-picture" src="dc.jpg">
 
 
