@@ -8,15 +8,17 @@ As I read books and news through 2019, I will review outstanding stories critica
 <br>
 
 
+## 2020 NEWS REVIEWS
+### [How long can Americans live in a state of emergency?](https://www.csmonitor.com/USA/Justice/2020/0529/How-long-can-Americans-live-in-a-state-of-emergency)
+In May 2020, Henry Gass wrote an article on the coronavirus pandemic's affect on the United States of America.
+
+
+<br>
+
+<br>
+
+
 ## 2019 NEWS REVIEWS
-### [Trump, Impeachment, and US Voters’ Alternate Realities](https://www.csmonitor.com/Daily/2019/20190927#1096339)
-
-
-<br>
-
-<br>
-
-
 ### [Beyond Birthday Cards and Hugs: The Rise of Intensive Grandparenting](https://www.csmonitor.com/USA/Society/2019/0920/Beyond-birthday-cards-and-hugs-The-rise-of-intensive-grandparenting?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1569078043)
 In September 2019, Chelsea Sheasley wrote with the Christian Science Monitor on how grandparents care for children in the 21st century. She begins the article highlighting grandmother Judy Dion's 78 mile drive to Cambridge, MA, where she watches her grandson for two days per week.
 
