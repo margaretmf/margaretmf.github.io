@@ -398,7 +398,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="islands-water2.jpg">
+<img class="profile-picture" src="boston.jpg">
 
 
 
