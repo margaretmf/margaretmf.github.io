@@ -38,6 +38,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="pink-flowers1.jpg">
+
+
+
 <img class="profile-picture" src="redwood-tree.jpg">
 
 
@@ -147,6 +151,10 @@ layout: default
 
 
 <img class="profile-picture" src="norfolk.jpg">
+
+
+
+<img class="profile-picture" src="norfolk2.jpg">
 
 
 
