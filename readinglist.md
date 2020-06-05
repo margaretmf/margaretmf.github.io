@@ -7,11 +7,8 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [Following in the Buddha's Footsteps: The Dalai Lama](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion/dp/1614296251) by Thubten Chodron
+* [Surprised by Motherhood: Everything I Never Expected about Being a Mom](https://www.amazon.com/Surprised-Motherhood-Everything-Never-Expected-ebook/dp/B00E1O7EVE/ref=sr_1_1?crid=1EC39EA4ZRE8L&dchild=1&keywords=surprised+by+motherhood&qid=1590378473&s=books&sprefix=surprised+by+moth%2Cstripbooks%2C145&sr=1-1) by Lisa-Jo Baker
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
-* [Following in the Buddha's Footsteps](https://www.amazon.com/Following-Buddhas-Footsteps-Library-Compassion-ebook/dp/B07P5HDFR2/ref=sr_1_1?crid=128BP1QQ1PYVW&dchild=1&keywords=following+in+the+buddha%27s+footsteps&qid=1588950804&s=books&sprefix=following+in+the+%2Cstripbooks%2C140&sr=1-1) by The Dalai Lama with Thubten Chodron
-* [Quirky: The Remarkable Story of the Traits, Foibles, and Genius of Breakthrough Innovators Who Changed the World](https://www.amazon.com/Quirky-Remarkable-Foibles-Breakthrough-Innovators/dp/1541724534/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1588950916&sr=1-1) by Melissa A. Schilling
-* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490/ref=sr_1_1_sspa?dchild=1&keywords=emotional+agility&qid=1588951005&s=books&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEySVRWU0hVWTVQVThRJmVuY3J5cHRlZElkPUExMDAxMDcxMlVHMjFHRUJHN1hRMiZlbmNyeXB0ZWRBZElkPUEwNjUxMDkwMldFMUY2TUJVWDhQTiZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=) by Susan David
 
 
 #### Completed
