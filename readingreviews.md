@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## BLOG
-As I read books and news through 2019, I will review outstanding stories critically to share light on them and the authors. Also this year and next year, I hope to look at patterns in the news, develop an artistic expression of a framework around news events, and apply an understanding of technology and photography.
+As I read news through 2019 and 2020, I will review outstanding stories critically to share light on them and the authors. Also this year and next year, I hope to look at patterns in the news, develop an artistic expression of a framework around news events, and apply an understanding of technology and photography.
 
 <br>
 
@@ -11,6 +11,16 @@ As I read books and news through 2019, I will review outstanding stories critica
 ## 2020 NEWS REVIEWS
 ### [How long can Americans live in a state of emergency?](https://www.csmonitor.com/USA/Justice/2020/0529/How-long-can-Americans-live-in-a-state-of-emergency)
 In May 2020, Henry Gass wrote an article on the coronavirus pandemic's affect on the United States of America.
+
+Journalist, Henry Gass, opens the article by informing readers that the pandemic has tested civil liberties. In the fourth paragraph, he writes, "The coronavirus pandemic represents the latest test of civil liberties, and it’s testing these liberties in unprecedented ways, even as the U.S. death count passed 100,000 this week." And he shares with the audience words from Meryl Chertoff's mouth; Meryl Chertoff is executive director of the Project on State and Local Government Policy and Law at the Georgetown University Law Center.
+
+Experts and the public do not know the time frame for the national crisis, and this threatens civil liberties. Because of the threat, leaders have put in place emergency measures. Scientists have made progress in developing treatments and a vaccine, but they have not advanced enough.
+
+While people reopen some organizations and places with restrictions in place, Gass reports that "lockdown fatigue seems to be setting in" and the majority of people "support[ing] social distancing guidelines...is shrinking." When people feel threatened by limitations, they give up liberties; so while people, including libertarians support the social distancing guidelines, the restrictions lead to adverse situations for the public.
+
+The author summarizes: “The normal conditions that justify liberty of movement and travel ... are regrettably not present when each of us (with no conscious choice on our parts) is potentially highly lethal to people around us. However peaceable we might be in our intentions, our assembling is a physical threat. Our judgments about liberty, I think, need to reflect that,” wrote Eugene Volokh, a constitutional law expert at the UCLA School of Law, on April 4.
+
+Gass then writes on how legal actions have related to civil liberties and the pandemic.
 
 
 <br>
