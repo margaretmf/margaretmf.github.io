@@ -7,9 +7,7 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [Surprised by Motherhood: Everything I Never Expected about Being a Mom](https://www.amazon.com/Surprised-Motherhood-Everything-Never-Expected-ebook/dp/B00E1O7EVE/ref=sr_1_1?crid=1EC39EA4ZRE8L&dchild=1&keywords=surprised+by+motherhood&qid=1590378473&s=books&sprefix=surprised+by+moth%2Cstripbooks%2C145&sr=1-1) by Lisa-Jo Baker
 * [The Secret Life of Babies: How Our Prebirth and Birth Experiences Shape Our World](https://www.amazon.com/Secret-Life-Babies-Prebirth-Experiences/dp/1583948031/ref=sr_1_1?dchild=1&keywords=the+secret+life+of+babies&qid=1591365103&s=books&sr=1-1) by Mia Kalef, DC
-* [Humility is the New Smart: Rethinking Human Excellence in the Smart Machine Age](https://www.amazon.com/Humility-New-Smart-Rethinking-Excellence/dp/1626568758/ref=sr_1_1?dchild=1&keywords=humility+is+the+new+smart&qid=1591365223&s=audible&sr=1-1-catcorr) by Edward D. Hess & Katherine Ludwig
 * [The Humanities and Everyday Life](https://www.amazon.com/Humanities-Everyday-Life-Literary-Agenda/dp/0198808291) by Michael Levenson
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 
@@ -88,6 +86,8 @@ Philip Taubman
 * [True Peace Work: Essential Writings on Engaged Buddhism](https://www.amazon.com/True-Peace-Work-Essential-Writings/dp/1946764450/ref=sr_1_1?dchild=1&keywords=true+peace+work&qid=1591224523&s=books&sr=1-1) by Thich Nhat Hanh, the Dalai Lama, Joanna Macy, and Bill McKibben
 * [20 Ways to Draw A Tree and 44 Other Nifty THings from Nature: A Sketchbook for Artists, Designers, and Doodlers](https://www.amazon.com/Ways-Other-Nifty-Things-Nature/dp/1592538371/ref=asc_df_1592538371/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583657822030946&psc=1) by Eloise Renouf
 * [Thought as a System](https://www.amazon.com/Thought-as-System-David-Bohm/dp/0415110300) by David Bohm
+* [Humility is the New Smart: Rethinking Human Excellence in the Smart Machine Age](https://www.amazon.com/Humility-New-Smart-Rethinking-Excellence/dp/1626568758/ref=sr_1_1?dchild=1&keywords=humility+is+the+new+smart&qid=1591365223&s=audible&sr=1-1-catcorr) by Edward D. Hess & Katherine Ludwig
+* [Surprised by Motherhood: Everything I Never Expected about Being a Mom](https://www.amazon.com/Surprised-Motherhood-Everything-Never-Expected-ebook/dp/B00E1O7EVE/ref=sr_1_1?crid=1EC39EA4ZRE8L&dchild=1&keywords=surprised+by+motherhood&qid=1590378473&s=books&sprefix=surprised+by+moth%2Cstripbooks%2C145&sr=1-1) by Lisa-Jo Baker
 
 
 ### Books
