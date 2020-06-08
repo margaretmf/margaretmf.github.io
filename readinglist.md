@@ -7,9 +7,8 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [The Secret Life of Babies: How Our Prebirth and Birth Experiences Shape Our World](https://www.amazon.com/Secret-Life-Babies-Prebirth-Experiences/dp/1583948031/ref=sr_1_1?dchild=1&keywords=the+secret+life+of+babies&qid=1591365103&s=books&sr=1-1) by Mia Kalef, DC
 * [The Second Mountain: The Quest for a Moral Life](https://www.amazon.com/Second-Mountain-David-Brooks/dp/0812993268) by David Brooks
-* [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712) by Brad Smith, Carol Ann Browne, & Bill Gates 
+* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life ](https://www.amazon.com/Emotional-Agility-Unstuck-Embrace-Change/dp/1592409490/ref=sr_1_2?dchild=1&keywords=emotional+agility&qid=1591577697&sr=8-2) by Susan David
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 
 
@@ -90,6 +89,7 @@ Philip Taubman
 * [Humility is the New Smart: Rethinking Human Excellence in the Smart Machine Age](https://www.amazon.com/Humility-New-Smart-Rethinking-Excellence/dp/1626568758/ref=sr_1_1?dchild=1&keywords=humility+is+the+new+smart&qid=1591365223&s=audible&sr=1-1-catcorr) by Edward D. Hess & Katherine Ludwig
 * [Surprised by Motherhood: Everything I Never Expected about Being a Mom](https://www.amazon.com/Surprised-Motherhood-Everything-Never-Expected-ebook/dp/B00E1O7EVE/ref=sr_1_1?crid=1EC39EA4ZRE8L&dchild=1&keywords=surprised+by+motherhood&qid=1590378473&s=books&sprefix=surprised+by+moth%2Cstripbooks%2C145&sr=1-1) by Lisa-Jo Baker
 * [The Humanities and Everyday Life](https://www.amazon.com/Humanities-Everyday-Life-Literary-Agenda/dp/0198808291) by Michael Levenson
+* [The Secret Life of Babies: How Our Prebirth and Birth Experiences Shape Our World](https://www.amazon.com/Secret-Life-Babies-Prebirth-Experiences/dp/1583948031/ref=sr_1_1?dchild=1&keywords=the+secret+life+of+babies&qid=1591365103&s=books&sr=1-1) by Mia Kalef, DC
 
 
 ### Books
