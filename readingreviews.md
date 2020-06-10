@@ -10,6 +10,67 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 ## 2020 NEWS REVIEWS
 ### [A Timeline of U.S. Police Protests](https://www.citylab.com/equity/2020/06/american-history-protest-police-brutality-black-lives-racism/612445/0)
+In June 2020, journalists Marie Patino and Linda Poon shared a timeline of the police protests in the U.S. After a white police officer killed George Floyd on May 25 while arresting him using brute force, the public broke out because this episode of brutality has happened before with Tamir Rice (2014), Michael Brown (2014, Freddie Gray (2015), Philando Castile (2016), and Rodney King (1992). With there existing a larger trend, journalists share a timeline of the protests.
+
+Why does the public respond to the aggression with protests? Patino and Poon quote Marcia Chatelain, a professor of African American history at Georgetown University, 'What protests have been effective in doing is raising the public consciousness about the level of public violence that communities experience....They have also exposed the amount of money that has been spent on police forces and weapons...'"
+
+Journalists share how according to this professor at Georgetown University, "increased militarization of police force" started in the 1960s. But the modern day media shifts how the public interacts with the police brutality. These initial acts of aggression are part of a broader movement of systemic racism, and a timeline below reveals the patterns.
+
+March 3, 1991
+Los Angeles, California
+Rodney King (25 years old — died 20 years later) - beaten, injured, and survived
+* Events, Protests, Aftermath
+
+February 4, 1999
+New York, New York
+Amadou Diallo (23 years old) — shot, and killed
+* Events, Protests, Aftermath
+
+November 25, 2006
+New York, New York
+Sean Bell (23 years old) — shot, and killed
+* Events, Protests
+
+December 20, 2011
+St. Louis, Missouri
+Anthony Lamar Smith (24 years old) — shot, and killed
+* Events, Protests, Aftermath
+
+July 17, 2014
+New York, New York
+Eric Garner (43 years old) - shot, and killed
+* Events, Protests, Aftermath
+
+August 9, 2014
+Ferguson, Missouri
+Michael Brown (18 years old) — shot, and killed
+* Events, Protests, Aftermath
+
+April 12, 2015
+Baltimore, Maryland
+Freddie Gray (25 years old) — killed
+* Events, Protests, Aftermath
+
+July 5, 2016
+Baton Rouge, Louisiana
+Alton Sterling (37 years old) — shot, and killed
+* Events, Protests, Aftermath
+
+July 6, 2016
+St. Paul, Minnesota
+Philando Castile (32 years old) — shot, and killed
+* Events, Protests, Aftermath
+
+May 25, 2020
+Minneapolis, Minnesota
+George Floyd (46 years old) — sustained pressure, and killed
+* Events, Protests, Aftermath
+
+Many of these events correspond with African Americans being arrested.
+
+Journalists compare the George Floyd protest to the ones that precede it, and they note that "the scale of the current demonstrations is unprecedented" with the protests "spread[ing] to more than 650 cities across all 50 states." What are the protesters demanding? "Not only justice for Floyd, and police reform in Minneapolis, but a complete overhaul of America's justice system." With the protests coinciding with the 2020 presidential election, "the demonstrations could have far-reaching effects in U.S. policy; 57% of Americans believe that police are using excessive force against African Americans, compared to just 34% of registered voters in 2016 after the police shooting of Alton Sterling."
+
+Now is a tipping point.
 
 
 <br>
@@ -18,6 +79,13 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ### [Voting Machines and Coronavirus Force Long lines on Georgia Voters](https://www.ajc.com/news/state--regional-govt--politics/voting-machines-and-coronavirus-force-long-lines-georgia-voters/VajM2D3aSHALhCz7KwDrpJ/)
+Mark Niesse in June 2020 wrote on how the cornavirus influences voting in The Atlanta Journal-Constitution.
+
+He reports that on Tuesday June 9, 2020, voters in Georgia's primary waited for hours with masks on while officials were unprepared for the new computers due to the pandemic in Fulton County. "Poll workers couldn’t get voting machines to work. Precincts opened late. Social-distancing requirements created long lines. Some voters gave up and went home." The pandemic that began in Wuhan, China negatively influences voting in the primaries in a battelground state.
+
+The writers share how "problems have been building for weeks as precincts closed, poll workers quite, and the primary was postponed because of the health danger." Because of the meltdown and the technological learning curve, "both Secretary of State Brad Raffensperger and House Speaker David Ralston opened separate investigations Tuesday into elections management, focusing on Fulton County, where the largest number of problems were reported." The reporter quotes DeKalb County CEO Michael Thurmond who "called issues with voting machines 'an attack on the democratic process.'" And the Secretary of State has responsbility, but he denied the technical glitches. Quoting citizen Danielle Johnston on how the government's role in preventing the technical glitches demonstrates a failure to protect the democratic process, Niesse shares the statement, "'This is insulting to our constitutional right to vote.'" Poll workers did not receive adequate training or enough support from the Secretary of State.
+
+An increased number of citizens have been voting via ballots, but this slowdown in Fulton County foreshadows problems in election day in November. Michael McDonald, who runs United States Election told Mark Niesse "'I have never seen the scale of election fialures happening in Georgia today...this does not bode well for November.'"
 
 
 <br>
