@@ -9,7 +9,46 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
-### [How long can Americans live in a state of emergency?](https://www.csmonitor.com/USA/Justice/2020/0529/How-long-can-Americans-live-in-a-state-of-emergency)
+### [A Timeline of U.S. Police Protests](https://www.citylab.com/equity/2020/06/american-history-protest-police-brutality-black-lives-racism/612445/0)
+
+
+<br>
+
+<br>
+
+
+### [Voting Machines and Coronavirus Force Long lines on Georgia Voters](https://www.ajc.com/news/state--regional-govt--politics/voting-machines-and-coronavirus-force-long-lines-georgia-voters/VajM2D3aSHALhCz7KwDrpJ/)
+
+
+<br>
+
+<br>
+
+
+### [How Racist Policing Took Over American cities, Explained by a Historian](https://www.vox.com/2020/6/6/21280643/police-brutality-violence-protests-racism-khalil-muhammad)
+
+<br>
+
+<br>
+
+
+### [America Is Giving Up on the Pandemic](https://www.theatlantic.com/science/archive/2020/06/america-giving-up-on-pandemic/612796/)
+
+
+<br>
+
+<br>
+
+
+### [‘Safe Streets’ Are Not Safe for Black Lives](https://www.citylab.com/perspective/2020/06/open-streets-transportation-planning-urban-design-racism/612763/)
+
+
+<br>
+
+<br>
+
+
+### [How Long Can Americans Live In a State of Emergency?](https://www.csmonitor.com/USA/Justice/2020/0529/How-long-can-Americans-live-in-a-state-of-emergency)
 In May 2020, Henry Gass wrote an article on the coronavirus pandemic's affect on the United States of America.
 
 Journalist, Henry Gass, opens the article by informing readers that the pandemic has tested civil liberties. In the fourth paragraph, he writes, "The coronavirus pandemic represents the latest test of civil liberties, and it’s testing these liberties in unprecedented ways, even as the U.S. death count passed 100,000 this week." And he shares with the audience words from Meryl Chertoff's mouth; Meryl Chertoff is executive director of the Project on State and Local Government Policy and Law at the Georgetown University Law Center.
