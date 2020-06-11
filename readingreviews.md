@@ -94,13 +94,23 @@ An increased number of citizens have been voting via ballots, but this slowdown 
 
 
 ### [How Racist Policing Took Over American cities, Explained by a Historian](https://www.vox.com/2020/6/6/21280643/police-brutality-violence-protests-racism-khalil-muhammad)
+Anna North on June 6, 2020 coverted in a Vox article the historical roots of racist policing; at the top, she highlights historians Khalil Muhammad's words: "The problem is the way policing was built."
+
+A little over 100 years ago - 101 years ago - white people killed Eugene Williams, a 17-year-old black boy after committing a crime, "sw[imming] into what they deemed the wrong part of Lake Michigan." Black people protested back then in response to brutality in response to wrongdoing. Covering the violent protests in reaction to the stoning of the boy, Anna North wrote, "More than 500 people were injured and 38 were killed." Historian Khalil Muhammad shared with North that the city investigated the cause of the violence and "found 'systemic participation in mob violence by the police'" and "'when police officers had the choice to protect black people, they chose to either aid and abet white mobs or to disarm black people or to arrest them.'" Nothing is new today; the crime and the aggressive reactions that took place in 1992 just appear differently today in 2020.
+
+The article's writer compares the historical event to day with the following words: "It's almost 100 years later, and thousands of Americans are in the streets daily, protesting the same violence and racism that the Chicago commission documented." Today, there is an awakening to the police force's wrongdoing, and "part of that awakening, though, also involves understanding the history of police violence.
+
+Khalil Muhammad researches and writes about systemic racism and criminal justice, so he knows much about it. Anna North talks with him and records the transcript from their conversation to inform the public on the roots of the modern day issue, and how people can come out of the "vicious cycle" of abuse. The problem includes how Americans in the past built the police force, and to stop the cycle, the policing behavior and the definition of justice must reform.
+
+To understand the transcript, see [here](https://www.vox.com/2020/6/6/21280643/police-brutality-violence-protests-racism-khalil-muhammad).
+
 
 <br>
 
 <br>
 
 
-### [America Is Giving Up on the Pandemic](https://www.theatlantic.com/science/archive/2020/06/america-giving-up-on-pandemic/612796/)
+### [Could the Coronavirus Change the Way We Look for Love?](https://www.csmonitor.com/The-Culture/2020/0610/Could-the-coronavirus-change-the-way-we-look-for-love-audio?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591798544)
 
 
 <br>
@@ -108,7 +118,55 @@ An increased number of citizens have been voting via ballots, but this slowdown 
 <br>
 
 
-### [‘Safe Streets’ Are Not Safe for Black Lives](https://www.citylab.com/perspective/2020/06/open-streets-transportation-planning-urban-design-racism/612763/)
+### [EdTech Is Surging, and Parents Have Some Notes](https://techcrunch.com/2020/06/09/edtech-is-surging-and-parents-have-some-notes/)
+
+
+<br>
+
+<br>
+
+
+### [Summer School 2020: Hints for How The Fall Will Go?](https://www.csmonitor.com/USA/Education/2020/0610/Summer-school-2020-Hints-for-how-the-fall-will-go?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591821116)
+
+
+<br>
+
+<br>
+
+
+### [America's Black Belt Communities Mobilize to Fight Virus, Hunger](https://www.csmonitor.com/USA/2020/0610/America-s-Black-Belt-communities-mobilize-to-fight-virus-hunger?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591815675)
+
+
+<br>
+
+<br>
+
+
+### [China’s Vision for The Post-Pandemic World Is Taking Shape](https://qz.com/1862567/chinas-vision-for-the-post-covid-19-world/?utm_source=Twitter&utm_medium=qz-organic&utm_term=twitter&utm_content=84cc8b52-f3aa-4c05-864e-2a1e546b4a22&utm_campaign=hootsuite)
+
+
+<br>
+
+<br>
+
+
+### [The Looming Bank Collapse](https://www.theatlantic.com/magazine/archive/2020/07/coronavirus-banks-collapse/612247/?utm_campaign=the-atlantic&utm_term=2020-06-10T09%253A00%253A07&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
+
+
+<br>
+
+<br>
+
+
+### [Why Understanding Cash Flow Is Crucial in Crisis](https://www.inc.com/entrepreneurs-organization/why-understanding-cash-flow-is-crucial-in-crisis.html?cid=sf01001)
+
+
+<br>
+
+<br>
+
+
+### [Nations That Plan Roots of Peace](https://www.csmonitor.com/Commentary/the-monitors-view/2020/0610/Nations-that-plant-roots-of-peace?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591822388)
 
 
 <br>
