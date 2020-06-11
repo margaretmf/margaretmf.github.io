@@ -111,6 +111,13 @@ To understand the transcript, see [here](https://www.vox.com/2020/6/6/21280643/p
 
 
 ### [Could the Coronavirus Change the Way We Look for Love?](https://www.csmonitor.com/The-Culture/2020/0610/Could-the-coronavirus-change-the-way-we-look-for-love-audio?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591798544)
+Jessica Mendoza Multimedia reporter and Whitney Eulich Correspondent write on how the coronavirus pandemic shifts relationships.
+
+People during the quarantine still seek relationships, but with stay-at-home orders, individuals express love via zoom calls or online from two separate apartments.
+
+The reporters write, "the shift away from dining in restaurants or going out has been frustrating, but those in the thick of it are finding things they like about this new approach to dating." So, the tone of relationships has been shifting.
+
+See thetranscript for the audio [here](https://www.csmonitor.com/The-Culture/2020/0610/Could-the-coronavirus-change-the-way-we-look-for-love-audio?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591798544)
 
 
 <br>
@@ -119,6 +126,13 @@ To understand the transcript, see [here](https://www.vox.com/2020/6/6/21280643/p
 
 
 ### [EdTech Is Surging, and Parents Have Some Notes](https://techcrunch.com/2020/06/09/edtech-is-surging-and-parents-have-some-notes/)
+Bryce Durbin with TechCrunch shares how the rise of edtech coincides with the quarantine. He reports that while most sectors businesses have been plummeting, the edtech sector has been experiencing success. He writes, "Flashcards startup Quizlet is now a unicorn, digital textbook company Top Hat is finding unprecedented surges in usage and student success business Edsights raised nearly $2 million from high-profile investors, all from inbound interest. Investors are so confident that homeschooling might become a trend that they just invested $3.7 million in Primer, which creates a 'full-stack infrastructure' to help parents get started." With parents and children at home, they use these tools more, but the software does solve all of the problems; children still need regular schooling.
+
+How are parents responding to the educational technology? Durbin shares. He writes that "one major issue for parents is balancing a decrease in live learning with an uptick in 'do it at your own pace' learning." And he quotes Liza Walker, who stated that "she is frustrated by the limited amount of live interaction that her 10-year-old has with teachers and classmates each day." Walker informs Bryce that most "of the school day looks like him sitting in front of a computer. Think pre-recorded videos, followed up by an online quiz, capped with doing homework on a Google doc." The technology is addressing a problem with children not being able to go to school, but it is not addressing every problem - the technology does not replace real school; there is some fatigue with the computer usage, and parents must monitor their youth online in new ways. One mom "helps Zoe log on and off and mute when appropriate so instruction can go on interrupted, ironically enough."
+
+As educational software plays an important role in the spring of 2020, the businesses see their work paying off and more opportunities to innovate and improve. Bryce writes, "In light of the struggles parents and educators alike are seeing with the current set of online learning tools and their inability to inspire young learners, new edtech startups are thinking about how the future of remote learning might look." The reporter then shares information on the different applications. Many of the applications have been built for teachers to use with the kids, but now they are not present with them, and rather their parents are. Despite the original function of the technology, the products are "what parents need right now. We’re left with a reminder that technology can only help so much in a remote-only world, and that education has always been more than just comprehension and test-taking."
+
+More schooling in the future may occur remotely. Parents have been discovering that they cannot always be there and they need childcare assistants since school offers childcare. Some startups have been innovating and building childcare assisance into their business models, so new doors around homeschooling have been opening.
 
 
 <br>
