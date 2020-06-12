@@ -9,7 +9,7 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
-### [Starbucks Just Announced a Drastic Change. What Every Company Can Learn From It](https://www.inc.com/justin-bariso/starbucks-pickup-is-a-smart-covid-related-adjustment.html?cid=sf01001) by Justin Bariso
+### [Starbucks Just Announced a Drastic Change. What Every Company Can Learn From It](https://www.inc.com/justin-bariso/starbucks-pickup-is-a-smart-covid-related-adjustment.html?cid=sf01001) 
 
 
 <br>
