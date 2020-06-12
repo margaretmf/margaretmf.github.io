@@ -165,6 +165,29 @@ More schooling in the future may occur remotely. Parents have been discovering t
 
 
 ### [The Looming Bank Collapse](https://www.theatlantic.com/magazine/archive/2020/07/coronavirus-banks-collapse/612247/?utm_campaign=the-atlantic&utm_term=2020-06-10T09%253A00%253A07&utm_medium=social&utm_source=twitter&utm_content=edit-promo)
+Frank Partnoy with The Atlantic in June wrote a story on finance and how the coronavirus pandemic has negatively impacted the economy. Manifestations of the pandemic include "broken supply chains, record unemployment, failing small businesses" that could lead to a recssion. But this story that Partnoy writes is about a larger threat of a crash that "lurks on the balance sheets." 
+
+Partnoy then covers the details of economic crashes. A crash occurred in 2008. Partony explains that "the financial crisis of 2008 was about home mortgages" with "hundreds of billions of dollars in loans to home buyers" being "repackaged into securities called collateralized debt obligations, known as CDOs". Banks shifted the blame onto home buyers, then they went under, and then the economy plummeted.
+
+In response to the financial crash, the federal government intervened. Partnoy shares how "to prevent the next crisis, Congress in 2020 passed the Dodd-Frank Act" that mandated that banks "borrow less, make fewer long-shot bets, and be more transparent about their holdings." Partnoy highlights that "Congress also tried to reform the credit-rating agencies" to help borrowers.
+
+Banks have fallen back into bad habits after these changes. Instead of with CDOs, problems with CLOs, collateralized loan obligations with corporations have existed. Partnoy writes the following paragraph:
+
+"Unless you work in finance, you probably haven’t heard of CLOs, but according to many estimates, the CLO market is bigger than the subprime-mortgage CDO market was in its heyday. The Bank for International Settlements, which helps central banks pursue financial stability, has estimated the overall size of the CDO market in 2007 at $640 billion; it estimated the overall size of the CLO market in 2018 at $750 billion. More than $130 billion worth of CLOs have been created since then, some even in recent months. Just as easy mortgages fueled economic growth in the 2000s, cheap corporate debt has done so in the past decade, and many companies have binged on it."
+
+Economists undermine the risks of the CLOs as they did with the CDOs. And then Partnoy writes another paragraph:
+
+"I have a checking account and a home mortgage with Wells Fargo; I decided to see how heavily invested my bank is in CLOs. I had to dig deep into the footnotes of the bank’s most recent annual report, all the way to page 144. Listed there are its “available for sale” accounts. These are investments a bank plans to sell at some point, though not necessarily right away. The list contains the categories of safe assets you might expect: U.S. Treasury bonds, municipal bonds, and so on. Nestled among them is an item called 'collateralized loan and other obligations'—CLOs. I ran my finger across the page to see the total for these investments, investments that Powell and Mnuchin have asserted are 'outside the banking system.'
+
+The total is $29.7 billion. It is a massive number. And it is inside the bank."
+
+With these risks on balances lurking, the sheets do not have enough leverage. Some banks have 100% of their capital being CLOs, and "if the leveraged-loan market imploded, their liabilities could quickly become greater than their assets." Financial experts are gambling with the CLOs, but their defenders argue that they are not a gamble.
+
+Partnoy explains that loan defaults are happening already, and it will only get worse especially with the pandemic. He summarizes the following:
+
+"We are not in the midst of a conventional downturn. The two companies with the largest amount of outstanding debt on Fitch’s April list were Envision Healthcare, a medical-staffing company that, among other things, helps hospitals administer emergency-room care, and Intelsat, which provides satellite broadband access. Also added to the list was Hoffmaster, which makes products used by restaurants to package food for takeout. Companies you might have expected to weather the present economic storm are among those suffering most acutely as consumers not only tighten their belts, but also redefine what they consider necessary."
+
+Partnoy in his article tells the story of a "grim outlook", but this negative scenario is only a worst-case one. But he adds that "it is a distasteful fact that the present situation is so dire in part because the banks fell right back into bad behavior after the last crash—taking too many risks, hiding debt in complex instruments and off-balance-sheet entities, and generally exploiting loopholes in laws intended to rein in their greed."
 
 
 <br>
@@ -173,6 +196,11 @@ More schooling in the future may occur remotely. Parents have been discovering t
 
 
 ### [Why Understanding Cash Flow Is Crucial in Crisis](https://www.inc.com/entrepreneurs-organization/why-understanding-cash-flow-is-crucial-in-crisis.html?cid=sf01001)
+"In a recent webinar, Alan Miltz, co-founder of Cash Flow Story, shared his expertise around the importance of cash flow during the crisis." Recently Miltz said, "At the moment, it's all about cash." His statement leads people to understand the difference between cash flow and profit. Banks right now are investigating if corporations can pay back loans so cash flows are what they are looking at to predict if corporations can stay afloat with during the pandemic.
+
+What is cash flow? It is a measure of "debt-service capacity." "Very simply, Miltz says, cash flow is 'the movement of money in all of your bank accounts.'" Falling margins, slower collections, swelling inventory, and paying suppliers too fast influence cash flow.
+
+What is happening to capital right now? "Once the crisis eases, banks will come looking for their money. To pay them back, companies will require growth. In order to grow, businesses need working capital, which Investopedia defines as 'the difference between a company's current assets, such as cash, accounts receivable (your customers' unpaid bills) and inventories of raw materials and finished goods, and its current liabilities, such as accounts payable.'" And business leaders must understand cash flow right now during this crisis. It is crucial, as the title of the article informs readers.
 
 
 <br>
