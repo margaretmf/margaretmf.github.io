@@ -9,6 +9,46 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [Second U.S. Virus Wave Emerges as Cases Top 2 Million](https://www.bloomberg.com/news/articles/2020-06-10/second-u-s-virus-wave-emerges-after-state-reopenings?cmpid=BBD061120_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200611&utm_campaign=citylabdaily)
+
+
+<br>
+
+<br>
+
+
+### [The Secret Project That Led to Black Lives Matter Murals Coast to Coast](https://www.newyorker.com/news/news-desk/the-secret-project-that-led-to-black-lives-matter-murals-coast-to-coast)
+
+
+<br>
+
+<br>
+
+
+### [When Child Welfare Cases Police Women in Their Homes](https://www.citylab.com/equity/2020/06/child-welfare-investigation-women-of-color-low-income-mother/612880/)
+
+
+<br>
+
+<br>
+
+
+### [What Happened When the Office Came Home](https://www.citylab.com/design/2020/06/home-office-setup-design-history-remote-work-furniture/612889/)
+
+
+<br>
+
+<br>
+
+
+### [Even the Pandemic Can’t Kill the Open-Plan Office](https://www.citylab.com/life/2020/05/open-office-design-coronavirus-risk-safe-workplace-health/611299/)
+
+
+<br>
+
+<br>
+
+
 ### [A Timeline of U.S. Police Protests](https://www.citylab.com/equity/2020/06/american-history-protest-police-brutality-black-lives-racism/612445/0)
 In June 2020, journalists Marie Patino and Linda Poon shared a timeline of the police protests in the U.S. After a white police officer killed George Floyd on May 25 while arresting him using brute force, the public broke out because this episode of brutality has happened before with Tamir Rice (2014), Michael Brown (2014, Freddie Gray (2015), Philando Castile (2016), and Rodney King (1992). With there existing a larger trend, journalists share a timeline of the protests.
 
