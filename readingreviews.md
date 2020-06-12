@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [Starbucks Just Announced a Drastic Change. What Every Company Can Learn From It](https://www.inc.com/justin-bariso/starbucks-pickup-is-a-smart-covid-related-adjustment.html?cid=sf01001) by Justin Bariso
+
+
+<br>
+
+<br>
+
+
 ### [Second U.S. Virus Wave Emerges as Cases Top 2 Million](https://www.bloomberg.com/news/articles/2020-06-10/second-u-s-virus-wave-emerges-after-state-reopenings?cmpid=BBD061120_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200611&utm_campaign=citylabdaily)
 
 
@@ -181,6 +189,11 @@ More schooling in the future may occur remotely. Parents have been discovering t
 
 
 ### [Summer School 2020: Hints for How The Fall Will Go?](https://www.csmonitor.com/USA/Education/2020/0610/Summer-school-2020-Hints-for-how-the-fall-will-go?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591821116)
+In June 2020, Chelsea Sheasley covered summer school. Parents have been overseeing their childrens' remote learning, and as the summer begins, some moms consider sending their kids to school. Amanda Sonnenberg says, “But given the circumstances that we just had COVID-19 ... I would consider [summer school] just to help them be prepared for next year.”
+
+Those running schools in education management have been considering how summer school can help prepare little ones for the fall after a rough spring. The article's author reports, "Educators here, in New England’s second-largest city, and across the United States are considering how best to use the summer to help students make up for lost learning after the most disruptive spring for K-12 education in recent history."  Some schools will not have any offerings. Other districts thinks schools can have a large impact this summer. Quoting Kathryn McDermott, an education policy professor at the University of Massachusetts, "To the extent that [summer school] can be done well and in ways that could reach students who’ve been missed previously by remote learning, it would be huge.” Los Angelis is one city where summer school is being offered for the first time in creative years; Worcester in Massachusetts is another place where summer school is being conducted online.
+
+Many end-of-year assessments did not take place so educators do not know how much students lossed in learning, but summer school, if done well, would help prevent learning loss on top of spring covid-19 loss. Chelsea shares a statistic: "A preliminary study by researchers at NWEA, a nonprofit in Portland, Oregon, that designs student assessments, suggests that students nationwide will start school in the fall with roughly 70% of the learning gains normally made in reading during a typical school year and with less than 50% of learning gains in math." In Worcester, MA, community members are coming together to learn in new ways throughout the summer and prevent learning loss.
 
 
 <br>
@@ -189,14 +202,6 @@ More schooling in the future may occur remotely. Parents have been discovering t
 
 
 ### [America's Black Belt Communities Mobilize to Fight Virus, Hunger](https://www.csmonitor.com/USA/2020/0610/America-s-Black-Belt-communities-mobilize-to-fight-virus-hunger?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1591815675)
-
-
-<br>
-
-<br>
-
-
-### [China’s Vision for The Post-Pandemic World Is Taking Shape](https://qz.com/1862567/chinas-vision-for-the-post-covid-19-world/?utm_source=Twitter&utm_medium=qz-organic&utm_term=twitter&utm_content=84cc8b52-f3aa-4c05-864e-2a1e546b4a22&utm_campaign=hootsuite)
 
 
 <br>
