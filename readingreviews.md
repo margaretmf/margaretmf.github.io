@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [Protests Are Galvanizing Demands to Take Cops Out of Schools](https://nymag.com/intelligencer/2020/06/the-movement-to-take-cops-out-of-school-is-picking-up-steam.html)
+
+
+<br>
+
+<br>
+
+
 ### [When the Pandemic Sent You Back to Childhood](https://www.citylab.com/life/2020/06/living-at-home-parents-millennials-generation-z-coronavirus/611650/) 
 
 
@@ -58,6 +66,9 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ### [Even the Pandemic Can’t Kill the Open-Plan Office](https://www.citylab.com/life/2020/05/open-office-design-coronavirus-risk-safe-workplace-health/611299/)
+Despite many employees aversion to open-plan offices, they will still use them when the pandemic ends. City Lab's reporter Sarah Holder writes a story on this.
+
+To open the article, Holder depicts and open-plan office.
 
 
 <br>
