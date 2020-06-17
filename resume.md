@@ -32,6 +32,12 @@ Systems Practice | January - May 2019
 
 ### RELIGIOUS FREEDOM CENTER, DC INTERFAITH SUMMIT, AND SOLIYA
 Sustained Dialogue Faciliation
+* Learning to engage with difference through communication techniques.
+
+
+### Myers Park Presbyterian Church, Better When We're Back Together
+21-Day Race Equity Challenge
+* Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 21 days.
 
 <br>
  
