@@ -10,6 +10,8 @@ layout: default
 * [The Second Mountain: The Quest for a Moral Life](https://www.amazon.com/Second-Mountain-David-Brooks/dp/0812993268) by David Brooks
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712/ref=sr_1_1?dchild=1&keywords=tools+and+weapons&qid=1591620549&s=books&sr=1-1) by Brad SMith & Carol Ann Browne
+* [Hearing the Voice of God: Is That Really You, God?](https://www.amazon.com/That-Really-You-God-Hearing/dp/1576582442/ref=sr_1_1?dchild=1&keywords=is+that+really+you+god&qid=1592749536&s=books&sr=1-1) by Loren Cunningham 
+* [Jesus - Healer of the Brokenhearted: Discovering the Pathway to Healing Through Spirit-led Mind Renewal](https://www.amazon.com/Jesus-Healer-Brokenhearted-Frank-Meadows/dp/1947165623) by Frank Meadows
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 
