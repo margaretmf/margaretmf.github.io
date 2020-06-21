@@ -7,9 +7,7 @@ layout: default
 ### Books
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
-* [The Second Mountain: The Quest for a Moral Life](https://www.amazon.com/Second-Mountain-David-Brooks/dp/0812993268) by David Brooks
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
-* [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712/ref=sr_1_1?dchild=1&keywords=tools+and+weapons&qid=1591620549&s=books&sr=1-1) by Brad SMith & Carol Ann Browne
 * [Hearing the Voice of God: Is That Really You, God?](https://www.amazon.com/That-Really-You-God-Hearing/dp/1576582442/ref=sr_1_1?dchild=1&keywords=is+that+really+you+god&qid=1592749536&s=books&sr=1-1) by Loren Cunningham 
 * [Jesus - Healer of the Brokenhearted: Discovering the Pathway to Healing Through Spirit-led Mind Renewal](https://www.amazon.com/Jesus-Healer-Brokenhearted-Frank-Meadows/dp/1947165623) by Frank Meadows
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
@@ -94,6 +92,8 @@ Philip Taubman
 * [Surprised by Motherhood: Everything I Never Expected about Being a Mom](https://www.amazon.com/Surprised-Motherhood-Everything-Never-Expected-ebook/dp/B00E1O7EVE/ref=sr_1_1?crid=1EC39EA4ZRE8L&dchild=1&keywords=surprised+by+motherhood&qid=1590378473&s=books&sprefix=surprised+by+moth%2Cstripbooks%2C145&sr=1-1) by Lisa-Jo Baker
 * [The Humanities and Everyday Life](https://www.amazon.com/Humanities-Everyday-Life-Literary-Agenda/dp/0198808291) by Michael Levenson
 * [The Secret Life of Babies: How Our Prebirth and Birth Experiences Shape Our World](https://www.amazon.com/Secret-Life-Babies-Prebirth-Experiences/dp/1583948031/ref=sr_1_1?dchild=1&keywords=the+secret+life+of+babies&qid=1591365103&s=books&sr=1-1) by Mia Kalef, DC
+* [The Second Mountain: The Quest for a Moral Life](https://www.amazon.com/Second-Mountain-David-Brooks/dp/0812993268) by David Brooks
+* [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712/ref=sr_1_1?dchild=1&keywords=tools+and+weapons&qid=1591620549&s=books&sr=1-1) by Brad SMith & Carol Ann Browne
 
 
 ### Books
