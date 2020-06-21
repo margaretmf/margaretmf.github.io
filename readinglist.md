@@ -10,6 +10,7 @@ layout: default
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [Hearing the Voice of God: Is That Really You, God?](https://www.amazon.com/That-Really-You-God-Hearing/dp/1576582442/ref=sr_1_1?dchild=1&keywords=is+that+really+you+god&qid=1592749536&s=books&sr=1-1) by Loren Cunningham 
 * [Jesus - Healer of the Brokenhearted: Discovering the Pathway to Healing Through Spirit-led Mind Renewal](https://www.amazon.com/Jesus-Healer-Brokenhearted-Frank-Meadows/dp/1947165623) by Frank Meadows
+* [Health Care You Can Live With: Discover Wholeness in Body and Spirit](https://www.amazon.com/Health-Care-You-Can-Live/dp/1616262478/ref=sr_1_1?dchild=1&keywords=Health+Care+You+Can+Live+with+Dr.+Scott+Morris&qid=1592777520&sr=8-1) by Dr. Scott Morris
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 
