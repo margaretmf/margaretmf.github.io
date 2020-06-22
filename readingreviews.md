@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [How the Coronavirus Recovery Is Changing Cities](https://www.bloomberg.com/features/2020-city-in-recovery/?cmpid=BBD062220_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200622&utm_campaign=citylabdaily)
+
+
+<br>
+
+<br>
+
+
 ### [How 2020 Remapped Your Worlds](https://www.bloomberg.com/features/2020-coronavirus-lockdown-neighborhood-maps/?cmpid=BBD061820_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200618&utm_campaign=citylabdaily)
 
 
@@ -49,6 +57,21 @@ Those who advocate for police believe that they help keep schools protected, and
 
 
 ### [Starbucks Just Announced a Drastic Change. What Every Company Can Learn From It](https://www.inc.com/justin-bariso/starbucks-pickup-is-a-smart-covid-related-adjustment.html?cid=sf01001) 
+Justin Bariso wrote an article sharing how Starbucks changed its business strategy. Bariso reports that the business "released its latest SEC filing", and "it begins with a five-page letter 'to all Starbucks stakeholders' that announces the closing of 400 stores in the next 18 months. While written in a positive, tone, the report shares negative news of closing four times as many stores as they normally do.
+
+Why does the coffee giant announce this news? The reporter shares the reason why. The business plans to close its business model and "introduce a enw store format known as 'Starbucks Pickup'...tailored to customers who prefer to order ahead and pay through the Starbucks mobile app." The organization adjusts its strategy to reach customer demand better. The company feels like this realignment will improve the customer experience and the position for business growth.
+
+Bariso reports that these new "Starbucks Pickups" serve as "'third place[s]', the place[s] between work and home that customers could go to meet friends, get work done, or simply hang out." The shift in customer behavior leading to this strategic change started not with the pandemic but rather before the pandemic. The business started reevaluating and redesigning the store two years ago.
+
+How did Starbucks make the strategic decision? The business analyzed customer data. And "years of giving away free Wi-fi-", "years of allowing stores to become remote offices for thousands, if not millions, of people", and "years of building an emotional connection between customers and stores" shaped the decision. The change in how customers have engaged with Starbucks during the pandemic reinforces the move.
+
+Questions Starbucks asked as a company included ones like the following: 
+
+"What about my customers has changed in the past two to five years, and what can I learn from it?
+What am I not currently offering that would interest my customers?
+How can I improve the customer experience? How can I make things easier for them?"
+
+As business adapt with the pandemic and economic shifts, they too can ask questions like these and develop strategies to better engage with their customers. According to business experts, with Covid-19, now is the time for action.
 
 
 <br>
