@@ -9,7 +9,30 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [How 2020 Remapped Your Worlds](https://www.bloomberg.com/features/2020-coronavirus-lockdown-neighborhood-maps/?cmpid=BBD061820_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200618&utm_campaign=citylabdaily)
+
+
+<br>
+
+<br>
+
+
+### [Anti-Racism Reading List: 10 Books to Get Started](https://www.csmonitor.com/Daily/2020/20200616?cmpid=ema:bundle:20200616:1109679:hed#1109679)
+
+
+<br>
+
+<br>
+
+
 ### [Protests Are Galvanizing Demands to Take Cops Out of Schools](https://nymag.com/intelligencer/2020/06/the-movement-to-take-cops-out-of-school-is-picking-up-steam.html)
+In June 2020, Sarah Jones wrote an article removing the police from schools. She reports that in Minneapolis, "the local school board announced on June 2 that it would cancel its contract with the Minneapolis Police Department", creating a police-free school. A murder and a nationwide protest movement pushed the school to ask the cops to leave.
+
+Sarah Jones then shares data on police usage. She writes, "around 30 percent of the nation's school districts used police, known as school resource officers, in 2013" with "the Oakland Unified School District in California" having "its own police department." But now with the brutal current events, the school district will "eliminate its in-house police", with school districts in Portland, Oregon and Charlottesville, Virginia acting in similar ways. In other cities like Madison, Chicago, Los Angeles, and Seattle, teacher unions "have either passed new resolutions or intensified older demands for cop-free schools."
+
+Rather than staffing schools with police officers, schools hope to hire "social workers, nurses, cousnelors, and pyschologists" so that people do not "perpetuate harm upon our most vulnerable young people." Those against these efforts think that security is necessary in schools even though it has costs. But educators "'really believe that we wouldn't need police officers in our schools if our students were supported. If we had art. If we had counselors. We really want that money to be used to support our students and in a safe, nonthreatening way.'"
+
+Those who advocate for police believe that they help keep schools protected, and the majority of people hold this view. Those who do not hold this view have concerns for officers who "are responsible for their own acts of violence" and videos that "show officers beating or arresting children as young as 6." Most city mayors do not support police-free schools. The journalist reports that some people who advocate for the police "believe that police and school resource officers should be mentors, not enforcers, that you can no longer have zero-tolerance discipline policies."
 
 
 <br>
@@ -42,6 +65,21 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ### [The Secret Project That Led to Black Lives Matter Murals Coast to Coast](https://www.newyorker.com/news/news-desk/the-secret-project-that-led-to-black-lives-matter-murals-coast-to-coast)
+In June 2020, Robin Wright writes on a secret art project with a special artists who "had commissioned eight artists to paint a mural of fifty-foot-high letters spelling out 'Black Lives Matter' across two blocks of the street leading to the White House."
+
+With the Congress Heights Arts and Culture Center, "the group plotted how to make the mural-in a bold shade of yellow, where to get supplies, and the logistics of finishing by midday." The reporter shares how the artists agreed to work on the project only if they "could remain anonymous."
+
+Portraying the secrecy of the project, Wright tells the story: "Sworn to secrecy, the eight artists met at 3:30 a.m. on Friday. 'The first ‘B’ took us three hours,' Jones recalled. 'I kept saying, ‘Oh, my goodness, are we going to make it in time?’ 'Once they figured out the measurements and proportions, four of the artists moved down the street blocking letters while the other four painted. Then they ran out of paint—they had only three gallons—partway through the 'L' in “Black.' They didn’t get more paint until 7 a.m.—and it was a different shade of yellow. The deadline was only four hours away. Then the rollers started breaking."
+
+The city started coming to life after they worked in secret. People on Sixteenth Street joined in on the fun, and messages spread on social media. Everyone wanted to help, but the artists did not know how to respond; then the muralists started sharing ways for volunteers to help. Wright reports, quoting Keyonna Jones that "the community took over."
+
+Keyonna Jones shares with the journalist that "[she] didn't prepare herself for what [she] was doing. This went from an internal assignment to a communal experience to global really quick...The mayor knew what she was doing. She had this planned, but she kept it low, which is what helped make it as bold as it was. You woke up, and there it was.'"
+
+The Black Lives Matter chapter in Washington, D.C. condemned the mural, calling the project "a performative distraction form real policy changes." It looked showy, in other words. "Black Lives Matter means defund the police", not "a vanity project." The artists and the government disagreed, expressing the desire to be heard and to have humanity recognized. Through the mural, they could send the message loud and clear. News of the mural spread on social media quickly, attracting eyes and ears.
+
+The artist described it as a paradigm shift. Quoting the artist, the journalist writes, "As a black man, you feel so suffocated all your life. It's unspoken. Portrayals of black males center on the hood or selling drugs or crime...Blacks have been taught that you grow up in the conditions to which they are exposed. To be given a platform to tell the world what is happening-and the world should listen-was different, he said. 'So, for us, this was empowerment, to put this message on the front lawn of our capitol,' he told me. 'This is a shift of energy on our planet.' Over the last four days, other murals have been painted in big public spaces in Raleigh, North Carolina, and Oakland, California." 
+
+The journalist in this article shares how art plays an important role in social change.
 
 
 <br>
@@ -68,7 +106,17 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 ### [Even the Pandemic Can’t Kill the Open-Plan Office](https://www.citylab.com/life/2020/05/open-office-design-coronavirus-risk-safe-workplace-health/611299/)
 Despite many employees aversion to open-plan offices, they will still use them when the pandemic ends. City Lab's reporter Sarah Holder writes a story on this.
 
-To open the article, Holder depicts and open-plan office.
+To open the article, Holder depicts and open-plan, white-collar worker office: "long rows of shared desks line each side of the open floor, with a handful of smaller meeting rooms and private offices tucked into the corners." After one employeed experienced symptoms of coronavirus in February, others in the office started seeing symptoms, and the building shut down. In response the Center for Disease Control and Prevention started tracking the disease and developed an infection map, finding that cases of the virus scattered across the office like a checkerboard; they found that "the open-plan office...looks like an extreme public health hazard."
+
+Sharing history of the open office, the reporter, writes that they were popularized in the 1980s "to lower real estate costs and breakd own divisions between teams." Open offices promote transparency and collaboration despite complaints that "the layout is distracting and noisy, hampers productivity, and actually discourages in-person interaction."
+
+Rather than pay for remodels, organizations work to reconfigure existing spaces. As the title calls out, "even the pandemic can't kill the open-plan office." But despite open-plan offices sticking around, "open-plan office jobs will be some of the last to return as local economies sputter back to life, because many of the white-collar industries that favor the design find it easier to do their work remotely."
+
+When white-collar workers do return, how will they respond? Holder writes that "the first and most important push is to reduce density. Instead squeezing eight employees onto a bench desk, office designers are advising companies to seat just three; instead of bringing outside clients deep into the office for meetings, they'll be routed into low-trafficked side rooms (or not invited in at all)." Open-space offices invited employees back in phases.
+
+Open-space offices value flexibility, and flexible working in a season of loosened social distancing includes remote work. Holder reports how "to accomodate teams that might have some members staying remote and others coming into the office, 'zoom rooms' may become fixtures of the coronavirus workplace." With protocols for social distancing, "there's a deeper question" that is "What, exactly, is so valuable about working together in the same physical space? If the goal is to again nurture in-person collaboration, office design will have to find ways of making such face-to-face interactions feel safe and comfortable again. Colleagues do not want to breath into each others' faces, and "if workplaces protect their workers, they have to be careful not to over-protect them in a way that's harmful." The physical separation has led to psychological issues, and people do not want to re-enter a work environment that feels more like a prison.
+
+People have concerns for precautions and safeguards in place. Everyone has been working to "remain flexible" with "some people" who "are ready today, to come back" and others "that aren't going to be ready for another four or five months."
 
 
 <br>
