@@ -9,6 +9,70 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [Fil-Ams on The Frontlines: New York Healthcare Workers Look After Each Other](https://www.rappler.com/world/regions/us-canada/264223-filipino-americans-coronavirus-frontlines-new-york-healthcare-workers-look-after-each-other)
+
+
+<br>
+
+<br>
+
+
+### [Powering Pluralism: Analyzing the Current Philanthropic Landscape](https://www.aspeninstitute.org/programs/justice-and-society-program/powering-pluralism-analyzing-the-current-philanthropic-landscape/)
+
+
+<br>
+
+<br>
+
+
+### [Education, Unchained](https://aeon.co/essays/its-time-we-revived-rousseaus-radical-spirit-in-schooling?utm_source=Aeon+Newsletter&utm_campaign=6f6e764cdd-EMAIL_CAMPAIGN_2020_06_15_02_47&utm_medium=email&utm_term=0_411a82e59d-6f6e764cdd-70887427)
+
+
+<br>
+
+<br>
+
+
+### [What Sustains Social Movements](https://www.csmonitor.com/Commentary/the-monitors-view/2020/0615/What-sustains-social-movements?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1592245831)
+
+
+<br>
+
+<br>
+
+
+### [As Lockdown Lingers, A Rural Reckoning with Domestic Violence](https://www.csmonitor.com/World/Americas/2020/0615/As-lockdown-lingers-a-rural-reckoning-with-domestic-violence?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1592262520)
+
+
+<br>
+
+<br>
+
+
+### [Coronavirus Is a Once in a Lifetime Chance to Reshape How We Travel](https://singularityhub.com/2020/04/09/coronavirus-is-a-once-in-a-lifetime-chance-to-reshape-how-we-travel/?utm_medium=email&utm_content=coronavirus-is-a-once-in-a-lifetime-chance-to-reshape-how-we-travel&utm_source=newsletter&utm_campaign=fy18-hub-daily-rss-newsletter&mkt_tok=eyJpIjoiTW1Kak1XSTFNVFUxTVRSbSIsInQiOiI4UEFKNE5ZRG5WSXZFUitsd3dkbUhZS3pVXC9YcHlob20zN3hIWkFxN0prRjc2Y0EzWCt1T1QyNm1NN0NFQ3NRd2lzdGtmSEpWcVBVb2E3ciszNWJsMGcyRHgyY2JMalBmRE9LWklnXC9SMlwvTVYrRmNCODhHOFRDNGtQUnQ3RDhDTSJ9)
+
+
+<br>
+
+<br>
+
+
+### [How Children Process Grief and Loss Through Play](https://www.edutopia.org/article/how-children-process-grief-and-loss-through-play)
+
+
+<br>
+
+<br>
+
+
+### [A 1960s Lawsuit Against the KKK Can Help Protect Elections in 2020](https://slate.com/news-and-politics/2020/06/kkk-lawsuit-protect-elections-coronavirus.html)
+
+
+<br>
+
+<br>
+
+
 ### [How the Coronavirus Recovery Is Changing Cities](https://www.bloomberg.com/features/2020-city-in-recovery/?cmpid=BBD062220_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200622&utm_campaign=citylabdaily)
 
 
