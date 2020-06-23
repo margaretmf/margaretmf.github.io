@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [The Story Behind the Minneapolis ‘Sanctuary Hotel’](https://nextcity.org/daily/entry/the-story-behind-the-minneapolis-sanctuary-hotel)
+
+
+<br>
+
+<br>
+
+
 ### [Fil-Ams on The Frontlines: New York Healthcare Workers Look After Each Other](https://www.rappler.com/world/regions/us-canada/264223-filipino-americans-coronavirus-frontlines-new-york-healthcare-workers-look-after-each-other)
 
 
