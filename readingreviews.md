@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [Academics Fear Using Zoom to Study China—Even In the US](https://qz.com/1870272/after-zoom-censorship-us-academics-worry-for-students-in-china/)
+
+
+<br>
+
+<br>
+
+
 ### [The Story Behind the Minneapolis ‘Sanctuary Hotel’](https://nextcity.org/daily/entry/the-story-behind-the-minneapolis-sanctuary-hotel)
 
 
