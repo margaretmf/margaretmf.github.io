@@ -94,7 +94,8 @@ Philip Taubman
 * [The Humanities and Everyday Life](https://www.amazon.com/Humanities-Everyday-Life-Literary-Agenda/dp/0198808291) by Michael Levenson
 * [The Secret Life of Babies: How Our Prebirth and Birth Experiences Shape Our World](https://www.amazon.com/Secret-Life-Babies-Prebirth-Experiences/dp/1583948031/ref=sr_1_1?dchild=1&keywords=the+secret+life+of+babies&qid=1591365103&s=books&sr=1-1) by Mia Kalef, DC
 * [The Second Mountain: The Quest for a Moral Life](https://www.amazon.com/Second-Mountain-David-Brooks/dp/0812993268) by David Brooks
-* [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712/ref=sr_1_1?dchild=1&keywords=tools+and+weapons&qid=1591620549&s=books&sr=1-1) by Brad SMith & Carol Ann Browne
+* [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712/ref=sr_1_1?dchild=1&keywords=tools+and+weapons&qid=1591620549&s=books&sr=1-1) by Brad Smith & Carol Ann Browne
+* [Womb Wisdom: Awakenig the Creative and Forgotten Powers of the Feminine](https://www.amazon.com/Womb-Wisdom-Awakening-Creative-Forgotten/dp/1594773785) by Padma Aon Prakasha & Anaiya Aon Prakasha 
 
 
 ### Books
