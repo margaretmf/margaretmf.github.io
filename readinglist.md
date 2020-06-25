@@ -11,6 +11,10 @@ layout: default
 * [Hearing the Voice of God: Is That Really You, God?](https://www.amazon.com/That-Really-You-God-Hearing/dp/1576582442/ref=sr_1_1?dchild=1&keywords=is+that+really+you+god&qid=1592749536&s=books&sr=1-1) by Loren Cunningham 
 * [Jesus - Healer of the Brokenhearted: Discovering the Pathway to Healing Through Spirit-led Mind Renewal](https://www.amazon.com/Jesus-Healer-Brokenhearted-Frank-Meadows/dp/1947165623) by Frank Meadows
 * [Health Care You Can Live With: Discover Wholeness in Body and Spirit](https://www.amazon.com/Health-Care-You-Can-Live/dp/1616262478/ref=sr_1_1?dchild=1&keywords=Health+Care+You+Can+Live+with+Dr.+Scott+Morris&qid=1592777520&sr=8-1) by Dr. Scott Morris
+* [Healing Life's Deepest Hurts: Let the Light of Christ Dispel the Darkness in Your Soul](https://www.amazon.com/Healing-Lifes-Deepest-Hurts-Darkness/dp/0830734392) by Edward M. Smith
+* [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723/ref=sr_1_2?dchild=1&keywords=the+mandala+of+being&qid=1593087181&sr=8-2) by Richard Moss
+* [Wisdom Rising: Journey into the Mandala of the Empowered Feminine](https://www.amazon.com/Wisdom-Rising-Journey-Empowered-Feminine/dp/1501115030/ref=sr_1_2?dchild=1&keywords=wisdom+rising&qid=1593087221&sr=8-2) by Lama Tsultrim Allione
+* Holy Envy: Finding God in the Faith of Others](https://www.amazon.com/Holy-Envy-Finding-Faith-Others/dp/0062406574/ref=sr_1_2?dchild=1&keywords=holy+envy&qid=1593087344&sr=8-2) by Barbara Brown Taylor
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 
@@ -95,7 +99,7 @@ Philip Taubman
 * [The Secret Life of Babies: How Our Prebirth and Birth Experiences Shape Our World](https://www.amazon.com/Secret-Life-Babies-Prebirth-Experiences/dp/1583948031/ref=sr_1_1?dchild=1&keywords=the+secret+life+of+babies&qid=1591365103&s=books&sr=1-1) by Mia Kalef, DC
 * [The Second Mountain: The Quest for a Moral Life](https://www.amazon.com/Second-Mountain-David-Brooks/dp/0812993268) by David Brooks
 * [Tools and Weapons: The Promise and the Peril of the Digital Age](https://www.amazon.com/Tools-Weapons-Promise-Peril-Digital/dp/1984877712/ref=sr_1_1?dchild=1&keywords=tools+and+weapons&qid=1591620549&s=books&sr=1-1) by Brad Smith & Carol Ann Browne
-* [Womb Wisdom: Awakenig the Creative and Forgotten Powers of the Feminine](https://www.amazon.com/Womb-Wisdom-Awakening-Creative-Forgotten/dp/1594773785) by Padma Aon Prakasha & Anaiya Aon Prakasha 
+* [Womb Wisdom: Awakening the Creative and Forgotten Powers of the Feminine](https://www.amazon.com/Womb-Wisdom-Awakening-Creative-Forgotten/dp/1594773785) by Padma Aon Prakasha & Anaiya Aon Prakasha 
 
 
 ### Books
