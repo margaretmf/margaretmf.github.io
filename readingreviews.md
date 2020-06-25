@@ -9,6 +9,38 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [The Lasting Normal for the Post-Pandemic City](https://www.bloomberg.com/news/features/2020-06-25/the-new-normal-after-the-coronavirus-pandemic?cmpid=BBD062520_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200625&utm_campaign=citylabdaily)
+
+
+<br>
+
+<br>
+
+
+### [Coronavirus Tests the Limits of America’s Public Libraries](https://www.bloomberg.com/news/articles/2020-06-24/how-coronavirus-is-changing-public-libraries?cmpid=BBD062520_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200625&utm_campaign=citylabdaily)
+
+
+<br>
+
+<br>
+
+
+### [Opinion: Want to Tear Down Insidious Monuments to Racism and Segregation? Bulldoze L.A. Freeways](https://www.latimes.com/opinion/story/2020-06-24/bulldoze-la-freeways-racism-monument)
+
+
+<br>
+
+<br>
+
+
+### [The American Nursing Home Is a Design Failure](https://nymag.com/intelligencer/2020/06/the-american-nursing-home-is-a-design-failure.html)
+
+
+<br>
+
+<br>
+
+
 ### [Academics Fear Using Zoom to Study China—Even In the US](https://qz.com/1870272/after-zoom-censorship-us-academics-worry-for-students-in-china/)
 
 
