@@ -14,7 +14,7 @@ layout: default
 * [Healing Life's Deepest Hurts: Let the Light of Christ Dispel the Darkness in Your Soul](https://www.amazon.com/Healing-Lifes-Deepest-Hurts-Darkness/dp/0830734392) by Edward M. Smith
 * [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723/ref=sr_1_2?dchild=1&keywords=the+mandala+of+being&qid=1593087181&sr=8-2) by Richard Moss
 * [Wisdom Rising: Journey into the Mandala of the Empowered Feminine](https://www.amazon.com/Wisdom-Rising-Journey-Empowered-Feminine/dp/1501115030/ref=sr_1_2?dchild=1&keywords=wisdom+rising&qid=1593087221&sr=8-2) by Lama Tsultrim Allione
-* Holy Envy: Finding God in the Faith of Others](https://www.amazon.com/Holy-Envy-Finding-Faith-Others/dp/0062406574/ref=sr_1_2?dchild=1&keywords=holy+envy&qid=1593087344&sr=8-2) by Barbara Brown Taylor
+* [Holy Envy: Finding God in the Faith of Others](https://www.amazon.com/Holy-Envy-Finding-Faith-Others/dp/0062406574/ref=sr_1_2?dchild=1&keywords=holy+envy&qid=1593087344&sr=8-2) by Barbara Brown Taylor
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
 
