@@ -8,7 +8,6 @@ layout: default
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
-* [Health Care You Can Live With: Discover Wholeness in Body and Spirit](https://www.amazon.com/Health-Care-You-Can-Live/dp/1616262478/ref=sr_1_1?dchild=1&keywords=Health+Care+You+Can+Live+with+Dr.+Scott+Morris&qid=1592777520&sr=8-1) by Dr. Scott Morris
 * [Healing Life's Deepest Hurts: Let the Light of Christ Dispel the Darkness in Your Soul](https://www.amazon.com/Healing-Lifes-Deepest-Hurts-Darkness/dp/0830734392) by Edward M. Smith
 * [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723/ref=sr_1_2?dchild=1&keywords=the+mandala+of+being&qid=1593087181&sr=8-2) by Richard Moss
 * [Wisdom Rising: Journey into the Mandala of the Empowered Feminine](https://www.amazon.com/Wisdom-Rising-Journey-Empowered-Feminine/dp/1501115030/ref=sr_1_2?dchild=1&keywords=wisdom+rising&qid=1593087221&sr=8-2) by Lama Tsultrim Allione
@@ -100,6 +99,7 @@ Philip Taubman
 * [Womb Wisdom: Awakening the Creative and Forgotten Powers of the Feminine](https://www.amazon.com/Womb-Wisdom-Awakening-Creative-Forgotten/dp/1594773785) by Padma Aon Prakasha & Anaiya Aon Prakasha 
 * [Hearing the Voice of God: Is That Really You, God?](https://www.amazon.com/That-Really-You-God-Hearing/dp/1576582442/ref=sr_1_1?dchild=1&keywords=is+that+really+you+god&qid=1592749536&s=books&sr=1-1) by Loren Cunningham 
 * [Jesus - Healer of the Brokenhearted: Discovering the Pathway to Healing Through Spirit-led Mind Renewal](https://www.amazon.com/Jesus-Healer-Brokenhearted-Frank-Meadows/dp/1947165623) by Frank Meadows
+* [Health Care You Can Live With: Discover Wholeness in Body and Spirit](https://www.amazon.com/Health-Care-You-Can-Live/dp/1616262478/ref=sr_1_1?dchild=1&keywords=Health+Care+You+Can+Live+with+Dr.+Scott+Morris&qid=1592777520&sr=8-1) by Dr. Scott Morris
 
 
 ### Books
