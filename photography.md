@@ -5,6 +5,17 @@ layout: default
 <br>
 
 
+<img class="profile-picture" src="dark-pink-flower.jpg">
+
+
+
+<img class="profile-picture" src="pink-flower.jpg">
+
+
+
+<img class="profile-picture" src="red-flower.jpg">
+
+
 
 <img class="profile-picture" src="yellow-flowers2.jpg">
 
