@@ -42,6 +42,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="white-flowers.jpg">
+
+
+
+<img class="profile-picture" src="white-flower1.jpg">
+
+
+
+<img class="profile-picture" src="white-flower3.jpg">
+
+
+
 <img class="profile-picture" src="tree.jpg">
 
 
@@ -66,7 +78,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="fall-foliage.jpg">
+<img class="profile-picture" src="white-flower4.jpg">
 
 
 
