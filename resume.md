@@ -35,9 +35,10 @@ Sustained Dialogue Faciliation
 * Learning to engage with difference through communication techniques.
 
 
-### Myers Park Presbyterian Church, Better When We're Back Together
+### MYERS PARK PRESBYTERIAN CHURCH, BETTER WHEN WE'RE BACK TOGETHER
 21-Day Race Equity Challenge
 * Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 21 days.
+* Learning about how engaging in anti-racism attitudes and behaviors is a lifelong journey.
 
 <br>
  
