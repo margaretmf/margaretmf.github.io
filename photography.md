@@ -218,6 +218,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="america-truck.jpg">
+
+
+
 <img class="profile-picture" src="apple-sf.jpg">
 
 
@@ -423,6 +427,10 @@ layout: default
 
 
 <img class="profile-picture" src="water-leaves.jpg">
+
+
+
+<img class="profile-picture" src="turtles.jpg">
 
 
 
