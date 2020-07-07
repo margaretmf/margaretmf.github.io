@@ -40,6 +40,11 @@ Sustained Dialogue Faciliation
 * Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 21 days.
 * Learning about how engaging in anti-racism attitudes and behaviors is a lifelong journey.
 
+
+### ASPEN IDEAS
+Aspen Ideas Festival
+* Engaged with the Aspen Ideas Videos
+
 <br>
  
 ## RELEVANT WORK EXPERIENCE
