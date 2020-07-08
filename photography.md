@@ -441,7 +441,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="turtles.jpg">
+<img class="profile-picture" src="turtles1.jpg">
 
 
 
