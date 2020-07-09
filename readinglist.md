@@ -8,7 +8,6 @@ layout: default
 #### Reading
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
-* [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723/ref=sr_1_2?dchild=1&keywords=the+mandala+of+being&qid=1593087181&sr=8-2) by Richard Moss
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [YOU ARE Therefore I AM: A Declaration of Dependence]() by Satish Kumar
 * [Holy Disunity: How What Separates Us Can Save Us]() by Layton E. Williams
