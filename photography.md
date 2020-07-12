@@ -2,6 +2,8 @@
 layout: default
 ---
 
+With a love for color and perspective, I capture beauty everywhere with an open eye and a heart filled with gratitude.
+
 <br>
 
 
