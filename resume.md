@@ -45,6 +45,10 @@ Sustained Dialogue Faciliation
 Aspen Ideas Festival
 * Engaged with the Aspen Ideas Videos
 
+### RELIGIOUS STUDIES
+Islam
+* Read the Holy Qur'an
+
 <br>
  
 ## RELEVANT WORK EXPERIENCE
