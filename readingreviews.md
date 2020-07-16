@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [In A Post COVID World the Choice to Regress, Reform, or Reset?](https://www.csmonitor.com/World/2020/0713/In-a-post-COVID-world-the-choice-to-regress-reform-or-reset?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1594667277)
+
+
+<br>
+
+<br>
+
+
 ### [The Lasting Normal for the Post-Pandemic City](https://www.bloomberg.com/news/features/2020-06-25/the-new-normal-after-the-coronavirus-pandemic?cmpid=BBD062520_CITYLAB&utm_medium=email&utm_source=newsletter&utm_term=200625&utm_campaign=citylabdaily)
 
 
