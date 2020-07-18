@@ -9,6 +9,22 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [‘Justice Needs to Be Served’: Minnapolis Businesses Put Principles First](https://www.csmonitor.com/Daily/2020/20200717?cmpid=ema:bundle:20200717:1111380:toc#1111380)
+
+
+<br>
+
+<br>
+
+
+### [America Has Bungled The Pandemic. Now What?](https://www.csmonitor.com/Daily/2020/20200717?cmpid=ema:bundle:20200717:1111379:read&id=1111379#1111379)
+
+
+<br>
+
+<br>
+
+
 ### [In A Post COVID World the Choice to Regress, Reform, or Reset?](https://www.csmonitor.com/World/2020/0713/In-a-post-COVID-world-the-choice-to-regress-reform-or-reset?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1594667277)
 
 
