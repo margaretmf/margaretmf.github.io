@@ -9,6 +9,30 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+### [Preschoolers Prefer Books Rich in Whys](https://www.edutopia.org/article/preschoolers-prefer-books-rich-whys)
+
+
+<br>
+
+<br>
+
+
+### [How a History Textbook Would Describe 2020 So Far](https://www.theatlantic.com/family/archive/2020/07/history-textbook-entry-year-2020/613885/?utm_term=2020-07-09T10%3A00%3A52&utm_campaign=the-atlantic&utm_content=edit-promo&utm_medium=social&utm_source=twitter)
+
+
+<br>
+
+<br>
+
+
+### [Postal Service Budget Cuts Could Slow Down Deliveries Even More](https://www.csmonitor.com/USA/2020/0716/Postal-Service-budget-cuts-could-slow-down-deliveries-even-more?utm_term=Autofeed&utm_medium=Social&cmpid=TW&utm_source=Twitter#Echobox=1594921746)
+
+
+<br>
+
+<br>
+
+
 ### [‘Justice Needs to Be Served’: Minnapolis Businesses Put Principles First](https://www.csmonitor.com/Daily/2020/20200717?cmpid=ema:bundle:20200717:1111380:toc#1111380)
 
 
