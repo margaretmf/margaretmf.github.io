@@ -9,7 +9,6 @@ layout: default
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
-* [The Mandala of Being: Discovering the Power of Awareness]() by Richard Moss
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills]() by Tristan Gooley
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life]() by Susan David
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
@@ -105,6 +104,7 @@ Philip Taubman
 * [YOU ARE Therefore I AM: A Declaration of Dependence](https://www.amazon.com/You-Are-Therefore-Declaration-Dependence/dp/1903998182) by Satish Kumar
 * [Holy Disunity: How What Separates Us Can Save Us](https://www.amazon.com/Holy-Disunity-What-Separates-Save/dp/0664265669) by Layton E. Williams
 * [A Tree Full of Angels: Seeing the Holy in the Ordinary](https://www.amazon.com/Tree-Full-Angels-Seeing-Ordinary/dp/0062548689) by Macrina Wiederkehr
+* [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723) by Richard Moss
 
 
 ### Books
