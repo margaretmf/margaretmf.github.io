@@ -45,9 +45,19 @@ Sustained Dialogue Faciliation
 Aspen Ideas Festival
 * Engaged with the Aspen Ideas Videos
 
+
 ### RELIGIOUS STUDIES
 Islam
 * Read the Holy Qur'an
+
+Christainity
+* Read the Holy Bible
+
+
+### 100 DAYS OF PEACE
+100 Days of Peace
+* Engage with the pieces of artwork that are part of the 100 Days of Peace 
+
 
 <br>
  
