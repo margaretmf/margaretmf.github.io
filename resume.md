@@ -37,7 +37,7 @@ Sustained Dialogue Faciliation
 
 ### MYERS PARK PRESBYTERIAN CHURCH, BETTER WHEN WE'RE BACK TOGETHER
 21-Day Race Equity Challenge
-* Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 32 days.
+* Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 40 days.
 * Learning about how engaging in anti-racism attitudes and behaviors is a lifelong journey.
 
 
