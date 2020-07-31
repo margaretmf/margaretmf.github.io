@@ -105,6 +105,7 @@ Philip Taubman
 * [Holy Disunity: How What Separates Us Can Save Us](https://www.amazon.com/Holy-Disunity-What-Separates-Save/dp/0664265669) by Layton E. Williams
 * [A Tree Full of Angels: Seeing the Holy in the Ordinary](https://www.amazon.com/Tree-Full-Angels-Seeing-Ordinary/dp/0062548689) by Macrina Wiederkehr
 * [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723) by Richard Moss
+* [The Inner Work of Racial Justice: Healing Ourselves and Transforming Our Communities Through Mindfulness](https://www.amazon.com/Inner-Work-Racial-Justice-Transforming/dp/059308392X) by Rhonda V. Magee
 
 
 ### Books
