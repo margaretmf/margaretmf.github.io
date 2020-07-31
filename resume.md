@@ -50,7 +50,7 @@ Aspen Ideas Festival
 Islam
 * Read the Holy Qur'an
 
-Christainity
+Christianity
 * Read the Holy Bible
 
 
