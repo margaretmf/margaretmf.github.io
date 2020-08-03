@@ -10,7 +10,6 @@ layout: default
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills]() by Tristan Gooley
-* [The Color of Compromise: The Truth about the American Church's Complicity in Racism](https://www.amazon.com/Color-Compromise-American-Churchs-Complicity/dp/1978621485) by Jemar Tisby
 * [Human Kind: Changing the World One Small Act At a Time](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Brad Aronson
 * [Pandemic: Tracking COntagions, From Cholera to Ebola and Beyond](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Sonia Shah
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life]() by Susan David
@@ -109,6 +108,7 @@ Philip Taubman
 * [A Tree Full of Angels: Seeing the Holy in the Ordinary](https://www.amazon.com/Tree-Full-Angels-Seeing-Ordinary/dp/0062548689) by Macrina Wiederkehr
 * [The Mandala of Being: Discovering the Power of Awareness](https://www.amazon.com/Mandala-Being-Discovering-Power-Awareness/dp/1577315723) by Richard Moss
 * [The Inner Work of Racial Justice: Healing Ourselves and Transforming Our Communities Through Mindfulness](https://www.amazon.com/Inner-Work-Racial-Justice-Transforming/dp/059308392X) by Rhonda V. Magee
+* [The Color of Compromise: The Truth about the American Church's Complicity in Racism](https://www.amazon.com/Color-Compromise-American-Churchs-Complicity/dp/1978621485) by Jemar Tisby
 
 
 ### Books
