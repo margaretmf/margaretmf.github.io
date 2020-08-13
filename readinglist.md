@@ -28,7 +28,7 @@ layout: default
 * [Heaven is for Real: A Little Boy's Astounding Story of His Trip to Heaven and Back](https://www.amazon.com/Heaven-Real-Little-Astounding-Story/dp/0849946158/ref=sr_1_11?keywords=heaven&qid=1574709534&s=books&sr=1-11) by Todd Burpo  & Lynn Vincent
 * [Sadhana, a Way to God: Christian Exercises in Eastern Form](https://www.amazon.com/Sadhana-Way-God-Christian-Exercises/dp/0385196148) by Anthony de Mello
 * [The Song of the Bird](https://www.amazon.com/Song-Bird-Anthony-Mello/dp/0385196156) by Anthony De Mello
-[How to Create a Successful Children's Picture Book](https://www.amazon.com/Create-Successful-Childrens-Picture-Book/dp/0978679199) by Bobbie Hinman
+* [How to Create a Successful Children's Picture Book](https://www.amazon.com/Create-Successful-Childrens-Picture-Book/dp/0978679199) by Bobbie Hinman
 * [Small Talk: How to Develop Your Child’s Language Skills from Birth to Age Four](https://www.amazon.com/Small-Talk-Develop-Childs-Language/dp/1615192034/ref=sxbs_sxwds-stvp?keywords=babies+parenting+talking&pd_rd_i=1615192034&pd_rd_r=bc07265b-a8c1-4439-9dc0-ea1562cab3c2&pd_rd_w=4Enl0&pd_rd_wg=cVwGe&pf_rd_p=a6d018ad-f20b-46c9-8920-433972c7d9b7&pf_rd_r=4FQRR4BNKS83XHDS47DF&qid=1574914058&s=books) by Nicola Lathey & Tracey Blake 
 * [Oneness](https://www.amazon.com/Oneness-Rasha/dp/0965900312/ref=sr_1_2?keywords=oneness&qid=1574966782&sr=8-2) by Rasha
 * [Returning to Oneness: The Seven Keys of Ascension](https://www.amazon.com/Returning-Oneness-Seven-Keys-Ascension/dp/096601829X) by Leslie Temple-Thurston & Brad Laughlin 
