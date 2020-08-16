@@ -2,7 +2,7 @@
 layout: default
 ---
 
-With a love for color and perspective, an open eye, and a heart filled with gratitude, I capture beauty everywhere.
+With a strong inner vision, and with a love for color and perspective, an open eye, and a heart filled with gratitude, I capture beauty everywhere.
 
 <br>
 
