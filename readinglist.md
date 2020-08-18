@@ -112,6 +112,7 @@ Philip Taubman
 * [Human Kind: Changing the World One Small Act At a Time](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Brad Aronson
 * [I'm Still Here: Black Dignity In A World Made for Whiteness](https://www.amazon.com/Im-Still-Here-Dignity-Whiteness/dp/1524760854/ref=asc_df_1524760854/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583795260642444&psc=1) by Austin Channing Brown
 * [Why I'm No Longer Talking To White People About Race](https://www.amazon.com/Longer-Talking-White-People-About-ebook/dp/B06WWPX2YF) by Reni Eddo-Lodge 
+* [Life of Muhammad](https://www.amazon.com/Muhammad-Hadrat-Mirza-Bashiruddin-Mahmud/dp/1848800819) by Hadrat Mirza Bashiruddin Mahmud Ahmad
 
 
 ### Books
