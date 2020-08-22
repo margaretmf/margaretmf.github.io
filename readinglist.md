@@ -113,6 +113,7 @@ Philip Taubman
 * [I'm Still Here: Black Dignity In A World Made for Whiteness](https://www.amazon.com/Im-Still-Here-Dignity-Whiteness/dp/1524760854/ref=asc_df_1524760854/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583795260642444&psc=1) by Austin Channing Brown
 * [Why I'm No Longer Talking To White People About Race](https://www.amazon.com/Longer-Talking-White-People-About-ebook/dp/B06WWPX2YF) by Reni Eddo-Lodge 
 * [Life of Muhammad](https://www.amazon.com/Muhammad-Hadrat-Mirza-Bashiruddin-Mahmud/dp/1848800819) by Hadrat Mirza Bashiruddin Mahmud Ahmad
+* [Make Your Bed: Little Things That Can Change Your Life...And Maybe the World](https://www.amazon.com/Make-Your-Bed-Little-Things/dp/1455570249) by https://www.amazon.com/Make-Your-Bed-Little-Things/dp/1455570249
 
 
 ### Books
