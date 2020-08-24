@@ -10,7 +10,6 @@ layout: default
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills](https://www.amazon.com/Lost-Art-Reading-Natures-Signs/dp/1615192417/ref=sr_1_1?dchild=1&keywords=The+Lost+Art+of+Reading+Nature%27s+Signs%3A+Use+Outdoor+Clues+to+Find+Your+Way%2C+Predict+the+Weather%2C+Locate+Water%2C+Track+Animals%2C+and+Other+Forgotten+Skills&qid=1597089581&sr=8-1) by Tristan Gooley
-* [Pandemic: Tracking Contagions, From Cholera to Ebola and Beyond](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Sonia Shah
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life]() by Susan David
 * [When They Call You a Terrorist: A Black Lives Matter Memoir](https://www.amazon.com/When-They-Call-You-Terrorist/dp/1250306906) by Patrisse Khan-Cullors & Asha Bandele
 * [Harry Potter and the Chamber of Secrets](https://www.amazon.com/Harry-Potter-Chamber-Secrets-Rowling/dp/0439064872) by J. K. Rowling
@@ -114,6 +113,8 @@ Philip Taubman
 * [Why I'm No Longer Talking To White People About Race](https://www.amazon.com/Longer-Talking-White-People-About-ebook/dp/B06WWPX2YF) by Reni Eddo-Lodge 
 * [Life of Muhammad](https://www.amazon.com/Muhammad-Hadrat-Mirza-Bashiruddin-Mahmud/dp/1848800819) by Hadrat Mirza Bashiruddin Mahmud Ahmad
 * [Make Your Bed: Little Things That Can Change Your Life...And Maybe the World](https://www.amazon.com/Make-Your-Bed-Little-Things/dp/1455570249?ie=UTF8&%2AVersion%2A=1&%2Aentries%2A=0) by Admiral William H. McRaven
+* [Music Elements: Theory, Songwriting, Lyrics & Creativity Explained](https://www.amazon.com/Music-Elements-Songwriting-Creativity-Explained-ebook/dp/B07SHPFL33) by Tommy Swindali
+* [Pandemic: Tracking Contagions, From Cholera to Ebola and Beyond](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Sonia Shah
 
 
 ### Books
