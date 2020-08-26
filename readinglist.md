@@ -236,6 +236,7 @@ Philip Taubman
 * [User Stories Applied: For Agile Software Development](https://www.amazon.com/User-Stories-Applied-Software-Development/dp/0321205685) by Mike Cohn
 * [The Collage Workbook: How to Get Started and Stay Inspired](https://www.amazon.com/Collage-Workbook-Started-Stay-Inspired/dp/1454701994/ref=sr_1_6?keywords=collage&qid=1582482113&s=books&sr=1-6) by Randel Plowman
 * [If You Can Cut, You Can Collage: From Paper Scraps to Works of Art](https://www.amazon.com/If-You-Can-Cut-Collage/dp/1631593358/ref=sr_1_4?keywords=collage&qid=1582482145&s=books&sr=1-4) by Hollie Chastain
+* [Love Secrets](https://www.amazon.com/Love-Secrets-John-Mark-Pantana/dp/1735123714) by John Mark Pantana
 
 
 ## 2018
