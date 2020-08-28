@@ -115,6 +115,7 @@ Philip Taubman
 * [Make Your Bed: Little Things That Can Change Your Life...And Maybe the World](https://www.amazon.com/Make-Your-Bed-Little-Things/dp/1455570249?ie=UTF8&%2AVersion%2A=1&%2Aentries%2A=0) by Admiral William H. McRaven
 * [Music Elements: Theory, Songwriting, Lyrics & Creativity Explained](https://www.amazon.com/Music-Elements-Songwriting-Creativity-Explained-ebook/dp/B07SHPFL33) by Tommy Swindali
 * [Pandemic: Tracking Contagions, From Cholera to Ebola and Beyond](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Sonia Shah
+* [Artist's Painting Techniques](https://www.amazon.com/Artists-Painting-Techniques-Watercolors-Acrylics/dp/1465450955)
 
 
 ### Books
