@@ -116,6 +116,7 @@ Philip Taubman
 * [Music Elements: Theory, Songwriting, Lyrics & Creativity Explained](https://www.amazon.com/Music-Elements-Songwriting-Creativity-Explained-ebook/dp/B07SHPFL33) by Tommy Swindali
 * [Pandemic: Tracking Contagions, From Cholera to Ebola and Beyond](https://www.amazon.com/HumanKind-Change-World-Small-Time/dp/192805563X/ref=sr_1_1?dchild=1&keywords=humankind+changing+the+world&qid=1596373063&s=books&sr=1-1) by Sonia Shah
 * [Artist's Painting Techniques](https://www.amazon.com/Artists-Painting-Techniques-Watercolors-Acrylics/dp/1465450955)
+* [White Fragility: Why It's So Hard for White People to Talk About Racism](https://www.amazon.com/White-Fragility-People-About-Racism/dp/0807047414) by Robin Diangelo
 
 
 ### Books
