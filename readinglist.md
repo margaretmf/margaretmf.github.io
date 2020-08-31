@@ -117,6 +117,7 @@ Philip Taubman
 * [Artist's Painting Techniques](https://www.amazon.com/Artists-Painting-Techniques-Watercolors-Acrylics/dp/1465450955)
 * [Leading Small Groups That Thrive: Five Shifts to Take Your Group to the Next Level](https://www.amazon.com/Leading-Small-Groups-That-Thrive/dp/0310106702/ref=sr_1_1?dchild=1&keywords=thriving+small+groups&qid=1598703719&sr=8-1) by Ryan T. Hartwig, Courtney W. Davis, Jason A. Sniff, & Jared Musgrove
 * [White Fragility: Why It's So Hard for White People to Talk about Racism](https://www.amazon.com/White-Fragility-People-About-Racism/dp/0807047406/ref=tmm_hrd_swatch_0?_encoding=UTF8&qid=&sr=) by Robin Diangelo
+* [The Joy of Intimacy: A Soulful Guide to Love, Sexuality, and Marriage](https://www.amazon.com/Joy-Intimacy-Soulful-Sexuality-Marriage/dp/0986277002) by Manis Friedman & Ricardo Adler 
 
 
 ### Books
