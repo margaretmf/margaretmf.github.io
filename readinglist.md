@@ -118,6 +118,8 @@ Philip Taubman
 * [Leading Small Groups That Thrive: Five Shifts to Take Your Group to the Next Level](https://www.amazon.com/Leading-Small-Groups-That-Thrive/dp/0310106702/ref=sr_1_1?dchild=1&keywords=thriving+small+groups&qid=1598703719&sr=8-1) by Ryan T. Hartwig, Courtney W. Davis, Jason A. Sniff, & Jared Musgrove
 * [White Fragility: Why It's So Hard for White People to Talk about Racism](https://www.amazon.com/White-Fragility-People-About-Racism/dp/0807047406/ref=tmm_hrd_swatch_0?_encoding=UTF8&qid=&sr=) by Robin Diangelo
 * [The Joy of Intimacy: A Soulful Guide to Love, Sexuality, and Marriage](https://www.amazon.com/Joy-Intimacy-Soulful-Sexuality-Marriage/dp/0986277002) by Manis Friedman & Ricardo Adler 
+* [A Geometry of Music: Harmony and Counterpoint in the Extended Common Practice](https://www.amazon.com/Geometry-Music-Counterpoint-Extended-Practice/dp/0195336674) by Dmitri Tymoczko
+* [The New Art and Science of Teaching](https://www.amazon.com/New-Science-Teaching-Instructional-Competency-Based/dp/1943874964/ref=sr_1_2?crid=3KN24QXLAWJ57&dchild=1&keywords=the+new+art+and+science+of+teaching&qid=1599076110&s=books&sprefix=the+new+art+and+sci%2Cstripbooks%2C153&sr=1-2) by Robert J. Marzano
 
 
 ### Books
