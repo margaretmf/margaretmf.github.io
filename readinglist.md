@@ -122,6 +122,7 @@ Philip Taubman
 * [The New Art and Science of Teaching](https://www.amazon.com/New-Science-Teaching-Instructional-Competency-Based/dp/1943874964/ref=sr_1_2?crid=3KN24QXLAWJ57&dchild=1&keywords=the+new+art+and+science+of+teaching&qid=1599076110&s=books&sprefix=the+new+art+and+sci%2Cstripbooks%2C153&sr=1-2) by Robert J. Marzano
 * [Jesus - Deliverer of the Brokenhearted: Tearing Down Strongholds and Ministering Deliverance in Mind Renewing Healing Prayer](https://www.amazon.com/Jesus-Deliverer-Brokenhearted-Strongholds-Ministering-ebook/dp/B089T9C32W) by Frank Meadows
 * [How to Be An Antiracist](https://www.amazon.com/How-Be-Antiracist-Ibram-Kendi/dp/0525509283) by Ibram X. Kendi
+* [Letters to the Earth: Writing to a Planet in Crisis](https://www.amazon.com/Letters-Earth-Writing-Planet-Crisis/dp/0008374449/ref=sr_1_1?dchild=1&keywords=letters+to+the+earth+writing+to+a+planet+in+crisis&qid=1601205898&sr=8-1) by Emma Thompson and other writeers
 
 
 ### Books
