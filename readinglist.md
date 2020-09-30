@@ -9,7 +9,6 @@ layout: default
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
-* [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills](https://www.amazon.com/Lost-Art-Reading-Natures-Signs/dp/1615192417/ref=sr_1_1?dchild=1&keywords=The+Lost+Art+of+Reading+Nature%27s+Signs%3A+Use+Outdoor+Clues+to+Find+Your+Way%2C+Predict+the+Weather%2C+Locate+Water%2C+Track+Animals%2C+and+Other+Forgotten+Skills&qid=1597089581&sr=8-1) by Tristan Gooley
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life]() by Susan David
 * [When They Call You a Terrorist: A Black Lives Matter Memoir](https://www.amazon.com/When-They-Call-You-Terrorist/dp/1250306906) by Patrisse Khan-Cullors & Asha Bandele
 
@@ -125,6 +124,8 @@ Philip Taubman
 * [Letters to the Earth: Writing to a Planet in Crisis](https://www.amazon.com/Letters-Earth-Writing-Planet-Crisis/dp/0008374449/ref=sr_1_1?dchild=1&keywords=letters+to+the+earth+writing+to+a+planet+in+crisis&qid=1601205898&sr=8-1) by Emma Thompson and other writers
 * [Making Jesus Lord" The Dynamic Power of Laying Down Your Rights](https://www.amazon.com/Making-Jesus-Lord-Dynamic-Laying/dp/1576580121) by Loren Cunningham with Janice Rogers
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, and Track Animals - and Other Forgotten Skills](https://www.amazon.com/Lost-Art-Reading-Natures-Signs/dp/1615192417) by Tristan Gooley
+* [Being Mortal: Medicine and What Matters in the End](https://www.amazon.com/Being-Mortal-Medicine-What-Matters-ebook/dp/B00JCW0BCY) by Atul Gawande
+* [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills](https://www.amazon.com/Lost-Reading-Natures-Signs-Animals-ebook/dp/B00NPE31RM/ref=sr_1_10?dchild=1&keywords=the+lost+art+amazon&qid=1601488902&s=digital-text&sr=1-10) by Tristan Gooley
 
 
 ### Books
