@@ -124,6 +124,7 @@ Philip Taubman
 * [How to Be An Antiracist](https://www.amazon.com/How-Be-Antiracist-Ibram-Kendi/dp/0525509283) by Ibram X. Kendi
 * [Letters to the Earth: Writing to a Planet in Crisis](https://www.amazon.com/Letters-Earth-Writing-Planet-Crisis/dp/0008374449/ref=sr_1_1?dchild=1&keywords=letters+to+the+earth+writing+to+a+planet+in+crisis&qid=1601205898&sr=8-1) by Emma Thompson and other writers
 * [Making Jesus Lord" The Dynamic Power of Laying Down Your Rights](https://www.amazon.com/Making-Jesus-Lord-Dynamic-Laying/dp/1576580121) by Loren Cunningham with Janice Rogers
+* [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, and Track Animals - and Other Forgotten Skills](https://www.amazon.com/Lost-Art-Reading-Natures-Signs/dp/1615192417) by Tristan Gooley
 
 
 ### Books
