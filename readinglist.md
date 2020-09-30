@@ -126,6 +126,7 @@ Philip Taubman
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, and Track Animals - and Other Forgotten Skills](https://www.amazon.com/Lost-Art-Reading-Natures-Signs/dp/1615192417) by Tristan Gooley
 * [Being Mortal: Medicine and What Matters in the End](https://www.amazon.com/Being-Mortal-Medicine-What-Matters-ebook/dp/B00JCW0BCY) by Atul Gawande
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills](https://www.amazon.com/Lost-Reading-Natures-Signs-Animals-ebook/dp/B00NPE31RM/ref=sr_1_10?dchild=1&keywords=the+lost+art+amazon&qid=1601488902&s=digital-text&sr=1-10) by Tristan Gooley
+* [Sacred Sexual Union: The Alchemy of Love, Power, and Wisdom](https://www.amazon.com/Sacred-Sexual-Union-Alchemy-Wisdom-ebook/dp/B00CWD7WWW/ref=sr_1_1?dchild=1&keywords=sacred+sexual+union&qid=1601497369&s=digital-text&sr=1-1) by Anaiya Sophia
 
 
 ### Books
