@@ -122,7 +122,7 @@ Philip Taubman
 * [Jesus - Deliverer of the Brokenhearted: Tearing Down Strongholds and Ministering Deliverance in Mind Renewing Healing Prayer](https://www.amazon.com/Jesus-Deliverer-Brokenhearted-Strongholds-Ministering-ebook/dp/B089T9C32W) by Frank Meadows
 * [How to Be An Antiracist](https://www.amazon.com/How-Be-Antiracist-Ibram-Kendi/dp/0525509283) by Ibram X. Kendi
 * [Letters to the Earth: Writing to a Planet in Crisis](https://www.amazon.com/Letters-Earth-Writing-Planet-Crisis/dp/0008374449/ref=sr_1_1?dchild=1&keywords=letters+to+the+earth+writing+to+a+planet+in+crisis&qid=1601205898&sr=8-1) by Emma Thompson and other writers
-* [Making Jesus Lord" The Dynamic Power of Laying Down Your Rights](https://www.amazon.com/Making-Jesus-Lord-Dynamic-Laying/dp/1576580121) by Loren Cunningham with Janice Rogers
+* [Making Jesus Lord: The Dynamic Power of Laying Down Your Rights](https://www.amazon.com/Making-Jesus-Lord-Dynamic-Laying/dp/1576580121) by Loren Cunningham with Janice Rogers
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, and Track Animals - and Other Forgotten Skills](https://www.amazon.com/Lost-Art-Reading-Natures-Signs/dp/1615192417) by Tristan Gooley
 * [Being Mortal: Medicine and What Matters in the End](https://www.amazon.com/Being-Mortal-Medicine-What-Matters-ebook/dp/B00JCW0BCY) by Atul Gawande
 * [The Lost Art of Reading Nature's Signs: Use Outdoor Clues to Find Your Way, Predict the Weather, Locate Water, Track Animals, and Other Forgotten Skills](https://www.amazon.com/Lost-Reading-Natures-Signs-Animals-ebook/dp/B00NPE31RM/ref=sr_1_10?dchild=1&keywords=the+lost+art+amazon&qid=1601488902&s=digital-text&sr=1-10) by Tristan Gooley
