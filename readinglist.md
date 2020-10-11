@@ -129,6 +129,7 @@ Philip Taubman
 * [Sacred Sexual Union: The Alchemy of Love, Power, and Wisdom](https://www.amazon.com/Sacred-Sexual-Union-Alchemy-Wisdom-ebook/dp/B00CWD7WWW/ref=sr_1_1?dchild=1&keywords=sacred+sexual+union&qid=1601497369&s=digital-text&sr=1-1) by Anaiya Sophia
 * [For the Love of Music: A Conductor's Guide to the Art of Listening](https://www.amazon.com/Love-Music-Conductors-Guide-Listening/dp/0525436499/ref=sr_1_1?dchild=1&keywords=for+the+love+of+music&qid=1601559161&sr=8-1) by John Mauceri
 * [Being Mortal: Medicine and What Matters in the End](https://www.amazon.com/Being-Mortal-Medicine-What-Matters-ebook/dp/B00JCW0BCY) by Atul Gawande
+* [Radical Compassion: Learning to Love Yourself and Your World with the Practice of RAIN](https://www.amazon.com/Radical-Compassion-Learning-Yourself-Practice/dp/0525522816) by Tara Brach
 
 
 ### Books
