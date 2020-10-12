@@ -9,7 +9,6 @@ layout: default
 * [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
-* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life]() by Susan David
 * [When They Call You a Terrorist: A Black Lives Matter Memoir](https://www.amazon.com/When-They-Call-You-Terrorist/dp/1250306906) by Patrisse Khan-Cullors & Asha Bandele
 
 
@@ -130,6 +129,7 @@ Philip Taubman
 * [For the Love of Music: A Conductor's Guide to the Art of Listening](https://www.amazon.com/Love-Music-Conductors-Guide-Listening/dp/0525436499/ref=sr_1_1?dchild=1&keywords=for+the+love+of+music&qid=1601559161&sr=8-1) by John Mauceri
 * [Being Mortal: Medicine and What Matters in the End](https://www.amazon.com/Being-Mortal-Medicine-What-Matters-ebook/dp/B00JCW0BCY) by Atul Gawande
 * [Radical Compassion: Learning to Love Yourself and Your World with the Practice of RAIN](https://www.amazon.com/Radical-Compassion-Learning-Yourself-Practice/dp/0525522816) by Tara Brach
+* [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Susan-David-audiobook/dp/B01JGRMM4E/ref=sr_1_2?dchild=1&keywords=emotional+agility&qid=1602534478&sr=8-2) by Susan David
 
 
 ### Books
