@@ -130,6 +130,7 @@ Philip Taubman
 * [Being Mortal: Medicine and What Matters in the End](https://www.amazon.com/Being-Mortal-Medicine-What-Matters-ebook/dp/B00JCW0BCY) by Atul Gawande
 * [Radical Compassion: Learning to Love Yourself and Your World with the Practice of RAIN](https://www.amazon.com/Radical-Compassion-Learning-Yourself-Practice/dp/0525522816) by Tara Brach
 * [Emotional Agility: Get Unstuck, Embrace Change, and Thrive in Work and Life](https://www.amazon.com/Emotional-Agility-Susan-David-audiobook/dp/B01JGRMM4E/ref=sr_1_2?dchild=1&keywords=emotional+agility&qid=1602534478&sr=8-2) by Susan David
+* [Atomic Habits: Atomic Habits: an Easy & Proven Way to Build Good Habits and Break Bad Ones](https://www.amazon.com/Atomic-Habits-Proven-Build-Break/dp/0593189647/ref=sr_1_3?dchild=1&keywords=atomic+habits&qid=1603017329&sr=8-3)
 
 
 ### Books
