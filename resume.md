@@ -37,8 +37,8 @@ Sustained Dialogue Faciliation
 
 ### MYERS PARK PRESBYTERIAN CHURCH, BETTER WHEN WE'RE BACK TOGETHER
 21-Day Race Equity Challenge
-* Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 50 days.
-* Learning about how engaging in anti-racism attitudes and behaviors is a lifelong journey.
+* Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 55 days.
+* Learning about how engaging in anti-racism attitudes and behaviors is a lifelong journey and should be a give. African American lives don't just matter; African American lives are amazing and sing through our world.
 
 
 ### ASPEN IDEAS
