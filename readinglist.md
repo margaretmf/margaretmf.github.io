@@ -133,6 +133,7 @@ Philip Taubman
 * [Atomic Habits: Atomic Habits: an Easy & Proven Way to Build Good Habits and Break Bad Ones](https://www.amazon.com/Atomic-Habits-Proven-Build-Break/dp/0593189647/ref=sr_1_3?dchild=1&keywords=atomic+habits&qid=1603017329&sr=8-3) by James Clear
 * [Shakespeare in a Divided America: What His Plays Tell Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
 * [Abraham: A Journey to the Heart of Three Faiths](https://www.amazon.com/Abraham-Journey-Heart-Three-Faiths/dp/0060838663) by Bruce Feiler
+* [Malcolm X Speaks: Selected Speeches and Statements](https://www.amazon.com/Abraham-Journey-Heart-Three-Faiths/dp/0060838663) Edited with Prefatory Notes by George Breitman
 
 
 ### Books
