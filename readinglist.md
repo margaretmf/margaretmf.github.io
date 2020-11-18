@@ -134,6 +134,7 @@ Philip Taubman
 * [Shakespeare in a Divided America: What His Plays Tell Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
 * [Abraham: A Journey to the Heart of Three Faiths](https://www.amazon.com/Abraham-Journey-Heart-Three-Faiths/dp/0060838663) by Bruce Feiler
 * [Malcolm X Speaks: Selected Speeches and Statements](https://www.amazon.com/Abraham-Journey-Heart-Three-Faiths/dp/0060838663) Edited with Prefatory Notes by George Breitman
+* [Rough Ideas: Reflections on Music and More](https://www.amazon.com/Rough-Ideas-Reflections-Music-More/dp/0374252548) by Stephen Hough
 
 
 ### Books
