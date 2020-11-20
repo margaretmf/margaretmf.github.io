@@ -135,6 +135,7 @@ Philip Taubman
 * [Abraham: A Journey to the Heart of Three Faiths](https://www.amazon.com/Abraham-Journey-Heart-Three-Faiths/dp/0060838663) by Bruce Feiler
 * [Malcolm X Speaks: Selected Speeches and Statements](https://www.amazon.com/Abraham-Journey-Heart-Three-Faiths/dp/0060838663) Edited with Prefatory Notes by George Breitman
 * [Rough Ideas: Reflections on Music and More](https://www.amazon.com/Rough-Ideas-Reflections-Music-More/dp/0374252548) by Stephen Hough
+* [One in Christ: Bridging Racial & Cultural Divides](https://www.amazon.com/One-Christ-Bridging-Cultural-Divides/dp/1621576914) by David D. Ireland & R. T. Kendall
 
 
 ### Books
