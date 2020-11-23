@@ -138,6 +138,7 @@ Philip Taubman
 * [One in Christ: Bridging Racial & Cultural Divides](https://www.amazon.com/One-Christ-Bridging-Cultural-Divides/dp/1621576914) by David D. Ireland & R. T. Kendall
 * [HumanKind: A Hopeful History](https://www.amazon.com/Humankind-Hopeful-History-Rutger-Bregman/dp/0316418536/ref=sr_1_3?dchild=1&keywords=humankind&qid=1605964685&sr=8-3) by Rutger Bregman, Erica Moore, & Elizabeth Manton
 * [The Sword and the Shield: The Revolutionary Lives of Malcolm X and Martin Luther King Jr.](https://www.amazon.com/Sword-Shield-Revolutionary-Malcolm-Martin/dp/154161786X/ref=sr_1_2?crid=2O5C68U9T755U&dchild=1&keywords=the+sword+and+the+shield&qid=1605964965&s=books&sprefix=the+sword%2Cstripbooks%2C319&sr=1-2) by Peniel E. Joseph
+* [The Autobiography of Malcolm X: As Told to Alex Haley](https://www.amazon.com/Autobiography-Malcolm-Told-Alex-Haley/dp/0345350685) by Malcolm X, Alex Haley, Attallah Shabazz
 
 
 ### Books
