@@ -140,6 +140,7 @@ Philip Taubman
 * [The Sword and the Shield: The Revolutionary Lives of Malcolm X and Martin Luther King Jr.](https://www.amazon.com/Sword-Shield-Revolutionary-Malcolm-Martin/dp/154161786X/ref=sr_1_2?crid=2O5C68U9T755U&dchild=1&keywords=the+sword+and+the+shield&qid=1605964965&s=books&sprefix=the+sword%2Cstripbooks%2C319&sr=1-2) by Peniel E. Joseph
 * [The Autobiography of Malcolm X: As Told to Alex Haley](https://www.amazon.com/Autobiography-Malcolm-Told-Alex-Haley/dp/0345350685) by Malcolm X, Alex Haley, Attallah Shabazz
 * [Stamped: Racism, Antiracism, and You](Stamped: Racism, Antiracism, and You: A Remix of the National Book Award-winning Stamped from the Beginning) by Jason Reynolds and Ibram X. Kendi
+* [me and white supremacy: Combat Racism, Change the World, and Become a Good Ancestor](https://www.amazon.com/Me-White-Supremacy-Combat-Ancestor/dp/1728209803/ref=sr_1_1_sspa?dchild=1&keywords=me+and+white+supremacy&qid=1606419090&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzMlJGNFJSUEMyS1hEJmVuY3J5cHRlZElkPUEwODcyNzY1QVdINkZOOU5KTTZEJmVuY3J5cHRlZEFkSWQ9QTA5MzcwNDAyUlU5NDFINU9OUUlSJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Layla F. Saad & Robin DiAngelo 
 
 
 ### Books
