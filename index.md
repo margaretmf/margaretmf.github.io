@@ -12,6 +12,8 @@ I am **Margaret Furr**, and I am developing expertise in **photography**, **sket
 
 Most recently, I have been learning about antiracism and working on photography of light in the darkness. I am exploring how to paint the light in the darkness series, and I am interested in using visual arts together with electrical engineering of homes and cities.
 
+I have also driven through 10 states, taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps and the opportunity to learn our country by experience.
+
 Before this work, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
 
 I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
