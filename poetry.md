@@ -69,7 +69,7 @@ I cannot control it.
 I feel vexation. 
 That's all I feel.
 I feel like I am inferior to others and delayed, and the sense of being caged in makes me feel frustrated, and thwarted.
-The darness inside - I cannot hide it for much longer.
+The darkness inside - I cannot hide it for much longer.
 The darkness is lurking, and I can't shove it down.
 "I should feel ashamed of myself and embarassed" is all I hear people voice.
 The shame and embarassament turn to anger and rage. 
@@ -175,5 +175,67 @@ Heaven gives its eternal rest.
 
 
 ## Parents ##
-Parents, the guardians and educators of youth. THey bring mankind up to know when 
+Parents, the guardians and educators of youth.
+They bring mankind up to know what is right spiritualy and morally.
+Childhood is protected by nurturing motherhood and protective fatherhood.
+Parents teach what is right, or real, from wrong or unreal.
+God, good, is the parent mind for everyone.
+
+
+## Children ##
+Children, the sound of children playing is beautiful.
+It's so natural to appreciate youth.
+Youth rise to love and teach us to love more.
+Little kids are so deep and eloquent in their understanding of spirituality.
+Toddlers look deep into our souls, and play with us to help us feel more alive and joyful.
+The changing seasons, the next generation, the progression of umanity, and mankind, is reflected through youth.
+
+
+## Home ## 
+Home starts from within.
+Activities in a house, a community, workplace flow out from home within.
+The love of the house reflects the love of the home within.
+Great is the joy of conversations near the light of the fireside.
+Great is the delight of cooking in the kitchen.
+Great is the grace of working from home in the cottage.
+A home contributes to a village.
+
+
+## Work ##
+Rising up ot of bed with the morning sun shining through the city to do the daily duties.
+There's a song and a whistle in the daily grind.
+Finding the fun in the tool makes it worthwhile.
+I exert myself, use my skills, put in the effort, and have fun.
+
+## Time ##
+Outside of time, stands eternity.
+Tale as old as time.
+The hours of the period stand for the goodness expressed through acts.
+An era of sunlight unfolding.
+Taking back the night where the clock runs towards the right side of history.
+Tick-tock it goes, for infinity.
+For infinity, our truth will march onward.
+And moment by moment, we choose to stand in that goodness.
+
+
+## The Past ##
+The past is done. It's gone. It's a distant dream, a memory fading away so that the past of new mercies can unfold.
+Let by gones teach us the lessons while holding on to remembrances of the good.
+Nothing is born of ruminating about what happened long ago or regretting past actions.
+The present is here to be made new.
+The cycle of light continues through history forever.
+
+
+## The Future ##
+No one knows waht the future will bring.
+We put our hope in the prsoepcts of a better day tomorrow.
+We carry the weight of concerns over imminent threats to our being next week.
+We trust that there are opporunties for new modes of life in a year.
+Prophesying for good, not for evil, shall be our goal in the uncertaity and questioned destiny.
+Our fate is good, and the cycle of light continues forever out of the darkness.
+
+
+## Historical Figure ##
+
+
 <br>
