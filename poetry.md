@@ -41,7 +41,7 @@ From little seeds to full openings, it is perennial as the primrose.
 
 ## A Tree ##
 The tree that stands in front of my house has roots that go deep into the ground.
-The branches expand on into the sky.
+The branches expand outwardly and onwardly into the sky.
 The tree comes from a forest, the woods.
 The little sapling holds it strong.
 The timber keeps it steady.
@@ -59,7 +59,7 @@ A sunny day is like God smiling through the day.
 God's light shines through our land and our hearts.
 Each man, each individual can see the sun radiating from a slightly different perspective.
 All of mankind can bask in the light of God, this sun that shines through the day in brilliant ways.
-We can all choose to appreaciate the summery sense of life. 
+We can all choose to appreciate the summery sense of life. 
 
 
 ## Anger ##
@@ -86,12 +86,12 @@ Crying but choosing to love beyond the grief, the tears.
 Everything feels broken and despondent, but everything is still in tact, and there is still so much goodness and mercy.
 Sadness cannot overtake me.
 Only Love overcomes.
-There's always mroe beauty, and good cheer to wake up to.
+There's always more beauty, and good cheer to wake up to.
 
 
 ## Joy ##
-Joy comes from oening a window to the sun.
-I chose to be cheerful and appreciate a new day.
+Joy comes from opening a window to the sun.
+I choose to be cheerful and appreciate a new day.
 I live with glee and delight because there's fresh space to shut out the noise.
 Elation comes when dancing and having a good time.
 
@@ -104,14 +104,76 @@ It's so hard to see the pictures, the images.
 I grieve over rejection after trying to do what's right.
 How did I go wrong?
 How do I love?
-Loving people heals the distress, the wailing, the whimpering.
+Loving people heals the distress, the wailing, and the whimpering.
 The tears flow out, but I let a smile, and a laugh, and a dance have the last word.
 
 
 ## Rain ##
 The rain falls down onto the windowshield.
 It showers.
-The water 
+The water falls in a torrent.
+It's a deluge of water.
+Precipitatory, changing form from the sky to the earth.
+The sprinkles, the droplets.
+The sunshine wants to evaporate the water after it falls.
 
 
+## Illness ##
+Illness sucks the life out of people.
+Illness is a great malady.
+There is breakdown, affliction, ailing, disability, relapse.
+Illness is emotional wailing, cellular destruction, tears, pain.
+It leads people to want to die.
+But recovery is normal, a desire to sing is normal.
+Illness leads to perfect health, recovery.
+
+
+## Smiles ##
+Smiles are God's work through man.
+The sun shines its light that radiates through the Earth as man shines its happiness through a smile.
+There should be 7.2 billiion smiles, laughs, expressions of delight, and beams of hope on Earth today.
+Smiling through all the Earth, our mankind is beautiful, whole, integrated.
+
+
+## Music ##
+Life is a symphony.
+The breeze moves the trees, and cars move around on the highway in a beautifully orchestrated way.
+There is constant rhythm when we tune into the underlying reality and let ourselves be instrument of good cheer.
+There is constant melody in the interconnectedness of Life.
+Our experience is a living hymn.
+
+
+## Hope ##
+A hope, a desire for something - something better.
+A wish for something to happen.
+A belief in the best.
+An aspiration, a life goal, optimism nd faith that everything will work together for the best.
+Anticipation of harmony, love, God's care, God's detailed plan.
+An expectation of being in the right place.
+
+
+## Mortality ##
+The fatal pull to feel compressed, stuck, ashamed, heavy, guilt-ridden.
+The lethal ull to attack, attach, react, and be indignant.
+Life is beautiful, beauty is immortal, grace comes to us unexpectedly.
+Paradise of heaven is within.
+The passing storm, the passing clouds.
+The darkness, the storminess of the night can not touch us.
+In sure repose I find the way.
+In deep silence, I appreciate the music of God.
+In sleep, despite the heaviness and pull towards death, I feel the touch of eternity.
+
+
+## Heaven ##
+Heaven is here, not somewhere out there.
+Heaven covers the earth and the sky.
+Heaven in our hearts feels like the expanse of the sky.
+Heaven is the glory of the reign of God's kingdom.
+Heaven exists for eternity for us all.
+Heaven is pure bliss and exists well beyond the current present, it exists hereafter.
+Heaven gives its eternal rest.
+
+
+## Parents ##
+Parents, the guardians and educators of youth. THey bring mankind up to know when 
 <br>
