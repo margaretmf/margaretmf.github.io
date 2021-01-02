@@ -15,7 +15,7 @@ Like how the tide rises and lowers, God causes us to wake up.
 The ocean.
 The ocean represents the deep waters of God within man's soul.
 The green, blue, grey, white is the substance of thought connecting us all in consciousness between the foundations of the earth.
-*Word Associations:* billows, deep, brine, offing, wave, flux, tide, current
+**Word Associations:** billows, deep, brine, offing, wave, flux, tide, current
 
 
 ## Clouds ##
