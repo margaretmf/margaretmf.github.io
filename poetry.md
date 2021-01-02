@@ -15,7 +15,7 @@ Like how the tide rises and lowers, God causes us to wake up.
 The ocean.
 The ocean represents the deep waters of God within man's soul.
 The green, blue, grey, white is the substance of thought connecting us all in consciousness between the foundations of the earth.
-[##Word Associations:## billows, deep, brine, offing, wave, flux, tide, current]
+##Word Associations:## billows, deep, brine, offing, wave, flux, tide, current
 
 
 ## Clouds ##
@@ -27,20 +27,20 @@ And when there is a lot of water, they become thunderheads.
 The clouds.
 They are so beautiful in the sky.
 People imagine different things about them and how they support our ecosystem.
-[Word Associations: puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous]
+##Word Associations:## puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
 
 
 ## First Love ##
 The flame of love within shows me the way to have fun with life and cherish the light within all around.
 The source within is tender, and I relish the youthlike energy that everyone yearns to feel.
-[Word Associations: tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth[
+##Word Associations:## tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
 
 
 ## Spring ##
 A fresh season for living, moving, and loving begins.
 The pink buds, the white and yellow flowers.
 From little seeds to full openings, it is perennial as the primrose.
-[Word Associations: budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose]
+##Word Associations:## budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
 
 
 ## A Tree ##
@@ -49,7 +49,7 @@ The branches expand outwardly and onwardly into the sky.
 The tree comes from a forest, the woods.
 The little sapling holds it strong.
 The timber keeps it steady.
-[Word Associations: sapling, woods, leaves, greenery, roots, branches, timber, forest]
+##Word Associations:## sapling, woods, leaves, greenery, roots, branches, timber, forest
 
 
 ## A Storm ##
@@ -57,7 +57,7 @@ The storm is roaring and raging in the sky and in our hearts.
 The blustering winds, the tempestuous feelings.
 There is nothing like a witner blast, and a heart filled with wrath that loses control.
 The storm roars without us, the sun is always shining, and it is always a beautiful world to be joyful, and cheerful in.
-[Word Associations: roaring, raging, blustering, tempestuous, squall, blast, gale, wrath]
+##Word Associations:## roaring, raging, blustering, tempestuous, squall, blast, gale, wrath
 
 
 ## A Sunny Day ##
@@ -66,7 +66,7 @@ God's light shines through our land and our hearts.
 Each man, each individual can see the sun radiating from a slightly different perspective.
 All of mankind can bask in the light of God, this sun that shines through the day in brilliant ways.
 We can all choose to appreciate the summery sense of life. 
-[Word Associations: luminous, summery, shining, clarion, radiant, brilliant, bask, haze]
+##Word Associations:## luminous, summery, shining, clarion, radiant, brilliant, bask, haze
 
 
 ## Anger ##
