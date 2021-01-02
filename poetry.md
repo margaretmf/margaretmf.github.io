@@ -395,4 +395,150 @@ Say no to the enemy, and say yes to Love.
 [Word Associations: combat, hostility, strife, bloodshed, allies, enemy, army, conflict]
 
 
+## Cowardice ##
+Not being able to own up to mistakes
+Too weak to own up to iniquity
+A fraud to accept rebukes, admonishment
+Too wimpy, pathetic to accept the penalty, the repercussion
+Spineless morally, unable to speak up, or accept what's going on
+A deserter of what's right,
+Leaving others in harm's way, and not able to accept the criminal recount.
+[Word Associations: spineless, weak, timid, afraid, abject, pathetic, wimp, deserter]
+
+
+## Brotherhood ##
+Brotherhood expressed through playing sports with neighbors, 
+going on walks in the neighborhood, helping out a friend
+Loyal, steadfast, and true for life brothers
+Standing in unity and solidarity.
+[Word Associations: comradeship, fraternity, loyal, steadfast, solidarity, partner, unity, fellowship]
+
+
+## A Work of Art ##
+The Earth we live on is a work of art.
+There is divine interconnectedness expressed all around through people's actions.
+The landscape of the sun shines on every one slightly differently,
+from a different perspective.
+The colors, the hues are beautiful brushstrokes revealing the prism of light.
+Thank you for this beautiful craft that all of humanity can cherish and love.
+[Word Associations: portrait, brushstrokes, texture, color, craft, landscape, shade, light]
+
+
+## The Night Sky ##
+The night sky sings with holiness and with peace
+The stars shine infintiely 
+The blackness is so dark and the pitch of the night lights up everyone to sleep
+THe glimmer of the stars give hope and point people to inncocence, home
+The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
+[Word Associations: stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful]
+
+
+## The Moon ##
+The moon is shining in the darkness.
+In the darkness, there is still light.
+It stands in the sphere, the orb of the Earth.
+Good tidings fall, wane, wax, upon it.
+The lunar eclipse shines also. 
+[Word Associations: crescent, sphere, orb, silver, tide, wane, lunar, Apollo]
+
+
+## The Sun ##
+The Sun is always there.
+Never will there be a day when mankind questions whether the sun is ther.
+Sometimes the clouds obstruct the light shining from the sun in its full effulgence, radiance.
+But always the sun is golden, bringing its heart to the people, humanity.
+All of our hearts, and minds, like the sun can come to full effulgence, beyond the shadow of human existence and reign and every day.
+[Word Associations: golden, effulgence, solstice, radiance, heat, dappled, shdaow, zenith]
+
+
+# Imperfection ##
+I am not perfect,
+I fall short,
+I have blemishes,
+I have made mistakes
+but I do not let this mar me from what perfection and good nature there is to lean on!
+
+Forbes can't stop me from continuing to live, love.
+Divine Love is omnipresent, there to wake up everyone and open up every one to his whole, limitless mind with faculites in tact.
+[Word Associations: flow, uniqueness, foible, blemish, shortcoming, nature, defect, marred]
+
+
+## Serendipity ##
+By divine fluke, it's unexpected that we meet.
+I would never have expected it.
+The circumstnace was set up with a spark, and I would never think it real.
+It's karma for things to work out.
+I continue to set my 
+
+
+## Perfection ##
+
+
+## A Window ## 
+
+
+## Change ##
+
+
+## Evil ##
+
+
+## Temptation ##
+
+
+## Justice ##
+
+
+## Inequality ##
+
+
+## Knowledge ##
+
+
+## Freedom ##
+
+
+## Creativity ##
+
+
+## Gratitude ##
+
+
+## Faith ##
+
+
+## Violence ##
+
+
+## Tragedy ##
+
+
+## Winter ##
+
+
+## Fall ##
+
+
+## Spirituality ##
+
+
+## Prayer ##
+
+
+## Warmth ##
+
+
+## Scared ##
+
+
+## A Glance ##
+
+
+## Grief ##
+
+
+## Beauty ##
+
+
+
 <br>
