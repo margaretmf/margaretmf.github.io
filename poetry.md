@@ -15,7 +15,7 @@ Like how the tide rises and lowers, God causes us to wake up.
 The ocean.
 The ocean represents the deep waters of God within man's soul.
 The green, blue, grey, white is the substance of thought connecting us all in consciousness between the foundations of the earth.
-[Word Associations: billows, deep, brine, offing, wave, flux, tide, current]
+*Word Associations:* billows, deep, brine, offing, wave, flux, tide, current
 
 
 ## Clouds ##
@@ -27,20 +27,20 @@ And when there is a lot of water, they become thunderheads.
 The clouds.
 They are so beautiful in the sky.
 People imagine different things about them and how they support our ecosystem.
-[Word Associations: puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous]
+Word Associations: puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
 
 
 ## First Love ##
 The flame of love within shows me the way to have fun with life and cherish the light within all around.
 The source within is tender, and I relish the youthlike energy that everyone yearns to feel.
-[Word Associations: tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth]
+Word Associations: tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
 
 
 ## Spring ##
 A fresh season for living, moving, and loving begins.
 The pink buds, the white and yellow flowers.
 From little seeds to full openings, it is perennial as the primrose.
-[Word Associations: budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose]
+Word Associations: budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
 
 
 ## A Tree ##
@@ -49,7 +49,7 @@ The branches expand outwardly and onwardly into the sky.
 The tree comes from a forest, the woods.
 The little sapling holds it strong.
 The timber keeps it steady.
-[Word Associations: sapling, woods, leaves, greenery, roots, branches, timber, forest]
+Word Associations: sapling, woods, leaves, greenery, roots, branches, timber, forest
 
 
 ## A Storm ##
@@ -57,7 +57,7 @@ The storm is roaring and raging in the sky and in our hearts.
 The blustering winds, the tempestuous feelings.
 There is nothing like a witner blast, and a heart filled with wrath that loses control.
 The storm roars without us, the sun is always shining, and it is always a beautiful world to be joyful, and cheerful in.
-[Word Associations: roaring, raging, blustering, tempestuous, squall, blast, gale, wrath]
+Word Associations: roaring, raging, blustering, tempestuous, squall, blast, gale, wrath
 
 
 ## A Sunny Day ##
@@ -66,7 +66,7 @@ God's light shines through our land and our hearts.
 Each man, each individual can see the sun radiating from a slightly different perspective.
 All of mankind can bask in the light of God, this sun that shines through the day in brilliant ways.
 We can all choose to appreciate the summery sense of life. 
-[Word Associations: luminous, summery, shining, clarion, radiant, brilliant, bask, haze]
+Word Associations: luminous, summery, shining, clarion, radiant, brilliant, bask, haze
 
 
 ## Anger ##
@@ -84,7 +84,7 @@ There is enmity towards what God is doing and what I want.
 I am committing malice by giving into the raging heart.
 Nothing is stronger and more dangerous than this indignation and sense of injustice.
 But expressing gratitude for every ounce of good turns around the monstrous storm.
-[Word Associations: acrimony, ire, enmity, indignation, vexation, choler, rage, malice]
+Word Associations: acrimony, ire, enmity, indignation, vexation, choler, rage, malice
 
 
 ## Sadness ##
@@ -95,7 +95,7 @@ Everything feels broken and despondent, but everything is still in tact, and the
 Sadness cannot overtake me.
 Only Love overcomes.
 There's always more beauty, and good cheer to wake up to.
-[Word Associations: heartache, bleakness, dysphoria, woe, grief, despondent, sorrow, suffering]
+Word Associations: heartache, bleakness, dysphoria, woe, grief, despondent, sorrow, suffering
 
 
 ## Joy ##
@@ -189,7 +189,7 @@ Heaven is the glory of the reign of God's kingdom.
 Heaven exists for eternity for us all.
 Heaven is pure bliss and exists well beyond the current present, it exists hereafter.
 Heaven gives its eternal rest.
-[Word Associations: Kingdom, glory, eternity, bliss, beyond, afterworld, hereafter, eternal rest]
+Word Associations: Kingdom, glory, eternity, bliss, beyond, afterworld, hereafter, eternal rest
 
 
 ## Parents ##
@@ -198,7 +198,7 @@ They bring mankind up to know what is right spiritually and morally.
 Childhood is protected by nurturing motherhood and protective fatherhood.
 Parents teach what is right, or real, from wrong or unreal.
 God, good, is the parent mind for everyone.
-[Word Associations: guardian, idol, nurture, mother, father, childhood. upbringing teacher]
+Word Associations: guardian, idol, nurture, mother, father, childhood. upbringing teacher
 
 
 ## Children ##
@@ -208,7 +208,7 @@ Youth rise to love and teach us to love more.
 Little kids are so deep and eloquent in their understanding of spirituality.
 Toddlers look deep into our souls, and play with us to help us feel more alive and joyful.
 The changing seasons, the next generation, the progression of humanity, and mankind, is reflected through youth.
-[Word Associations: toddler, play, offspring, kids, little, foundling, youngsters, youth]
+Word Associations: toddler, play, offspring, kids, little, foundling, youngsters, youth
 
 
 ## Home ## 
@@ -220,7 +220,7 @@ Great is the joy of conversations near the light of the fireside.
 Great is the delight of cooking in the kitchen.
 Great is the grace of working from a place of comfort in the garage.
 A healthy home contributes to a village.
-[Word Associations: house, fireside, village, kitchen, hearth, cottage, apartment, tenement]
+Word Associations: house, fireside, village, kitchen, hearth, cottage, apartment, tenement
 
 
 ## Work ##
@@ -228,7 +228,7 @@ Rising up out of bed with the morning sun shining through the city to do the dai
 There's a song and a whistle in the daily grind.
 Finding the fun in the tool makes it worthwhile.
 I exert myself, use my skills, put in the effort, and have fun.
-[Word Associations: toil, labor, wage, artisan, skill, exertion, effort, grind]
+Word Associations: toil, labor, wage, artisan, skill, exertion, effort, grind
 
 
 ## Time ##
@@ -240,7 +240,7 @@ Taking back the night where the clock runs towards the right side of history.
 Tick-tock it goes for infinity.
 For infinity, our truth will march onward.
 And moment by moment, we choose to stand in that goodness.
-[Word Associations: eternity, hours, period, era, clock, ticktock, infinity, moment]
+Word Associations: eternity, hours, period, era, clock, ticktock, infinity, moment
 
 
 ## The Past ##
@@ -249,7 +249,7 @@ Let by gones teach us the lessons while holding on to remembrances of the good.
 Nothing is born of ruminating about what happened long ago or regretting past actions.
 The present is here to be made new.
 The cycle of light continues through history forever.
-[Word Associations: memory, distant, history, remembrance, antiquity, memoir, bygone, long ago]
+Word Associations: memory, distant, history, remembrance, antiquity, memoir, bygone, long ago
 
 
 ## The Future ##
@@ -259,7 +259,7 @@ We carry the weight of concerns over imminent threats to our being next week.
 We trust that there are opporunities for new modes of life in a year.
 Prophesying for good, not for evil, shall be our goal in the uncertaity and questioned destiny.
 Our fate is good, and the cycle of light continues forever out of the darkness.
-[Word Associations: destiny, hope, potential, imminent, opportunity, fate, foresee, prophesy]
+Word Associations: destiny, hope, potential, imminent, opportunity, fate, foresee, prophesy
 
 
 ## Historical Figure ##
