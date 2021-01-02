@@ -15,7 +15,7 @@ Like how the tide rises and lowers, God causes us to wake up.
 The ocean.
 The ocean represents the deep waters of God within man's soul.
 The green, blue, grey, white is the substance of thought connecting us all in consciousness between the foundations of the earth.
-##Word Associations:## billows, deep, brine, offing, wave, flux, tide, current
+[Word Associations: billows, deep, brine, offing, wave, flux, tide, current]
 
 
 ## Clouds ##
@@ -27,20 +27,20 @@ And when there is a lot of water, they become thunderheads.
 The clouds.
 They are so beautiful in the sky.
 People imagine different things about them and how they support our ecosystem.
-##Word Associations:## puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
+[Word Associations: puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous]
 
 
 ## First Love ##
 The flame of love within shows me the way to have fun with life and cherish the light within all around.
 The source within is tender, and I relish the youthlike energy that everyone yearns to feel.
-##Word Associations:## tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
+[Word Associations: tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth]
 
 
 ## Spring ##
 A fresh season for living, moving, and loving begins.
 The pink buds, the white and yellow flowers.
 From little seeds to full openings, it is perennial as the primrose.
-##Word Associations:## budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
+[Word Associations: budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose]
 
 
 ## A Tree ##
@@ -49,7 +49,7 @@ The branches expand outwardly and onwardly into the sky.
 The tree comes from a forest, the woods.
 The little sapling holds it strong.
 The timber keeps it steady.
-##Word Associations:## sapling, woods, leaves, greenery, roots, branches, timber, forest
+[Word Associations: sapling, woods, leaves, greenery, roots, branches, timber, forest]
 
 
 ## A Storm ##
@@ -57,7 +57,7 @@ The storm is roaring and raging in the sky and in our hearts.
 The blustering winds, the tempestuous feelings.
 There is nothing like a witner blast, and a heart filled with wrath that loses control.
 The storm roars without us, the sun is always shining, and it is always a beautiful world to be joyful, and cheerful in.
-##Word Associations:## roaring, raging, blustering, tempestuous, squall, blast, gale, wrath
+[Word Associations: roaring, raging, blustering, tempestuous, squall, blast, gale, wrath]
 
 
 ## A Sunny Day ##
@@ -66,7 +66,7 @@ God's light shines through our land and our hearts.
 Each man, each individual can see the sun radiating from a slightly different perspective.
 All of mankind can bask in the light of God, this sun that shines through the day in brilliant ways.
 We can all choose to appreciate the summery sense of life. 
-##Word Associations:## luminous, summery, shining, clarion, radiant, brilliant, bask, haze
+[Word Associations: luminous, summery, shining, clarion, radiant, brilliant, bask, haze]
 
 
 ## Anger ##
@@ -103,7 +103,7 @@ Joy comes from opening a window to the sun.
 I choose to be cheerful and appreciate a new day.
 I live with glee and delight because there's fresh space to shut out the noise.
 Elation comes when dancing and having a good time.
-[Word Associations: glee, rapture, ecstasy, bliss, cheer, contentment, delight, elation]
+Word Associations: glee, rapture, ecstasy, bliss, cheer, contentment, delight, elation
 
 
 ## Tears ##
@@ -116,7 +116,7 @@ How did I go wrong?
 How do I love?
 Loving people heals the distress, the wailing, and the whimpering.
 The tears flow out, but I let a smile, and a laugh, and a dance have the last word.
-[Word Associations: crying, distress, grieving, sorrow, pain, weep, wailing, whimpering]
+Word Associations: crying, distress, grieving, sorrow, pain, weep, wailing, whimpering
 
 
 ## Rain ##
@@ -127,7 +127,7 @@ It's a deluge of water.
 Precipitation, changing form from the sky to the earth.
 The sprinkles, the droplets.
 The sunshine wants to evaporate the water after it falls.
-[Word Associations: deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid sunshine]
+Word Associations: deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid sunshine
 
 
 ## Illness ##
@@ -138,7 +138,7 @@ Illness is emotional wailing, cellular destruction, tears, pain.
 It leads people to want to die.
 But recovery is normal, a desire to sing is normal.
 Illness leads to perfect health, recovery.
-[Word Associations: malady, breakdown, affliction, ailing, relapse, disability, convalescence, recovery]
+Word Associations: malady, breakdown, affliction, ailing, relapse, disability, convalescence, recovery
 
 
 ## Smiles ##
@@ -146,7 +146,7 @@ Smiles are God's work through man.
 The sun shines its light that radiates through the Earth as man shines its happiness through a smile.
 There should be 7.2 billiion smiles, laughs, expressions of delight, and beams of hope on Earth today.
 Smiling through all the Earth, our mankind is beautiful, whole, integrated.
-[Word Associations: grin, laugh, amusement, delight, smirk, beam, dimple, lips]
+Word Associations: grin, laugh, amusement, delight, smirk, beam, dimple, lips
 
 
 ## Music ##
@@ -155,7 +155,7 @@ The breeze moves the trees, and cars move around on the highway in a beautifully
 There is constant rhythm when we tune into the underlying reality and let ourselves be instrument of good cheer.
 There is constant melody in the interconnectedness of Life.
 Our experience is a living hymn.
-[Word Associations: melody, hymn, instrumental, orchestra, popular, tune, choral, rhythm]
+Word Associations: melody, hymn, instrumental, orchestra, popular, tune, choral, rhythm
 
 
 ## Hope ##
@@ -165,7 +165,7 @@ A belief in the best.
 An aspiration, a life goal, optimism and faith that everything will work together for the best.
 Anticipation of harmony, love, God's care, God's detailed plan.
 An expectation of being in the right place.
-[Word Associations: expectation, wish, aspiration, ambition, belief, optimism, faith, anticipation]
+Word Associations: expectation, wish, aspiration, ambition, belief, optimism, faith, anticipation
 
 
 ## Mortality ##
@@ -178,7 +178,7 @@ The darkness, the storminess of the night can not touch us.
 In sure repose I find the way.
 In deep silence, I appreciate the music of God.
 In sleep, despite the heaviness and pull towards death, I feel the touch of eternity.
-[Word Associations: fatal, lethal, life, paradise, passing, repose, silence, sleep]
+Word Associations: fatal, lethal, life, paradise, passing, repose, silence, sleep
 
 
 ## Heaven ##
