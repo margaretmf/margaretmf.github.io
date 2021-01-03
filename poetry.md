@@ -1099,9 +1099,35 @@ Death, decay, leading to new life.
 
 
 ## Spirituality ##
+Spiritual eings we are by nature.
+We are orn of God, and we worship this one God.
+Thank you for the teachings, the passion, the faith, the creed, the principle, the true teachings
+that keep us moving and marching forward always.
+
+<br>
+
+**Word Associations:** God, otherworldly, worship, creed, principle, faith, teachings, passion
+
+
+<br>
 
 
 ## Prayer ##
+Prayer is the heart's sincere desire.
+Prayer is the giving of humble thanks to God.
+Prayer is the deliverance of sin, disease, and death.
+Prayer is the receiving of blessings from the Lord.
+Prayer is invocation to trust in God and entreat.
+Prayer is appealing to the ways of Love.
+Prayer is a psalm.
+Prayer is natural to man.
+
+<br>
+
+**Word Associations:** invocation, entreat, appeal, humble, thanks, psalm, deliverance, blessing
+
+
+<br>
 
 
 ## Warmth ##
