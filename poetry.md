@@ -1013,18 +1013,89 @@ Gratitude is the ability to accept with humor, the harmony, the melody.
 
 
 ## Faith ##
+I believe that goodness can come out of every situation.
+I trust in how God communicates to everyone.
+I walk with faith in the beauteous things of Mind that are for all to appreciate. I appreciate the beauteous things of Mind.
+She appreciates the beauteous things of Mind.
+He appreciates the beauteuous things of Mind.
+With adoration of these beauteous things, we find our confidence that through our conviction no one can be made strange.
+
+<br>
+
+
+**Word Associations:** adoration, certainty, trust, fealty, belief, conviction, confidence, dogma
+
+
+<br>
 
 
 ## Violence ##
+Mortal mind is the aggressor. 
+The thoughts, beliefs, wants, and actions coming from mortal mind are brutal.
+Pain is inflicted on others and m¥self.
+People in pain attack, and assault.
+There is tumult.
+Violence stems from feeling threatened, and feeling the need, the urge to fight back.
+Peace comes from being secure in God, and it goes on for a lifetime.
+
+<br>
+
+**Word Associations:** harm, brutality, aggression, pain, injury, attack, assault, tumult
+
+
+<br>
 
 
 ## Tragedy ##
+Falling into the deep, dark pit of wreckage, mistakes, failure, rejection is such a tragedy.
+Letting emotions override and control you, and feeling overtaken by adversity.
+Sudden misfortune and affliction is a shock to the whole system, causing pain, and heaviness.
+It feels like a curse and like one is doomed.
+But always the light of life is there to turn us from tragey to comedy with a smile and a laugh.
+
+<br>
+
+**Word Associations:** doom, adversity, death, wreck, catastrophe, affliction, misfortune, curse
+
+
+<br>
 
 
 ## Winter ##
+As fall turns to winter,
+the golden-yellow leaves fall off,
+and the glistening grey branches shine in the sulight.
+There's a chill in the air as the winds blow
+and the solstice comes.
+Yuletide carols, fireside chats, evergreen mountains, snow fallig.
+The Earth is brilliant and so filled with love.
+Winter is here,
+the grey is warm,
+and in just a little bit the buds will pop up.
+
+<br>
+
+**Word Associations:** snow, chill, solstice, igloo, yule, fireside, evergreen, arctic
+
+
+<br>
 
 
 ## Fall ##
+The dark brown leaves bouncing up and down the street,
+glittering, hitting the windshield while it rains.
+In autumn, the golden-orange brightens everything.
+There is a harvest so perfect.
+The leaves fall off later in the season so that the branches are light grey.
+Death, decay, leading to new life.
+
+<br>
+
+**Word Associations:** autumn, orange, foliage, harvest, leaves, bramches, cornucopia, death
+
+
+<br>
+
 
 
 ## Spirituality ##
