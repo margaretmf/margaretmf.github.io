@@ -869,18 +869,115 @@ No vile can touch us.
 
 
 ## Temptation ##
+I feel this pull, this urge to covet and think this unholy thought,
+or feel this unholy desire.
+It, the thing, the person I think I want seems so fascinatig, alluring, enticing.
+I feel so drawn to it.
+It's tempting, it's seducing.
+But I don't take the bait.
+I resist, and overcome temptation.
+I walk over the seas of mortal mind.
+
+<br>
+
+
+**Word Associations:** covet, allure, bait, enticing, tantalize, draw, seduction, irresistible
+
+
+<br>
 
 
 ## Justice ##
+I seek to do what is right for those around me.
+There is a code inherent to the universe that teaches us how to love,
+how to know what's right, and how to forgive.
+Even though it hurts when I stumble,
+I seek to act with moral courage.
+The truth is that there is some good to see and do, and some anger and some frustration to ovcome.
+The truth is that I have done things wrong, I have reacted, but I can choose to live another day with childlike freedom and love.
+It is fair to say that shame should be let go of, and it is fair that the ugliness of years past shall be recompensated with a song in one's heart to live by each day.
+Justice is the rule of life, and anything unfair from the past can be replaced with good on its way in the equation.
+
+<br>
+
+
+**Word Associations:** right, code, moral, truth, fair, redress, recompense, rule
+
+
+<br>
 
 
 ## Inequality ##
+It feels so unfair, oppressive to feel so desperate while others feel free and limitless.
+Why is there disparity and injustice?
+Why do people have to feel stuck and trapped on the side of the road?
+Why are there biases to some people and not others?
+Why do some grow up with priviliges but others don't?
+Why do some fall into misfortune?
+It hurts to feel the pain of the inequalities, but I know some people have overcome the depth of the sea of limitations,
+and I see the latent talent of those struggling with the world's twistedness.
+I am thankful for the ones who prove the ability to let go of the chains that bind them, and I am thankful for God for giving joy in the morning after the darkness of the night.
+
+<br>
+
+
+**Word Associations:** unfair, injustice, racism, difference, bias, disparity, privilege, misfortune
+
+
+<br>
+
+
+## Rise for a New Day ##
+Rise and shine for a new day.
+I feel frustrated inside, trapped in the chains of negative karma.
+I feel guilt, and shame for the things done wrong, the confessions I've made.
+But life is continuous, and there is new grace for today, new people to meet, and new light on the same people and things to see.
+Rise and shine for a new day.
+The past can never be fully let go of, or redeemed, but the light will shine as it did in the beginning, shining through the shadows that lead to feeling so tight inside.
+
+<br>
+
+
+**Word Associations:**
+
+
+<br>
 
 
 ## Knowledge ##
+There is love in knowledge.
+Education fulfills our lives.
+In the light, we see clearly what we need to know.
+In true scholarship, truth is discovered and found.
+With expertise, true understanding is realized.
+With theories, we come to understand and make sense of patterns.
+With wisdom, we know how to make the best decisions.
+With judgement, we know good from evil, right from wrong.
+
+<br>
+
+
+**Word Associations:** education, philosophy, light, scholarship, expertise, theory, wisdom, judgement
+
+
+<br>
 
 
 ## Freedom ##
+Ability to do what is needed.
+Freedom from pain, or whatever holds one hostage.
+Independence, autonomy, strength.
+Liberation from the demons.
+Range of ability.
+Dominion when wanting to indulge in the wrong.
+
+<br>
+
+
+**Word Associations:** independence, autonomy, opportunity, liberation, range, ability, laissez faire, indulgence
+
+
+<br>
 
 
 ## Creativity ##
