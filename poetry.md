@@ -15,7 +15,9 @@ Like how the tide rises and lowers, God causes us to wake up.
 The ocean.
 The ocean represents the deep waters of God within man's soul.
 The green, blue, grey, white is the substance of thought connecting us all in consciousness between the foundations of the earth.
-<b>
+
+<br>
+
 **Word Associations:** billows, deep, brine, offing, wave, flux, tide, current
 
 
@@ -28,20 +30,29 @@ And when there is a lot of water, they become thunderheads.
 The clouds.
 They are so beautiful in the sky.
 People imagine different things about them and how they support our ecosystem.
-Word Associations: puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
+
+<br>
+
+**Word Associations:** puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
 
 
 ## First Love ##
 The flame of love within shows me the way to have fun with life and cherish the light within all around.
 The source within is tender, and I relish the youthlike energy that everyone yearns to feel.
-Word Associations: tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
+
+<br>
+
+**Word Associations:** tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
 
 
 ## Spring ##
 A fresh season for living, moving, and loving begins.
 The pink buds, the white and yellow flowers.
 From little seeds to full openings, it is perennial as the primrose.
-Word Associations: budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
+
+<br>
+
+**Word Associations:** budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
 
 
 ## A Tree ##
