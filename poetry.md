@@ -938,7 +938,7 @@ The past can never be fully let go of, or redeemed, but the light will shine as 
 <br>
 
 
-**Word Associations:**
+**Word Associations:** none 
 
 
 <br>
@@ -981,6 +981,20 @@ Dominion when wanting to indulge in the wrong.
 
 
 ## Creativity ##
+Creative mind.
+Inventive, spontaneous.
+New ideas, ways, and patterns emerging from the divine origin.
+The latent talents of man perculate up and out of consciousness, being, and bodily activity.
+The immaculate vision of goodness, mercy, cleverness; imagination.
+Genius using inspiriation.
+
+<br>
+
+
+**Word Associations:** inventive, originality, talent, visioin, clever, imagination, genius, inspiration
+
+
+<br>
 
 
 ## Gratitude ##
