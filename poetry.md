@@ -575,7 +575,7 @@ I wait in apprehension for the future.
 <br>
 
 
-**Word Association:** jittery, dread, uneasy, fretful, disquietude, distres, restless, apprehension]
+**Word Association:** jittery, dread, uneasy, fretful, disquietude, distres, restless, apprehension
 
 
 <br>
@@ -830,9 +830,42 @@ Curtains and shutters protect people's privacy, and shut out the light when it's
 
 
 ## Change ##
+Heading into new territory.
+It's foreign.
+There's a shift in how I am, how things look.
+Undergoing a transition from one state, stage to another state, stage.
+There's a metamorphosis.
+I come out of the cocoon.
+I make revisions.
+It's a new season ahead.
+I switch, tune in, change, repent.
+Everything is on a new basis, a different foundation.
+I transmute myself.
+There's variance.
+
+<br>
+
+
+**Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
+
+
+<br>
 
 
 ## Evil ##
+Thank you, God, a sense of good, a consciounsess of joy, 
+for delivering us from evil.
+Thank you for minimizing the demons, the wicked plans, and helping us to tread on serpents with no malignity of inner villians.
+Out of harm's way, I am that I am, safe, sound, secure, and not corrupt.
+No vile can touch us.
+
+<br>
+
+
+**Word Associations:** demon, wicked, malignity, villain, harm, corrupt, nefarioius, vile
+
+
+<br>
 
 
 ## Temptation ##
