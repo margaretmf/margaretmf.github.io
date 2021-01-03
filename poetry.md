@@ -991,13 +991,25 @@ Genius using inspiriation.
 <br>
 
 
-**Word Associations:** inventive, originality, talent, visioin, clever, imagination, genius, inspiration
+**Word Associations:** inventive, originality, talent, vision, clever, imagination, genius, inspiration
 
 
 <br>
 
 
 ## Gratitude ##
+Gratitude zooms our hearts into and onto the good that is going on.
+Gratitude is profound thankfulness and praise for the beauty that is all around.
+Gratitude is the recognition of the cheerfulness, holiness, simple seekers of Truth.
+Gratitude is the ability to accept with humor, the harmony, the melody.
+
+<br>
+
+
+**Word Associations:** grace, profound, prose, recognition, thankful, honor, debt, humility
+
+
+<br>
 
 
 ## Faith ##
