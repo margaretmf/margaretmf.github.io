@@ -756,7 +756,7 @@ All of our hearts, and minds, like the sun can come to full effulgence, beyond t
 <br>
 
 
-**Word Associations:** golden, effulgence, solstice, radiance, heat, dappled, shdaow, zenith
+**Word Associations:** golden, effulgence, solstice, radiance, heat, dappled, shadow, zenith
 
 
 <br>
@@ -1131,15 +1131,51 @@ Prayer is natural to man.
 
 
 ## Warmth ##
+The warmth of the sun shining down on the intertate in so comforting.
+The tenderness of the light radiatiing in a certain way.
+Everyone shares a slightly different perspective on how the sun shining down.
+Feeling close to the sun lifts my heart up to feeling joy.
+There's a radiant glow, and I feel affectionate to all humanity.
+
+<br>
+
+**Word Associations:** comfort, tenderness, sharing, closeness, reassurance, glow, affection, radiate
+
+
+<br>
 
 
 ## Scared ##
+I stand aghast at the things that I've done that are wrong, weird, violence, hateful, embarassing.
+I am stricken by what I do in the middle of the night while feeling angry, evnious, worried.
+I am fearful over the wrong done.
+It feels like danger looms ahead.
+There's a risk.
+I am unsure, and I panic.
+I am afraid for the future, but I trust all will be done for the higher, supreme good.
+
+<br>
+
+**Word Associations:** aghast, stricken, fearful, danger, risk, unsure, panic, afraid
+
+
+<br>
 
 
 ## A Glance ##
+I caught a brief glance of him.
+My impression is that he is mature, his heart is singing, and thate he cares about humanity.
+The brief glance is fleeting.
+I am shy, I make eye contact, I peek online, on social media.
+But it's just a blink, a flesh.
+
+<br>
+
+**Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
 
 
 ## Grief ##
+I fall down,
 
 
 ## Beauty ##
