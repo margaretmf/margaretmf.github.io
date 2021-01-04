@@ -1174,12 +1174,38 @@ But it's just a blink, a flesh.
 **Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
 
 
+<br>
+
+
 ## Grief ##
-I fall down,
+I fall down, and hit the ground with the loss,
+the heartache,
+the grief.
+I alemtn over what I did wrong, and I cry in anguish with tears.
+It's such a heartache.
+I feel so much woe, bereaved/
+I trust God in leading everyone forward in the way that amkes everyone happy.
 
+<br>
 
-## Beauty ##
-
+**Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
 
 
 <br>
+
+
+## Beauty ##
+The brilliance of the beauty found in the soul of he universe.
+Beholding the loving sunrays being reflected through the window.
+The muse in the song of the trees in the wilderness
+The elegance of the stars shining in the night sky.
+The striking appearance of all the easy and water as one connected.
+The exquisite sound of silence and the lovely sound of the trucks.
+
+<br>
+
+**Word Associations:** behold, brilliance, lovely, pathos, muse, elegance, striking, exquisite
+
+
+<br>
+
