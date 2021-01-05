@@ -1380,4 +1380,108 @@ Joy cometh in the morning with the light of the sun, and the noonday.
 <br>
 
 
+## Visions ##
+What brilliance there is in the vision of the Lord who speaks to us through our third  eye and ggives us beautiful imagery, glimpses, and insights.
+What brightness is reflected in the spirited perception fo all things.
+It's lovely to muse on how God share his fancies, and delivers us from imaginations. What acument is reflected through the mind of God.
+
+<br>
+
+**Word Associations:** perception, glimpses, insight, acumen, brilliance, fancies, musings, imagination
+
+
+<br>
+
+
+## Nighttime ##
+At nighttime, when I can't sleep in the darkness, I turn to the stars.
+The stars represent light.
+During these sleepless nights, I am wakeful,
+I pray for mankind,
+I let go of the shadows of mortal sense.
+Mortal mind blackens the human experience, 
+causes man to fear, and deceives,
+and God causes all to shine, so people can be aware.
+
+<br>
+
+**Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, black
+
+
+<br>
+
+
+## Betrayal ##
+Betrayal is mischief.
+After helping someone, that someone commits treason and breaks the covenant.
+It leads to heartbreak for all involved.
+Mortal mind is a great trickster from the beginning, leading to perfidy.
+Envy is double-minded, and in the shadows of one's heart, like Judas, Brutus, not having someone's back, breaking a promise.
+Duplicity in motives, deceit is uncool.
+
+<br>
+
+**Word Associations:** duplicity, perfidy, Judas, Brutus, trickster, double, heartbreak, treason
+
+
+<br>
+
+
+## Seeds ##
+One thought at a time we bear goodness and life in our minds and experience.
+A thought is a seed, and a seed can grow.
+A concept can develop into a full idea wholly.
+A seed is a new beginning,
+and the stem that gives it strength helps it live at its core.
+
+<br>
+
+**Word Associations:** beginnings, ideas, kernel, core, concept, embryo, germ, stem
+
+
+<br>
+
+
+## Mother ##
+A mother holds her child, 
+walks with her child,
+helpsher child get up after she falls.
+CHildhood is wrapped up in, and cared for in the wombs of motherhood.
+There is warmth in this place of divine origin.
+
+<br>
+
+**Word Associations:** matriarch, origins, childhood, warm, womb, complex, goddess, caregiver
+
+
+<br>
+
+
+## A Secret ##
+Some human experiences and thoughts that I must bury deep down in the darkest spot of my consciousness.
+I am ashamed and feel regret for such cryptic thoughts.
+People in the world hush you and think you are crazy for them.
+They cloud out what's real in the world around.
+The dark mist in our thoughts can turn to light and be exposed.
+
+<br>
+
+**Word Associations:** cryptic, dark, hush, private, clouded, mist, regret, buried
+
+
+<br>
+
+
+## Dilemma ##
+A dilemma, a double bind.
+Feeling oxed in, and stuck in a mess of my own doing.
+There is a choice to make amidst the chaos, and the wrongdoing.
+It's a green plight indeed, a quagmire.
+
+<br>
+
+**Word Association:** bind, choice, boxed in, impasse, scrape, plight, mess, quagmire
+
+
+<br>
 
