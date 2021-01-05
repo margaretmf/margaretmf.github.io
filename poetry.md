@@ -277,7 +277,7 @@ An expectation of being in the right place.
 
 ## Mortality ##
 The fatal pull to feel compressed, stuck, ashamed, heavy, guilt-ridden.
-The lethal ull to attack, attach, react, and be indignant.
+The lethal pull to attack, attach, react, and be indignant.
 Life is beautiful, beauty is immortal, grace comes to us unexpectedly.
 Paradise of heaven is within.
 The passing storm, the passing clouds.
@@ -575,7 +575,7 @@ I wait in apprehension for the future.
 <br>
 
 
-**Word Association:** jittery, dread, uneasy, fretful, disquietude, distres, restless, apprehension
+**Word Association:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
 
 
 <br>
@@ -748,7 +748,7 @@ The lunar eclipse shines also.
 
 ## The Sun ##
 The Sun is always there.
-Never will there be a day when mankind questions whether the sun is ther.
+Never will there be a day when mankind questions whether the sun is there.
 Sometimes the clouds obstruct the light shining from the sun in its full effulgence, radiance.
 But always the sun is golden, bringing its heart to the people, humanity.
 All of our hearts, and minds, like the sun can come to full effulgence, beyond the shadow of human existence and reign and every day.
@@ -862,7 +862,7 @@ No vile can touch us.
 <br>
 
 
-**Word Associations:** demon, wicked, malignity, villain, harm, corrupt, nefarioius, vile
+**Word Associations:** demon, wicked, malignity, villain, harm, corrupt, nefarious, vile
 
 
 <br>
@@ -1099,7 +1099,7 @@ Death, decay, leading to new life.
 
 
 ## Spirituality ##
-Spiritual eings we are by nature.
+Spiritual beings we are by nature.
 We are orn of God, and we worship this one God.
 Thank you for the teachings, the passion, the faith, the creed, the principle, the true teachings
 that keep us moving and marching forward always.
@@ -1195,7 +1195,7 @@ I trust God in leading everyone forward in the way that amkes everyone happy.
 
 
 ## Beauty ##
-The brilliance of the beauty found in the soul of he universe.
+The brilliance of the beauty found in the soul of the universe.
 Beholding the loving sunrays being reflected through the window.
 The muse in the song of the trees in the wilderness
 The elegance of the stars shining in the night sky.
@@ -1210,5 +1210,91 @@ The exquisite sound of silence and the lovely sound of the trucks.
 <br>
 
 
-## ##
+## Confusion ##
+The mystery obscures the truth.
+Bewildered by the abandonment, the experience of being ignored, and the inner and outer turmoil.
+Flustered by the darkness.
+Entangled by mixed messages and ways of being.
+The turbulence going on in society shaking everything.
+
+<br>
+
+**Word Associations:** obscure, bewilderment, turmoil, fluster, tangle, leather, turbulence, shaken
+
+
+<br>
+
+
+## Courage ##
+With courage, I get back up with fortitude.
+Undaunted by strife, I rest in peace and rise up to the situation.
+Thank you, God, for making me be lion-hearted.
+Your prowess from God is all-sufficient.
+I am therefore for the guts to keep moving on with love in my heart for all mankind.
+
+<br>
+
+**Word Associations:** prowess, spunk, intrepidty, fortitude, lion-hearted, dauntless, gust, pluck
+
+
+<br>
+
+
+## Devotion ##
+Sanctifying my life to the holy one reflected through you, through me.
+I devote my life to standing with you in loyalty and in earnesty.
+I serve the one cause with you in all my ways.
+I love you with fealty and come for you always.
+
+<br>
+
+**Word Associations:** piety, loyalty, fidelity, earnest, sanctity, fealty, deference, service
+
+
+<br>
+
+
+## Family ##
+Family is the group of people with our most sacred, kindred bonds.
+Our most holy relationships are in family, and our amazing lineage lasts eternally.
+Thank you, God, that we all drink of the blood of Jesus,
+and your goodness and mercy, expressed in infinite colors, lasts for generations, 
+and forever unfolds.
+
+<br>
+
+**Word Associations:** kin, lineage, clan, tribe, blood, kindred, relationships, generation
+
+
+<br>
+
+
+## Charity Starts at Home ##
+In Christian Science, Church, Home, and Career are all one.
+Home is the consciousness of God. Home is found in Church, Church is found in Career, and Career is found in Home.
+
+<br>
+
+**Word Associations:** none
+
+
+<br>
+
+
+## Friendship ##
+A new friendship is amazing.
+There's so much humanity in it.
+Building bonds and rapport in ways that are unlikely.
+We share more brotherhood and things in common we realize.
+And we who are now friends with her are sisters, in the same league.
+We all are part of one allegiance.
+God holds us all in angelic realms in camaraderie, harmony, and one pact.
+
+<br>
+
+**Word Associations:** pact, brotherhood, sisterhood, league, alliance, bond, rapport, camaraderie
+
+
+<br>
+
 
