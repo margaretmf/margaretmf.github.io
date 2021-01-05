@@ -1298,3 +1298,38 @@ God holds us all in angelic realms in camaraderie, harmony, and one pact.
 <br>
 
 
+## History ##
+What is done is done.
+What is complete is complete.
+The joys of yesterday exist forevver.
+The mistakes of the past are indeed, just that, past, behind, and events to learn from.
+In the words of the poet, 'let bygones be bygones.'
+THe wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity.
+His story from antiquity is continuous, ever-renewing and cyclical.
+
+<br>
+
+**Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
+
+
+<br>
+
+
+## Humanity ##
+The smile on a face,
+the good will a neighbor has towards another,
+the compassionate extra mile,
+the civility one shows in a conversation,
+the uprightness in handlign mistakes,
+the forbearance,
+the fellowship expressed in church and sports.
+This is all humanity.
+Mankind, a group of people, is abundant in making life-decision, and life-giving moves that are humane.
+
+<br>
+
+**Word Associations:** people, mankind, good will, fellowship, civility, uprightness, forbearance, compassion
+
+
+<br>
+
