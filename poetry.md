@@ -1333,3 +1333,51 @@ Mankind, a group of people, is abundant in making life-decision, and life-giving
 
 <br>
 
+
+## Longing ##
+I crave, long for something out there that seems wrong to have.
+My heart throbs, I feel uncomfortable with this longing, sin, and error pining.
+But really I learn to, and put my trust in God, the song of God that is in everything small, beautiful.
+I search deeper for what I really thirst for, what I really hope for that is peace, joy, and love.
+
+<br>
+
+**Word Associations:** craving, entreaty, throb, lovesick, thirst, pining, hope, languish
+
+
+<br>
+
+
+## Peace ##
+Peace starts from within.
+Every day shall start with peace.
+Peace leads to order int he midst of chaos
+and unity in the midst of conflict.
+Quieting the anger, the pain, the memories, and choosing to find the harmony underlying everything.
+Life is tranquil without the idols and false affections.
+Joy comes through being happy for others and making true with the situation.
+
+<br>
+
+**Word Associations:** order, truce, unity, amity, quiet, harmony, tranquility, joy 
+
+
+<br>
+
+
+## Sorrow ##
+Suffering alone, working it out.
+I mourn in misery.
+The pangs of false desires, rejections, and mistakes lead to agony and bereavement.
+Woe is this suffering sense.
+Joy cometh in the morning with the light of the sun, and the noonday.
+
+<br>
+
+**Word Associations:** pang, mourning, misery, agony, bereavement, melancholoy, woe, suffering
+
+
+<br>
+
+
+
