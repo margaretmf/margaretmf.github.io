@@ -1485,3 +1485,176 @@ It's a green plight indeed, a quagmire.
 
 <br>
 
+
+## Dreams ##
+The fantasy inside my head of soemthing unreal.
+A image in thought of something I wish for, or long for.
+It's a deep trance; people say I seem delusional.
+And when reality comes to the surface, the fact of what people are really doing, the dream presents itself as an illusion.
+I had a vision, it was a beautiful mental picture, but it proved to be nothing but fancy.
+
+<br>
+
+**Word Association:** fantasy, trance, thought, image, illusion, mental picture, fancy, vision
+
+
+<br>
+
+
+## Travel ##
+
+## Fame ##
+
+## Poetry ##
+
+## Wishes ##
+
+## Food ##
+
+## Education ##
+
+## A Garden ##
+
+## Ice ##
+
+## Science Fiction ##
+
+## An Animal ##
+
+## A Pet ##
+
+## Heroism ##
+
+## Chance ##
+
+## Kisses ## 
+
+## A Waterfall ##
+
+## Summer ##
+
+## Ecology ##
+
+## Tradition ##
+
+## Affection ##
+
+## A Walk ##
+
+## Flavors ##
+
+## Pride ##
+
+## Trust ##
+
+## A Fragrance ##
+
+## Opportunities ##
+
+## Meditation ##
+
+## Equality ##
+
+## Independence ##
+
+## Reliability ##
+
+## Patience ##
+
+## Perspective ##
+
+## A Voyage ##
+
+## Moments ##
+
+## Control ##
+
+## Expectations ##
+
+## Blessings ##
+
+## Values ##
+
+## Laughter ##
+
+## Silence ##
+
+## Solitude ##
+
+## Romance ##
+
+## Appreciation ##
+
+## Carpe Diem ##
+
+## Character ##
+
+## Colors ##
+
+## Conflict ##
+
+## Creation ##
+
+## Forgiveness ##
+
+## Growth ##
+
+## Hate ##
+
+## Humility ##
+
+## Imagination ##
+
+## Innocence ##
+
+## Inspiration ##
+
+## A Journey ##
+
+## Judgment ##
+
+## Moving On ##
+
+## A Mystery ##
+
+## Paradise ##
+
+## Passion ##
+
+## Sleep ##
+
+## Soul Mate ##
+
+## Strength ##
+
+## A Sunset ##
+
+## Growing Older ##
+
+## A Choice ##
+
+## Jealousy ##
+
+## Fear ##
+
+## A Breath ##
+
+## A Shadow ##
+
+## Society ##
+
+## Forgetting ##
+
+## Luck ##
+
+## Regret ##
+
+## Confessions ##
+
+## Insanity ##
+
+## A Surprise ##
+
+## A Voice ##
+
+## Sharing ##
