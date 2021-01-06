@@ -60,6 +60,23 @@ but I see them, the people, the homes in a new light.
 Everything grows richer, deeper, fuller, and more alive.
 I see the beauty, not the poverty.
 
+## Letting It Go and Moving On ##
+When he let me go, I got in the car
+I drove through Bristol, Nashville, Memphis, and across the Arkansas Bridge to West Memphis
+Then I drove through Arkansas, Mississippi, Missouri, and the Rust Belt
+I met some new friends, stayed in some hotels, heard some new stories,
+and traveled back down West Virginia Country Roads, where everything felt like home
+Driving by the train tracks, feeling the freshness of the Rivers, and seeing the Americans doing their work,
+America felt new
+I remembered my family, and the deep, deep roots that run into the ground
+
+## It Starts At the Port ##
+It starts at the port.
+Every morning, the orange, green, and blue trucks drive from the shipyard to the streets.
+The trucks drive harmoniously down Hampden Roads as the birds flock together.
+Where do they go? From the port city to the country.
+A beautiful chain of freight traveling from the port to the country.
+
 
 <br>
 
@@ -185,7 +202,7 @@ The darkness is lurking, and I can't shove it down.
 "I should feel ashamed of myself and embarassed" is all I hear people voice.
 The shame and embarassament turn to anger and rage. 
 There is enmity towards what God is doing and what I want.
-I am committing malice by giving into the raging heart.
+I am committing malice when giving into the raging heart.
 Nothing is stronger and more dangerous than this indignation and sense of injustice.
 But expressing gratitude for every ounce of good turns around the monstrous storm.
 
@@ -1094,7 +1111,7 @@ With adoration of these beauteous things, we find our confidence that through ou
 ## Violence ##
 Mortal mind is the aggressor. 
 The thoughts, beliefs, wants, and actions coming from mortal mind are brutal.
-Pain is inflicted on others and m¥self.
+Pain is inflicted on others and myself.
 People in pain attack, and assault.
 There is tumult.
 Violence stems from feeling threatened, and feeling the need, the urge to fight back.
@@ -1243,9 +1260,9 @@ But it's just a blink, a flesh.
 I fall down, and hit the ground with the loss,
 the heartache,
 the grief.
-I alemtn over what I did wrong, and I cry in anguish with tears.
+I lament over what I did wrong, and I cry in anguish with tears.
 It's such a heartache.
-I feel so much woe, bereaved/
+I feel so much woe, bereaved
 I trust God in leading everyone forward in the way that amkes everyone happy.
 
 <br>
@@ -1443,7 +1460,7 @@ Joy cometh in the morning with the light of the sun, and the noonday.
 
 
 ## Visions ##
-What brilliance there is in the vision of the Lord who speaks to us through our third  eye and ggives us beautiful imagery, glimpses, and insights.
+What brilliance there is in the vision of the Lord who speaks to us through our third eye and gives us beautiful imagery, glimpses, and insights.
 What brightness is reflected in the spirited perception fo all things.
 It's lovely to muse on how God share his fancies, and delivers us from imaginations. What acument is reflected through the mind of God.
 
