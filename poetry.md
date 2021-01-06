@@ -46,6 +46,8 @@ It must be watered, it must be nourished.
 The love is strong, and the light is bright, even at night.
 
 
+<br>
+
 
 I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering.
 
