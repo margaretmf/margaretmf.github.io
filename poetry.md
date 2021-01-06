@@ -3,8 +3,51 @@ layout: default
 is_contact: true
 ---
 
-I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering.
+I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.
 
+## Taking Back the Night ##
+Flying into the night sky, I take back the night.
+I sing with the stars, where everyone has a place.
+In the depth of the darkness of the night, the stars glitter and shine, and light the path.
+I know I am held so tightly because of how brightly the light shines.
+
+## The Union ##
+The red, white, and blue, where cadillacs and red trucks drive on the same roads.
+Weaving in and out
+
+## America ## 
+Digging into the depth of the earth, wedded to the earth,1
+where the soil is thick
+and knows her story
+and leaves room for all to grow and glow.
+
+## The Lone Bird ##
+The bird flies in solitude across the land.
+It lifts its wings alone so gracefully.
+I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by her quiet strength.
+Not heartbroken when he breaks my heart.
+Not angry when he ignores my words.
+Not startled when he has a new friend.
+But relieved that I can fly freely with love and peace in my heart, and still sing my song too.
+No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
+My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
+
+## Fighting for Independence ##
+Let go of the gun
+Let the reign of Truth and Love in
+Fighting for Independence, where there is ground beneath my feet,
+trust in the depths of my soul,
+goodness that is greater than evil
+and a light that embraces everying through all the Earth.
+
+## The Rose Within ##
+There is a rose within everyone's heart.
+It must be watered, it must be nourished.
+The love is strong, and the light is bright, even at night.
+
+
+
+I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering.
 
 ## The Ocean ##
 The ocean.
