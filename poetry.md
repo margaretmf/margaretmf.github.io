@@ -36,7 +36,7 @@ My heart soars higher, my eyes look deeper, my vision grows further when he lets
 Let go of the gun
 Let the reign of Truth and Love in
 Fighting for Independence, where there is ground beneath my feet,
-trust in the depths of my soul,
+trust, love, and joy in the depths of my soul,
 goodness that is greater than evil
 and a light that embraces everying through all the Earth.
 
@@ -44,6 +44,21 @@ and a light that embraces everying through all the Earth.
 There is a rose within everyone's heart.
 It must be watered, it must be nourished.
 The love is strong, and the light is bright, even at night.
+
+## Healing from Abuse, both the Abused and the Abuser ##
+There was no reason to be jealous.
+You have it all within, sister.
+The qualities are there. The latent talent is there.
+You may blossom differently or later, but sister, you spring from the same source, and the ideas are there.
+So love your brother, and love your sister. Love must go before you, and you are not estranged.
+Sometimes the night must be taken back, the fight within must stop, and the time to be receptive must come.
+God does amazing work through the pain, and really opens us up to Her living reality.
+
+## Same Roads, New View ##
+I have driven down these roads before
+but I see them, the people, the homes in a new light.
+Everything grows richer, deeper, fuller, and more alive.
+I see the beauty, not the poverty.
 
 
 <br>
@@ -466,7 +481,7 @@ The cycle of light continues through history forever.
 No one knows what the future will bring.
 We put our hope in the prospects of a better day tomorrow.
 We carry the weight of concerns over imminent threats to our being next week.
-We trust that there are opporunities for new modes of life in a year.
+We trust that there are opportunities for new modes of life in a year.
 Prophesying for good, not for evil, shall be our goal in the uncertaity and questioned destiny.
 Our fate is good, and the cycle of light continues forever out of the darkness.
 
@@ -481,7 +496,7 @@ Our fate is good, and the cycle of light continues forever out of the darkness.
 
 ## Historical Figure ##
 Thomas Jefferson, the first president, the first country-westerner.
-He revollutionized our country with democracy and land and nature.
+He revolutionized our country with democracy and land and nature.
 He was the captain of the ship that freed America from Britain, the author of the Declaration of Independence, and the conqueror of the west.
 He was a hero, a leader, though he was flawed, and he set the foundation for the United States of America.
 
