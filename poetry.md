@@ -1600,6 +1600,19 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 ## Tradition ##
 
 ## Affection ##
+Are you going to buy into the madness?
+It wasn't you, it wasn't of God.
+Choosing to love, to care, to appreciate, to devote to the Truth of being.
+The warmth of a smile, a greeting, a tender hug, a note of appreciation.
+Not held bhy the past, but a day made new by new affections, with the tingle brought to my heart.
+
+<br>
+
+**Word Associations:** crush, itch, amore, devotion, caring, warmth, tingle, tender
+
+
+<br>
+
 
 ## A Walk ##
 
@@ -1628,6 +1641,18 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 ## A Voyage ##
 
 ## Moments ##
+Life is a series of moments, of being conscioius of the light, the love.
+An occasion to care, a flash taken by the mental camera, an instant of gratitude, a present day,
+a pause before a reaction, a twinkling blinking of an eye,
+a lingering hellow, a savor.
+
+<br>
+
+**Word Associations:** occasion, flash, instant, present, pause, savor, twinkling, linger
+
+
+<br>
+
 
 ## Control ##
 
