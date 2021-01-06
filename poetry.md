@@ -383,11 +383,13 @@ I exert myself, use my skills, put in the effort, and have fun.
 ## Time ##
 Outside of time, stands eternity.
 Through time and space, an interconnected humanity unfolds.
-The hours of the period stand for the goodness expressed through acts.
-An era of sunlight unfolding.
-Taking back the night where the clock runs towards the right side of history.
-Tick-tock it goes for infinity.
-For infinity, our truth will march onward.
+The hours of the period stand for the progress and advancement of mankind.
+Through time, an idea builds upon an idea, a thought builds upon a thought, a human action for good builds upon a human action for good.
+Sometimes there are reactions, as anger and strife build up, but each step back towards the shadows of the night have the potential to lead to greater resiliency in the light.
+The clock never stops. It continues to circle around for eternity, with the same ideals always shining their light through the darkness.
+An era of sunlight unfolds, and the night is taken back so that the clock runs towards the right side of history.
+Tick-tock it goes for infinite time.
+For infinite time, the truth for while mankind exists will march onward.
 And moment by moment, we choose to stand in that goodness.
 
 <br>
