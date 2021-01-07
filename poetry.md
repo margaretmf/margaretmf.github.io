@@ -4,6 +4,9 @@ is_contact: true
 ---
 
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
+I started listening to an acquaintance's music, but I didn't like resonating with the lyrics so much yet not wanting the lyrics to be about me.
+I reached out to this acquaintance, but he never answered, and I really needed no response.
+I became aggressive and frustrate and angry with silence and no response, so I started playing my own music on the piano and exploring creating poetry, or music lyrics of my own in response to feeling so rejected and ignored.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night.
@@ -98,7 +101,7 @@ Every heart is so beautiful, and I know this true sound of silence is within eve
 
 
 **A Poem on Black Lives**
-** Seeing Black Lives ##
+## Seeing Black Lives ##
 They help the police force as police officers.
 They play music.
 They read in church.
@@ -126,7 +129,7 @@ They also love God, and they have great faith through adversity.
 <br>
 
 
-**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering.**
+**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had poetry underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.
 
 ## The Ocean ##
 The ocean.
