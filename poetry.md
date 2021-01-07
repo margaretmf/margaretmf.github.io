@@ -512,7 +512,7 @@ Sometimes there are reactions, as anger and strife build up, but each step back 
 The clock never stops. It continues to circle around for eternity, with the same ideals always shining their light through the darkness.
 An era of sunlight unfolds, and the night is taken back so that the clock runs towards the right side of history.
 Tick-tock it goes for infinite time.
-For infinite time, the truth for while mankind exists will march onward.
+For infinite time, the truth for why mankind exists will march onward.
 And moment by moment, we choose to stand in that goodness.
 
 <br>
@@ -978,7 +978,7 @@ There's variance.
 
 
 ## Evil ##
-Thank you, God, a sense of good, a consciounsess of joy, 
+Thank you, God, a sense of good, a consciousness of joy, 
 for delivering us from evil.
 Thank you for minimizing the demons, the wicked plans, and helping us to tread on serpents with no malignity of inner villians.
 Out of harm's way, I am that I am, safe, sound, secure, and not corrupt.
@@ -1192,7 +1192,7 @@ the golden-yellow leaves fall off,
 and the glistening grey branches shine in the sulight.
 There's a chill in the air as the winds blow
 and the solstice comes.
-Yuletide carols, fireside chats, evergreen mountains, snow fallig.
+Yuletide carols, fireside chats, evergreen mountains, snow falling.
 The Earth is brilliant and so filled with love.
 Winter is here,
 the grey is warm,
@@ -1225,7 +1225,7 @@ Death, decay, leading to new life.
 
 ## Spirituality ##
 Spiritual beings we are by nature.
-We are orn of God, and we worship this one God.
+We are born of God, and we worship this one God.
 Thank you for the teachings, the passion, the faith, the creed, the principle, the true teachings
 that keep us moving and marching forward always.
 
@@ -1256,7 +1256,7 @@ Prayer is natural to man.
 
 
 ## Warmth ##
-The warmth of the sun shining down on the intertate in so comforting.
+The warmth of the sun shining down on the interstate in so comforting.
 The tenderness of the light radiatiing in a certain way.
 Everyone shares a slightly different perspective on how the sun shining down.
 Feeling close to the sun lifts my heart up to feeling joy.
@@ -1289,7 +1289,7 @@ I am afraid for the future, but I trust all will be done for the higher, supreme
 
 ## A Glance ##
 I caught a brief glance of him.
-My impression is that he is mature, his heart is singing, and thate he cares about humanity.
+My impression is that he is mature, his heart is singing, and that he cares about humanity.
 The brief glance is fleeting.
 I am shy, I make eye contact, I peek online, on social media.
 But it's just a blink, a flesh.
@@ -1667,7 +1667,7 @@ Are you going to buy into the madness?
 It wasn't you, it wasn't of God.
 Choosing to love, to care, to appreciate, to devote to the Truth of being.
 The warmth of a smile, a greeting, a tender hug, a note of appreciation.
-Not held bhy the past, but a day made new by new affections, with the tingle brought to my heart.
+Not held by the past, but a day made new by new affections, with the tingle brought to my heart.
 
 <br>
 
