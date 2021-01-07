@@ -115,6 +115,14 @@ They love Allah, the same God that Christians worhsip.
 They also love God, and they have great faith through adversity.
 
 
+**A Poem on Social Media**
+
+
+**A Poem on Healing**
+
+
+**A Poem on Prayer for Humanity**
+
 <br>
 
 
