@@ -4,9 +4,6 @@ is_contact: true
 ---
 
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
-I started listening to an acquaintance's music, but I didn't like resonating with the lyrics so much yet not wanting the lyrics to be about me.
-I reached out to this acquaintance, but he never answered, and I really needed no response.
-I became aggressive and frustrate and angry with silence and no response, so I started playing my own music on the piano and exploring creating poetry, or music lyrics of my own in response to feeling so rejected and ignored.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night.
