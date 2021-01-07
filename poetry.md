@@ -13,10 +13,10 @@ I know I am held so tightly because of how brightly the light shines.
 
 ## The Union ##
 The red, white, and blue, where cadillacs and red trucks drive on the same roads.
-Weaving in and out
+Weaving in and out through the cities and the land, all in one country under the God in which we trust.
 
 ## America ## 
-Digging into the depth of the earth, wedded to the earth,1
+Digging into the depth of the earth, wedded to the earth,
 where the soil is thick
 and knows her story
 and leaves room for all to grow and glow.
