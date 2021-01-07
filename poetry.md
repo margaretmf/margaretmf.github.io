@@ -6,14 +6,14 @@ is_contact: true
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
 
 ## Taking Back the Night ##
-Flying into the night sky, I take back the night.
+Flying into the night sky, I take back the night, where the night in reality is a silent night.
 I sing with the stars, where everyone has a place.
-In the depth of the darkness of the night, the stars glitter and shine, and light the path.
+In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
 I know I am held so tightly because of how brightly the light shines.
 
 ## The Union ##
-The red, white, and blue, where cadillacs and red trucks drive on the same roads.
-Weaving in and out through the cities and the land, all in one country under the God in which we trust.
+The red, white, and blue, where brown cadillacs and red trucks drive on the same roads.
+Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
 
 ## America ## 
 Digging into the depth of the earth, wedded to the earth,
@@ -33,17 +33,17 @@ No song is too simple. No song is too advanced. All of humanity is singing a son
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
 
 ## Fighting for Independence ##
-Let go of the gun
-Let the reign of Truth and Love in
+Let go of the gun.
+let the reign of Truth and Love in.
 Fighting for Independence, where there is ground beneath my feet,
 trust, love, and joy in the depths of my soul,
 goodness that is greater than evil
-and a light that embraces everying through all the Earth.
+and a light that embraces everything through all the Earth.
 
 ## The Rose Within ##
 There is a rose within everyone's heart.
 It must be watered, it must be nourished.
-The love is strong, and the light is bright, even at night.
+The love is strong, and the light is bright, even at night. It is all one with all of humanity.
 
 ## Healing from Abuse, both the Abused and the Abuser ##
 There was no reason to be jealous.
@@ -61,21 +61,22 @@ Everything grows richer, deeper, fuller, and more alive.
 I see the beauty, not the poverty.
 
 ## Letting It Go and Moving On ##
-When he let me go, I got in the car
-I drove through Bristol, Nashville, Memphis, and across the Arkansas Bridge to West Memphis
-Then I drove through Arkansas, Mississippi, Missouri, and the Rust Belt
-I met some new friends, stayed in some hotels, heard some new stories,
-and traveled back down West Virginia Country Roads, where everything felt like home
+When he let me go, I got in the car.
+I drove through Bristol, Nashville, Memphis, and across the Arkansas Bridge to West Memphis.
+Then I drove through Arkansas, Mississippi, Missouri, Illinois, and the Rust Belt, across another bridge over the Ohio River.
+I met some new friends, stayed in some hotels, heard some new stories, read some new books, saw new artwork,
+and traveled back down West Virginia Country Roads, where everything felt like home in a new way.
 Driving by the train tracks, feeling the freshness of the Rivers, and seeing the Americans doing their work,
-America felt new
-I remembered my family, and the deep, deep roots that run into the ground
+America felt new, yet the same.
+I remembered my family, and the deep, deep roots that run through the ground.
+I saw why people want to #MakeAmericaGreatAgain, but it has always been great and will always be great.
 
 ## It Starts At the Port ##
 It starts at the port.
 Every morning, the orange, green, and blue trucks drive from the shipyard to the streets.
-The trucks drive harmoniously down Hampden Roads as the birds flock together.
-Where do they go? From the port city to the country.
-A beautiful chain of freight traveling from the port to the country.
+The trucks drive harmoniously down Hampton Roads like the birds do when they fly.
+Where do they go? From the port city to the country roads.
+A beautiful chain of freight traveling from the port cities to the country.
 
 ## Home and Music ##
 Home is where it all begins.
@@ -89,7 +90,7 @@ In the silence, I can hear the greatest music, the greatest song of all.
 In the silence, I feel the leaves, the rain, the sun, the breeze, the road, the trucks, the goodness of all the people on both side of politics.
 I made myself vulnerable, started opening up, felt guilt and then shame, and then embarassment, then violent, and then anger.
 I opened up in the wrong way.
-There was silence, no response, feelings of inferiority. I fell, stooped so low in violence.
+There was silence, no response, feelings of inferiority. I fell, and stooped so low in violence.
 I rose up higher with a bounce in my step, a love for someone else, and a resilient sense of being.
 I tried to apologize, I saw more deeply, learned grander lessons, and felt the true sound of silence in my own heart rather than the sound of silence coming from someone not accepting of me reaching out.
 Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
