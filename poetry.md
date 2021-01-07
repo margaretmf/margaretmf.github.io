@@ -77,6 +77,12 @@ The trucks drive harmoniously down Hampden Roads as the birds flock together.
 Where do they go? From the port city to the country.
 A beautiful chain of freight traveling from the port to the country.
 
+## Home and Music ##
+Home is where it all begins.
+There's a place for music and you all in my heart forever.
+Childlike memories of light, dancing, and merriment last forever.
+No hurt can reach the child within, we all express this sweet, childlike innocence.
+
 
 <br>
 
@@ -696,7 +702,7 @@ The water flows through rapids.
 Through the mountains, the Earth is singing.
 The peaks of green, blue in summer - orange, red, yellow in fall -
 White in winter, pink in spring, touching the horizion.
-It's a joy, a challenge to climb up the summit and feel like you're touching the sky, and the lone bird.
+It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird.
 The ascent is freeing, and walking down the slope is humbling.
 Mountains cover the Earth, and as love smiles within through the mountains with
 humanity emnbracing it, all the Earth sings as one.
@@ -1380,7 +1386,7 @@ God holds us all in angelic realms in camaraderie, harmony, and one pact.
 ## History ##
 What is done is done.
 What is complete is complete.
-The joys of yesterday exist forevver.
+The joys of yesterday exist forever.
 The mistakes of the past are indeed, just that, past, behind, and events to learn from.
 In the words of the poet, 'let bygones be bygones.'
 THe wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity.
