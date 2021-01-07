@@ -19,7 +19,7 @@ Weaving in and out through the cities and the land, all in one country under the
 Digging into the depth of the earth, wedded to the earth,
 where the soil is thick
 and knows her story
-and leaves room for all to grow and glow.
+and leaves room for all to grow in their own way.
 
 ## The Lone Bird ##
 The bird flies in solitude across the land.
