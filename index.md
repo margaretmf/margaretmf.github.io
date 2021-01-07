@@ -10,9 +10,17 @@ layout: default
 
 I am **Margaret Furr**, and I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
 
-Most recently, I have been learning about antiracism and working on photography of light in the darkness. I am exploring how to paint the light in the darkness series, and I am interested in using visual arts together with electrical engineering of homes and cities.
+Most recently, I have been learning about antiracism and working on photography of light in the darkness and continuing the work to "Take Back the Night."
 
-I have also driven through 10 states, taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps and the opportunity to learn our country by experience.
+I am exploring how to paint the light in the darkness series, and I am interested in using visual arts to understand electrical and civil engineering of homes and cities.
+
+I have also driven through 10 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Ohio), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience.
+
+To learn to articulate feelings, I have started writing poetry.
+
+
+<br>
+
 
 Before this work, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
 
