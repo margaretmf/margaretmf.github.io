@@ -83,6 +83,37 @@ There's a place for music and you all in my heart forever.
 Childlike memories of light, dancing, and merriment last forever.
 No hurt can reach the child within, we all express this sweet, childlike innocence.
 
+## The Sound of Silence ##
+The sound of silence is so grand, so great, so beautiful.
+In the silence, I can hear the greatest music, the greatest song of all.
+In the silence, I feel the leaves, the rain, the sun, the breeze, the road, the trucks, the goodness of all the people on both side of politics.
+I made myself vulnerable, started opening up, felt guilt and then shame, and then embarassment, then violent, and then anger.
+I opened up in the wrong way.
+There was silence, no response, feelings of inferiority. I fell, stooped so low in violence.
+I rose up higher with a bounce in my step, a love for someone else, and a resilient sense of being.
+I tried to apologize, I saw more deeply, learned grander lessons, and felt the true sound of silence in my own heart rather than the sound of silence coming from someone not accepting of me reaching out.
+Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
+
+<br>
+
+
+**A Poem on Black Lives**
+** Seeing Black Lives ##
+They help the police force as police officers.
+They play music.
+They read in church.
+They help the homeless community.
+They take care of little kids and love them, and hug them.
+They help people feel better after feeling fallen, or rejected.
+They are great sorority formal partners.
+They create art and music.
+They dance in the street.
+They love their work.
+They support their kids.
+They have healthy, beautiful homes.
+They love Allah, the same God that Christians worhsip.
+They also love God, and they have great faith through adversity.
+
 
 <br>
 
@@ -486,7 +517,7 @@ And moment by moment, we choose to stand in that goodness.
 
 ## The Past ##
 The past is done. It's gone. It's a distant dream, a memory fading away so that the past of new mercies can unfold.
-Let by gones teach us the lessons while holding on to remembrances of the good.
+Let bygones teach us the lessons while holding on to remembrances of the good.
 Nothing is born of ruminating about what happened long ago or regretting past actions.
 The present is here to be made new.
 The cycle of light continues through history forever.
@@ -505,7 +536,7 @@ No one knows what the future will bring.
 We put our hope in the prospects of a better day tomorrow.
 We carry the weight of concerns over imminent threats to our being next week.
 We trust that there are opportunities for new modes of life in a year.
-Prophesying for good, not for evil, shall be our goal in the uncertaity and questioned destiny.
+Prophesying for good, not for evil, shall be our goal in the uncertainty and questioned destiny.
 Our fate is good, and the cycle of light continues forever out of the darkness.
 
 <br>
@@ -581,7 +612,7 @@ Love blooms like a red rose within one's heart that is shared with others with n
 Love is beyond emotion.
 Love is the flame within that chooses to see the beauty and good cheer belonging to God.
 Love is the fondness shared between two people holding hands, hugging, smiling, laughing, forgiving, seeing past the lies.
-Love s the purest form of affection, like a glass filled with water overflowing for everyone around.
+Love is the purest form of affection, like a glass filled with water overflowing for everyone around.
 Yearning for the love for all mankind and the smiles on all of mankind's fate is what we all seek.
 
 <br>
