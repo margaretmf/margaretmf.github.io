@@ -3,6 +3,10 @@ layout: default
 is_contact: true
 ---
 
+**I was grateful in high school for an English teacher in high school who taught creative writing. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.
+
+## Home ##
+
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
 
 ## Taking Back the Night ##
@@ -53,6 +57,14 @@ You may blossom differently or later, but sister, you spring from the same sourc
 So love your brother, and love your sister. Love must go before you, and you are not estranged.
 Sometimes the night must be taken back, the fight within must stop, and the time to be receptive must come.
 God does amazing work through the pain, and really opens us up to Her living reality.
+
+## Healing from The Tendency to Fight ##
+
+## Healing from Weird Words ##
+
+## Healing from Email Attacks ##
+
+## Opening Up, Anger, Strife ##
 
 ## Same Roads, New View ##
 I have driven down these roads before
@@ -162,7 +174,7 @@ Share photos like a Christmas Card, but limit the usage to those you know.
 <br>
 
 
-**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had poetry underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.
+**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.
 
 ## The Ocean ##
 The ocean.
@@ -275,7 +287,7 @@ We can all choose to appreciate the summery sense of life.
 The feelings of guilt and shame turn to anger. 
 My heart rages inside.
 I cannot control it.
-I feel vexation. 
+I feel vexed.
 That's all I feel.
 I feel like I am inferior to others and delayed, and the sense of being caged in makes me feel frustrated, and thwarted.
 The darkness inside - I cannot hide it for much longer.
