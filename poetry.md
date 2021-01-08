@@ -96,13 +96,17 @@ I tried to apologize, I saw more deeply, learned grander lessons, and felt the t
 Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
 
 ## The Agitation in America ##
-The American dream feels out of reach to people.
-The sense of loss, of lack stirs up agitation, riots, breakdowns at Confederate Monuments, and meltdowns at the White House.
-I have felt this sense of agitation at home. Our people feel this sense of agitation on our home on Earth in America.
-But have no fear, American people, there's a new day under the Sun.
+When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
+the American dream felt out of reach to people.
+The American dream is not lost.
+America, founded on a rock, will always represent freedom to humanity.
+Have no fear, American people, there's a new day under the Sun.
+What's great about America remains great.
+What needs to be known about America will be known.
+The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
 There's newness for the country coming to the surface.
 There's grace, equity, equality, and justice for today.
-The governors represent the people.
+The governors represent the people, all the people.
 Nothing is lost, nothing about America's roots are being displaced.
 Everyone in the country belongs - all races, all creeds, all cultures, all religions.
 America, a melting pot, belongs to the English settlers, the Irish immigrants, the Scottish explorers, the African freedom-finders and Soul-givers, the Italians, the Chinese scientists, the Indian engineers and food-makers, the Jewish, the Muslim.
@@ -128,11 +132,26 @@ They dance in the street.
 They love their work.
 They support their kids.
 They have healthy, beautiful homes.
-They love Allah, the same God that Christians worhsip.
+They love Allah, the same God that Christians worship.
 They also love God, and they have great faith through adversity.
 
 
 **A Poem on Social Media**
+Why look her, or him up one more time? 
+Lurking on social media; why lurk behind the scenes again?
+I put a stop to the lurking, and control my usage.
+
+The images are beautiful; I am receiving Christmas Cards all years.
+It's a place to express love, and appreciation, and meet people from a distance.
+It's a place to see the beauty and childlike grace and innocence expressed in everyone.
+People express joy in amazing ways and share that with everyone online.
+
+But why open up so much to strangers from a distance?
+Use wisdom, carefulness, and caution.
+Don't be someone from the outside looking in through the window you should not look through.
+
+Be someone on the inside, being safe, being a friend to those you know.
+Share photos like a Christmas Card, but limit the usage to those you know.
 
 
 **A Poem on Healing**
