@@ -12,9 +12,9 @@ I am **Margaret Furr**, and I am developing expertise in **photography**, **sket
 
 Most recently, I have been learning about antiracism and working on photography of light in the darkness and continuing the work to "Take Back the Night."
 
-I am exploring how to paint the light in the darkness series, and I am interested in using visual arts to understand electrical and civil engineering of homes and cities.
+I am exploring how to paint the light in the darkness series, and looking to the light in the house and on the streets led me to explore using visual arts to understand electrical and civil engineering of homes and cities.
 
-I have also driven through 10 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Ohio), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience.
+I have also driven through 10 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Wisconsin, Ohio, Kentucky, West Virginia), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience. Kinesthetic learning, and experiential learning helps to understand visually and experientially the country. Listening to music and reading books, and meeting people in hotels also helps people understand what is going on.
 
 To learn to articulate feelings, I have started writing poetry.
 
