@@ -1788,6 +1788,18 @@ a lingering hellow, a savor.
 ## Passion ##
 
 ## Sleep ##
+In sleep, I dream, and find peace.
+I doze off into a land where there's constant love.
+In sure repose, I find the silence, the love, the vision of snow, grace, beauty all around.
+I enter into a trance, slumber, and then wake up.
+
+<br>
+
+**Word Associations:** dream, doze, Morpheus, repose, torpor, trance, slumber, somnolence
+
+
+<br>
+
 
 ## Soul Mate ##
 
