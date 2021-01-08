@@ -1684,6 +1684,22 @@ Not held by the past, but a day made new by new affections, with the tingle brou
 ## Pride ##
 
 ## Trust ##
+I take stock in everything I have done correctly,
+and the light shining in everyone.
+With surety, I know that goodness is unfolding.
+With conviction, I know I can find what I need and there's harmony.
+I am loyal.
+I fill myself with integrity.
+I take charge of the new day.
+I work steadfastly to love, be cheerful, and connect.
+
+<br>
+
+**Word Associations: stock, sure, credence, conviction, loyal, integrity, charge, steadfast
+
+
+<br>
+h
 
 ## A Fragrance ##
 
