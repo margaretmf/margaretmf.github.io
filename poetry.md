@@ -95,6 +95,22 @@ I rose up higher with a bounce in my step, a love for someone else, and a resili
 I tried to apologize, I saw more deeply, learned grander lessons, and felt the true sound of silence in my own heart rather than the sound of silence coming from someone not accepting of me reaching out.
 Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
 
+## The Agitation in America ##
+The American dream feels out of reach to people.
+The sense of loss, of lack stirs up agitation, riots, breakdowns at Confederate Monuments, and meltdowns at the White House.
+I have felt this sense of agitation at home. Our people feel this sense of agitation on our home on Earth in America.
+But have no fear, American people, there's a new day under the Sun.
+There's newness for the country coming to the surface.
+There's grace, equity, equality, and justice for today.
+The governors represent the people.
+Nothing is lost, nothing about America's roots are being displaced.
+Everyone in the country belongs - all races, all creeds, all cultures, all religions.
+America, a melting pot, belongs to the English settlers, the Irish immigrants, the Scottish explorers, the African freedom-finders and Soul-givers, the Italians, the Chinese scientists, the Indian engineers and food-makers, the Jewish, the Muslim.
+Americans, tied to the land, has a new day in the sun.
+The land belongs to everyone.
+America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
+
+
 <br>
 
 
