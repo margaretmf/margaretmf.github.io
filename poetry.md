@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-**I was grateful in high school for an English teacher in high school who taught creative writing. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.
+**I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.
 
 ## Home ##
 
@@ -112,7 +112,7 @@ When the riots fell down on the White house, the breakdowns happened at the Conf
 the American dream felt out of reach to people.
 The American dream is not lost.
 America, founded on a rock, will always represent freedom to humanity.
-Have no fear, American people, there's a new day under the Sun.
+Have no fear, American people, we are all God's suns and daughters, and there's a new day under the Sun.
 What's great about America remains great.
 What needs to be known about America will be known.
 The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
@@ -122,6 +122,7 @@ The governors represent the people, all the people.
 Nothing is lost, nothing about America's roots are being displaced.
 Everyone in the country belongs - all races, all creeds, all cultures, all religions.
 America, a melting pot, belongs to the English settlers, the Irish immigrants, the Scottish explorers, the African freedom-finders and Soul-givers, the Italians, the Chinese scientists, the Indian engineers and food-makers, the Jewish, the Muslim.
+We were and can all be immigrants made new, we were and can all be explorers, we were and can all be settlers finding our place to settle, rest and be at peace, we were and can all be freedom-finders, no matter our background.
 Americans, tied to the land, has a new day in the sun.
 The land belongs to everyone.
 America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
