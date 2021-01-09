@@ -27,6 +27,15 @@ I had felt forgiveness for him, saw the light in him, but the voices became so l
 --Acting on the Voices
 --Hospital
 
+## Thinking Above Political Lines ##
+Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy.
+
+My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good.". I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
+
+My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
+
+More broadly, I love home on earth with all of humanity.
+
 ## Home ##
 
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
@@ -56,6 +65,7 @@ What is in the South?
 Friendly neighbors, lightness of heart, good food - grits, pumpkin pie, pecan pie, oyster stuffing, and white houses and amazing nurses, and teachers.
 Good music - bluegrass, country, the blues, and jazz, and bridges to the West Coast.
 Equality for all.
+A connection to the land.
 A love of home and family.
 Freedom from racial, gender, and cultural politics.
 
@@ -82,7 +92,7 @@ When listening more deeply, it reminded me of the guy next door, and woke me up 
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
 
 ## The Union ##
-The red, white, and blue, where brown cadillacs and red trucks drive on the same roads.
+The red, white, and blue, where blue and brown  and red trucks drive on the same roads.
 Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
 
 ## America ## 
