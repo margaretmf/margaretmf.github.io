@@ -41,15 +41,17 @@ I already knew Tennessee and bluegrass music, but it brought me one step closer 
 I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
 I thought I was relating to the South, but it made me aware of the West.
 I had already been to South America, but it brought me more love for the South Americans.
-I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish music.
+I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish and Irish music.
 I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
-I had already felt denied by Southern culture, but it woke me up to my Southern mamma.
+I had already felt denied by Southern culture, but it woke me up to my Southern mom.
 I was already aware of the trucks at the Port and on the roads, but it led me to love the truck drivers more.
 I had thought Country music was just for White People, but I realized I already listened to country music produced by Black people.
 I denied that the music was for me, and prayed that there was another woman the song was for.
 I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
+I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
+I fel down hard to the ground, and the Black man saved my life with good cheer, good faith, and a good conversation.
 When listening more deeply, it reminded me of the guy next door, and woke me up to how he viewed the world.
-I had already felt eternity, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
+I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
 
 ## The Union ##
 The red, white, and blue, where brown cadillacs and red trucks drive on the same roads.
@@ -212,7 +214,7 @@ Share photos like a Christmas Card, but limit the usage to those you know.
 <br>
 
 
-**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.
+**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.**
 
 ## The Ocean ##
 The ocean.
@@ -1791,6 +1793,22 @@ I work steadfastly to love, be cheerful, and connect.
 ## Opportunities ##
 
 ## Meditation ##
+Stop the rumination, the guilt, the worry.
+God knows each and every concern.
+Stay tranquil, and ponder the good in life, the beauty.
+Meditation is the consciousness of good.
+Choose to be peaceful, joyful.
+Enjoy the refelctions of the light within.
+Ponder all the interconnectedness of humanity, and the rapture of a lively home.
+Be grateful for Zen.
+
+<br>
+
+**Word Associations: rumination, reflection, peace, introspection, tranquil, rapt, Zen, ponder
+
+
+<br>
+
 
 ## Equality ##
 
@@ -1799,6 +1817,22 @@ I work steadfastly to love, be cheerful, and connect.
 ## Reliability ##
 
 ## Patience ##
+Wanting to react, but choosing to pause.
+Experiencing anxiety, dividedness, but finding the peace within.
+Feeling agitated, but staying calm.
+Losing composure, bu having the humility get back up, and try again.
+Falling and stumbling, but expressing the patience to confront the challenge face-to-face.
+Amidst the noise, going placidly like the river.
+Staying stock and smiling while making mistakes.
+Being pulled by the stir, but experiencing the gentleness within.
+
+<br>
+
+Word Associations: stoic, serene, calm, peace, composure, humility, gentleness, placity
+
+
+<br>
+
 
 ## Perspective ##
 
