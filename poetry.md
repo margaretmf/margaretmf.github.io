@@ -15,6 +15,28 @@ I sing with the stars, where everyone has a place.
 In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
 I know I am held so tightly because of how brightly the light shines.
 
+## The Confederate Flag ##
+
+## The Country Music and the Rejection ##
+Did it heal your relationship to the Country or the country?
+It healed my relationship to the Country and the country.
+I was already from the South, but negative memories of the South and race infiltrated my thought.
+I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
+I was already aware of the lumber industry, but it brought me one step closer to it.
+I already knew Tennessee and bluegrass music, but it brought me one step closer to the Blues.
+I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
+I thought I was relating to the South, but it made me aware of the West.
+I had already been to South America, but it brought me more love for the South Americans.
+I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish music.
+I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
+I had already felt denied by Southern culture, but it woke me up to my Southern mamma.
+I was already aware of the trucks at the Port and on the roads, but it led me to love the truck drivers more.
+I had thought Country music was just for White People, but I realized I already listened to country music produced by Black people.
+I denied that the music was for me, and prayed that there was another woman the song was for.
+I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
+When listening more deeply, it reminded me of the guy next door, and woke me up to how he viewed the world.
+I had already felt eternity, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
+
 ## The Union ##
 The red, white, and blue, where brown cadillacs and red trucks drive on the same roads.
 Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
@@ -112,7 +134,7 @@ When the riots fell down on the White house, the breakdowns happened at the Conf
 the American dream felt out of reach to people.
 The American dream is not lost.
 America, founded on a rock, will always represent freedom to humanity.
-Have no fear, American people, we are all God's suns and daughters, and there's a new day under the Sun.
+Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun.
 What's great about America remains great.
 What needs to be known about America will be known.
 The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
@@ -136,6 +158,7 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 They help the police force as police officers.
 They play music.
 They read in church.
+They create amazing art.
 They help the homeless community.
 They take care of little kids and love them, and hug them.
 They help people feel better after feeling fallen, or rejected.
