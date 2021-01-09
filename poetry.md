@@ -28,15 +28,19 @@ I had felt forgiveness for him, saw the light in him, but the voices became so l
 --Hospital
 
 ## Thinking Above Political Lines ##
-Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy.
+Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
 
-My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good.". I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
+My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good.". I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
 
 My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
 
 More broadly, I love home on earth with all of humanity.
 
 ## Home ##
+
+## Religious Liberty ##
+
+## Democratic Republic and Debate ##
 
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
 
