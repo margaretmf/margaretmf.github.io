@@ -51,7 +51,13 @@ but willfulness took over and used me.
 Knowing what's right, but doing what's wrong will lead to prison.
 Complaining when I could pause, and being grateful will lead to prison.
 
-## The Confederate Flag ##
+## The South ##
+What is in the South?
+Friendly neighbors, lightness of heart, good food - grits, pumpkin pie, pecan pie, oyster stuffing, and white houses and amazing nurses, and teachers.
+Good music - bluegrass, country, the blues, and jazz, and bridges to the West Coast.
+Equality for all.
+A love of home and family.
+Freedom from racial and gender politics.
 
 ## The Country Music and the Rejection ##
 Did it heal your relationship to the Country or the country?
