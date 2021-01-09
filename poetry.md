@@ -5,6 +5,28 @@ is_contact: true
 
 **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.**
 
+## Children's Play and Hallucinations ##
+Little children play with dinosaurs, dress-up clothes, wish lists to Santa Clause.
+Once in my twenties, people felt like I was tripping. I was imagining things like a little kid does. None of it was real; it was twisted, distorted images and sounds - not the full, big picture that God has.
+
+--The Politics Building
+--Christmas Music
+--A Game on Technology, Childlike Play
+--Poetry
+
+I had slept so little, had done so much work, had eaten so little, and everything felt so heavy; but I could still feel God.
+It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack.
+I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
+
+Then it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter.
+I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
+
+Then I heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
+I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, the ghost of me. It was the false him, the false me.
+
+--Acting on the Voices
+--Hospital
+
 ## Home ##
 
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
@@ -104,6 +126,10 @@ God does amazing work through the pain, and really opens us up to Her living rea
 
 ## Opening Up, Anger, Strife ##
 
+## Industry 2.0 ##
+
+## Why Am I Being Tracked? ##
+
 ## Same Roads, New View ##
 I have driven down these roads before
 but I see them, the people, the homes in a new light.
@@ -159,7 +185,7 @@ There's grace, equity, equality, and justice for today.
 The governors represent the people, all the people.
 Nothing is lost, nothing about America's roots are being displaced.
 Everyone in the country belongs - all races, all creeds, all cultures, all religions.
-America, a melting pot, belongs to the English settlers, the Irish immigrants, the Scottish explorers, the African freedom-finders and Soul-givers, the Italians, the Chinese scientists, the Indian engineers and food-makers, the Jewish, the Muslim.
+America, a melting pot.
 We were and can all be immigrants made new, we were and can all be explorers, we were and can all be settlers finding our place to settle, rest and be at peace, we were and can all be freedom-finders, no matter our background.
 Americans, tied to the land, has a new day in the sun.
 The land belongs to everyone.
@@ -172,20 +198,35 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 **A Poem on Black Lives**
 ## Seeing Black Lives ##
 They help the police force as police officers.
+So why are they being killed? Not all of them are.
 They play music.
+So why are they depressed? They are more life-giving then we are.
 They read in church.
+So why are they being shoved down to the ground? We need to pay attention to them.
 They create amazing art.
+So why are they yelling out "I can't breathe?" Because they gave our country so much breath in its discovery.
 They help the homeless community.
+So why do we ignore their side of history? It means so much, and we begin to understand it more.
 They take care of little kids and love them, and hug them.
+So why are they being shot? They won't be tomorrow, at least I hope.
 They help people feel better after feeling fallen, or rejected.
+So why are we not more grateful for the work they have done in government? We are, some of us are.
 They are great sorority formal partners.
+So why are we not accustomed to seeing Interracial partners? I love the Instagram page on Interracial partners.
 They create art and music.
+So why do we not buy their art? Their art would enliven our homes and radios.
 They dance in the street.
+So why do we throw fits after being rejected by the white man? The black man dances so well.
 They love their work.
-They support their kids.
+So why do complain and throw fits in the White House? Their work can be so much better.
+They support their kids. 
+So why do we not understand them better? Our eyes are learning more about them and appreciating their beauty. Their kids are so cute and great playmates.
 They have healthy, beautiful homes.
+So why do we see so much division? Their homes are united with ours.
 They love Allah, the same God that Christians worship.
+So why do we not know more about Malcolm X? He taught us true brotherhood and racial harmonization.
 They also love God, and they have great faith through adversity.
+So why do we not appreciate their roots at hymn sings more? The music is beautiful.
 
 
 **A Poem on Social Media**
