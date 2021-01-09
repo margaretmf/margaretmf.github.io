@@ -142,6 +142,7 @@ Philip Taubman
 * [Stamped: Racism, Antiracism, and You: A Remix of the National Book Award-winning Stamped from the Beginning](https://www.amazon.com/Stamped-Antiracism-Award-Winning-Beginning-Thorndike/dp/1432876325/ref=sr_1_1?dchild=1&keywords=Stamped%3A+Racism%2C+Antiracism%2C+and+You%3A+A+Remix+of+the+National+Book+Award-winning+Stamped+from+the+Beginning&qid=1610168726&s=books&sr=1-1) by Jason Reynolds and Ibram X. Kendi
 * [me and white supremacy: Combat Racism, Change the World, and Become a Good Ancestor](https://www.amazon.com/Me-White-Supremacy-Combat-Ancestor/dp/1728209803/ref=sr_1_1_sspa?dchild=1&keywords=me+and+white+supremacy&qid=1606419090&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzMlJGNFJSUEMyS1hEJmVuY3J5cHRlZElkPUEwODcyNzY1QVdINkZOOU5KTTZEJmVuY3J5cHRlZEFkSWQ9QTA5MzcwNDAyUlU5NDFINU9OUUlSJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Layla F. Saad & Robin DiAngelo 
 * [Shakespeare in a Divided America: What His Plays TEll Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
+* [A World More Bright](https://www.amazon.com/Bright-Isabel-Heather-Frederick-Ferguson/dp/0875104940) by  Isabel Ferguson and Heather Vogel Frederick (Author)
 
 
 ### Books
