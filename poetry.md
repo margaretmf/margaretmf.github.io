@@ -57,7 +57,7 @@ Friendly neighbors, lightness of heart, good food - grits, pumpkin pie, pecan pi
 Good music - bluegrass, country, the blues, and jazz, and bridges to the West Coast.
 Equality for all.
 A love of home and family.
-Freedom from racial and gender politics.
+Freedom from racial, gender, and cultural politics.
 
 ## The Country Music and the Rejection ##
 Did it heal your relationship to the Country or the country?
@@ -251,6 +251,22 @@ Don't be someone from the outside looking in through the window you should not l
 
 Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
+
+
+## What is My Motive? ##
+To love someone new today.
+To move beyond my comfort zone.
+To include all of humanity in prayer.
+To understand someone who needs help.
+To express patience in my thought.
+To see from a different angle.
+To shift a habit.
+To demonstrate order and cleanliness.
+
+## Race Why Do We Talk about Race? Why Do We Not Talk About Race? ##
+What is race? A group or category of people. There are individuals within the group or the category. People tend to rank individuals within the group or the category.
+Why do I talk about race? To understand how someone perceives the world, to understand someone's cultural background, to appreciate the beauty of race, to understand someone in a different group.
+Why do I not talk about race? To respect boundaries, to talk about more elevated ideas above the physique.
 
 
 **A Poem on Healing**
