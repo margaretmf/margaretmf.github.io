@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-**I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.
+**I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.**
 
 ## Home ##
 
