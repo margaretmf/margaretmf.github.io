@@ -15,6 +15,20 @@ I sing with the stars, where everyone has a place.
 In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
 I know I am held so tightly because of how brightly the light shines.
 
+## Prison in Home ##
+Before the quarantine, I became a prison in my own home.
+I felt like I was quarantined before the quarantine.
+I felt like I was imprisoned before being imprisoned.
+I felt like I was ostracized, yet connected before feeling close to losing it all.
+I am compassionate, but I became something that does not represent my true self.
+I am genuine and real, but I became fake, a fraud, and spiteful.
+I was afraid, I felt hurt from opening up.
+God was there, but I was not paying full attention.
+He was right, goodness was running after me, and angels proved that "goodness was running after me",
+but willfulness took over and used me.
+Knowing what's right, but doing what's wrong will lead to prison.
+Complaining when I could pause, and being grateful will lead to prison.
+
 ## The Confederate Flag ##
 
 ## The Country Music and the Rejection ##
