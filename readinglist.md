@@ -2,7 +2,7 @@
 layout: default
 ---
 
-## 2020
+## 2021
 
 ### Books
 #### Reading
@@ -11,6 +11,8 @@ layout: default
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [When They Call You a Terrorist: A Black Lives Matter Memoir](https://www.amazon.com/When-They-Call-You-Terrorist/dp/1250306906) by Patrisse Khan-Cullors & Asha Bandele
 
+
+## 2020
 
 #### Completed
 * [Spiritual Healing In A Scientific Age](https://www.amazon.com/Spiritual-Healing-Scientific-Robert-Peel/dp/0060664851) by Robert Peel and Mary Baker Eddy
@@ -144,6 +146,8 @@ Philip Taubman
 * [Shakespeare in a Divided America: What His Plays TEll Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
 * [A World More Bright](https://www.amazon.com/Bright-Isabel-Heather-Frederick-Ferguson/dp/0875104940) by  Isabel Ferguson and Heather Vogel Frederick (Author)
 
+
+## 2019
 
 ### Books
 #### Completed
