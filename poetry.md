@@ -5,6 +5,32 @@ is_contact: true
 
 **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.**
 
+## Taking Back the Night ##
+Flying into the night sky, I take back the night, where the night in reality is a silent night.
+I sing with the stars, where everyone has a place.
+In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
+I know I am held so tightly because of how brightly the light shines.
+
+## Prison in Home ##
+Before the quarantine, I became a prison in my own home.
+I felt like I was quarantined before the quarantine.
+I felt like I was imprisoned before being imprisoned.
+I felt like I was ostracized, yet connected before feeling close to losing it all.
+I am compassionate, but I became something that does not represent my true self.
+I am genuine and real, but I became fake, a fraud, and spiteful.
+I was afraid, I felt hurt from opening up.
+God was there, but I was not paying full attention.
+He was right, goodness was running after me, and angels proved that "goodness was running after me",
+but willfulness took over and used me.
+Knowing what's right, but doing what's wrong will lead to prison.
+Complaining when I could pause, and being grateful will lead to prison.
+
+## Home ##
+
+## Religious Liberty ##
+
+## Democratic Republic and Debate ##
+
 ## Children's Play and Hallucinations ##
 Little children play with dinosaurs, dress-up clothes, wish lists to Santa Clause.
 Once in my twenties, people felt like I was tripping. I was imagining things like a little kid does. None of it was real; it was twisted, distorted images and sounds - not the full, big picture that God has.
@@ -36,33 +62,7 @@ My mom always felt like the ideal Southern woman, and I have felt angry sometime
 
 More broadly, I love home on earth with all of humanity.
 
-## Home ##
-
-## Religious Liberty ##
-
-## Democratic Republic and Debate ##
-
 **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
-
-## Taking Back the Night ##
-Flying into the night sky, I take back the night, where the night in reality is a silent night.
-I sing with the stars, where everyone has a place.
-In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
-I know I am held so tightly because of how brightly the light shines.
-
-## Prison in Home ##
-Before the quarantine, I became a prison in my own home.
-I felt like I was quarantined before the quarantine.
-I felt like I was imprisoned before being imprisoned.
-I felt like I was ostracized, yet connected before feeling close to losing it all.
-I am compassionate, but I became something that does not represent my true self.
-I am genuine and real, but I became fake, a fraud, and spiteful.
-I was afraid, I felt hurt from opening up.
-God was there, but I was not paying full attention.
-He was right, goodness was running after me, and angels proved that "goodness was running after me",
-but willfulness took over and used me.
-Knowing what's right, but doing what's wrong will lead to prison.
-Complaining when I could pause, and being grateful will lead to prison.
 
 ## The South ##
 What is in the South?
@@ -1868,6 +1868,21 @@ I work steadfastly to love, be cheerful, and connect.
 ## A Fragrance ##
 
 ## Opportunities ##
+There's a new horizon ahead.
+There's a wide scope of opportunities.
+Dreams live within me to be fulfilled.
+A vision activates how i love and choose to live, act, and be.
+There are great prospects ahead to love someone, learn about humanity, and grow an enlargened sphere of purpose.
+Seize the day, there's good luck.
+Carpe Diem.
+
+<br>
+
+**Word Associations: horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
+
+
+<br>
+
 
 ## Meditation ##
 Stop the rumination, the guilt, the worry.
@@ -1905,13 +1920,28 @@ Being pulled by the stir, but experiencing the gentleness within.
 
 <br>
 
-Word Associations: stoic, serene, calm, peace, composure, humility, gentleness, placity
+**Word Associations: stoic, serene, calm, peace, composure, humility, gentleness, placity
 
 
 <br>
 
 
 ## Perspective ##
+I wake up with a new perspective on Life, on Earth each day.
+I wake up to see the sun from a slightly diffferent angle each morning.
+I can understand current events from another's viewpoint each day.
+I can shift my perception above the current context, and see the whole scen.
+The expressions of life are broad, the frame to appreciate life is wide.
+So many activities, so many places in which to express joy, order, grace, patience, forgiveness.
+There are always wonderful vistas ahead each day.
+
+<br>
+
+**Word Associations: viewpoint, context, scene, vista, shift, frame, broad, angle
+
+
+<br>
+
 
 ## A Voyage ##
 
