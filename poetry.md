@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-## **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** ##
+## **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, so I have turned to writing poetry to work through feelings. ##
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where the night in reality is a silent night.
@@ -29,8 +29,22 @@ Complaining when I could pause, and being grateful will lead to prison.
 
 ## Religious Liberty ##
 Christian Science embraces all religions, all churches, all races, and all of humanity.
+The Christian Science church architecture roots itself in Romanesque architecture.
 America does too. America was founded with a love for religious freedom and religious liberty, though there are debates over what this means to people.
+The architecture in Charlottesville was rooted in Roman architecture.
 I love all the churches, I love all the people, and I love that God forgives everyone and speaks to everyone.
+
+## Opening Up ##
+Opening up to people about the negative thoughts, beliefs in the back of my thought, and things I should not say, feel, or believe. 
+How do I work through these thoughts, beliefs, and things?
+Opening up, feeling over-exposed, feeling naked metaphorically.
+It leads to discomfort, something to shove down, or anger, and I express anger.
+This is not true opening up. This opening up is the discarding of darkness to be transformed into light.
+
+Opening up to the Holy Spirit, sense of joy, compassion, life, and childlikeness.
+This spirit of man, born of the Holy Spirit, is within everyone. 
+It is above the shadows in the back of people's thoughts, and it is below the physical appearance of man.
+Opening up to the sense of love within opens us up to people correctly to open up to the love within another.
 
 ## The Democratic Republic and the Debate Inside My Head ##
 
@@ -67,7 +81,7 @@ I got into trouble, I violated the boundary of the fraternity house that my dad 
 ## Thinking Above Political Lines ##
 Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
 
-My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good.". I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
+My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good." I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
 
 My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
 
@@ -107,7 +121,7 @@ When listening more deeply, it reminded me of the guy next door, and woke me up 
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
 
 ## The Union ##
-The red, white, and blue, where blue and brown  and red trucks drive on the same roads.
+The red, white, and blue, where blue and brown buicks and red trucks drive on the same roads.
 Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
 
 ## America ## 
@@ -150,6 +164,9 @@ Sometimes the night must be taken back, the fight within must stop, and the time
 God does amazing work through the pain, and really opens us up to Her living reality.
 
 ## Healing from The Tendency to Fight ##
+I want to fight back, react, send an email, kick a door, hit, or write a negative comment.
+I want to manipulate the situation to meet my wants.
+I want to yell out with anger and express rage to deal with the feelings of insecurity, inferiority, and 
 
 ## Healing from Weird Words ##
 
@@ -229,36 +246,20 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 ## **A Poem on Black Lives** ##
 ## Seeing Black Lives ##
 They help the police force as police officers.
-So why are they being killed? Not all of them are.
 They play music.
-So why are they depressed? They are more life-giving then we are.
 They read in church.
-So why are they being shoved down to the ground? We need to pay attention to them.
 They create amazing art.
-So why are they yelling out "I can't breathe?" Because they gave our country so much breath in its discovery.
 They help the homeless community.
-So why do we ignore their side of history? It means so much, and we begin to understand it more.
 They take care of little kids and love them, and hug them.
-So why are they being shot? They won't be tomorrow, at least I hope.
 They help people feel better after feeling fallen, or rejected.
-So why are we not more grateful for the work they have done in government? We are, some of us are.
 They are great sorority formal partners.
-So why are we not accustomed to seeing Interracial partners? I love the Instagram page on Interracial partners.
 They create art and music.
-So why do we not buy their art? Their art would enliven our homes and radios.
 They dance in the street.
-So why do we throw fits after being rejected by the white man? The black man dances so well.
 They love their work.
-So why do complain and throw fits in the White House? Their work can be so much better.
 They support their kids. 
-So why do we not understand them better? Our eyes are learning more about them and appreciating their beauty. Their kids are so cute and great playmates.
 They have healthy, beautiful homes.
-So why do we see so much division? Their homes are united with ours.
 They love Allah, the same God that Christians worship.
-So why do we not know more about Malcolm X? He taught us true brotherhood and racial harmonization.
 They also love God, and they have great faith through adversity.
-So why do we not appreciate their roots at hymn sings more? The music is beautiful.
-
 
 ## **A Poem on Social Media** ##
 ## Social Media Usage ##
@@ -278,7 +279,6 @@ Don't be someone from the outside looking in through the window you should not l
 Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
 
-
 ## What is My Motive? ##
 To love someone new today.
 To move beyond my comfort zone.
@@ -290,13 +290,11 @@ To shift a habit.
 To demonstrate order and cleanliness.
 
 ## Race Why Do We Talk about Race? Why Do We Not Talk About Race? ##
-What is race? A group or category of people. There are individuals within the group or the category. People tend to rank individuals within the group or the category.
+What is race? A group or category of people. There are individuals within the group or the category. People tend to rank individuals within the group or the category. Race is not the only way to rank or group.
 Why do I talk about race? To understand how someone perceives the world, to understand someone's cultural background, to appreciate the beauty of race, to understand someone in a different group.
 Why do I not talk about race? To respect boundaries, to talk about more elevated ideas above the physique.
 
-
 **A Poem on Healing**
-
 
 **A Poem on Prayer for Humanity**
 
