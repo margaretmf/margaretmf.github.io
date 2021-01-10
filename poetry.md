@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-## **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, so I have turned to writing poetry to work through feelings. ##
+## **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry.** ##
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where the night in reality is a silent night.
@@ -120,9 +120,12 @@ I fel down hard to the ground, and the Black man saved my life with good cheer, 
 When listening more deeply, it reminded me of the guy next door, and woke me up to how he viewed the world.
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
 
-## The Union ##
-The red, white, and blue, where blue and brown buicks and red trucks drive on the same roads.
+## Cars on the Roads #
+In the red, white, and blue, where there are all sorts of people.
+Every one is individual.
+There are cool blue and brown buicks, sweet red trucks, sophisticated gray and black CRVs, all driving on the same roads.
 Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
+## engineering, math, the distance between cars, everyone is individual, a sea of cars ##
 
 ## America ## 
 Digging into the depth of the earth, wedded to the earth,
