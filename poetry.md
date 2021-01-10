@@ -1083,7 +1083,7 @@ Divine Love is omnipresent, there to wake up everyone and open up every one to h
 ## Serendipity ##
 By divine fluke, it's unexpected that we meet.
 I would never have expected it.
-The circumstnace was set up with a spark, and I would never think it real.
+The circumstance was set up with a spark, and I would never think it real.
 It's karma for things to work out.
 I continue to set my thoughts on the attitude of God, the perfection in the imperfection, and I confide in God for the things I have done wrong.
 
@@ -1170,7 +1170,7 @@ No vile can touch us.
 ## Temptation ##
 I feel this pull, this urge to covet and think this unholy thought,
 or feel this unholy desire.
-It, the thing, the person I think I want seems so fascinatig, alluring, enticing.
+It, the thing, the person I think I want seems so fascinating, alluring, enticing.
 I feel so drawn to it.
 It's tempting, it's seducing.
 But I don't take the bait.
@@ -1192,7 +1192,7 @@ There is a code inherent to the universe that teaches us how to love,
 how to know what's right, and how to forgive.
 Even though it hurts when I stumble,
 I seek to act with moral courage.
-The truth is that there is some good to see and do, and some anger and some frustration to ovcome.
+The truth is that there is some good to see and do, and some anger and some frustration to ovecome.
 The truth is that I have done things wrong, I have reacted, but I can choose to live another day with childlike freedom and love.
 It is fair to say that shame should be let go of, and it is fair that the ugliness of years past shall be recompensated with a song in one's heart to live by each day.
 Justice is the rule of life, and anything unfair from the past can be replaced with good on its way in the equation.
@@ -1350,7 +1350,7 @@ Falling into the deep, dark pit of wreckage, mistakes, failure, rejection is suc
 Letting emotions override and control you, and feeling overtaken by adversity.
 Sudden misfortune and affliction is a shock to the whole system, causing pain, and heaviness.
 It feels like a curse and like one is doomed.
-But always the light of life is there to turn us from tragey to comedy with a smile and a laugh.
+But always the light of life is there to turn us from tragedy to comedy with a smile and a laugh.
 
 <br>
 
@@ -1363,7 +1363,7 @@ But always the light of life is there to turn us from tragey to comedy with a sm
 ## Winter ##
 As fall turns to winter,
 the golden-yellow leaves fall off,
-and the glistening grey branches shine in the sulight.
+and the glistening grey branches shine in the sunlight.
 There's a chill in the air as the winds blow
 and the solstice comes.
 Yuletide carols, fireside chats, evergreen mountains, snow falling.
@@ -1483,7 +1483,7 @@ the grief.
 I lament over what I did wrong, and I cry in anguish with tears.
 It's such a heartache.
 I feel so much woe, bereaved
-I trust God in leading everyone forward in the way that amkes everyone happy.
+I trust God in leading everyone forward in the way that makes everyone happy.
 
 <br>
 
@@ -1529,7 +1529,7 @@ With courage, I get back up with fortitude.
 Undaunted by strife, I rest in peace and rise up to the situation.
 Thank you, God, for making me be lion-hearted.
 Your prowess from God is all-sufficient.
-I am therefore for the guts to keep moving on with love in my heart for all mankind.
+I have the guts to keep moving on with love in my heart for all mankind.
 
 <br>
 
@@ -1603,7 +1603,7 @@ What is complete is complete.
 The joys of yesterday exist forever.
 The mistakes of the past are indeed, just that, past, behind, and events to learn from.
 In the words of the poet, 'let bygones be bygones.'
-THe wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity.
+The wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity.
 His story from antiquity is continuous, ever-renewing and cyclical.
 
 <br>
@@ -1619,7 +1619,7 @@ The smile on a face,
 the good will a neighbor has towards another,
 the compassionate extra mile,
 the civility one shows in a conversation,
-the uprightness in handlign mistakes,
+the uprightness in handling mistakes,
 the forbearance,
 the fellowship expressed in church and sports.
 This is all humanity.
@@ -1650,7 +1650,7 @@ I search deeper for what I really thirst for, what I really hope for that is pea
 ## Peace ##
 Peace starts from within.
 Every day shall start with peace.
-Peace leads to order int he midst of chaos
+Peace leads to order in the midst of chaos
 and unity in the midst of conflict.
 Quieting the anger, the pain, the memories, and choosing to find the harmony underlying everything.
 Life is tranquil without the idols and false affections.
@@ -1681,8 +1681,8 @@ Joy cometh in the morning with the light of the sun, and the noonday.
 
 ## Visions ##
 What brilliance there is in the vision of the Lord who speaks to us through our third eye and gives us beautiful imagery, glimpses, and insights.
-What brightness is reflected in the spirited perception fo all things.
-It's lovely to muse on how God share his fancies, and delivers us from imaginations. What acument is reflected through the mind of God.
+What brightness is reflected in the spirited perception of all things.
+It's lovely to muse on how God share his fancies, and delivers us from imaginations. What acumen is reflected through the mind of God.
 
 <br>
 
@@ -1745,7 +1745,7 @@ and the stem that gives it strength helps it live at its core.
 A mother holds her child, 
 walks with her child,
 helpsher child get up after she falls.
-CHildhood is wrapped up in, and cared for in the wombs of motherhood.
+Childhood is wrapped up in, and cared for in the wombs of motherhood.
 There is warmth in this place of divine origin.
 
 <br>
@@ -1786,7 +1786,7 @@ It's a green plight indeed, a quagmire.
 
 
 ## Dreams ##
-The fantasy inside my head of soemthing unreal.
+The fantasy inside my head of something unreal.
 A image in thought of something I wish for, or long for.
 It's a deep trance; people say I seem delusional.
 And when reality comes to the surface, the fact of what people are really doing, the dream presents itself as an illusion.
@@ -1881,7 +1881,7 @@ I work steadfastly to love, be cheerful, and connect.
 There's a new horizon ahead.
 There's a wide scope of opportunities.
 Dreams live within me to be fulfilled.
-A vision activates how i love and choose to live, act, and be.
+A vision activates how I love and choose to live, act, and be.
 There are great prospects ahead to love someone, learn about humanity, and grow an enlargened sphere of purpose.
 Seize the day, there's good luck.
 Carpe Diem.
