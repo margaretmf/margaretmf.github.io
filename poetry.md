@@ -28,7 +28,7 @@ Complaining when I could pause, and being grateful will lead to prison.
 ## Home ##
 
 ## Religious Liberty ##
-Christian Science embraces all religions, all churches, and all of humanity.
+Christian Science embraces all religions, all churches, all races, and all of humanity.
 America does too. America was founded with a love for religious freedom and religious liberty, though there are debates over what this means to people.
 I love all the churches, I love all the people, and I love that God forgives everyone and speaks to everyone.
 
@@ -38,9 +38,10 @@ I love all the churches, I love all the people, and I love that God forgives eve
 Little children play with dinosaurs, dress-up clothes, and wish lists to Santa Clause.
 Once in my twenties, people felt like I was tripping. Actually, I was tripping. I had been so depressed and stressed and felt so overweight that I starved myself for a whole semester. I was imagining things like a little kid does. None of it was real; it was twisted - the images and sounds were distorted, and they were not the full, big picture that God has.
 
-I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night, and early in the morning in the political science building; and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry, and it is embarassing and awkward to look back on.
+I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry, and it is embarassing and awkward to look back on.
 
-After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room; but I could still feel God.
+After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room; even I felt like I saw a high school teacher riding his bike outside.
+Even thought everything felt "stranger than fiction", as they say, I could still feel God.
 My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong. But I was not fully sound mentally.
 It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack.
 I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
@@ -48,12 +49,20 @@ I could not move. I felt stuck, frozen, and after starving myself for so long, I
 After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter.
 I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
 
+I entered into the library. It felt almost like I was walking through a children's book or a video game, the light shining through the dark in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks.
+
 Then I heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
-I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, the ghost of me. It was the false him, the false me. I rushed into his fraternity house, acted out some movie characters, and he called the police on me so I could be taken care of in the hospital.
+I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him and the ghost of me. It was the false him and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, and he called the police on me so I could be taken care of in the hospital.
 
-It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receptrs; I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind is associative. 
+It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
 
-At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining, and it makes it more light.
+My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year. But coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
+
+There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. And I opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
+
+At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
+
+I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too. But translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
 
 ## Thinking Above Political Lines ##
 Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
