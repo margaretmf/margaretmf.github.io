@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-**I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.**
+## **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** ##
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where the night in reality is a silent night.
@@ -62,7 +62,7 @@ My mom always felt like the ideal Southern woman, and I have felt angry sometime
 
 More broadly, I love home on earth with all of humanity.
 
-**I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.**
+## **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.** ##
 
 ## The South ##
 What is in the South?
@@ -215,7 +215,7 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 <br>
 
 
-**A Poem on Black Lives**
+## **A Poem on Black Lives** ##
 ## Seeing Black Lives ##
 They help the police force as police officers.
 So why are they being killed? Not all of them are.
@@ -249,7 +249,8 @@ They also love God, and they have great faith through adversity.
 So why do we not appreciate their roots at hymn sings more? The music is beautiful.
 
 
-**A Poem on Social Media**
+## **A Poem on Social Media** ##
+## Social Media Usage ##
 Why look her, or him up one more time? 
 Lurking on social media; why lurk behind the scenes again?
 I put a stop to the lurking, and control my usage.
@@ -291,7 +292,7 @@ Why do I not talk about race? To respect boundaries, to talk about more elevated
 <br>
 
 
-**I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.**
+## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.** ##
 
 ## The Ocean ##
 The ocean.
