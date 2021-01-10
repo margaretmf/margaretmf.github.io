@@ -14,9 +14,11 @@ Most recently, I have been learning about antiracism and working on photography 
 
 I am exploring how to paint the light in the darkness series, and looking to the light in the house and on the streets led me to explore using visual arts to understand electrical and civil engineering of homes and cities.
 
-I have also driven through 10 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Wisconsin, Ohio, Kentucky, West Virginia), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience. Kinesthetic learning, and experiential learning helps to understand visually and experientially the country. Listening to music and reading books, and meeting people in hotels also helps people understand what is going on.
+To reconcile being a career woman and a woman who loves home, I have started to think about all the activities inside and outside the home from an engineering and visual arts perspective.
 
-To learn to articulate feelings, I have started writing poetry.
+I have also driven through 10 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Wisconsin, Ohio, Kentucky, West Virginia), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience. Kinesthetic learning, and experiential learning helps to understand visually and experientially the country. Listening to music and reading books, and meeting people in hotels also helps people understand what is going on. While learning about farmland and country in America, as well as in Ireland and Scotland back in 2013, I also have an interest in farmland, country, logistics, and supply chain engineering in all countries on Earth.
+
+To learn to articulate feelings and thoughts, I have started writing poetry.
 
 
 <br>
