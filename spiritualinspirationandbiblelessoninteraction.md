@@ -58,7 +58,7 @@ Jesus saith unto him, Rise, take up thy bed, and walk. And immediately the man w
 
 * I am intelligent, and can tap into a divine sense of intelligence
 
-"The understanding that the Ego is Mind, and that there is but one Mind or intelligence, begins at once to destory the errors of mortal sense and to supply the truth of immortal sense. This understanding makes the body harmonious; it makes the nerves, bones, brain, etc., servants, instead of masters."
+"The understanding that the Ego is Mind, and that there is but one Mind or intelligence, begins at once to destroy the errors of mortal sense and to supply the truth of immortal sense. This understanding makes the body harmonious; it makes the nerves, bones, brain, etc., servants, instead of masters."
 
 
 * A prisoner of the Lord, not chained to anything or anyone else, or false sense, or guilt, or opinions
@@ -104,6 +104,8 @@ Our Father-Mother God, all-harmonious,
 Hallowed by Thy name.
 Adorable One."
 
-
+* Choosing to keep thoughts on the consciousness of God each moment, everywhere I go
+* Translating the objects of sense to the ideas of Soul
+* Choosing to love more of humanity 
 
 
