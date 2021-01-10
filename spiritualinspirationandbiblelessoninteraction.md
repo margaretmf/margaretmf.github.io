@@ -9,7 +9,7 @@
 
 * God understands me, my heart, and all my needs. 
 
-"The Lord is gracioius, and full of compassion;"
+"The Lord is gracious, and full of compassion;"
 
 
 * God is blessing everyone, and there's harmonious action for everyone in all our works.
@@ -61,7 +61,7 @@ Jesus saith unto him, Rise, take up thy bed, and walk. And immediately the man w
 "The understanding that the Ego is Mind, and that there is but one Mind or intelligence, begins at once to destory the errors of mortal sense and to supply the truth of immortal sense. This understanding makes the body harmonious; it makes the nerves, bones, brain, etc., servants, instead of masters."
 
 
-* A prisoner of the Lord, not chained to anything or anyone else
+* A prisoner of the Lord, not chained to anything or anyone else, or false sense, or guilt, or opinions
 
 "I therefore, the prisoner of the Lord, beseech you that ye walk worthy of the vocation wherewith ye are called,'
 "With all lowliness and meekness, with longsuffering, forbearing one another in love;
@@ -78,7 +78,7 @@ One God and Father of all, who is above all, and through all, and in you all."
 
 * One Father-Mother God, Lord of us all, we share the same ancestry, heritage, loyalty, spirit in the Spirit, and we can see this essence expressed
 
-"Jesus acknowledged no ties of the flesh. He said: 'Call no man your father upont he earth: for one is your Father, which is in heaven.'"
+"Jesus acknowledged no ties of the flesh. He said: 'Call no man your father upon the earth: for one is your Father, which is in heaven.'"
 "Again he asked: 'Who is my mother, and who are my brethren,' implying that it is they who do the will of his Father."
 "We have no record of his calling any man by the name of father. He recognized Spirit, God, as the only creator, and therefore as the Father of all."
 "the healing power of Truth and Love"
@@ -87,7 +87,7 @@ One God and Father of all, who is above all, and through all, and in you all."
 
 * Employed by God, to know everyone as God's daughters and sons
 
-"truthful arguents you employ", "spirit of Truth and Love", "heal the sick"
+"truthful arguments you employ", "spirit of Truth and Love", "heal the sick"
 "The Christian Scientist's argument rests on the Christianly scientific basis of being. The Scripture declares, 'The Lord He is God [good]; there is none else beside Him.'"
 
 
