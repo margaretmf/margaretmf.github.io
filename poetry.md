@@ -2022,7 +2022,7 @@ a lingering hellow, a savor.
 
 ## Growth ##
 A surge of frustration, anger, wants surge inside me.
-A purere sense of love for people and all mankind sprouts and begins to flower.
+A purer sense of love for people and all mankind sprouts and begins to flower.
 With the anger, frustration, comes the purer love.
 There's a swell of goodness going on the universe today.
 This I love.
