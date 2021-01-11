@@ -109,3 +109,32 @@ Adorable One."
 * Choosing to love more of humanity 
 
 
+## Week of , January 11, 2020 - 'Sacrament' - Inspiring Passages ##
+
+* Being encouraged by others' faith - mutually encouraged
+
+"that is, that we may be mutually encouraged by each other's faith, both yours and mine
+
+* God satisfies the desire of every living thing - the consciosness of Good, God is what we want
+
+"Thou openest thine hand, and satisfiest the desire of every living thing"
+
+* In everything I do I work with the consciouness of good, God, and sing a song in my heart, with love for those around me
+
+"All thy works shall praise thee, O Lord; and thy saints shall bless thee."
+
+* God has already provided infinite blessings, and a grateful heart expands my heart for what I love
+
+"God is not moved by the breath of praise to do more than He has already done, nor can the infinite do less than bestow all good, since He is unchanging wisdom and Love."
+
+* The blossom shines through the bud, the idea exists already
+
+"Love giveth to the least spiritual idea might, immortality, and goodness, which sine through all as the blossom shines through the bud."
+
+* If one has breath, and is living, moving, and alive, that living thing shall praise the living Lord, and the living Lord shall be with them, the Lord is always present in some way
+
+"Let every thing that hath breath praise the Lord. Praise ye the Lord."
+
+
+
+
