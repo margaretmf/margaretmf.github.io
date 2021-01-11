@@ -11,21 +11,23 @@ I sing with the stars, where everyone has a place.
 In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
 I know I am held so tightly because of how brightly the light shines.
 
-## Prison in Home ##
-Before the quarantine, I became a prison in my own home.
+## Prison in My Own Home ##
+Before the quarantine, I became a prisoner in my own home.
 I felt like I was quarantined before the quarantine.
 I felt like I was imprisoned before being imprisoned.
 I felt like I was ostracized, yet connected before feeling close to losing it all.
 I am compassionate, but I became something that does not represent my true self.
 I am genuine and real, but I became fake, a fraud, and spiteful.
 I was afraid, I felt hurt from opening up.
+I hated my sexuality.
 God was there, but I was not paying full attention.
 He was right, goodness was running after me, and angels proved that "goodness was running after me",
-but willfulness took over and used me.
+but willfulness, heaviness, and pain took over and used me.
 Knowing what's right, but doing what's wrong will lead to prison.
 Complaining when I could pause, and being grateful will lead to prison.
+Hitting back when you can forgive will lead to prison.
 
-## Home ##
+## Quarantine - Creativity, Regeneration, Rebirth, and Home ##
 
 ## Religious Liberty ##
 Christian Science embraces all religions, all churches, all races, and all of humanity.
@@ -37,25 +39,28 @@ I love all the churches, I love all the people, and I love that God forgives eve
 ## Opening Up ##
 Opening up to people about the negative thoughts, beliefs in the back of my thought, and things I should not say, feel, or believe. 
 How do I work through these thoughts, beliefs, and things?
-Opening up, feeling over-exposed, feeling naked metaphorically.
+Opening up, feeling over-exposed, feeling naked, literally or metaphorically.
 It leads to discomfort, something to shove down, or anger, and I express anger.
 This is not true opening up. This opening up is the discarding of darkness to be transformed into light.
 
 Opening up to the Holy Spirit, sense of joy, compassion, life, and childlikeness.
-This spirit of man, born of the Holy Spirit, is within everyone. 
-It is above the shadows in the back of people's thoughts, and it is below the physical appearance of man.
+This spirit of man, born of the Holy Spirit, is within everyone.
+It is reflected through the shadows in the back of people's thoughts, shining brighter than the shadows.
+It is greater than the physical appearance of man.
 Opening up to the sense of love within opens us up to people correctly to open up to the love within another.
+Opening up to the light causes man's eyes to light up with a sparkle and a glow.
+This is true opening up.
 
 ## The Democratic Republic and the Debate Inside My Head ##
 
 ## Children's Play and Hallucinations ##
-Little children play with dinosaurs, dress-up clothes, and wish lists to Santa Clause.
+Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
 Once in my twenties, people felt like I was tripping. Actually, I was tripping. I had been so depressed and stressed and felt so overweight that I starved myself for a whole semester. I was imagining things like a little kid does. None of it was real; it was twisted - the images and sounds were distorted, and they were not the full, big picture that God has.
 
-I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry, and it is embarassing and awkward to look back on.
+I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry; it's embarassing and awkward to look back on.
 
-After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room; even I felt like I saw a high school teacher riding his bike outside.
-Even thought everything felt "stranger than fiction", as they say, I could still feel God.
+After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room. I even felt like I saw a high school teacher riding his bike outside.
+Everything felt "stranger than fiction", as they say, but I could still feel God.
 My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong. But I was not fully sound mentally.
 It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack.
 I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
@@ -63,10 +68,12 @@ I could not move. I felt stuck, frozen, and after starving myself for so long, I
 After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter.
 I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
 
-I entered into the library. It felt almost like I was walking through a children's book or a video game, the light shining through the dark in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks.
+I wrote emails madly to a professor, sounding like a lunatic or a mad woman. I met with him face-to-face, in person. I remember sharing how I felt like I could understand the primitive nature of the Alphabet purely through intuition.
 
-Then I heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
-I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him and the ghost of me. It was the false him and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, and he called the police on me so I could be taken care of in the hospital.
+Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks. And then I remember going to the church nearby to see people dancing like children.
+
+I then heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
+I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, and he called the police on me so I could be taken care of in the hospital.
 
 It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
 
@@ -169,7 +176,19 @@ God does amazing work through the pain, and really opens us up to Her living rea
 ## Healing from The Tendency to Fight ##
 I want to fight back, react, send an email, kick a door, hit, or write a negative comment.
 I want to manipulate the situation to meet my wants.
-I want to yell out with anger and express rage to deal with the feelings of insecurity, inferiority, and 
+I want to yell out with anger and express rage to deal with the feelings of insecurity and inferiority.
+I want to run away, hide, lay in bed all day, or withdraw.
+And I have done these things.
+But I learn to pause.
+I learn to think things through.
+I learn to love more.
+I learn to ask better questions.
+I learn to apologize.
+I learn to forgive.
+I learn to see things from a different perspective.
+I learn to resurrect.
+I learn to exercise self-control.
+I learn to write poetry.
 
 ## Healing from Weird Words ##
 
@@ -276,8 +295,7 @@ It's a place to see the beauty and childlike grace and innocence expressed in ev
 People express joy in amazing ways and share that with everyone online.
 
 But why open up so much to strangers from a distance?
-Use wisdom, carefulness, and caution.
-Don't be someone from the outside looking in through the window you should not look through.
+Use wisdom, carefulness, and caution. Don't be someone from the outside looking in through the window you should not look through.
 
 Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
@@ -292,7 +310,7 @@ To see from a different angle.
 To shift a habit.
 To demonstrate order and cleanliness.
 
-## Race Why Do We Talk about Race? Why Do We Not Talk About Race? ##
+## Race - Why Do We Talk about Race? Why Do We Not Talk About Race? ##
 What is race? A group or category of people. There are individuals within the group or the category. People tend to rank individuals within the group or the category. Race is not the only way to rank or group.
 Why do I talk about race? To understand how someone perceives the world, to understand someone's cultural background, to appreciate the beauty of race, to understand someone in a different group.
 Why do I not talk about race? To respect boundaries, to talk about more elevated ideas above the physique.
