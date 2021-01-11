@@ -2021,6 +2021,23 @@ a lingering hellow, a savor.
 ## Forgiveness ##
 
 ## Growth ##
+A surge of frustration, anger, wants surge inside me.
+A purere sense of love for people and all mankind sprouts and begins to flower.
+With the anger, frustration, comes the purer love.
+There's a swell of goodness going on the universe today.
+This I love.
+And forever, the goodness of God unfolds.
+I am in harmony, in symphony with it.
+Mankind is made to prosper and bloom year to year as the flowers do.
+The bud within is made to open to full grace.
+
+<br>
+
+**Word Associations:** surge, prosper, flowering, sprout, swell, unfold, boost, bud
+
+
+<br>
+
 
 ## Hate ##
 
@@ -2035,6 +2052,22 @@ a lingering hellow, a savor.
 ## A Journey ##
 
 ## Judgment ##
+Ability to distinguish, to see what one needs to know about a situation.
+The intuition to know where to go, and how to handle a situation.
+The perception of the true heart within a neighbor.
+Prudence, the the discernment of what's wrong from right.
+The wisdom that goes before and helps one be patient through adversity.
+The knowledge that goes before and sides with the morality rootted in God.
+The saavy to stop what's not contributing to the higher good.
+The reason behind a choice.
+
+<br>
+
+**Word Associations:** acuen, savvy, reason, intuition, sense, perception, prudence, wisdom
+
+
+<br>
+
 
 ## Moving On ##
 
