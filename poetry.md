@@ -322,7 +322,7 @@ Why do I not talk about race? To respect boundaries, to talk about more elevated
 <br>
 
 
-## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally.** ##
+## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
 ## The Ocean ##
 The ocean.
@@ -1873,6 +1873,22 @@ Not held by the past, but a day made new by new affections, with the tingle brou
 
 
 ## A Walk ##
+I take a walk down memory lane.
+I stroll, and see all the good people and beautiful images that have touched my life.
+I feel the fresh air of good thoughts that cause me to breathe.
+The goodness of God is the pulse to my life that brings beauty to take photos of and a song to sing in my heart.
+I trace my footsteps back to the true thoughts and the ways God has moved me.
+The path ahead is wide open with the breeze in the background sounding like chimebells.
+I wander with love for the good, clear thinking and love coming out of every human's expression.
+I know there is infinitely more to love and learn during the next phase of the walk.
+
+<br>
+
+**Word Associations:** stroll, fresh air, pulse, footsteps, path, promenade, breeze, wander
+
+
+<br>
+
 
 ## Flavors ##
 
@@ -1991,6 +2007,21 @@ a lingering hellow, a savor.
 
 
 ## Control ##
+Control.
+Peace within gives control.
+Faith in oneself, others, and the harmonious unfolding of life gives control.
+There's a higher power controlling all aspects of life.
+I am governed by a harmonious force.
+In tough situations, I have dominion over the wrong.
+I restrain myself when I want to react.
+The authority is good, symphonious, and nothing is missing, or lacking.
+I cannot be swayed for evil under this control.
+An intelligent force is monitoring everything to keep everyone in check.
+
+<br>
+
+**Word Associations:** govern, dominion, restraint, clout, authority direct, sway, monitor
+
 
 ## Expectations ##
 
