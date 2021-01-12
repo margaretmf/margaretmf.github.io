@@ -135,6 +135,52 @@ Adorable One."
 
 "Let every thing that hath breath praise the Lord. Praise ye the Lord."
 
+* Practical religion - love the Lord thy God with all thy heart, soul, and mind in all thy do - the Lord thy God is one - love the Lord thy God shall influence us and our neighbors in all we do
+
+"Dost thou 'love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind'?"
+"This command includes much, even the surrender fo all merely material sensation, affection, and worship. This is the El Dorado of Christianity."
+
+* the divine Being - "One Altogether Lovely"
+
+"The Divine Being must be reflected by man, - else man is not the image and likeness of the patient, tender, and true, the One 'altogether lovely;' but to understand God is the work of eternity, and demands absolute consecration of thought, energy, and desire"
+
+* obey God
+
+"Not materially but spirituall we know Him as divine Mind, as Life, Truth, and Love. We shall obey and adore in proportion as we apprehend the divine nature and love Him understandingly, warring no more over the corporeality, but rejoicing in the affluence of our God. Religion will then be of the heart and not of the head."
+
+* divine service - daily deeds
+
+"It is ad that the phrase divine service has come so generally to mean public worship instead of daily deeds."
+
+* everyone helps each other grow and progress, man is infinitely progressing
+
+"The rich in spirit help the poor in one grand brotherhood, all having the same Principle, or Father; and blessed si that man who seeth his brother's need and supplieth it, seeking his own in another's good."
+
+* Love - the vital part
+
+"The vital part, the heart and soul of Christian Science, is Love."
+
+* abundant grace from the Lord
+
+"And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus"
+
+* giving does not impoverish us
+
+"Giving does not impoverish us in the service of our Maker, neither does withholding enrich us."
+
+* God is Love, within, nothing more
+
+"God is Love. Can we ask Him to be more?"
+"Shall we plead for more at the open fount, which is pouring forth more than we accept? THe unspoken desire does bring us nearer the source of all existence and blessedness."
+
+* Why do we feel other things? Why don't we always experience God?
+"A false sense of life, substance, and mind hides the divine possibilities, and coneals scientific demonstration."
+
+* No other power but unselfed love
+"As mortals gain more correct views of God and man, multitudinous objects of creation, which before were invisible, will become visible. When we realize that Life is Spirit, never in nor of matter, this understanding will expand into self-completenes, finding all in God, good, and needing no other consciousness."
+
+
+
 
 
 
