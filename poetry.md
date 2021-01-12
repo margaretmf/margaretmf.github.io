@@ -25,7 +25,35 @@ He was right, goodness was running after me, and angels proved that "goodness wa
 but willfulness, heaviness, and pain took over and used me.
 Knowing what's right, but doing what's wrong will lead to prison.
 Complaining when I could pause, and being grateful will lead to prison.
-Hitting back when you can forgive will lead to prison.
+Hitting back when I can forgive will lead to prison.
+
+## A Poem for a Marriage, a Wedding ##
+In your weddedness to God,
+your union eternal exists
+in a house undivided.
+
+In weddedness to God,
+I am grateful to share
+happiness with Mary for 
+3 generations of Furr women.
+
+What blesses one blesses all,
+so the union can only bless everyone." 
+
+## Confidence ##
+"with faith"..."in God"
+Being so one with God that one can be happy for all of those around you.
+Being able to express help to someone who seems to be struggling and being confident in his or her ability.
+Feeling at ease in the body.
+Being able to admit to mistakes and accept rebukes with joy for how to become better.
+Being so rooted in God that there's no reason to react because there's a knowledge that God's idea is fit somehwere.
+Being free from the pull to compare or judge or feel judged.
+
+## Forgiveness ##
+Forgiveness, returning to the original, the point of origin, the home, where all are welcome, trusted, brethren, sharing happiness, sharing the same Father-Mother.
+
+## Divine Right ##
+It's your divine right to be free, whole, singing, healed, joyful, purposeful, employed.
 
 ## "Love Chases the Storms Away"
 Love and life within chases the storms away.
