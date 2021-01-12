@@ -15,7 +15,7 @@
 * God is blessing everyone, and there's harmonious action for everyone in all our works.
 
 I seek to do the right thing, and go to God to say the right thing in everything I do. I do not need to be anxious about anything, I turn to God to know the right thing to do, and the right thing to say or write.
-"he Lord is good to all: and his tender mercies are over all his works."
+"the Lord is good to all: and his tender mercies are over all his works."
 
 
 * I am wedded to the consciousness of good, divine Love. I am employed by God.
@@ -73,7 +73,7 @@ One God and Father of all, who is above all, and through all, and in you all."
 
 * Being and feeling led to heal people by God; God leads us to heal
 
-"Having one God, one Mind, unfolds the power that heals the sick, and fulfiles these sayings of Scripture, 'I am the Lord that healeth thee,' and 'I have found a ransom.'"
+"Having one God, one Mind, unfolds the power that heals the sick, and fulfills these sayings of Scripture, 'I am the Lord that healeth thee,' and 'I have found a ransom.'"
 
 
 * One Father-Mother God, Lord of us all, we share the same ancestry, heritage, loyalty, spirit in the Spirit, and we can see this essence expressed
@@ -115,7 +115,7 @@ Adorable One."
 
 "that is, that we may be mutually encouraged by each other's faith, both yours and mine
 
-* God satisfies the desire of every living thing - the consciosness of Good, God is what we want
+* God satisfies the desire of every living thing - the consciousness of Good, God is what we want
 
 "Thou openest thine hand, and satisfiest the desire of every living thing"
 
@@ -129,7 +129,7 @@ Adorable One."
 
 * The blossom shines through the bud, the idea exists already
 
-"Love giveth to the least spiritual idea might, immortality, and goodness, which sine through all as the blossom shines through the bud."
+"Love giveth to the least spiritual idea might, immortality, and goodness, which shine through all as the blossom shines through the bud."
 
 * If one has breath, and is living, moving, and alive, that living thing shall praise the living Lord, and the living Lord shall be with them, the Lord is always present in some way
 
@@ -146,15 +146,15 @@ Adorable One."
 
 * obey God
 
-"Not materially but spirituall we know Him as divine Mind, as Life, Truth, and Love. We shall obey and adore in proportion as we apprehend the divine nature and love Him understandingly, warring no more over the corporeality, but rejoicing in the affluence of our God. Religion will then be of the heart and not of the head."
+"Not materially but spiritually we know Him as divine Mind, as Life, Truth, and Love. We shall obey and adore in proportion as we apprehend the divine nature and love Him understandingly, warring no more over the corporeality, but rejoicing in the affluence of our God. Religion will then be of the heart and not of the head."
 
 * divine service - daily deeds
 
-"It is ad that the phrase divine service has come so generally to mean public worship instead of daily deeds."
+"It is sad that the phrase divine service has come so generally to mean public worship instead of daily deeds."
 
 * everyone helps each other grow and progress, man is infinitely progressing
 
-"The rich in spirit help the poor in one grand brotherhood, all having the same Principle, or Father; and blessed si that man who seeth his brother's need and supplieth it, seeking his own in another's good."
+"The rich in spirit help the poor in one grand brotherhood, all having the same Principle, or Father; and blessed is that man who seeth his brother's need and supplieth it, seeking his own in another's good."
 
 * Love - the vital part
 
@@ -174,7 +174,7 @@ Adorable One."
 "Shall we plead for more at the open fount, which is pouring forth more than we accept? THe unspoken desire does bring us nearer the source of all existence and blessedness."
 
 * Why do we feel other things? Why don't we always experience God?
-"A false sense of life, substance, and mind hides the divine possibilities, and coneals scientific demonstration."
+"A false sense of life, substance, and mind hides the divine possibilities, and conceals scientific demonstration."
 
 * No other power but unselfed love
 "As mortals gain more correct views of God and man, multitudinous objects of creation, which before were invisible, will become visible. When we realize that Life is Spirit, never in nor of matter, this understanding will expand into self-completenes, finding all in God, good, and needing no other consciousness."
