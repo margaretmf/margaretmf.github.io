@@ -27,6 +27,16 @@ Knowing what's right, but doing what's wrong will lead to prison.
 Complaining when I could pause, and being grateful will lead to prison.
 Hitting back when you can forgive will lead to prison.
 
+## "Love Chases the Storms Away"
+Love and life within chases the storms away.
+After the storm, the tree branches lie on the ground.
+The leaves have fallen, and the rain has gone away.
+The sun reflects through the puddles on the ground.
+The water evaporates in the sun that shines.
+The residue from the storms falls way.
+Life continues with freshness.
+The light of love and life chases the storm away, leaving no room for negativity, and only gives room for rebirth and renewal.
+
 ## Quarantine - Creativity, Regeneration, Rebirth, and Home ##
 
 ## Religious Liberty ##
@@ -94,51 +104,7 @@ My mom always felt like the ideal Southern woman, and I have felt angry sometime
 
 More broadly, I love home on earth with all of humanity.
 
-## **I am interested in music lyrics that represent Freedom, Women's Independence, The Union, and I am exploring with these words.** ##
-
-## The South ##
-What is in the South?
-Friendly neighbors, lightness of heart, good food - grits, pumpkin pie, pecan pie, oyster stuffing, and white houses and amazing nurses, and teachers.
-Good music - bluegrass, country, the blues, and jazz, and bridges to the West Coast.
-Equality for all.
-A connection to the land.
-A love of home and family.
-Freedom from racial, gender, and cultural politics.
-
-## The Country Music and the Rejection ##
-Did it heal your relationship to the Country or the country?
-It healed my relationship to the Country and the country.
-I was already from the South, but negative memories of the South and race infiltrated my thought.
-I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
-I was already aware of the lumber industry, but it brought me one step closer to it.
-I already knew Tennessee and bluegrass music, but it brought me one step closer to the Blues.
-I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
-I thought I was relating to the South, but it made me aware of the West.
-I had already been to South America, but it brought me more love for the South Americans.
-I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish and Irish music.
-I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
-I had already felt denied by Southern culture, but it woke me up to my Southern mom.
-I was already aware of the trucks at the Port and on the roads, but it led me to love the truck drivers more.
-I had thought Country music was just for White People, but I realized I already listened to country music produced by Black people.
-I denied that the music was for me, and prayed that there was another woman the song was for.
-I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
-I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
-I fel down hard to the ground, and the Black man saved my life with good cheer, good faith, and a good conversation.
-When listening more deeply, it reminded me of the guy next door, and woke me up to how he viewed the world.
-I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
-
-## Cars on the Roads #
-In the red, white, and blue, where there are all sorts of people.
-Every one is individual.
-There are cool blue and brown buicks, sweet red trucks, sophisticated gray and black CRVs, all driving on the same roads.
-Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
-## engineering, math, the distance between cars, everyone is individual, a sea of cars ##
-
-## America ## 
-Digging into the depth of the earth, wedded to the earth,
-where the soil is thick
-and knows her story
-and leaves room for all to grow in their own way.
+## **Listening to country music inspired me to write some poetry.** ##
 
 ## The Lone Bird ##
 The bird flies in solitude across the land.
@@ -189,6 +155,51 @@ I learn to see things from a different perspective.
 I learn to resurrect.
 I learn to exercise self-control.
 I learn to write poetry.
+
+## The South ##
+What is in the South?
+Friendly neighbors, lightness of heart, good food - grits, pumpkin pie, pecan pie, oyster stuffing, and white houses and amazing nurses, and teachers.
+Good music - bluegrass, country, the blues, and jazz, and bridges to the West Coast.
+Equality for all.
+A connection to the land.
+A love of home and family.
+Freedom from racial, gender, and cultural politics.
+
+## The Country Music and the Rejection ##
+Did it heal your relationship to the Country or the country?
+It healed my relationship to the Country and the country.
+I was already from the South, but negative memories of the South and race that infiltrated my thought were chased away.
+I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
+I was already aware of the lumber industry, but it brought me one step closer to it.
+I already knew Tennessee and bluegrass music, but it brought me one step closer to this light-hearted music as well as the Blues.
+I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
+I thought I was relating to the South, but it made me aware of the beauty of the West.
+I had already been to South America, but it brought me more love for the South Americans.
+I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish and Irish music.
+I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
+I had already felt denied by Southern culture, but it woke me up to my Southern mom.
+I was already aware of the trucks at the Port and on the roads, but it led me to love the truck drivers more.
+I had thought Country music was just for White People, but I realized I already listened to country music produced by African Americans.
+I denied that the music was for me, and prayed that there was another woman the song was for.
+I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
+I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
+He broke away, and I trusted he was led to something better. 
+When listening more deeply, it reminded me of my high school friend, and woke me up to how he viewed the world in a clearer light.
+I fell down hard to the ground, learned some life lessons, and the Black man saved my life with good cheer, good faith, and a good conversation.
+I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
+
+## Cars on the Roads #
+In the red, white, and blue, where there are all sorts of people.
+Every one is individual.
+There are cool blue and brown buicks, sweet red trucks, sophisticated gray and black CRVs, all driving on the same roads.
+Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
+## engineering, math, the distance between cars, everyone is individual, a sea of cars ##
+
+## America ## 
+Digging into the depth of the earth, wedded to the earth,
+where the soil is thick
+and knows her story
+and leaves room for all to grow in their own way.
 
 ## Healing from Weird Words ##
 
