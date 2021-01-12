@@ -104,7 +104,7 @@ My mom always felt like the ideal Southern woman, and I have felt angry sometime
 
 More broadly, I love home on earth with all of humanity.
 
-## **Listening to country music inspired me to write some poetry.** ##
+## **Listening to country music inspired me to write some poetry on solitude, being single, independence and breaking up.** ##
 
 ## The Lone Bird ##
 The bird flies in solitude across the land.
@@ -144,8 +144,8 @@ I want to fight back, react, send an email, kick a door, hit, or write a negativ
 I want to manipulate the situation to meet my wants.
 I want to yell out with anger and express rage to deal with the feelings of insecurity and inferiority.
 I want to run away, hide, lay in bed all day, or withdraw.
-And I have done these things.
-But I learn to pause.
+And I have done these things...
+...But I learn to pause...
 I learn to think things through.
 I learn to love more.
 I learn to ask better questions.
@@ -245,7 +245,7 @@ No hurt can reach the child within, we all express this sweet, childlike innocen
 The sound of silence is so grand, so great, so beautiful.
 In the silence, I can hear the greatest music, the greatest song of all.
 In the silence, I feel the leaves, the rain, the sun, the breeze, the road, the trucks, the goodness of all the people on both side of politics.
-I made myself vulnerable, started opening up, felt guilt and then shame, and then embarassment, then violent, and then anger.
+I made myself vulnerable, started opening up, felt guilt and then shame, and then embarassment, then violent, and then angry.
 I opened up in the wrong way.
 There was silence, no response, feelings of inferiority. I fell, and stooped so low in violence.
 I rose up higher with a bounce in my step, a love for someone else, and a resilient sense of being.
@@ -333,7 +333,24 @@ Why do I not talk about race? To respect boundaries, to talk about more elevated
 <br>
 
 
+## The American Chain [Written in 2010] ##
+As a chld, I gerw up singing 'Iam proud to be an American' like many of my peers. I never knew what it meant to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for hom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are'. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
+
+A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Obama began his speech the responses from everyone in the audience gave a feel of community support. Everyone was there for a common rreason; to support Obama, to support the Democrats, and most of all to support the United States of America. I felt love from each person standing near me. Everyone stood in a tight place, for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
+
+I had a similar experience in October 2008 when I went to another Barack Obama rally at the Tides' Stadium one week before the election. This event strengthened my love of being present in a community of Americans. Everyone had to behave and work together in the thirty degree weather to make the rally successful. Once again, each person I saw expressed friendliness and happiness. People stood in line patiently for hours before entering the stadium. Friends and neighbors helped each other when rushing through security. Volunteers gave their time to guide people to open seats.
+
+Finally, in January 2009, on the Inaugaration Day, although I was not there, I watched the big event on television. As I watched the millions of people there, I could feel the preesnce of a true society. That day was truly a day full of nonpartisanship and support for America from everyone. Everyone supported Barack Obama on this day, a day of uniting America together. I not only truly felt like an American on that special day, but I also loved being an American. I wanted to make a difference for my country.
+
+Throughout Obama's campaign and these three events, because I have grown love my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the "Homework Help" program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
+
+Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be repsented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the smae world, light and alive and apparent inside the drop" (577). Each individual, desptie his class, race, or gender matters. Each individual can contribute soemthing to our society. Each individual ahs the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
+
+<br>
+
+
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
 
 ## The Ocean ##
 The ocean.
