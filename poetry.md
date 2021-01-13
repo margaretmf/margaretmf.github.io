@@ -2080,6 +2080,17 @@ An intelligent force is monitoring everything to keep everyone in check.
 
 
 ## Expectations ##
+An expectation - a knowing that something good will happen.
+Founded in a promise that there will be akind person, a wake up call, something new to learn/
+Rested in a motive to understand life and improve.
+Based in a hope for the divine reality of mankind coming to full fruition.
+Association with a potential action springing from a thought in God.
+Supported by the design of the universe causing good prospects to live always.
+
+<br>
+
+**Word Associations:** promise, notion, supposition, design, motive, prospects, hope, potential
+
 
 ## Blessings ##
 
@@ -2102,6 +2113,16 @@ An intelligent force is monitoring everything to keep everyone in check.
 ## Colors ##
 
 ## Conflict ##
+A fight over something or someone.
+The strife that comes with feeling like you want something but knowing it's not good for you.
+The clash of perspectives and ways of seeing the world that are unaligned with the common reality.
+A break of trust between people.
+A fray of ideas unraveling in agitation.
+
+<br>
+
+**Word Associations:** fray, breach, clash, rival, contest, embroil, protagonist, strife
+
 
 ## Creation ##
 
