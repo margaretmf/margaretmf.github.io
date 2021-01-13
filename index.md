@@ -8,7 +8,9 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
-I am **Margaret Furr**, and I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
+I am **Margaret Furr**, and I am a graduate of the University of Virginia. I love the values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness. I seek to learn something new every day to stay alive. I love how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible - always in the name of the greater good."
+
+and I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
 
 Most recently, I have been learning about antiracism and working on photography of light in the darkness and continuing the work to "Take Back the Night."
 
