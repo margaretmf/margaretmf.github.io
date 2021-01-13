@@ -300,9 +300,8 @@ Americans, tied to the land, has a new day in the sun.
 The land belongs to everyone.
 America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
 
-
-<br>
-
+## Constant Evolution ##
+There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
 
 ## **A Poem on Black Lives** ##
 ## Seeing Black Lives ##
