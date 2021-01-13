@@ -179,6 +179,31 @@ Adorable One."
 * No other power but unselfed love
 "As mortals gain more correct views of God and man, multitudinous objects of creation, which before were invisible, will become visible. When we realize that Life is Spirit, never in nor of matter, this understanding will expand into self-completenes, finding all in God, good, and needing no other consciousness."
 
+* Jesus - the Holy Spirit, the bread of life
+"I am the bread of life"
+always fed, and nourished, and supplied
+
+* Jesus - fed the multiples, enough for everyone
+"And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick"
+
+* There's enough for everyone, and what God blesses with one is blessing others as well, and the blessing is infinitely expanding
+"In the scientific relation of God to man, we find that hwatever blesses one blesses all, as Jesus showed with the loaves and the fishes, - Spirit, not matter, being the source of supply"
+
+* Jesus demonstrated the divine power for everyone, not just a select few
+"It is not well to imagine that Jesus demonstrated the divine power to heal only for a select number or for a limited period of time, since to all mankind and in every hour, divine Love supplies all good"
+
+* Demonstrate what we know; Truth is demonstrable; make it known
+"Truth is demonstrable when understood"
+
+* Look beyond the fading, look to reality
+"Mortals must look beyond faiding finite forms, if they would gain the true sense of things."
+
+* Thy will be done
+"When the human element in him struggled with the divine, our great teacher said: 'Not my will, but Thine, be done!'"
+
+* Healing Work
+"take up the cross, heal the sick, cast out evils, and preach Christ, or Truth
+
 
 
 
