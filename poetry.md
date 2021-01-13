@@ -55,6 +55,15 @@ Forgiveness, returning to the original, the point of origin, the home, where all
 ## Divine Right ##
 It's your divine right to be free, whole, singing, healed, joyful, purposeful, employed.
 
+## Morality ##
+Moral freedom founded in the consciousness of good, and doing good, where there exists only the righteous thoughts, not the thoughts of want.
+Moral freedom founded in the consciousness of joy, and being joyful, where there exists only the desire to see the light in others and be grateful and happy for them.
+Is the act life-giving? Then it's morally right.
+Is the act loving? Then it's morally just.
+Is the act truthful, honest, factual, and just? Then it's moral.
+Is the act principled, ordered, and balanced? Then it's moral.
+The place within where there's moral freedom is where there's a consciousness so filled with love and light, and no room for fear. anger, false judgment, want, or disappointment.
+
 ## "Love Chases the Storms Away"
 Love and life within chases the storms away.
 After the storm, the tree branches lie on the ground.
