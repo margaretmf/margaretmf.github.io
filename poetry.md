@@ -48,6 +48,11 @@ Welcome humanity, and the world into your heart with love
 Close the door to peering into the lives of others
 Trust they are right where they are meant to be
 
+## Words Cannot Express ##
+Words cannot express the deep things of God.
+Awareness of the Christ is key to healing.
+God moves people with compassion to discover the Christ expressed in everyone.
+
 ## Confidence ##
 "with faith"..."in God"
 Being so one with God that one can be happy for all of those around you.
