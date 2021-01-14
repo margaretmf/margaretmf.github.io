@@ -173,6 +173,16 @@ trust, love, and joy in the depths of my soul,
 goodness that is greater than evil
 and a light that embraces everything through all the Earth.
 
+## Our Country ##
+Everyone in our contry are like stars shining on the American flag
+The light cna't burn out.
+The people are so innocent.
+THe water flows steadily through the channels, giving us peace and restoration.
+Forever in the night, the stars do shine.
+Our hearts burn.
+Everyone in the country, everyone on the Earth has a light like the star that burns, and shines.
+God holds us all amazingly int act, in one grand brotherhood, sisterhood.
+
 ## The Rose Within ##
 There is a rose within everyone's heart.
 It must be watered, it must be nourished.
