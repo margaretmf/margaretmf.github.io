@@ -40,6 +40,14 @@ happiness with Mary for
 What blesses one blesses all,
 so the union can only bless everyone." 
 
+## A New Day ##
+It's a new day
+Open your window to the sunlight
+Take a deep breatha nd smile
+Welcome humanity, and the world into your heart with love
+Close the door to peering into the lives of others
+Trust they are right where they are meant to be
+
 ## Confidence ##
 "with faith"..."in God"
 Being so one with God that one can be happy for all of those around you.
@@ -51,6 +59,9 @@ Being free from the pull to compare or judge or feel judged.
 
 ## Forgiveness ##
 Forgiveness, returning to the original, the point of origin, the home, where all are welcome, trusted, brethren, sharing happiness, sharing the same Father-Mother.
+
+## Life Lessons and the Next Generation ##
+Life lessons are continuing in beautiful ways through the next generation.
 
 ## Divine Right ##
 It's your divine right to be free, whole, singing, healed, joyful, purposeful, employed.
@@ -264,6 +275,19 @@ Driving by the train tracks, feeling the freshness of the Rivers, and seeing the
 America felt new, yet the same.
 I remembered my family, and the deep, deep roots that run through the ground.
 I saw why people want to #MakeAmericaGreatAgain, but it has always been great and will always be great.
+
+## Letting It Go ##
+I never wanted to let him, her go 
+He/she was so close to home
+I had prayed for so long
+I prayed for the wrong thing
+I learned to pray to lover ha and him
+ANd i let it go
+
+Finding the beauty all around
+I let it go
+I entered a new day and opened my ehart again
+No one can steal my heart
 
 ## It Starts At the Port ##
 It starts at the port.
