@@ -34,6 +34,21 @@
 (5) The spirit fo Thomas Jefferson's work in farmland
 (6) COVID-19 talk
 
+## Day 3 ##
+### Images ###
+(1) The fan blowing
+(2) Intuition telling me I'm secure
+(3) Peace within from God
+(4) Water running over
+(5) Floor noises
+
+### Sounds ###
+(1) Christmas lights
+(2) Stacks of clothes
+(3) A book on the bed
+(4) Laundry
+(5) A blanket
+
 ### Ideas ###
 * Trucks, Ports, Trains, Ships
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
