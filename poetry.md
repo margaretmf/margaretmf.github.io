@@ -41,12 +41,29 @@ What blesses one blesses all,
 so the union can only bless everyone." 
 
 ## A New Day ##
-It's a new day
+It's a new day 
 Open your window to the sunlight
-Take a deep breatha nd smile
+Take a deep breath and smile
 Welcome humanity, and the world into your heart with love
 Close the door to peering into the lives of others
 Trust they are right where they are meant to be
+
+## A New Day ##
+It is a new day,
+the fan is blowing,
+the water is running,
+the sound of silence plays in the background.
+
+I made mistakes, reacted out of anger yesterday, yet again.
+
+But the sun is dawning on a new todayl and I can choose to reform, let go.
+
+The sun is shining on the Earth in a new angle, shedding new perspectives on things.
+
+## The Darkness ##
+In the dark, when I am all alone
+The light falshing through the car in front of me can't scare me
+The light within guiding me with intelligence, peace, security is so strong as the light flashing through the car
 
 ## Words Cannot Express ##
 Words cannot express the deep things of God.
@@ -180,7 +197,7 @@ and a light that embraces everything through all the Earth.
 
 ## Our Country ##
 Everyone in our contry are like stars shining on the American flag
-The light cna't burn out.
+The light can't burn out.
 The people are so innocent.
 THe water flows steadily through the channels, giving us peace and restoration.
 Forever in the night, the stars do shine.
@@ -279,6 +296,11 @@ I have driven down these roads before
 but I see them, the people, the homes in a new light.
 Everything grows richer, deeper, fuller, and more alive.
 I see the beauty, not the poverty.
+
+## Looking Deeper, Looking Wider ##
+Looking deeper, looking wider, I find my home, the truth
+I find the place where everyone, everything is interconnected
+where bad memories are replaced, new pictures captured
 
 ## Letting It Go and Moving On ##
 When he let me go, I got in the car.
