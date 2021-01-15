@@ -205,6 +205,13 @@ Our hearts burn.
 Everyone in the country, everyone on the Earth has a light like the star that burns, and shines.
 God holds us all amazingly int act, in one grand brotherhood, sisterhood.
 
+## The Union ##
+North, South, East, West
+We all stand in this union, 
+where everything is interconnected, 
+rising above the conflict, the chaos, 
+finding our common bond, and the bridge to the other side
+
 ## The Rose Within ##
 There is a rose within everyone's heart.
 It must be watered, it must be nourished.
