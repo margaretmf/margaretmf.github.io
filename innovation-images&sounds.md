@@ -64,12 +64,28 @@
 (4) A heart in the morning filled with love for all humanity
 (5) The pen touching the paper
 
-### Sounds ###
+## Day 5 ##
+### Images ###
 (1) Christmas lights
 (2) Stacks of clothes
 (3) A book on the bed
 (4) Laundry
 (5) A blanket
+
+## Day 6 ##
+### Images ###
+(1) Butter on the table
+(2) Piano in the living room
+(3) Clothes on the floor
+(4) Clothes hangin
+(5) Spiritual books on the desk 
+
+### Sounds ### 
+(1) The sound of an innocenter heart
+(2) Water running
+(3) Law mowing
+(4) The piano playing
+(5) A hymn coming out my mouth "come cast your burdens on the Lord"
 
 ### Ideas ###
 * Trucks, Ports, Trains, Ships
