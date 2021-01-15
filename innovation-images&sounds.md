@@ -49,6 +49,28 @@
 (4) Laundry
 (5) A blanket
 
+## Day 4 ##
+### Images ##
+(1) Sheep in West Virginia
+(2) Blue-purple mountains
+(3) Household objects, photography
+(4) Greenery in Ireland
+(5) American flags in front of houses, blowing with the wind
+
+### Sounds ###
+(1) The clickity clask of the dishes clanking in the Thursday morning dishwasher
+(2) The air blowing in the bathroom
+(3) The sound of a Irish-Scottish accent
+(4) A heart in the morning filled with love for all humanity
+(5) The pen touching the paper
+
+### Sounds ###
+(1) Christmas lights
+(2) Stacks of clothes
+(3) A book on the bed
+(4) Laundry
+(5) A blanket
+
 ### Ideas ###
 * Trucks, Ports, Trains, Ships
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
