@@ -1111,7 +1111,6 @@ Say no to the enemy, and say yes to Love.
 
 <br>
 
-
 **Word Associations:** combat, hostility, strife, bloodshed, allies, enemy, army, conflict
 
 
@@ -2088,6 +2087,18 @@ Be grateful for Zen.
 ## Independence ##
 
 ## Reliability ##
+Childlike innocence in tact.
+Even after doing something wrong, the intuition of what's right is constant and incorrupt.
+The source of all knowledge reliably points us back to our decency, and what character traits are solid within.
+The upright spirit choosing to be joyful, creative, loving, disciplined, complete, honorable, and not touched by anger is within.
+Staunch, and committed to reaching the goal.
+
+<br>
+
+**Word Associations: incorrupt, honorable, constant, solid, trusty, staunch, decency, upright
+
+<br>
+
 
 ## Patience ##
 Wanting to react, but choosing to pause.
