@@ -87,6 +87,59 @@
 (4) The piano playing
 (5) A hymn coming out my mouth "come cast your burdens on the Lord"
 
+## Day 7 ##
+### Images ###
+(1) Red trucks
+(2) Christmas decorations in Kentucky on fences
+(3) Bank loan buildings
+(4) A yellow bridge besides other bridges
+(5) The river in Kentucky
+(6) Clouds in the sky that represent a childlike adventure in Life
+(7) the America Kentucky brother birds in the diner
+
+### Sounds ###
+(1) A motorcycle
+(2) People talking in the diner with a grough voice
+(3) Birds chirps
+(4) People praying for Brianna Taylor with the fire
+(3) "Jesus Loves" and Christian bumper sticker
+(6) The voice of Nam saying "good morning"
+(7) Faf's Christmas music playing on the piano
+
+## Day 8 ##
+### Sounds ###
+(1) A motorcycle
+(2) People talking in the diner with a grough voice
+(3) Birds chirps
+(4) People praying for Brianna Taylor with the fire
+(3) "Jesus Loves" and Christian bumper sticker
+(6) The voice of Nam saying "good morning"
+(7) Faf's Christmas music playing on the piano
+
+## Day 9 ##
+### Images ###
+(1) Christmas wreaths on white fences
+(2) Christmas shopping in the city
+(3) Brick buildings
+(4) A church
+(5) A flag in front of a bank
+
+### Sounds ###
+(1) Spanish music
+(2) A friend's voice on the call
+(3) Church bells ringing on a Sunday
+(4) A boy yelling while on a bike
+(5) Boys yelling "warm water, warm water"
+(6) Girls saying "hello" sweetly and innocently
+
+## Day 10 ##
+### Sounds ### 
+(1) The sound of an innocent heart
+(2) Water running
+(3) Law mowing
+(4) The piano playing
+(5) A hymn coming out my mouth "come cast your burdens on the Lord"
+
 ### Ideas ###
 * Trucks, Ports, Trains, Ships
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
