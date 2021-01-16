@@ -12,7 +12,7 @@ is_contact: true
 (3) River flowing
 (4) Homes on Cumberland Plateau
 (5) Brown trees, natural pristine in the dawn of winter along American highway
-(6) AN old school bus
+(6) An old school bus
 (7) Run down gas station
 
 ### **Sounds** ###
@@ -32,7 +32,7 @@ is_contact: true
 
 ### **Sounds** ###
 (1) Christmas music playing on the radio "two birds of a feather"
-(20 John Denver, Johnny Cash songs playing on the radio
+(2) John Denver, Johnny Cash songs playing on the radio
 (3) Jazz music playing in the home
 (4) Classical music playing in the hotel in Wilwaukee, Wisconsin
 (5) The spirit fo Thomas Jefferson's work in farmland
@@ -85,7 +85,7 @@ is_contact: true
 (5) Spiritual books on the desk 
 
 ### **Sounds** ### 
-(1) The sound of an innocenter heart
+(1) The sound of an innocent heart
 (2) Water running
 (3) Law mowing
 (4) The piano playing
