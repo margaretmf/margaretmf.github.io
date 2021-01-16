@@ -1,4 +1,9 @@
 
+---
+layout: default
+is_contact: true
+---
+
 ## Images & Sounds ##
 
 ## Day 1 ##
