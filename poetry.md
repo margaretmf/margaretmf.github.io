@@ -153,7 +153,7 @@ I wrote emails madly to a professor, sounding like a lunatic or a mad woman. I m
 Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks. And then I remember going to the church nearby to see people dancing like children.
 
 I then heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
-I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, and he called the police on me so I could be taken care of in the hospital.
+I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, like Mary Poppins, who taught children to "find the fun in every job that must be done", and he called the police on me so I could be taken care of in the hospital.
 
 It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
 
@@ -293,6 +293,8 @@ and leaves room for all to grow in their own way.
 ## Healing from Email Attacks ##
 
 ## Opening Up, Anger, Strife ##
+Shoving the things down that I should not share
+Feeling uncomfortable, embarassed, and over-exposed
 
 ## Industry 2.0 ##
 
