@@ -86,6 +86,10 @@ Being free from the pull to compare or judge or feel judged.
 ## Forgiveness ##
 Forgiveness, returning to the original, the point of origin, the home, where all are welcome, trusted, brethren, sharing happiness, sharing the same Father-Mother.
 
+## The Healing ##
+The healing is there; it's already within
+There's nothing to change; just the true ideas welling within to ressurect and live
+
 ## Life Lessons and the Next Generation ##
 Life lessons are continuing in beautiful ways through the next generation.
 
@@ -97,7 +101,7 @@ Moral freedom founded in the consciousness of good, and doing good, where there 
 Moral freedom founded in the consciousness of joy, and being joyful, where there exists only the desire to see the light in others and be grateful and happy for them.
 Is the act life-giving? Then it's morally right.
 Is the act loving? Then it's morally just.
-Is the act truthful, honest, factual, and just? Then it's moral.
+Is the act truthful, honest, factual, and just? Then it's morally correct.
 Is the act principled, ordered, and balanced? Then it's moral.
 The place within where there's moral freedom is where there's a consciousness so filled with love and light, and no room for fear. anger, false judgment, want, or disappointment.
 
@@ -311,7 +315,7 @@ Everything grows richer, deeper, fuller, and more alive.
 I see the beauty, not the poverty.
 
 ## Looking Deeper, Looking Wider ##
-Looking deeper, looking wider, I find my home, the truth
+Looking deeper, looking wider, I find my home, and the truth within
 I find the place where everyone, everything is interconnected
 where bad memories are replaced, new pictures captured
 
@@ -332,9 +336,9 @@ He/she was so close to home
 I had prayed for so long
 I prayed for the wrong thing
 I learned to pray to lover ha and him
-ANd i let it go
+And I let it go
 
-Finding the beauty all around
+In finding the beauty all around
 I let it go
 I entered a new day and opened my ehart again
 No one can steal my heart
@@ -362,6 +366,11 @@ There was silence, no response, feelings of inferiority. I fell, and stooped so 
 I rose up higher with a bounce in my step, a love for someone else, and a resilient sense of being.
 I tried to apologize, I saw more deeply, learned grander lessons, and felt the true sound of silence in my own heart rather than the sound of silence coming from someone not accepting of me reaching out.
 Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
+
+## Children's Play ##
+Playing on the keys without words
+I discover a joy and a light in the sound that reminds me of little kids on a playground
+No words are needed because the color and the youthfulness are in the sound bouncing with joy
 
 ## The Agitation in America ##
 When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
