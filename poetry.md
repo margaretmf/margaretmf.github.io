@@ -60,9 +60,13 @@ But the sun is dawning on a new todayl and I can choose to reform, let go.
 
 The sun is shining on the Earth in a new angle, shedding new perspectives on things.
 
+## Connected, Yet Ostracized ##
+When I am feeling connected yet ostracized, I want to yell out, but I pause 
+to remember the values to live out with the connections, not the connections themselves.
+
 ## The Darkness ##
 In the dark, when I am all alone
-The light falshing through the car in front of me can't scare me
+The light flashing through the car in front of me can't scare me
 The light within guiding me with intelligence, peace, security is so strong as the light flashing through the car
 
 ## Words Cannot Express ##
@@ -196,10 +200,10 @@ goodness that is greater than evil
 and a light that embraces everything through all the Earth.
 
 ## Our Country ##
-Everyone in our contry are like stars shining on the American flag
+Everyone in our country are like stars shining on the American flag
 The light can't burn out.
 The people are so innocent.
-THe water flows steadily through the channels, giving us peace and restoration.
+The water flows steadily through the channels, giving us peace and restoration.
 Forever in the night, the stars do shine.
 Our hearts burn.
 Everyone in the country, everyone on the Earth has a light like the star that burns, and shines.
@@ -368,14 +372,14 @@ Have no fear, American people, we are all God's sons and daughters, and there's 
 What's great about America remains great.
 What needs to be known about America will be known.
 The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
-There's newness for the country coming to the surface.
+There's newness for the country coming to life.
 There's grace, equity, equality, and justice for today.
 The governors represent the people, all the people.
 Nothing is lost, nothing about America's roots are being displaced.
 Everyone in the country belongs - all races, all creeds, all cultures, all religions.
 America, a melting pot.
-We were and can all be immigrants made new, we were and can all be explorers, we were and can all be settlers finding our place to settle, rest and be at peace, we were and can all be freedom-finders, no matter our background.
-Americans, tied to the land, has a new day in the sun.
+We were and can all be immigrants made new, we were and can all be explorers of the new earth, we were and can all be settlers finding our place to rest and be at peace, we were and can all be freedom-finders, no matter our background.
+Americans, tied to the land, has a new day in the Sun.
 The land belongs to everyone.
 America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
 
