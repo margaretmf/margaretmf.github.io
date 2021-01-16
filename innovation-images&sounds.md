@@ -1,13 +1,12 @@
-
 ---
 layout: default
 is_contact: true
 ---
 
-## Images & Sounds ##
+## **Images & Sounds** ##
 
-## Day 1 ##
-### Images ###
+## **Day 1** ##
+### **Images** ###
 (1) Dollar General Store
 (2) American Industry
 (3) River flowing
@@ -16,22 +15,22 @@ is_contact: true
 (6) AN old school bus
 (7) Run down gas station
 
-### Sounds ###
+### **Sounds** ###
 (1) Inner harmony
 (2) Land of the real
 (3) A police car speeding with a siren
 (5) Cars meeting the ground with friction
 (5) Family meditation, and meditation voices
 
-## Day 2 ###
-### Images ###
+## **Day 2** ###
+### **Images** ###
 (1) West Lee Highway Sign
 (2) Farmland
 (3) Blue Mountains in VA
 (4) Vision of Eastern Christianity and the Nativity Scene
 (5) Old Dominion freight line truck with supply chain logos
 
-### Sounds ###
+### **Sounds** ###
 (1) Christmas music playing on the radio "two birds of a feather"
 (20 John Denver, Johnny Cash songs playing on the radio
 (3) Jazz music playing in the home
@@ -39,61 +38,61 @@ is_contact: true
 (5) The spirit fo Thomas Jefferson's work in farmland
 (6) COVID-19 talk
 
-## Day 3 ##
-### Images ###
+## **Day 3** ##
+### **Images** ###
 (1) The fan blowing
 (2) Intuition telling me I'm secure
 (3) Peace within from God
 (4) Water running over
 (5) Floor noises
 
-### Sounds ###
+### **Sounds** ###
 (1) Christmas lights
 (2) Stacks of clothes
 (3) A book on the bed
 (4) Laundry
 (5) A blanket
 
-## Day 4 ##
-### Images ##
+## **Day 4** ##
+### **Images** ##
 (1) Sheep in West Virginia
 (2) Blue-purple mountains
 (3) Household objects, photography
 (4) Greenery in Ireland
 (5) American flags in front of houses, blowing with the wind
 
-### Sounds ###
+### **Sounds** ###
 (1) The clickity clask of the dishes clanking in the Thursday morning dishwasher
 (2) The air blowing in the bathroom
 (3) The sound of a Irish-Scottish accent
 (4) A heart in the morning filled with love for all humanity
 (5) The pen touching the paper
 
-## Day 5 ##
-### Images ###
+## **Day 5** ##
+### **Images** ###
 (1) Christmas lights
 (2) Stacks of clothes
 (3) A book on the bed
 (4) Laundry
 (5) A blanket
 
-## Day 6 ##
-### Images ###
+## **Day 6** ##
+### **Images** ###
 (1) Butter on the table
 (2) Piano in the living room
 (3) Clothes on the floor
 (4) Clothes hangin
 (5) Spiritual books on the desk 
 
-### Sounds ### 
+### **Sounds** ### 
 (1) The sound of an innocenter heart
 (2) Water running
 (3) Law mowing
 (4) The piano playing
 (5) A hymn coming out my mouth "come cast your burdens on the Lord"
 
-## Day 7 ##
-### Images ###
+## **Day 7** ##
+### **Images** ###
 (1) Red trucks
 (2) Christmas decorations in Kentucky on fences
 (3) Bank loan buildings
@@ -102,7 +101,7 @@ is_contact: true
 (6) Clouds in the sky that represent a childlike adventure in Life
 (7) the America Kentucky brother birds in the diner
 
-### Sounds ###
+### **Sounds** ###
 (1) A motorcycle
 (2) People talking in the diner with a grough voice
 (3) Birds chirps
@@ -111,8 +110,8 @@ is_contact: true
 (6) The voice of Nam saying "good morning"
 (7) Faf's Christmas music playing on the piano
 
-## Day 8 ##
-### Sounds ###
+## **Day 8** ##
+### **Sounds** ###
 (1) A motorcycle
 (2) People talking in the diner with a grough voice
 (3) Birds chirps
@@ -121,15 +120,15 @@ is_contact: true
 (6) The voice of Nam saying "good morning"
 (7) Faf's Christmas music playing on the piano
 
-## Day 9 ##
-### Images ###
+## **Day 9** ##
+### **Images** ###
 (1) Christmas wreaths on white fences
 (2) Christmas shopping in the city
 (3) Brick buildings
 (4) A church
 (5) A flag in front of a bank
 
-### Sounds ###
+### **Sounds** ###
 (1) Spanish music
 (2) A friend's voice on the call
 (3) Church bells ringing on a Sunday
@@ -137,15 +136,15 @@ is_contact: true
 (5) Boys yelling "warm water, warm water"
 (6) Girls saying "hello" sweetly and innocently
 
-## Day 11 ##
-### Images ###
+## **Day 11** ##
+### **Images** ###
 (1) Paints, colors in the hotel
 (2) The snow outside with the civil engineering work
 (3) School buses
 (4) Red lights on the back of a line of trucsk in order
 (5) Christmas trees in the hotel lobby
 
-### Sounds ###
+### **Sounds** ###
 (1) Popular music playing in the background
 (2) Silence
 (3) The trucks driving at night
@@ -153,15 +152,15 @@ is_contact: true
 (5) A telephone ringing
 (6) A refrigerator
 
-## Day 12 ##
-### Sounds ### 
+## **Day 12** ##
+### **Sounds** ### 
 (1) The sound of an innocent heart
 (2) Water running
 (3) Law mowing
 (4) The piano playing
 (5) A hymn coming out my mouth "come cast your burdens on the Lord"
 
-### Ideas ###
+### **Ideas** ###
 * Trucks, Ports, Trains, Ships
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
 * Farmland, Ports, Mountains
@@ -175,6 +174,6 @@ is_contact: true
 * Resilience | Getting Back up, Rising higher, Being independent
 * The Union - North, South, East, West - we all stand in this union, where everything is interconnected, rising above the conflict, the chaos, finding our common bond, the bridge to the other side
 
-### English Literature ###
+### **English Literature** ###
 * Themes, Colors, Metaphors, Similes, Grammar
 * Teaching Friendship in Class 
