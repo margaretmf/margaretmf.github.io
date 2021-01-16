@@ -132,7 +132,23 @@
 (5) Boys yelling "warm water, warm water"
 (6) Girls saying "hello" sweetly and innocently
 
-## Day 10 ##
+## Day 11 ##
+### Images ###
+(1) Paints, colors in the hotel
+(2) The snow outside with the civil engineering work
+(3) School buses
+(4) Red lights on the back of a line of trucsk in order
+(5) Christmas trees in the hotel lobby
+
+### Sounds ###
+(1) Popular music playing in the background
+(2) Silence
+(3) The trucks driving at night
+(4) The train whistling 
+(5) A telephone ringing
+(6) A refrigerator
+
+## Day 12 ##
 ### Sounds ### 
 (1) The sound of an innocent heart
 (2) Water running
