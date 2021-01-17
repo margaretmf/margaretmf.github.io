@@ -35,7 +35,7 @@ is_contact: true
 (2) John Denver, Johnny Cash songs playing on the radio
 (3) Jazz music playing in the home
 (4) Classical music playing in the hotel in Wilwaukee, Wisconsin
-(5) The spirit fo Thomas Jefferson's work in farmland
+(5) The spirit of Thomas Jefferson's work in farmland
 (6) COVID-19 talk
 
 ## **Day 3** ##
@@ -62,7 +62,7 @@ is_contact: true
 (5) American flags in front of houses, blowing with the wind
 
 ### **Sounds** ###
-(1) The clickity clask of the dishes clanking in the Thursday morning dishwasher
+(1) The clickity clack of the dishes clanking in the Thursday morning dishwasher
 (2) The air blowing in the bathroom
 (3) The sound of a Irish-Scottish accent
 (4) A heart in the morning filled with love for all humanity
@@ -81,7 +81,7 @@ is_contact: true
 (1) Butter on the table
 (2) Piano in the living room
 (3) Clothes on the floor
-(4) Clothes hangin
+(4) Clothes hanging
 (5) Spiritual books on the desk 
 
 ### **Sounds** ### 
@@ -99,7 +99,7 @@ is_contact: true
 (4) A yellow bridge besides other bridges
 (5) The river in Kentucky
 (6) Clouds in the sky that represent a childlike adventure in Life
-(7) the America Kentucky brother birds in the diner
+(7) The America Kentucky brother birds in the dinner
 
 ### **Sounds** ###
 (1) A motorcycle
@@ -141,7 +141,7 @@ is_contact: true
 (1) Paints, colors in the hotel
 (2) The snow outside with the civil engineering work
 (3) School buses
-(4) Red lights on the back of a line of trucsk in order
+(4) Red lights on the back of a line of trucks in order
 (5) Christmas trees in the hotel lobby
 
 ### **Sounds** ###
