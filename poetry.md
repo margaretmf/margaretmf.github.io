@@ -1978,6 +1978,21 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 ## Food ##
 
 ## Education ##
+Education for a lifetime.
+A lifetime journey.
+Gaining an enlightened sense of Life and reality.
+Intelligence of man unfolding.
+Schooling in what it means to be in a culture, a society, a group, a family, a team, a classroom, a Earth, a world.
+Knowledge of right vs. wrong.
+Gaining the smarts to know what to do.
+
+<br>
+
+**Word Association:** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
+
+
+<br>
+
 
 ## A Garden ##
 
@@ -2096,6 +2111,21 @@ Be grateful for Zen.
 
 
 ## Equality ##
+I am equal to him riding his bike.
+I am equal to her walking down the street.
+I am equal to them driving in the cars.
+All of man is standing in equally balanced relationships to the Creator.
+Accepted under the same Sun, with fariness in judgment of the light in someone, and leveled in engagements.
+Our Creator endows each man the ability to be creative even when working through the most mundane tasks.
+All of mankind working together, collaborating, and tolerating each other in one brotherhood.
+
+<br>
+
+**Word Associations: parity, tolearance, balance, acceptance, fair, level, right, brotherhood
+
+
+<br>
+
 
 ## Independence ##
 
