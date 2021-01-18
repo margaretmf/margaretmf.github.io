@@ -56,13 +56,90 @@ the sound of silence plays in the background.
 
 I made mistakes, reacted out of anger yesterday, yet again.
 
-But the sun is dawning on a new todayl and I can choose to reform, let go.
+But the sun is dawning on a new day, and I can choose to reform, and let go.
 
-The sun is shining on the Earth in a new angle, shedding new perspectives on things.
+The sun is shining on the Earth from a new angle, shedding new perspectives on things.
 
 ## Connected, Yet Ostracized ##
 When I am feeling connected yet ostracized, I want to yell out, but I pause 
 to remember the values to live out with the connections, not the connections themselves.
+
+## A Spiteful Poem ##
+#SorryIAmJustTheIntern
+#TheGirlToShoveOutIntoAnotherRoom
+#TheGirlWhoIsTooSmallMindedAndPettyToForgiveHerGreatestEnemies
+#BecauseMyHeartAndThoughtAndVoiceIsOffensiveToYall
+
+#SorryIAmTheWomanWithAGayUncle
+#WorkingForAManWhoBelievesBeingGayIsAsBadAsThreateningToKillPeople
+
+#SorryIThreatenedToPersecuteChristianScientists
+#WhenChristianScientistsAreQuestionedEveryDay
+
+#SorryIWentToAnEliteUniversity
+#WhenChristianScientistsFromPrinFeelTheyAreAbovetheMass
+
+#SorryIStudiedReligiousLibertyAndThomasJeffersonAndRespectedtheSacredFaithofOtherPeople
+#ButWasEncouragedtoProsleytizeAndAdvertise
+#AndWasToldIWasTooDumbToUnderstandtheLinkBetweenThomasJeffersonAndMaryBakerEddy
+
+#SorryIAmJustTheWomanWhoHeardAllHerLifeThatItIsHardForChristianScienceWomenToFindTheRightMenInTheWorldWithSoManyObjectionsToChristianScience
+#ItIsASinToLookJustForABoyfriendAtChurch
+#ButMenCanFindTheirGirlfriendAtPrinAndBeFamous
+
+#SorryIAmJustTheWomanBeingCompassionateInAHostileWorkplace
+#ButChristianScientistsAreTooProtectiveOfTheirCompassionEducationBusinessToRecognizeSomeoneWhoRetweetedHerWork
+#IAmAnEntrepreneurTooAndStudiedTheHistoryofEntrepreneurship
+
+#SorryIAmJustTheWomanWhoWasKidCrushingOnAFamousMetaphysicianandMusicianFromChurch
+#AndWasToldByALecturererToNotWorshipAFamousRockstarMusicianSinceIAmBadForHisImage
+#IStudiedTheScienceOfMusicToLetGoOfACrush
+#AndTheLecturerConfirmedThatScienceofMusicLetsGoOfPuttingRealChristianScientistsOnPedestals
+#YoungerInternsAreInferiorInRankToOlderMen
+
+#AndMenAskWomenToMarryThem
+#ButMaryBakerEddyWasAWoman
+
+#SorryIAmTheWomanWhoWasEncouragedToBeACareerWomanFromTheSouth
+#ButAmRidiculedByPeopleForNotDoingChores
+#WhenReallyIKnowHowToBringTHeValuesOfMaryPoppinsToAllMyWorkInThePostOfficeAndTheLaundryRoom
+
+#SorryMenCanWriteAboutFindingRomanceInMusic
+#ButItIsASinForAWomanToLookForRomance
+
+#SorryIAmTheWomanWithUnclesWhoAreInvestors
+#ButIAmJustTheSexualAssaultEmployeeWithLoveInHerHeart
+
+#ChristianScientstsDontWantToLookForFame
+#ButTheyHaveFameAndCredibility
+
+#AndWhiteSupremacistsfromChristianScienceSayTheyDoNotSeeRace
+#SorryIAmJustTheCowardBeforeTruthWhoCantUnderstanObstetricsAndIsOnHerOwnTimeTable
+
+## I AM ##
+I’m a graduate of UVA. 
+I’m a breakthrough thinker.
+I’m a community member. 
+I’m a musician. 
+I am studious. 
+I am organized. 
+I can be a people pleaser. 
+I empathize. 
+God works through me. 
+I am equal to all mankind. 
+I am a child lover. 
+I have an inner poet. 
+I am a visual thinker. 
+I see the latent talent in people. 
+I am an engineer, I am a collaborator and a team member, not a competitor. 
+I am a graduate of UVa, and Thomas Jefferson never worked in a silo. He worked across disciplines and founded democracy. I do too. 
+People box people in. 
+I am not an elitist. 
+I don’t worship people. 
+I worship the song of Love at the post office, the mundane tasks, the Fed Ex. 
+I love that I am Southern. 
+
+This. Is. Who. I am. 
 
 ## The Darkness ##
 In the dark, when I am all alone
