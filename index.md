@@ -14,6 +14,10 @@ I love the values that Thomas Jefferson and other founders shared in the Declara
 
 I seek to learn something new every day to stay alive. I love how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible - always in the name of the greater good." I also love to cultivate latent talents and play around like little kids and amateurs.
 
+I have done and said dumb things, retaliated, shifted from being a rule-follower to someone who expresses anger, but I have begun to turn to poetry to express thoughts and feelings more artistically. I am also exploring how to sketch.
+
+I love little children, organizing things, and expressing good cheer in the Post Office and the Fed Ex Building.
+
 
 I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
 
