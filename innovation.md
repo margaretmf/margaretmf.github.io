@@ -273,13 +273,26 @@ is_contact: true
 
 <br>
 
-
+### **Music Lyric Ideas** ###
 * Roots
 * Looking Deeper, Wider
 * Circle, Circuity, Interconnecting
 * Photograph
 * Resilience | Getting Back up, Rising higher, Being independent
 * The Union - North, South, East, West - we all stand in this union, where everything is interconnected, rising above the conflict, the chaos, finding our common bond, the bridge to the other side
+
+
+<br>
+
+<br>
+
+
+### **Country Music Themes** ###
+* Home
+* Bible
+* Relationships
+* Stars
+* Nature
 
 
 <br>
