@@ -6,7 +6,7 @@ layout: default
 
 ### Books
 #### Reading
-* [Pray for the World](https://www.amazon.com/Pray-World-Prayer-Resource-Operation/dp/0830836861/ref=asc_df_0830836861/?tag=bingshoppinga-20&linkCode=df0&hvadid=&hvpos=&hvnetw=o&hvrand=&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=&hvtargid=pla-4583726540912876&psc=1) by Patrick Johnstone 
+* [First Principle: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
 * [City on the Verge: Atlanta and the Fight for America's Urban Future](https://www.amazon.com/City-Verge-Atlanta-Americas-Future/dp/0465054730) by Mark Pendergrast
 * [American Carnage: On the Front Lines of the Republican Civil War and the Rise of President Trump](https://www.amazon.com/American-Carnage-Front-Republican-President/dp/006289644X/ref=sr_1_1?dchild=1&keywords=american+carnage&qid=1591620600&s=books&sr=1-1) by Tim Alberta
 * [When They Call You a Terrorist: A Black Lives Matter Memoir](https://www.amazon.com/When-They-Call-You-Terrorist/dp/1250306906) by Patrisse Khan-Cullors & Asha Bandele
