@@ -42,21 +42,21 @@ In previous work, I have worked with various types of supervisors.
 **I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
 
 **How Do I Improve Myself?**
-Daily, I work to express gratitude for people and appreciate the talents I see in people.
-Daily, I work to listen to the feedback I receive from people.
-Daily, I work to know how I can better work with people.
-Daily, I work to know how I can respect the boundaries of others.
-Daily, I work to forgive people who have hurt me.
-Daily, I work to move outside of my comfort zone in some way.
-Daily, I work to commit to people who I already know.
-Daily, I work to appreciate and expand upon the work already done in the past.
-Daily, I work to give credit to people where credit is already due.
-Daily, I work to let go of the past.
-Daily, I work to love someone who I haven't fully loved better.
-Daily, I work to give up any vain or personal ambition.
-Daily, I work to listen to the needs of others.
-Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-Daily, I work to appreciate my family.
+* Daily, I work to express gratitude for people and appreciate the talents I see in people.
+* Daily, I work to listen to the feedback I receive from people.
+* Daily, I work to know how I can better work with people.
+* Daily, I work to know how I can respect the boundaries of others.
+* Daily, I work to forgive people who have hurt me.
+* Daily, I work to move outside of my comfort zone in some way.
+* Daily, I work to commit to people who I already know.
+* Daily, I work to appreciate and expand upon the work already done in the past.
+* Daily, I work to give credit to people where credit is already due.
+* Daily, I work to let go of the past.
+* Daily, I work to love someone who I haven't fully loved better.
+* Daily, I work to give up any vain or personal ambition.
+* Daily, I work to listen to the needs of others.
+* Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
+* Daily, I work to appreciate my family.
 
 
 ## Longer Work Biography ##
