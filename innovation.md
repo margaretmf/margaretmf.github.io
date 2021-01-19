@@ -255,12 +255,24 @@ is_contact: true
 (5) The wind
 (6) The motorcylce driving through the city 
 
+
+<br>
+
+<br>
+
+
 ### **Ideas** ###
 * Trucks, Ports, Trains, Ships
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
 * Farmland, Ports, Mountains
 * Oceans, Rivers, Bays
 * People can learn about history and the country through music
+
+
+<br>
+
+<br>
+
 
 * Roots
 * Looking Deeper, Wider
@@ -269,6 +281,18 @@ is_contact: true
 * Resilience | Getting Back up, Rising higher, Being independent
 * The Union - North, South, East, West - we all stand in this union, where everything is interconnected, rising above the conflict, the chaos, finding our common bond, the bridge to the other side
 
+
+<br>
+
+<br>
+
+
 ### **English Literature** ###
 * Themes, Colors, Metaphors, Similes, Grammar
 * Teaching Friendship in Class 
+
+
+<br>
+
+<br>
+
