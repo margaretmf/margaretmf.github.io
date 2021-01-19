@@ -23,7 +23,7 @@ I love little children, organizing things, and expressing good cheer in the Post
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
 
-**What I love about supervisors: **
+**What I love about supervisors:**
 * Their ability to give candid feedback, and specific requirements, rather than make me guess about what is needed
 * Their ability to seek my inputs, and thoughtfully incorporate the inputs
 * Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
@@ -32,7 +32,7 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to structure projects and time well
 * Their ability to facilitate team work
 
-**What I hate about supervisors: **
+**What I hate about supervisors:**
 * Their vague directions and guidance
 * Their mispronouncing names
 * Their lack of clarity around job descriptions and team goals
