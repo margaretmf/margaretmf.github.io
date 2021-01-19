@@ -223,6 +223,38 @@ is_contact: true
 (5) The sigh of a young girl
 (6) Kids' show on the TV
 
+## **Day 17** ##
+### **Images** ###
+(1) The bird flying solo
+(2) Community artwork on the wall in Starbucks
+(3) RVs outside people's home
+(4) White houses, homes in the country of America
+(5) God's son driving a Uhaul to help someone at home
+
+### **Sounds** ##
+(1) Community voices talking about family challenges in Starbucks
+(2) Aunt Jeannie's voice
+(3) oilet flushing
+(4) Water dripping
+(5) The rain pitter, patter
+
+## **Day 18** ##
+### **Images** ###
+(1) RV Parks
+(2) RVs outside peoples' homes
+(3) Forest green trees on the side of the highway
+(4) Wind farms
+(5) Center for Housing and Healing Building
+(6) Salvation Army Building
+
+### **Sounds** ##
+(1) Christian music on the radio
+(2) Cars driving by
+(3) A honk of a car
+(4) Car motors as cars
+(5) The wind
+(6) The motorcylce driving through the city 
+
 ### **Ideas** ###
 * Trucks, Ports, Trains, Ships
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
