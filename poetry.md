@@ -60,21 +60,62 @@ But the sun is dawning on a new day, and I can choose to reform, and let go.
 
 The sun is shining on the Earth from a new angle, shedding new perspectives on things.
 
+## Mortal Mind and Divine Mind ##
+Mortal mind wants to assert itself through fear, through judgment, through offense, through threat.
+Divine Mind asserts itself through peace, through compassion, through empathy, through understanding, through patience, through prayer.
+Mortal mind wants to control through pressure, through anger, through manipulation, through jealousy.
+Divind Mind wants to control through morality, through the consciousness of good, through helpfulness, through good character.
+
 ## Connected, Yet Ostracized ##
 When I am feeling connected yet ostracized, I want to yell out, but I pause 
 to remember the values to live out with the connections, not the connections themselves.
 
-## A Spiteful Poem ##
+## I AM ##
+I’m a graduate of UVA. 
+I’m a breakthrough thinker.
+I’m a community member. 
+I’m a musician. 
+I am a church member.
+I am studious. 
+I am organized. 
+I seek to be compassionate.
+I can be a people pleaser. 
+I can be impatient.
+I sometimes react.
+I empathize. 
+I have strong feelings.
+I sometimes feel tempted to manipulate situations.
+God works through me. 
+I am equal to all mankind. 
+I am a child lover. 
+I have an inner poet. 
+I am a visual thinker. 
+I see the latent talent in people. 
+I am an engineer, I am a collaborator and a team member, not a competitor. 
+I am a graduate of UVa, and Thomas Jefferson never worked in a silo. He worked across disciplines and founded democracy. I do too. 
+People box people in. 
+I try not to be elitist. 
+I love egalitarianism.
+I don’t worship people. But sometimes I feel like people are superior to me, and sometimes I have felt I am superior to others. 
+I worship the song of Love at the post office, and the Fed Ex office.
+I love that I am Southern. 
+
+This. Is. Who. I am. 
+
+## A Spiteful Poem That Was Burned In The Fire At Home ##
 #SorryIAmJustTheIntern
 #TheGirlToShoveOutIntoAnotherRoom
 #TheGirlWhoIsTooSmallMindedAndPettyToForgiveHerGreatestEnemies
-#BecauseMyHeartAndThoughtAndVoiceIsOffensiveToYall
+#BecauseHerHeartAndThoughtAndVoiceIsOffensiveToYallAndAlsoToMe
+#ButInRealityOurTeamDidAGoodJobAndOvercameChallenges
 
 #SorryIAmTheWomanWithAGayUncle
-#WorkingForAManWhoBelievesBeingGayIsAsBadAsThreateningToKillPeople
+#WorkingForPeopleWhoBelievesBeingGayIsAsBadAsThreateningToKillPeople
+#ButInRealityChristianScientistsAreCompassionateTowardsOthers
 
 #SorryIThreatenedToPersecuteChristianScientists
 #WhenChristianScientistsAreQuestionedEveryDay
+#ButInRealityChristianScientistsFitInEverywhereWithEveryone
 
 #SorryIWentToAnEliteUniversity
 #WhenChristianScientistsFromPrinFeelTheyAreAbovetheMass
@@ -82,14 +123,16 @@ to remember the values to live out with the connections, not the connections the
 #SorryIStudiedReligiousLibertyAndThomasJeffersonAndRespectedtheSacredFaithofOtherPeople
 #ButWasEncouragedtoProsleytizeAndAdvertise
 #AndWasToldIWasTooDumbToUnderstandtheLinkBetweenThomasJeffersonAndMaryBakerEddy
+#ButInRealityChristianScientistsLoveThatTheHumanGovernmentFitsIntoTheFootnotesBecauseItIsAmazingThatThereIsaLinkage
 
 #SorryIAmJustTheWomanWhoHeardAllHerLifeThatItIsHardForChristianScienceWomenToFindTheRightMenInTheWorldWithSoManyObjectionsToChristianScience
 #ItIsASinToLookJustForABoyfriendAtChurch
 #ButMenCanFindTheirGirlfriendAtPrinAndBeFamous
 
 #SorryIAmJustTheWomanBeingCompassionateInAHostileWorkplace
-#ButChristianScientistsAreTooProtectiveOfTheirCompassionEducationBusinessToRecognizeSomeoneWhoRetweetedHerWork
+#ItFeelsLikeChristianScientistsAreTooProtectiveOfTheirCompassionEducationBusinessToRecognizeSomeoneWhoRetweetedTheirWork
 #IAmAnEntrepreneurTooAndStudiedTheHistoryofEntrepreneurship
+#ButInRealityILoveThatChristianScientistAlsoLoveCompassionateEducationInTheWorld
 
 #SorryIAmJustTheWomanWhoWasKidCrushingOnAFamousMetaphysicianandMusicianFromChurch
 #AndWasToldByALecturererToNotWorshipAFamousRockstarMusicianSinceIAmBadForHisImage
@@ -101,8 +144,8 @@ to remember the values to live out with the connections, not the connections the
 #ButMaryBakerEddyWasAWoman
 
 #SorryIAmTheWomanWhoWasEncouragedToBeACareerWomanFromTheSouth
-#ButAmRidiculedByPeopleForNotDoingChores
-#WhenReallyIKnowHowToBringTHeValuesOfMaryPoppinsToAllMyWorkInThePostOfficeAndTheLaundryRoom
+#ButAmRidiculedByPeopleForNotDoingChoresIncludingByMyMother
+#WhenReallyIKnowHowToBringTheValuesOfMaryPoppinsToAllMyWorkInThePostOfficeAndTheLaundryRoom
 
 #SorryMenCanWriteAboutFindingRomanceInMusic
 #ButItIsASinForAWomanToLookForRomance
@@ -115,31 +158,6 @@ to remember the values to live out with the connections, not the connections the
 
 #AndWhiteSupremacistsfromChristianScienceSayTheyDoNotSeeRace
 #SorryIAmJustTheCowardBeforeTruthWhoCantUnderstanObstetricsAndIsOnHerOwnTimeTable
-
-## I AM ##
-I’m a graduate of UVA. 
-I’m a breakthrough thinker.
-I’m a community member. 
-I’m a musician. 
-I am studious. 
-I am organized. 
-I can be a people pleaser. 
-I empathize. 
-God works through me. 
-I am equal to all mankind. 
-I am a child lover. 
-I have an inner poet. 
-I am a visual thinker. 
-I see the latent talent in people. 
-I am an engineer, I am a collaborator and a team member, not a competitor. 
-I am a graduate of UVa, and Thomas Jefferson never worked in a silo. He worked across disciplines and founded democracy. I do too. 
-People box people in. 
-I am not an elitist. 
-I don’t worship people. 
-I worship the song of Love at the post office, the mundane tasks, the Fed Ex. 
-I love that I am Southern. 
-
-This. Is. Who. I am. 
 
 ## The Darkness ##
 In the dark, when I am all alone
@@ -422,10 +440,10 @@ No one can steal my heart
 
 ## It Starts At the Port ##
 It starts at the port.
-Every morning, the orange, green, and blue trucks drive from the shipyard to the streets.
+Every morning, the orange, green, white, and blue trucks drive from the shipyard to the streets.
 The trucks drive harmoniously down Hampton Roads like the birds do when they fly.
-Where do they go? From the port city to the country roads.
-A beautiful chain of freight traveling from the port cities to the country.
+Where do they go? From the driveways in the port city to the shipyard to the country roads.
+There's a beautiful chain of freight traveling through the port cities and then through the country.
 
 ## Home and Music ##
 Home is where it all begins.
