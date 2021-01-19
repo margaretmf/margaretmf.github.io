@@ -42,7 +42,7 @@ In previous work, I have worked with various types of supervisors.
 **I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
 
 **How Do I Improve Myself?**
-* Daily, I work to express gratitude for people and appreciate the talents I see in people.
+* Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
 * Daily, I work to listen to the feedback I receive from people.
 * Daily, I work to know how I can better work with people.
 * Daily, I work to know how I can respect the boundaries of others.
@@ -76,7 +76,7 @@ To learn to articulate feelings and thoughts, I have started writing poetry.
 <br>
 
 
-Before this work, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. 
+Before this work, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
 
 I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
 
