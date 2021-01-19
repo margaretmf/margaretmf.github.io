@@ -99,28 +99,18 @@ is_contact: true
 (4) A yellow bridge besides other bridges
 (5) The river in Kentucky
 (6) Clouds in the sky that represent a childlike adventure in Life
-(7) The America Kentucky brother birds in the dinner
+(7) The America Kentucky brother birds in the diner
 
 ### **Sounds** ###
 (1) A motorcycle
 (2) People talking in the diner with a grough voice
-(3) Birds chirps
+(3) Birds chirping
 (4) People praying for Brianna Taylor with the fire
 (3) "Jesus Loves" and Christian bumper sticker
 (6) The voice of Nam saying "good morning"
 (7) Faf's Christmas music playing on the piano
 
 ## **Day 8** ##
-### **Sounds** ###
-(1) A motorcycle
-(2) People talking in the diner with a grough voice
-(3) Birds chirps
-(4) People praying for Brianna Taylor with the fire
-(3) "Jesus Loves" and Christian bumper sticker
-(6) The voice of Nam saying "good morning"
-(7) Faf's Christmas music playing on the piano
-
-## **Day 9** ##
 ### **Images** ###
 (1) Christmas wreaths on white fences
 (2) Christmas shopping in the city
@@ -159,6 +149,79 @@ is_contact: true
 (3) Law mowing
 (4) The piano playing
 (5) A hymn coming out my mouth "come cast your burdens on the Lord"
+
+## **Day 13** ##
+### **Images** ##
+(1) Rusted trucks and cars in farmalnd
+(2) Gas stations
+(3) Birds flying in the sky
+(4) Green leaves on trees
+(5) Tuesday afternoon truck drive
+(6) Southern restaurant
+(7) Train car outside of the white house
+
+### **Sounds** ##
+(1) A man on the radio sharing the Bible
+(2) Blues and jazz music
+(3) Cheerful southern voices from Mississippi sharing freindliess 'where the Red Fern Grows'
+(4) Car driving by on the left
+(5) Windshield wipers where it rains
+
+## **Day 14** ## 
+### **Images** ##
+(1) Horses on the side of the highway
+(2) Used cars ont he side of the highway
+(3) Cable lines in the sky in the country
+(4) Farm house with an American flag
+(5) White car stopped on the right of the road and black car stopped on the left
+(6) Black lives on the country highway
+
+### **Sounds** ##
+(1) Mississippi accent
+(2) Radio station on healing Black Lives through churches in their neighborhoods
+(3) A man whistling
+(4) A door opening
+(5) A train driving by in Memphis in the morning
+(6) Birds tweeting - tweet, taweet, taweet, taweet
+(7) A second home
+(8) Water overflowing in the pool in Memphis
+
+## **Day 15** ## 
+### **Images** ##
+(1) Woman looking after children in a playground
+(2) The beauty of all races in Chicago
+(3) Woman pushing stollers
+(4) Women walking with a young girl
+(5) Homes united in Indiana from a blue house to a white house with the sunlight shining through
+(6) Christmas decorations on white picket fences
+(7) A man on an orange ladder putting Christmas lights on
+(8) Red trucks in driveway, and on streets
+(9) City lights
+
+### **Sounds** ##
+(1) Children yelling
+(2) The sound of doing laundry and hosuehold chores in a hotel
+(3) The motor of a car
+(4) Big House Christian music playing in the car
+(5) Rock music playing in the car
+(6) Silence
+(7) Trucks driving by
+(8) Missionary hymn - "hearts and homes and churches united under the same Sun, the same Father-Mother"
+
+## **Day 16** ##
+### **Images** ###
+(1) An American flag waving out of the hotel
+(2) A sigh in the hotel 'we'll leave the light on for you'"
+(3) A truck outside the window
+(4) The sun shining in the morning
+(5) A bed in the hotel made up cleanly
+
+### **Sounds** ###
+(1) European accent of young girls on a TV show on the farm
+(2) The innocence of the girls
+(4) Animals cricketing outside the hotel in the land
+(5) The sigh of a young girl
+(6) Kids' show on the TV
 
 ### **Ideas** ###
 * Trucks, Ports, Trains, Ships
