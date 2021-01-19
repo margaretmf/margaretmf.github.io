@@ -8,17 +8,56 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
+## Short Biography ##
 I am **Margaret Furr**, and I am a graduate of the University of Virginia. 
 
 I love the values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness. 
 
-I seek to learn something new every day to stay alive. I love how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible - always in the name of the greater good." I also love to cultivate latent talents and play around like little kids and amateurs.
+I seek to learn something new every day to stay alive. I love how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good." I also love to cultivate latent talents and play around like little kids and amateurs.
 
-I have done and said dumb things, retaliated, shifted from being a rule-follower to someone who expresses anger, but I have begun to turn to poetry to express thoughts and feelings more artistically. I am also exploring how to sketch.
+I have done and said dumb things, retaliated, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. I am also exploring how to sketch.
 
 I love little children, organizing things, and expressing good cheer in the Post Office and the Fed Ex Building.
 
 
+## Work Environment ##
+In previous work, I have worked with various types of supervisors.
+
+**What I love about supervisors: **
+* Their ability to give candid feedback, and specific requirements, rather than make me guess about what is needed
+* Their ability to seek my inputs, and thoughtfully incorporate the inputs
+* Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
+* Their ability to support cross-departmental work
+* Their ability to encourage people to go outside their comfort zone
+* Their ability to structure projects and time well
+* Their ability to facilitate team work
+
+**What I hate about supervisors: **
+* Their vague directions and guidance
+* Their mispronouncing names
+* Their lack of clarity around job descriptions and team goals
+* Their disrespect of someone doing work that is more directly related to the work of another team
+* Their complaining about how a business overall does work
+
+I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.
+Daily, I work to express gratitude for people and appreciate the talents I see in people.
+Daily, I work to listen to the feedback I receive from people.
+Daily, I work to know how I can better work with people.
+Daily, I work to know how I can respect the boundaries of others.
+Daily, I work to forgive people who have hurt me.
+Daily, I work to move outside of my comfort zone in some way.
+Daily, I work to commit to people who I already know.
+Daily, I work to appreciate and expand upon the work already done in the past.
+Daily, I work to give credit to people where credit is already due.
+Daily, I work to let go of the past.
+Daily, I work to love someone who I haven't fully loved better.
+Daily, I work to give up any vain or personal ambition.
+Daily, I work to listen to the needs of others.
+Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
+Daily, I work to appreciate my family.
+
+
+## Longer Work Biography ##
 I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
 
 Most recently, I have been learning about antiracism and working on photography of light in the darkness and continuing the work to "Take Back the Night."
