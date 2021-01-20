@@ -204,6 +204,27 @@ always fed, and nourished, and supplied
 * Healing Work
 "take up the cross, heal the sick, cast out evils, and preach Christ, or Truth
 
+* Ye shall receive light
+"Christ shall give thee light."
+
+* cast seven devils out of someone
+"Mary Magdalene
+
+* The Resurrection
+"Through all the disciples experienced, they became more spiritual and understood better what the Master had taught. His resurrection was also their resurrection. It helped them to raise themselves and others from spiritual dulness and blind belief in God into the perception of infinte possibilities."
+
+* Lord's last suppper
+"the bright morning hours at the joyful meeting on the shore of the Galilean Sea!"
+"His gloom had passed into glory, and his disciples' grief into repentence, - hearts chastened and pride rebuked"
+"Convinced of the fruitlessness of their toil in the dark and wakened by their Master's voice, they changed their methods, turned away from material things, and cast their net on the right side"
+"Discerning CHist, Truth, anew on the shore of time, they were enabled to rise somewhat from mortal senusousness, or the burial of mind in matter, into newness of life as Spirit."
+
+* Triumphs over death
+"a full understanding of the divine Principle, which triumphs over death"
+"the practical Truth"
+"the living Christ"
+
+
 
 
 
