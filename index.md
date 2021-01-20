@@ -31,6 +31,8 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to encourage people to go outside their comfort zone
 * Their ability to structure projects and time well
 * Their ability to facilitate team work
+* Their ability to mentor
+* Their ability to work with other teams effectively
 
 **What I HATE about supervisors:**
 * Their vague directions and guidance
