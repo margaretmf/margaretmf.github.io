@@ -66,6 +66,11 @@ Divine Mind asserts itself through peace, through compassion, through empathy, t
 Mortal mind wants to control through pressure, through anger, through manipulation, through jealousy.
 Divine Mind wants to control through morality, through the consciousness of good, through helpfulness, through good character.
 
+## The Ocean ##
+The ocean crashes every day upon the shore.
+The deep waters fo God are where the sin is stirred out.
+And the holiness of God can cleanse what is wrong away.
+
 ## Connected, Yet Ostracized ##
 When I am feeling connected yet ostracized, I want to yell out, but I pause 
 to remember the values to live out with the connections, not the connections themselves.
@@ -444,6 +449,14 @@ Every morning, the orange, green, white, and blue trucks drive from the shipyard
 The trucks drive harmoniously down Hampton Roads like the birds do when they fly.
 Where do they go? From the driveways in the port city to the shipyard to the country roads.
 There's a beautiful chain of freight traveling through the port cities and then through the country.
+
+## From Port to Port ##
+From port to port
+The sun shines in every place
+From different angles
+We all look to the same sun
+From different corners of the Earth
+From different places in the Universe
 
 ## Roots ##
 You can claim what you were born to be.
