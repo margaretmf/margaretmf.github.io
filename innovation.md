@@ -455,11 +455,34 @@ is_contact: true
 ### **Images** ###
 (1) Crossing the bridge to West Memphis, Arkansas - the arch
 (2) The sun shining through the streets 
+(3) Christmas decorations on houses
+(4) Red buildings
+(5) The beauty of freedom in the USPS
 
 ### **Sounds** ###
-(1) The vacuum
-(2) Christian music about God turning around
+(1) The vacuum - vroom, vroom
+(2) Christian music about God turning around situations
+(3) Toilet flushing
+(4) Birds singing
+(5) The sound of every day activity with love in our hearts
+(6) The sound of respect for all races
+(7) The sound of a man calling on the phone and sharing good cheer with someone
 
+## **Day 30** ##
+### **Images** ###
+(1) The light shining on the motel - the same sun we're all waking up to
+(2) The playground for children
+(3) Visual memories coming to mind
+(4) McDonald's fast food across the street
+(5) The brown trees in winter in the Southern farmland
+
+
+### **Sounds** ###
+(1) The air blowing in the hotel room
+(2) Buses driving in the early morning with children filled with peace, joy
+(3) A heart filled with gratitude for families in the park
+(4) The sound of innocent childhood friend's heart
+(5) People saying "good morning" at the bottom of the hotel
 
 <br>
 
