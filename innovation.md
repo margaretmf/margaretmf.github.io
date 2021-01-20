@@ -513,6 +513,7 @@ is_contact: true
 * Farmland, Ports, Mountains
 * Oceans, Rivers, Bays
 * People can learn about history and the country through music
+& Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
 
 
 <br>
