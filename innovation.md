@@ -315,9 +315,150 @@ is_contact: true
 
 ## **Day 23** ##
 ### **Images** ###
-
+(1) The clippiing in the kitchen - clip, clip
+(2) Lawn mower - zoom, zoom
+(3) Water running into a glass
+(4) Couples singing, holding hand
+(5) Innocent, childlike smiles
 
 ### **Sounds** ###
+(1) Black men outside the Salvation Army
+(2) Red, white building
+(3) The dignity of the police men
+(4) Structured, harmonized logistics in the trucks
+(5) America reanissance, rebirth
+
+## **Day 24** ##
+### **Images** ###
+(1) Gold power on the side of the road
+(2) Trailer in the right lane
+(3) Mainland
+(4) Cleansing rain washing the sin and pain away
+(5)  Christmas peace
+(6) Glittery brown gray tree branches with colored leaves falling off
+
+### **Sounds** ###
+(1) The sound of silence
+(2) Rain hitting the windshield
+(3) Wind blowing outside the window
+(4) Cars driving
+(5) Christmas music
+
+## **Day 25** ##
+### **Images** ###
+(1) Pool of grey, silver water in the red dirt
+(2) Blue and silver Amtrak train on a Monday morning
+(3) Gates opening and closing with workers
+(4) Crossroads with trucks driving above
+(5) Line of cars driving to school
+(6) The sun refelcting through specks of water ont he black road
+
+### **Sounds** ###
+(1) R&B music playing on the road
+(2) Praise to Allah
+(3) A man, a friend correcting me while driving
+(4) The telephone ringing asking me to pick him up
+(5) The sound of a man's love
+
+## **Day 26** ##
+### **Images** ###
+(1) Early morning dew
+(2) Order on the road
+(3) A beautiful family and beautiful home
+(4) Crossroads on the street
+(5) Red flowers in front of someone's home
+(6) Peace in the morning at the airport
+(7) Old-fashioned cars
+(8) Red painted truck
+(9) Blue car crossing the train track
+(10) Birds on a wire the day before Thanksgiving
+(11) Beautiful homes united in the richness of Divine Love, the Holy Spirit in Norfolk
+(12) A woman with flowers on her book
+
+### **Sounds** ###
+(1) A song in my heart
+(2) Birds singing
+(3) People talking on the radio about self-made artist lifestyle
+(4) Parents talking to their baby
+(5) Uber alert
+(6) Christmas music playing on the radio
+
+## **Day 26** ##
+### **Images** ###
+(1) Visual memory of rowing in Scotland
+(2) The blue carwash
+(3) Loving, honest men at the carwash
+(4) Interracial harmony at Starbucks
+(5) People enjoying a Thanksgiving meal
+(6) Innocent young girls
+
+### **Sounds** ##
+(1) "Thank you for the music" song
+(2) Tweep, tweep of the birds outside
+(3) Water flowing
+(4) The fan blowing
+(5) The sound of innocence in the  heart
+
+## **Day 27** ##
+### **Images** ###
+(1) Red barn
+(2) Snow on the ground, the trees
+(3) Beautiful homes united with Trump signs in front of their yards in Bristol, VA/TN
+(4) 1920s/Roaring 20s music
+(5) Country families appreciating dinners on Sunday, and church
+
+### **Sounds** ##
+(1) A cheerful Southern voice on the phone
+(2) Cheerful southern voices on the radio
+(3) news about a baby enjoying the snow
+(4) Red/white trucks driving with the traffic 
+(5) Waffle House near a hotel
+
+## **Day 28** ##
+### **Images** ###
+(1) The reds and whites on Country music street - red truck, guitars, and lights
+(2) Innocence and freedom for all races in Nashivlle - "it's 2020"
+(3) Brick buildings that look like Ireland
+(4) Green leaves near the water
+(5) The construction workers working on the street in green
+
+### **Sounds** ###
+(1) Blues/jazz msuic on staying the night in Bristol
+(2) A bus honking a horn
+(3) The sounds of cars moving and sounding like ocean waves
+(4) Peace, be still; sin no more in the morning after acknowledging a sinful act
+(5) Peace holding onto childlike innocence
+(6) Freedom from anger within the heart
+(7) Christian radio station
+(8) The sound of prayer in Christian Science reading rooms
+(9) The sound of a fresh, new day before Christmas
+
+## **Day 29** ##
+### **Images** ###
+(1) Red, yellow cadillacs
+(2) Bus in front of a Nashville school with a playground
+(3) The sun shining through the traffic in Nashville
+(4) Red, blue, yellow brown townhouses in Nashville
+(5) Sun shining through the banks like Sun Trust and PNC
+(6) Gas stations - freedom at them
+(7) Fed Ex trucks on the interstate in front of me and then in traffic and then on the over-pass
+(8) The orange and purple, the green and purple Fed Ex trucks
+(9) A UPS driver delivering a package on the first day of December
+(10) Every day people walking down the street
+
+### **Sounds** ###
+(1) Break up song on the radio 
+(2) "went through hell getting over you" "it's all ok"
+(3) White truck with a blinker
+
+## **Day 29** ##
+### **Images** ###
+(1) Crossing the bridge to West Memphis, Arkansas - the arch
+(2) The sun shining through the streets 
+
+### **Sounds** ###
+(1) The vacuum
+(2) Christian music about God turning around
 
 
 <br>
