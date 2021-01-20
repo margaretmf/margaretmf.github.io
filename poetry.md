@@ -2231,6 +2231,22 @@ All of mankind working together, collaborating, and tolerating each other in one
 
 
 ## Independence ##
+The freedom within that supports standing alone.
+The sovereign grace within that supports being at peace.
+The self-reliance to know the right ideas.
+The autonomy that supports governing one's self with these ideas.
+The strength within to stop what is wrong.
+The confidence within to love and be happy for others, and feel self-fulfilled.
+THe assuredness within that something good will work out.
+The determination within to keep going.
+
+<br>
+
+**Word Associations: freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
+
+
+<br>
+
 
 ## Reliability ##
 Childlike innocence in tact.
