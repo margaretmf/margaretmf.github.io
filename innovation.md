@@ -253,7 +253,57 @@ is_contact: true
 (3) A honk of a car
 (4) Car motors as cars
 (5) The wind
-(6) The motorcylce driving through the city 
+(6) The motorcycle driving through the city 
+
+## **Day 19** ##
+### **Images** ###
+(1) Cars driving on the interstate, the highway
+(2) Cleaning rag in a woman's hand
+(3) Halloween decorations on houses
+(4) Innocence and dignity of women from the South
+(5) City horizon on the interstate
+(6) Farmland, gate in VA country
+(7) Mountains in TN
+
+### **Sounds** ###
+(1) The sound of the news caster playing in the kitchen
+(2) An airplane engine in the sky
+(3) A vacuum zooming zmzmmzm zmmrmrmmrm
+(4) Tweet tweet tweet tweet of the birds
+(5) A guy calling me in the morning
+(6) A plate touching the kitchen counter
+
+## **Day 20** ##
+### **Images** ###
+(1) The mountains in Charlottesville
+(2) American flags on trucks
+(3) The sun light shining down the interstate
+(4) Trucks of different colors
+(5) Farm houses in Charlottesville
+
+### **Sounds** ###
+(1) Water trickling
+(2) The train at night in the neighborhood
+(3) Blues music on the radio
+(4) A grandmother's voice
+(5) A cell phone buzzing in the morning
+
+## **Day 21** ##
+### **Images** ###
+(1) The sun shining, and fading out near the country, near the port, near the trucks
+(2) The American flag in the yellow trucks
+(3) Piles of clothes to give away
+(4) The church in Norfolk
+(5) The vision of free Black people and full integration in Memphis
+(6) Stars inside every individual int he US
+
+### **Sounds** ###
+(1) Pre-dinner preparation
+(2) The fan blowing
+(3) Blank sound
+(4) An innocent heart
+(5) Paper turning
+(6) The song of an innocent heart
 
 
 <br>
