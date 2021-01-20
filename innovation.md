@@ -295,7 +295,7 @@ is_contact: true
 (3) Piles of clothes to give away
 (4) The church in Norfolk
 (5) The vision of free Black people and full integration in Memphis
-(6) Stars inside every individual int he US
+(6) Stars inside every individual in the US
 
 ### **Sounds** ###
 (1) Pre-dinner preparation
@@ -304,6 +304,20 @@ is_contact: true
 (4) An innocent heart
 (5) Paper turning
 (6) The song of an innocent heart
+
+## **Day 22** ##
+### **Images** ###
+(1) Brown leaves on the windshield in the morning
+(2) Blue cadillac
+(3) Nomadic clothing in the windo
+(4) Free people from all races
+(5) Black mailbox
+
+## **Day 23** ##
+### **Images** ###
+
+
+### **Sounds** ###
 
 
 <br>
