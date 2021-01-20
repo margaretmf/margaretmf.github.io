@@ -476,13 +476,31 @@ is_contact: true
 (4) McDonald's fast food across the street
 (5) The brown trees in winter in the Southern farmland
 
-
 ### **Sounds** ###
 (1) The air blowing in the hotel room
 (2) Buses driving in the early morning with children filled with peace, joy
 (3) A heart filled with gratitude for families in the park
 (4) The sound of innocent childhood friend's heart
 (5) People saying "good morning" at the bottom of the hotel
+
+## **Day 31** ##
+### **Images** ###
+(1) Red, brown leaves hitting the window
+(2) The clear windows
+(3) A man working at his computer with a beard
+(4) The sign to Arkansas
+(5) The washer machine
+
+### **Sounds** ###
+(1) Man laughing 'he he he'
+(2) Lawn mower blowing aside the hotel
+(3) Leaves hitting the window
+(4) A cheerful voice
+(5) A coffee cup hitting the table
+(6) The shutting of a coffee jug
+(7) The squeezing of a coffee cup top on the cup
+(8) Southern sounding "hey, darling" from an aunt
+(9) A call from a friend
 
 <br>
 
