@@ -445,6 +445,12 @@ The trucks drive harmoniously down Hampton Roads like the birds do when they fly
 Where do they go? From the driveways in the port city to the shipyard to the country roads.
 There's a beautiful chain of freight traveling through the port cities and then through the country.
 
+## Roots ##
+You can claim what you were born to be.
+Your roots may have dried out, but your roots run deeply into the groun.
+Dig within deeply, remove the weeds, and discover the glory.
+The glory, the beauty, the soul of Soul is there.
+
 ## Home and Music ##
 Home is where it all begins.
 There's a place for music and you all in my heart forever.
