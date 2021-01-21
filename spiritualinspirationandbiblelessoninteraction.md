@@ -1,6 +1,6 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am trying to interact with it online. ##
 
-## Week of , January 11, 2020 - 'Sacrament' - Inspiring Passages ##
+## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
 * Being encouraged by others' faith - mutually encouraged
 
