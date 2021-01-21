@@ -2124,7 +2124,7 @@ I work steadfastly to love, be cheerful, and connect.
 
 <br>
 
-**Word Associations: stock, sure, credence, conviction, loyal, integrity, charge, steadfast
+**Word Associations:** stock, sure, credence, conviction, loyal, integrity, charge, steadfast
 
 
 <br>
@@ -2143,7 +2143,7 @@ Carpe Diem.
 
 <br>
 
-**Word Associations: horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
+**Word Associations:** horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
 
 
 <br>
@@ -2161,7 +2161,7 @@ Be grateful for Zen.
 
 <br>
 
-**Word Associations: rumination, reflection, peace, introspection, tranquil, rapt, Zen, ponder
+**Word Associations:** rumination, reflection, peace, introspection, tranquil, rapt, Zen, ponder
 
 
 <br>
@@ -2178,7 +2178,7 @@ All of mankind working together, collaborating, and tolerating each other in one
 
 <br>
 
-**Word Associations: parity, tolearance, balance, acceptance, fair, level, right, brotherhood
+**Word Associations:** parity, tolearance, balance, acceptance, fair, level, right, brotherhood
 
 
 <br>
@@ -2196,7 +2196,7 @@ The determination within to keep going.
 
 <br>
 
-**Word Associations: freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
+**Word Associations:** freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
 
 
 <br>
@@ -2211,7 +2211,7 @@ Staunch, and committed to reaching the goal.
 
 <br>
 
-**Word Associations: incorrupt, honorable, constant, solid, trusty, staunch, decency, upright
+**Word Associations:** incorrupt, honorable, constant, solid, trusty, staunch, decency, upright
 
 <br>
 
@@ -2228,7 +2228,7 @@ Being pulled by the stir, but experiencing the gentleness within.
 
 <br>
 
-**Word Associations: stoic, serene, calm, peace, composure, humility, gentleness, placity
+**Word Associations:** stoic, serene, calm, peace, composure, humility, gentleness, placity
 
 
 <br>
@@ -2245,7 +2245,7 @@ There are always wonderful vistas ahead each day.
 
 <br>
 
-**Word Associations: viewpoint, context, scene, vista, shift, frame, broad, angle
+**Word Associations:** viewpoint, context, scene, vista, shift, frame, broad, angle
 
 
 <br>
@@ -2310,6 +2310,16 @@ Supported by the design of the universe causing good prospects to live always.
 ## Romance ##
 
 ## Appreciation ##
+I see work someone does, or experience someone doing something positive.
+I appreciate them and who they are.
+I am thankful for their presence in my life.
+I express gratitude for their impact in my life.
+I salute people who are unique, valuable, and distinct.
+I hold them in high regard, and high veneration.
+
+<br>
+
+**Word Associations:** gratitude, tribute, thankful, salute, favor, regard, esteem, veneration
 
 ## Carpe Diem ##
 
