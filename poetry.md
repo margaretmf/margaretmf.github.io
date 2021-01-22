@@ -2321,7 +2321,22 @@ I hold them in high regard, and high veneration.
 
 **Word Associations:** gratitude, tribute, thankful, salute, favor, regard, esteem, veneration
 
+
 ## Carpe Diem ##
+Carpe diem, sieze the day.
+Choose to live boldly,
+go outside the comfort zone,
+dare to do something different,
+and start a new endeavor and commit to it fully with audacity.
+Have the nerves to laugh, and to love, to speak, and to smile, and to dance.
+Choose boldly to see, capture, and create the beauty.
+Really live.
+Pluck out all the negativity.
+
+<br>
+
+**Word Associations:** live, pluck, seize, dare, boldness, endeavor, audacity, nerve
+
 
 ## Character ##
 
@@ -2359,9 +2374,6 @@ The bud within is made to open to full grace.
 **Word Associations:** surge, prosper, flowering, sprout, swell, unfold, boost, bud
 
 
-<br>
-
-
 ## Hate ##
 
 ## Humility ##
@@ -2389,10 +2401,19 @@ The reason behind a choice.
 **Word Associations:** acuen, savvy, reason, intuition, sense, perception, prudence, wisdom
 
 
+## Moving On ##
+One door closes loudly, and another door opens quietly.
+Hasten to move thorugh the new door opening quietly,
+and learn from the mistakes of the old door.
+Go forth with momentum,
+the intention to progress,
+and proceed as if the past cannot still affect the person becoming.
+Continue to learn, push through the obstacles, and launch the new day.
+
 <br>
 
+**Word Associations:** hasten, momentum, go forth, launch, progress, proceed, continue, push
 
-## Moving On ##
 
 ## A Mystery ##
 
@@ -2409,9 +2430,6 @@ I enter into a trance, slumber, and then wake up.
 <br>
 
 **Word Associations:** dream, doze, Morpheus, repose, torpor, trance, slumber, somnolence
-
-
-<br>
 
 
 ## Soul Mate ##
