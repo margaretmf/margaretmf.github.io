@@ -2416,6 +2416,20 @@ Continue to learn, push through the obstacles, and launch the new day.
 
 
 ## A Mystery ##
+Why are events happening the way they are? I do not know.
+It's a mystery, an enigma to me.
+It puzzles me daily. It baffles me hourly.
+I want to be fascinated by it.
+It tries to possess me, take me over, overpower me.
+I learn to not get stuck in the pickle, and in a conundrum. 
+I learn to not be run over by the quandary.
+The enigma being presented is a charde.
+I choose to walk over the crux trying to entrap, and ensare me.
+
+<br>
+
+**Word Associations:** conundrum, pickle, quandary, crux, enigma, puzzlement, charade, baffle
+
 
 ## Paradise ##
 
@@ -2461,6 +2475,17 @@ I enter into a trance, slumber, and then wake up.
 ## Confessions ##
 
 ## Insanity ##
+Falling to pieces mentally,
+losing control,
+letting a eprson, place, or thing control me.
+Heading into delirium, expressing incoherent thoughts, making irrational decisions, feeling lost in the delusion.
+Running around like a madwoman in a state of mania.
+Appearling like a lunatic.
+Working hastily and showing folly.
+
+<br>
+
+**Word Associations:** delirium, lunacy, mania, irrational incoherent, delusion, neurosis, folly
 
 ## A Surprise ##
 
