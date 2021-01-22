@@ -1,5 +1,23 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am trying to interact with it online. ##
 
+## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
+
+* Sing a song to God, and wake up out of bed freshly
+
+"O sign unto the Lord a new song:...Give unto the Lord the glory due unto his name:"
+
+* the living God, God lives with us
+
+"the living God"
+
+* delighting to do God's will
+
+"I delight to do thy will, O my God: yea, thy law is within my heart"
+
+* sing a song through rejoicing
+
+"rejoice and be glad in thee"
+
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
 * Being encouraged by others' faith - mutually encouraged
