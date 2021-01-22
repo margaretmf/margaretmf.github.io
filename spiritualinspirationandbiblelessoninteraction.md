@@ -18,6 +18,46 @@
 
 "rejoice and be glad in thee"
 
+* salvation is found in The Lord, The Lord gives strength 
+
+"The Lord is my light and my salvation; whom shall I fear? the Lord is the strength of my life;"
+
+* sing unto the Lord a song
+
+"O sign unto the Lord a new song; for he hath done marvellous things:"
+
+* the whole Earth shall find salvation
+
+"Break forth into joy, sing together"
+"all the ends of the earth shall see the salvation of our God"
+
+* praise God; the Lord is ready to save thee
+
+"praise thee"
+"The Lrod was ready to save me: therefore we will sing my songs to the stringed intruments all the days of our life in the house of the Lord"
+
+* love the Lord thy God
+
+"love the Lord thy God"
+"obey his voice"
+"he is thy life"
+
+* God is infinite, supreme, God blesses everyone, speaks to everyone, God is everywhere
+
+"God is infinite, the only Life, substance, Spirit, or Soul, the only intelligence of the universe, including man."
+
+* Life is God
+
+"Life is God"
+"the everlasting I AM"
+"the only Being"
+
+* neither Life nor man dies
+
+"neither Life nor man dies"
+"rise into newness of life with regeneration"
+"We all must learn that Life is God."
+
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
 * Being encouraged by others' faith - mutually encouraged
