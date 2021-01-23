@@ -58,6 +58,45 @@
 "rise into newness of life with regeneration"
 "We all must learn that Life is God."
 
+* the living God is what we need 
+
+"crieth out for the Living God"
+
+* the Lord thy God liveth
+
+"Elijah the Tishbite"
+"The Lord God liveth"
+"the word of the Lord"
+
+* dependent on God alone
+
+"Consider the ravens: for they neither sow nor reap; which neither have storehouse nor barn; and God feeth them: how much more are ye better than the fowls?"
+
+* liveth by the Lord
+
+"man doth not live by bread only, but by every word that proceedeth out of the mouth of the Lord doth man live"
+
+* Life is sustained by God
+
+"Is Life sustained by matter or by Spirit?"
+
+* triumph of Spirit in the Bible
+
+"From beginning to end, the Scriptures are full of accounts of the triumph of Spirit, Mind, over matter. Moses proved the power of Mind by what men called miracles; so did Joshua, Elijah, and Elisha."
+
+* Life - self-sustained in everlasting harmony
+
+"We cannot deny that Life is self-sustained, and we should never deny the everlasting harmony of Soul, simply because, to the mortal senses, there is seeming discord. It is our ignorance of God, the divine Principle, which produces apparent discord, and the right understanding of Him restores harmony."
+
+* man, sustained by God, the divine Principle of being
+
+"The earth, at God's command, brings forth food for man's uses."
+
+* feel the divine energy of Spirit
+
+"bringing us into newness of Life"
+"rejoice that we are subject to the divien 'powers that be'"
+
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
 * Being encouraged by others' faith - mutually encouraged
