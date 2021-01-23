@@ -1,4 +1,4 @@
-## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am trying to interact with it online. ##
+## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
 ## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
 
