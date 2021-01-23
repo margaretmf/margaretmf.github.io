@@ -34,7 +34,7 @@
 * praise God; the Lord is ready to save thee
 
 "praise thee"
-"The Lrod was ready to save me: therefore we will sing my songs to the stringed intruments all the days of our life in the house of the Lord"
+"The Lord was ready to save me: therefore we will sing my songs to the stringed intruments all the days of our life in the house of the Lord"
 
 * love the Lord thy God
 
