@@ -2467,6 +2467,15 @@ I enter into a trance, slumber, and then wake up.
 ## Society ##
 
 ## Forgetting ##
+Disremembering the wrongs of the past,
+letting the false experiences go completely away in conscioiusness,
+moving the negative experiences into oblivion,
+and starting on a clean slate with the error ommitted.
+Escaping the dark skeletons in the closet to be as fresh as the sunlight.
+
+<br>
+
+**Word Associations:** oblivion, disremember, consign, escape, pass, omit, scorn, clean slate
 
 ## Luck ##
 
@@ -2492,3 +2501,11 @@ Working hastily and showing folly.
 ## A Voice ##
 
 ## Sharing ##
+Someone approaches someone else in need, and someone else offer to provide support.
+Someone cooperates with someone else, and work as in a team with someone else.
+The two collaborate as one makes a sacrifice, and the other receives charity.
+The two work harmoniously as one gives generously, and the other receives a ration.
+
+<br>
+
+**Word Associations:** support, cooperation, ration, teamwork, collaboration, sacrifice, charity, generosity
