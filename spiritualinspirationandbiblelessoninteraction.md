@@ -97,6 +97,34 @@
 "bringing us into newness of Life"
 "rejoice that we are subject to the divien 'powers that be'"
 
+* the power of the Spirit, a parable
+
+"A sower went out to sow his seedL and as he sowed, some fell by the way side; and it was trodden down, and the fowls of the air devoured it. And some fell upon a rock; and as soon as it was sprung up, it withered away, because it lacked mositure. And some fell among thorns; and the thorns sprang up with it, and choke it. And other fell on good ground, and sprang up, and bare fruit an hundredfold."
+
+* man be in Christ
+
+"Christ"
+"man be in Christ"
+"he is a new creature: old things are passed away; behold, all things are become new"
+
+* glorious possibilities
+
+"Science reveals the glorious possibilities of immortal man, forever unlimited by the mortal senses. The Christ-element in the Messiah made him the Way-shower, Truth and Life."
+
+* The eternal Truth destroys what mortals seem to have learned from error, and man's real existence as a child of God comes to light. Truth demonstrated is eternal life. Mortal man can never rise from the temporal debris of error, belief in sin, sickness, and death, until he learns that God is the only Life."
+
+* "the soil of an 'honest and good heart'"
+
+"the seed must be sewn"
+"fruit"
+"swinish element in human nature uproots it"
+
+* perfection
+"be perfect as Father in heaven is perfect"
+
+* God, the only Mind, Life
+
+
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
 * Being encouraged by others' faith - mutually encouraged
