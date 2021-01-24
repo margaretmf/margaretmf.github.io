@@ -124,6 +124,37 @@
 
 * God, the only Mind, Life
 
+* our relation to the Divine - one Mind
+
+"When we fully understand our relation to the Divine, we can have no other Mind but His, - no other Love, wisdom, or Turht, no other sense of Life, and no conscioiusness of the existence of matter or error."
+
+* all things become new, the foundation of God
+
+"We cannot build safely on false foundations. Truth makes a new creature, in whom old things pass away and 'all things are become new.'"
+
+* Jesus authority over sin, disease, death
+
+"Jesus authority over sin, sickness, death"
+
+* anything can inspire
+
+"song, sermon, or Science - blesses the human family"
+"feeding the hungry and giving living waters to the thirsty"
+
+* love thee, O Lord
+
+"I will love thee, O Lord, my strength"
+
+* light
+
+"light my candle"
+
+* The Lord liveth
+
+"The Lord liveth; and blessed be my rock; and let the God of my salvation be exalted."
+
+* Life, being of God
+
 
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
