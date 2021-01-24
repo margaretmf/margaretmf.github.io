@@ -2003,7 +2003,7 @@ It's a green plight indeed, a quagmire.
 
 <br>
 
-**Word Association:** bind, choice, boxed in, impasse, scrape, plight, mess, quagmire
+**Word Associations:** bind, choice, boxed in, impasse, scrape, plight, mess, quagmire
 
 
 <br>
@@ -2018,7 +2018,7 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 
 <br>
 
-**Word Association:** fantasy, trance, thought, image, illusion, mental picture, fancy, vision
+**Word Associations:** fantasy, trance, thought, image, illusion, mental picture, fancy, vision
 
 
 <br>
@@ -2045,7 +2045,7 @@ Gaining the smarts to know what to do.
 
 <br>
 
-**Word Association:** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
+**Word Associations :** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
 
 
 <br>
@@ -2062,6 +2062,16 @@ Gaining the smarts to know what to do.
 ## A Pet ##
 
 ## Heroism ##
+Heroism - as it goes, "everywhere, life is filled with it."
+It is the courage to rise up and shine for another day to help someone.
+It is making a sacrifice by stopping what one wants, doing what is right, forgoing the wrong desire.
+It is expressing unflinching strength in times of darkness.
+It is being bold and daring to meet a need.
+It is sharing valiance and strength of spirit.
+
+<br>
+
+**Word Associations:** courage, sacrifice, unflinching, strength, valiant, gallant, bold, daring
 
 ## Chance ##
 
