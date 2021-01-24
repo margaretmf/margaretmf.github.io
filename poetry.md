@@ -2375,6 +2375,23 @@ The bud within is made to open to full grace.
 
 
 ## Hate ##
+What do I hate?
+Being exposed to people who ignore or cast jugdment.
+Being rejected.
+Being threatened.
+Making mistakes.
+Being patronized, or condescended.
+The venom of hate strings, and consumes the day.
+The spiteful spirit within that takes no care for the people around them.
+The aversion to people.
+The ire, the malevolence, the bile.
+Hate leads to wrath.
+It's the absence of the love that lies deep within everyone's heart.
+
+<br>
+
+**Word Associations:** ire, venom, spite, scorn, malevolence, aversion, bile, wrath
+
 
 ## Humility ##
 
