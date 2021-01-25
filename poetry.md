@@ -68,7 +68,7 @@ Divine Mind wants to control through morality, through the consciousness of good
 
 ## The Ocean ##
 The ocean crashes every day upon the shore.
-The deep waters fo God are where the sin is stirred out.
+The deep waters of God are where the sin is stirred out.
 And the holiness of God can cleanse what is wrong away.
 
 ## Connected, Yet Ostracized ##
