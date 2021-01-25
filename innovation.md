@@ -502,6 +502,34 @@ is_contact: true
 (8) Southern sounding "hey, darling" from an aunt
 (9) A call from a friend
 
+## **Day 32** ##
+### **Images** ###
+(1) The sun shining through the blinds in the same way
+(2) Blinkers on a car
+(3) Red ink on a coloring book page
+(4) Fog on a rear view window
+(5) A new day in the local coffee shop
+(6) The whole system of cars and people
+(7) Yellow truck
+
+### **Sounds** ###
+(1) A kind voice at the Starbucks
+(2) Birds tweeting outside my bedroom
+(3) Birds tweeting outside when walking outside
+(4) THe consciousness of good
+() The train whistling and blowing
+
+## **Day 33** ##
+### **Images** ###
+(1) Brown plants blowing in the wind
+(2) Car motor running
+(3) Cars driving by
+
+### **Sounds** ###
+(1) The sound of a heart filled with love towards someone
+(2) The sound of new ideas to develop character
+(3) The sound of discipline
+
 <br>
 
 <br>
@@ -527,6 +555,7 @@ is_contact: true
 * Photograph
 * Resilience | Getting Back up, Rising higher, Being independent
 * The Union - North, South, East, West - we all stand in this union, where everything is interconnected, rising above the conflict, the chaos, finding our common bond, the bridge to the other side
+* Sitting in Traffic - birds on a wire, car lights - red, yellow, green, blinkers
 
 
 <br>
@@ -551,10 +580,10 @@ is_contact: true
 * Themes, Colors, Metaphors, Similes, Grammar
 * Teaching Friendship in Class 
 
-### **Spiritual&CulturalEnrepreneurship** ###
+### **Spiritual & Cultural Enrepreneurship** ###
 * Altar'd State
 * EVERFI
-* Assemblage
+* The Assemblage
 
 
 <br>
