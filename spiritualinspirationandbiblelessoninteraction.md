@@ -155,6 +155,45 @@
 
 * Life, being of God
 
+* Truth
+
+"ye shall know it"
+
+* their God
+
+"I will be their God in truth and in righteousness"
+
+* Make a joyful noise
+
+"Make a joyfulnoise unto the Lord, all ye lands"
+
+* for the Lord is good
+
+"For the Lord is good: his mercy is everlasting, and his truth endureth to all generations"
+
+* the Lord loveth what is right
+
+"the Lord loveth the righteous"
+
+* statues
+
+"Blessed art thou, O lord: teach me thy statues"
+
+"the way of truth"
+"thy judgments"
+"Give me understanding"
+"keep thy law"
+"my whole heart"
+"at liberty"
+
+* God, all-in-all
+
+"the creator of the spiritual universe, including man"
+
+"classification as truth"
+
+"illimitable divinity"
+
 
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
