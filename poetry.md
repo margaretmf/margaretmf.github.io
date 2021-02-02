@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-## **I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry.** ##
+## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where the night in reality is a silent night.
