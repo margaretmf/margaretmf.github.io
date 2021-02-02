@@ -10,6 +10,7 @@ layout: default
 
 ### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
+* [Where the Red Fern Grows](https://www.amazon.com/Where-Fern-Grows-Wilson-Rawls/dp/0440412676) by Wilson Rawls
 
 
 ## 2020
