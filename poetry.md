@@ -2480,12 +2480,33 @@ I enter into a trance, slumber, and then wake up.
 ## A Sunset ##
 
 ## Growing Older ##
+Another year has past.
+I have grown older, seen everything evolve, and perfected the ieprfect ideas.
+Lessons have been gained, immature ways have been let go of and destoryed.
+The golden years that belong to the sun have yet to come.
+As I grow older, I pass by those elders who are more mature and venerable.
 
+<br>
+
+**Word Associations:** golden years, mature, dotage, decline, elder, venerable, evolved, perfected
+
+ 
 ## A Choice ##
 
 ## Jealousy ##
 
 ## Fear ##
+There's so much tightness within.
+It's a living nightmare.
+Trapped in the dread of getting up out of bed another day to make known.
+Paralyzed by the wrongs done.
+Creeped out by the msytery of life.
+Taken over by the angst of what needs to be done and the termors on the Earth.
+
+<br>
+
+**Word Associations:** dread, tremor, paralyzed, foreboding, nightmare, creeps, jitters, angst
+
 
 ## A Breath ##
 
