@@ -1,7 +1,79 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
-## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
+## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
 
+* know the Truth
+
+"...you shall know the truth,a nd the truth shall make you free"
+
+* the Lord will save his people everywhere
+
+"Thus saith the Lord of hosts; Behold, I wills ave my people from the east country, and from the west country;"
+
+* I will be their God
+
+"...I will be their God, int ruth and in righteousness"
+
+* God's people shall not hunger or thirst
+
+"They shall not hunger nor thirst; neither shall the heat nor sun smite them: for he that hath mercy on them shall lead them, even by the springs of water shall he guide them."
+
+* Make a joyful noise unto the Lord; be grateful for what God is doing
+
+"Make a joyful noise unto the Lord, all ye lands. For the Lord is good; his mercy is everlasting; and his truth endureth to all generations."
+
+* The Lord frees the prisoners
+
+"The Lord looseth the prisoners: The Lord openeth the eyes of the blind: the Lord raiseth them that are bowed down: the Lord loveth the righteous:"
+
+* Oh Lord, teach thy statutes
+
+"Blessed art thou, O Lord: teach me thy statutes"
+"I have chosen the way of truth"
+"Give me understanding, and I shall keep thy law; yea, I shall observe it with my whole heart."
+"And I will walk at liberty: for I seek they precepts."
+
+* God, the All-in-All
+
+"If God, the All-in-all, be the creator of the spiritual universe, including man, then everything entitled to a classification as truth, or Science, must be comprised in a knowledge or understanding of God, for there can be nothing beyond illimitable divinity."
+
+* Truth is Divine in Science
+
+"In Science, Truth is divine"
+
+* It destroys other gods
+
+"The true understanding of God is spiritual. It robs the grave of victory. It destorys thef alse evidence that misleads thougth and points to other gods, or other so-called powers, such as matter, disease, sin, and death, superior or contrary to the one Spirit."
+
+* God is just, God-given rights
+
+"Ignorant of our God-given rights, we submit to unjust decrees, and the bias of education enforces this slavery."
+"Whatever enslaves man is opposed to the divine government. Truth makes man free."
+
+* Justice and judgment
+
+"Justice and judgmetna re the habitation of thy throne."
+
+* Inalienable rights from God
+
+"God has endowed man with inalienable rights, among which are self-government, reason, and conscience. Man is properly self-governed only when he is guided rightly and governed by his Maker, divine Truth and Love."
+
+* Science, the laws of God
+
+"The term Science, properly understood, refers only to the laws of God and to His government of the universe, inclusive of man."
+
+* latent abilities of man
+
+"A knowledge of the Science of being develops the latent abilities and possibilities of man. It extends the atmosphere of thoguht, giving mortals access to broader and higher realms. It raises the thinker into his native air of insight and perspicacity."
+
+* A higher, more practical Christianity
+
+"A higher and more practical Christianity, demonstrating justice and meeting the needs of mortals in sickness and in health, stands at the door of this age, knocking for admission. Will you open or close the door upon this angel visitant, who cometh in the quiet of meekness, as he came of old to the patriarch at noonday?"
+
+"Truth brings the elements of liberty."
+
+## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
+ 
 * Sing a song to God, and wake up out of bed freshly
 
 "O sign unto the Lord a new song:...Give unto the Lord the glory due unto his name:"
