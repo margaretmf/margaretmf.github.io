@@ -1,0 +1,1 @@
+I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to kids. I hope to share outlines below.
