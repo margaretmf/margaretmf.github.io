@@ -2031,6 +2031,19 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 ## Poetry ##
 
 ## Wishes ##
+The intention to love.
+The desire to sing.
+The aspiration to learn each day.
+The ambition to create something with what is already done.
+The longing to be better.
+The hope to succeed.
+The will to turn visions and dreams into reality.
+THe yearning to forgive, let go, and speak with more compassionate tones.
+
+<br>
+
+**Words Associations:** intention, aspiration, ambition, hope, longing, will, yearning, desire
+
 
 ## Food ##
 
@@ -2045,7 +2058,7 @@ Gaining the smarts to know what to do.
 
 <br>
 
-**Word Associations :** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
+**Word Associations:** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
 
 
 <br>
@@ -2073,7 +2086,17 @@ It is sharing valiance and strength of spirit.
 
 **Word Associations:** courage, sacrifice, unflinching, strength, valiant, gallant, bold, daring
 
+
 ## Chance ##
+By chance, I meet these new people.
+Random encounters point me to my lifelong fate.
+Good luck points me to my lifelong destiny.
+I am grateful for the good fortune, and gamble with what to do, knowing that something larger than myself is synchronizing situations to lead to divine providence.
+
+<br>
+
+**Word Associations:** luck, fortune, random, fate, remote, providence, gamble, destiny
+
 
 ## Kisses ## 
 
