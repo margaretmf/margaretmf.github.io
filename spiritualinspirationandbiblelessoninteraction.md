@@ -4,15 +4,15 @@
 
 * know the Truth
 
-"...you shall know the truth,a nd the truth shall make you free"
+"...you shall know the truth, and the truth shall make you free"
 
 * the Lord will save his people everywhere
 
-"Thus saith the Lord of hosts; Behold, I wills ave my people from the east country, and from the west country;"
+"Thus saith the Lord of hosts; Behold, I will save my people from the east country, and from the west country;"
 
 * I will be their God
 
-"...I will be their God, int ruth and in righteousness"
+"...I will be their God, in truth and in righteousness"
 
 * God's people shall not hunger or thirst
 
@@ -71,6 +71,24 @@
 "A higher and more practical Christianity, demonstrating justice and meeting the needs of mortals in sickness and in health, stands at the door of this age, knocking for admission. Will you open or close the door upon this angel visitant, who cometh in the quiet of meekness, as he came of old to the patriarch at noonday?"
 
 "Truth brings the elements of liberty."
+
+* the law, Moses
+
+"For the law was given by Moses, but grace and truth came by Jesus Christ."
+
+* the light of the world
+
+"the light of the world", Jesus, "the light of life"
+
+* "continue in my word", "the truth shall make you free"
+
+* God knows all things
+
+"ye have an unction from the Holy One, and ye know all things"
+
+* children of light
+
+"now are ye light in the Lord: walk as children of light:"
 
 ## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
  
@@ -247,7 +265,7 @@
 
 "the Lord loveth the righteous"
 
-* statues
+* statutes
 
 "Blessed art thou, O lord: teach me thy statues"
 
