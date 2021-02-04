@@ -415,7 +415,7 @@ always fed, and nourished, and supplied
 "Christ shall give thee light."
 
 * cast seven devils out of someone
-"Mary Magdalene
+"Mary Magdalene"
 
 * The Resurrection
 "Through all the disciples experienced, they became more spiritual and understood better what the Master had taught. His resurrection was also their resurrection. It helped them to raise themselves and others from spiritual dulness and blind belief in God into the perception of infinte possibilities."
