@@ -437,6 +437,48 @@ always fed, and nourished, and supplied
 * follow the Master
 "it is the duty"
 
+* bruised reed, break, judgment, truth
+
+"A bruised reed shall he not break, and the smoking flax shall he not quench: he shal bring forth judgment unto truth."
+
+* woman, spirit of infirmity
+
+"And he laid is hands on her: and immediately she was made straight, and glorified God."
+"Jesus, the sabbath day"
+"The Lord then answered him, and said, Thou hypocrite doth not each one of you on the sabbath loose his ox or his ass from the stall, and lead him away to watering?"
+"And ought not this woman, being a daughter of Abraham, whom Satan hath bound, lo, these eighteen years, be loosed from this bond on the sabbath day? And when he had said these things, all his adversaries were ashamed: and all the people rejoiced for all the glorioius things that were done by him."
+
+* Christ, Truth, Jesus
+
+"the power of Spirit over the flesh"
+"Truth is made manifest by its effects upon the human mind and boy, healing sickness and destorying sin"
+
+* Truth casts out error
+
+* the idea of Truth, our Master, Satan "for error hath bound"
+
+"for error in the life-giving power of Truth, acting on human belief, a power which opens the prison doors to such as are bound, and sets the captive free physicaly and morally"
+
+"When the illusion of sickness or sin tempts you, cling steadfastly to God and His idea."
+
+* plead the case for Truth
+
+"Mentally and silently plead the case scientifically for Turht."
+
+"the arguments"
+
+"general symptoms"
+
+"you will be the victor"
+
+* Harmony
+
+"Mentlaly insist that harmony is the fact, and that sickness is a temporal dream. Realize the presence of health and the fact of harmonious being, until the body corresponds with the normal conditions of health and harmony."
+
+* command the situation, mortal existence, state of self-deception, truth of being
+
+"A Christian Scientist's medicine is Mind, the divine Truth that makes man free."
+
 
 ## Week of December 28, 2020 - 'God' - Inspiring Passages ##
 
