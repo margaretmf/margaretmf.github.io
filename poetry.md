@@ -2351,6 +2351,11 @@ Supported by the design of the universe causing good prospects to live always.
 ## Silence ##
 
 ## Solitude ##
+Alone, I rest in peace, gather thoughts, enjoy loving something.
+In isolation, I find my self, m voice.
+In privacy, I sing a song and learn to love life.
+As a recluse, I find my source of energy within.
+In seclusion, I heal from the outside world and seek to understand the outside world.
 
 ## Romance ##
 
