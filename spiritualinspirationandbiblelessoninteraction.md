@@ -315,6 +315,46 @@
 
 "Christian Science brings to light Truth and its supremacy, universal harmony, the entireness of God, good, and the nothingness of evil."
 
+* the word of the Lord - free course
+
+"brethren, pray for us, that the word of the Lord may have free course, and be glorified, even as it is with you:"
+
+* the apostles - signs, wonders, the people, Solomon's porch
+
+* the Lord, multitudes both of men and women
+
+"healed every one", "vexed with unclean spirits"
+
+* prison doors, angels
+
+"And laid their hands on the apostles, and put them in the common prison. But the angel of the Lord by night oepned the prison doors, and brought them forth, and said, Go, stand ands peak in the temple to the people all the words of this life. ANd when they heard that, they entered into the temple early in the morning, and taught."
+
+* the best sermon
+
+"Truth practiced and demonstrated by the destruction of sin, sickness, and death"
+
+* Courage to utter Truth, the higher Truth lifts her voice
+
+"It requires courage to utter truth; for the higher Truth lifts her voice, the louder will error scream, until its inarticulate sound is forever silenced in oblivion."
+
+* Christianity - demonstrating the Life that is Truth
+
+"Christianity is again demonstrating the Life that is Truth, and the Truth that is Life, by the apostolic work of casting out error and healing the sick. Earth has no repayment for the persecutions which attend a new step in Christianity; but the spiritual recompense of the persecuted is assured in the elevation of existence above mortal discord and in the gift of divine Love."
+
+* Truth, affirmative, harmony is the real
+
+"Truth is affirmative, and confers harmony. All metaphysical logic is inspired by this simple rule of Truth, which governs all reality. By the truthful arguments you employed, and especially by the spirit of Truth and Love which you entertain, you will heal the sick."
+
+* Preach the gospel
+
+"Preach the gospel toe very creature."
+"Speak the turth to every form of error."
+
+* the omnipotence of God
+"When the omnipotence of God is preached and His absoluteness is set forth, Christian sermons will heal the sick."
+
+
+
 
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
 
@@ -424,7 +464,7 @@ always fed, and nourished, and supplied
 "the bright morning hours at the joyful meeting on the shore of the Galilean Sea!"
 "His gloom had passed into glory, and his disciples' grief into repentence, - hearts chastened and pride rebuked"
 "Convinced of the fruitlessness of their toil in the dark and wakened by their Master's voice, they changed their methods, turned away from material things, and cast their net on the right side"
-"Discerning CHist, Truth, anew on the shore of time, they were enabled to rise somewhat from mortal senusousness, or the burial of mind in matter, into newness of life as Spirit."
+"Discerning Christ, Truth, anew on the shore of time, they were enabled to rise somewhat from mortal senusousness, or the burial of mind in matter, into newness of life as Spirit."
 
 * Triumphs over death
 "a full understanding of the divine Principle, which triumphs over death"
@@ -463,7 +503,7 @@ always fed, and nourished, and supplied
 
 * plead the case for Truth
 
-"Mentally and silently plead the case scientifically for Turht."
+"Mentally and silently plead the case scientifically for Truth."
 
 "the arguments"
 
