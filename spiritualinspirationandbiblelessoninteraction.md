@@ -52,7 +52,7 @@
 
 * Justice and judgment
 
-"Justice and judgmetna re the habitation of thy throne."
+"Justice and judgment are the habitation of thy throne."
 
 * Inalienable rights from God
 
@@ -255,7 +255,7 @@
 
 * Make a joyful noise
 
-"Make a joyfulnoise unto the Lord, all ye lands"
+"Make a joyful noise unto the Lord, all ye lands"
 
 * for the Lord is good
 
@@ -283,6 +283,37 @@
 "classification as truth"
 
 "illimitable divinity"
+
+* darkness destroyed by light
+
+"The apostle says that the mission of Christ is to 'destroy the works of the devil.' Truth destorys falsity and error, for light and darkness cannot dwell together. Light extinguishes the darkness, and the Scripture declares that there is 'no night there.' To Truth there is no error, - all is Truth."
+
+* Truth, evil
+
+"sustain Truth"
+
+"God makes sickness, sin, and death"
+
+"creativeness and authority of Deity"
+
+* one God
+
+"one God, one Mind"
+
+* Evil
+
+"Evil is but the counterpoise of nothingness. The greatest wrong is but a supposititious opposite of the highest right. The confidence inspired by Science lies in the fact that Truth is real and error is unreal."
+
+* Love, Truth - makes free
+
+"Love and Truth makes free"
+"lead into captivity"
+
+* the understanding of Truth
+
+"We treat error through the understanding of Truth, because Turht is error's antidote."
+
+"Christian Science brings to light Truth and its supremacy, universal harmony, the entireness of God, good, and the nothingness of evil."
 
 
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
