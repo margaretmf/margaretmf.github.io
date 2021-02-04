@@ -189,7 +189,7 @@
 
 * the power of the Spirit, a parable
 
-"A sower went out to sow his seedL and as he sowed, some fell by the way side; and it was trodden down, and the fowls of the air devoured it. And some fell upon a rock; and as soon as it was sprung up, it withered away, because it lacked mositure. And some fell among thorns; and the thorns sprang up with it, and choke it. And other fell on good ground, and sprang up, and bare fruit an hundredfold."
+"A sower went out to sow his seed and as he sowed, some fell by the way side; and it was trodden down, and the fowls of the air devoured it. And some fell upon a rock; and as soon as it was sprung up, it withered away, because it lacked mositure. And some fell among thorns; and the thorns sprang up with it, and choke it. And other fell on good ground, and sprang up, and bare fruit an hundredfold."
 
 * man be in Christ
 
