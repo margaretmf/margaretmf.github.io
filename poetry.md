@@ -2025,6 +2025,18 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 
 
 ## Travel ##
+On a trek to discover something new.
+Wandering without a destination.
+Touring a new, foreign place to understand another part of the world.
+Rambling through unknown places to appreciate nature.
+Expediting an adventure toe xperience the joy of going outside one's comfort zone.
+On a voyage to another side of the Earth.
+And on a trip to see location A to location B.
+
+<br>
+
+**Word Associations:** trek, ramble, wandering, touring, expedition, tour, voyage, trip
+
 
 ## Fame ##
 
@@ -2453,7 +2465,7 @@ The reason behind a choice.
 
 ## Moving On ##
 One door closes loudly, and another door opens quietly.
-Hasten to move thorugh the new door opening quietly,
+Hasten to move through the new door opening quietly,
 and learn from the mistakes of the old door.
 Go forth with momentum,
 the intention to progress,
