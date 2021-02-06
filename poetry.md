@@ -2610,6 +2610,18 @@ Working hastily and showing folly.
 ## A Surprise ##
 
 ## A Voice ##
+People say they can't hear your voice.
+It's so soft, and so passive.
+It's being shut out by the hollers.
+The voice is within though.
+It speaks like a whisper, feeling good inside.
+It is the inner conscience sharing the truth loudly, clearly, and freely.
+It is the instinct to know what is right from wrong.
+It murmurs the right answer in one's heart.
+
+<br>
+
+**Word Associations:** murmur, whisper, holler, soft, husky, sultry, conscience, instinct
 
 ## Sharing ##
 Someone approaches someone else in need, and someone else offer to provide support.
