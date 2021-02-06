@@ -2539,13 +2539,20 @@ I enter into a trance, slumber, and then wake up.
 ## Soul Mate ##
 
 ## Strength ##
+When everything goes awry, I go within to find the strength to move forward.
+When I feel anger and hatred all around, and want to lash out, I see how loving a neighbor as myself is vital to living another minute, another hour, another day.
+When I don't know how to arise another day out of bed, I find health from God within.
+This source within is powerful.
+One small intuition can grow and grow into potency.
+One small seed can be the muscle for a long, entire life.
+One choice to think differently can become the sinew for many more thoughts and actions to come.
 
 ## A Sunset ##
 
 ## Growing Older ##
 Another year has past.
 I have grown older, seen everything evolve, and perfected the ieprfect ideas.
-Lessons have been gained, immature ways have been let go of and destoryed.
+Lessons have been gained, immature ways have been let go of and destroyed.
 The golden years that belong to the sun have yet to come.
 As I grow older, I pass by those elders who are more mature and venerable.
 
