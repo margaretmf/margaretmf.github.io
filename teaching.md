@@ -1,22 +1,22 @@
 I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to kids. I hope to share outlines below.
 
-### Where the Red Fern Grows by Wilson Rawls ###
+## Where the Red Fern Grows by Wilson Rawls ##
 
-### Questions ###
-## Who? ##
+## Questions ##
+### Who? ###
 * A boy and his dogs
 * Billy Coleman
 * The author connects Billy Coleman to readers
 * Every reader may be like Billy Coleman in some way
 
 
-## What? ##
+### What? ###
 * The redbuds
 * Ghost stories, tree frogs, vesper songs, explosion of stars
 * Farmers, farming, railroad
 
 
-## Where? ##
+### Where? ###
 * Oklahoma, The Ozark Mountains
 
 * "Rooted in place"
@@ -27,7 +27,7 @@ I have started reading children's books, and developing outlines for critically 
 * the Illinois River, Kentucky 
 
 
-## Why? ##
+### Why? ###
 * Adventure, Discovery, Room to wander
 
 * "Wilson Rawls's beloved tale taps into the wellspring that runs deep in all of us - the desire for adventures, discovery, room to wander, and the 'real love' that exists between a boy and his dogs."
@@ -37,14 +37,14 @@ I have started reading children's books, and developing outlines for critically 
 * "the author invites the reader in 'a window into our own stories as well'"
 
 
-## Color ##
+### Color ###
 * Red - explicit
 * Brown, green, blue - implicit
 * Green - implicit
 * Black, dark blue - explicit
 
 
-## Adjectives ##
+### Adjectives ###
 * Frigid // Temperatures
 * Remote // Hills
 * Snarling, growling, twisting, slashing
@@ -53,7 +53,7 @@ I have started reading children's books, and developing outlines for critically 
 * Rich, Black // soil
 
 
-## Themes ##
+### Themes ###
 * Discovery, friendship, love, memories
 
 * Prayer, the Good Lord, Christianity
@@ -71,11 +71,11 @@ the Big Sycamore Tree, the River, the Tree foliage
 * Hunting, Dogs and a Man
 
 
-## When? ##
+### When? ###
 * "Beautiful spring day"
 
 
-## What? ##
+### What? ###
 * "leaving the office", "uncertainty"
 * "too perfect for anything unusual to happen"
 * "everything is right and nothing is wrong"
