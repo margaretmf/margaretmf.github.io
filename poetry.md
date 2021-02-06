@@ -2081,6 +2081,18 @@ Gaining the smarts to know what to do.
 ## Ice ##
 
 ## Science Fiction ##
+In the space alien to who I am,
+I am exploring a land that feels foreign, distance, and off into another time period.
+It feels like I have been abducted by a space-time void, invaded by another sense of the dimension of things, and taken into another galaxy.
+I am in a humanoid, where the space-time void enfolds and unfolds infinitely, and humanity is mirrored, but not real.
+
+<br>
+
+**Word Associations:** space, alien, explore, abduction, invasion, future, humanoid, galaxy
+
+
+<br>
+
 
 ## An Animal ##
 
@@ -2117,6 +2129,17 @@ I am grateful for the good fortune, and gamble with what to do, knowing that som
 ## Summer ##
 
 ## Ecology ##
+Everyone, everything working together harmoniously for good.
+Preserving one another through kind, and patient actions.
+Conserving the best of humanity, and the animal kingdom through our thoughts and deeds.
+We are all part of a constantly evolving ecosystem with diverse ideas feeding each other and renewing each other.
+In the natural environment belonging to animals and man, there's constant circuity and motion.
+In the Science of the Earth, naturally Life goes on and on so that everyone and everything pushes everyone and everything to grow and make the planet grow infinitely better, greater, greener, brighter, and lighter.
+
+<br>
+
+**Word Associations:** preservation, conservation, ecosystem, environment, science, nature, Earth, planet
+
 
 ## Tradition ##
 
