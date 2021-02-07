@@ -90,6 +90,33 @@
 
 "now are ye light in the Lord: walk as children of light:"
 
+* Divine Love - meeting every need
+
+"Divine Love always has met and always will meet every human need."
+
+"The miracle of grace is no miracle to Love."
+
+* Psalm, the light
+
+"Christian Science throws on the Scriptures by substiting for the corporeal sense, the incorporeal or spiritual sense of Deity: -"
+
+* "love God", "love Him" - Assimilate the divine character
+
+"but the longing to be better and holier, expressed in daily watchfulness and in striving to assimilate more of the divine character"
+"will mould and fashion us anew"
+
+* Aligned with unselfed love
+
+"Whatever holds human thought in line with unselfed love, receives directly the divine power"
+
+* Broken-hearted
+
+"The Lord is nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit." 
+
+* Recompense for work
+
+"The Lord recompense thy work, and a full reward be given thee of the Lord God of Israel, under whose wings thou art come to trust."
+
 ## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
  
 * Sing a song to God, and wake up out of bed freshly
