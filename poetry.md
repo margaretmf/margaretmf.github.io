@@ -313,8 +313,8 @@ Freedom from racial, gender, and cultural politics.
 ## Southern Titles ##
 "Ladies" at home, and the country club, "women" at work
 "Babygirl" and "babe" on the street, which sounds like a cat call after being raised to be a Southern lady
-Are "ladies" just upper-class, rich, white women or women from all races?
-Traditionally, "ladies" are just upper-class, rich, white women, but I see members of all races being "ladies" and "gentlmen" in the true sense of being able to take care of a home and doing fulfilling work in life.
+Are ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) just upper-class, rich, white women or women from all races, associated with the Confederate flag?
+Traditionally, ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) are just upper-class, rich, white women, but I see members of all races being ["ladies" and "gentlemen"](https://empoweringwomennow.com/23-characteristics-of-a-classy-lady/) in the true sense of being able to take care of a home and doing fulfilling work in life.
 
 ## The Country Music and the Rejection ##
 Did it heal your relationship to the Country or the country?
