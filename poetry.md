@@ -2522,6 +2522,17 @@ I choose to walk over the crux trying to entrap, and ensare me.
 
 
 ## Paradise ##
+Heaven within, where no passion can reign.
+Balanced bliss governing the day with thoughtful intentions and freedom from want.
+Pure delight found in the joy of making someone happy.
+A utopia created externally from leaning on the grace of goodness and simplicity within.
+Boundless bliss expanding infintely.
+A nirvana, wehre stress has no power at all.
+
+<br>
+
+**Word Associations:** eden, Elysium, heaven, bliss, delight, utpia, transport, nirvana
+
 
 ## Passion ##
 
