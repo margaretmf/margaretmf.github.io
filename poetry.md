@@ -6,8 +6,8 @@ is_contact: true
 ## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
 
 ## Taking Back the Night ##
-Flying into the night sky, I take back the night, where the night in reality is a silent night.
-I sing with the stars, where everyone has a place.
+Flying into the night sky, I take back the night, where in reality it is a silent night.
+I sing with the stars above, where everyone has a place.
 In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
 I know I am held so tightly because of how brightly the light shines.
 
@@ -158,7 +158,14 @@ The residue from the storms falls way.
 Life continues with freshness.
 The light of love and life chases the storm away, leaving no room for negativity, and only gives room for rebirth and renewal.
 
-## Quarantine - Creativity, Regeneration, Rebirth, and Home ##
+## Quarantine - Regeneration ##
+So much died, panicked, attacked, reacted in anger leading into the quarantine.
+There were so many riots.
+It was all like dead leaves on a tree losing its value, its integrity, its originality, its source of life.
+Even during the quarantine, riots, pain, frustration, anger, and attacks continued.
+But so did the birth of new ideas awaken us, the regeneration of old, valuable ideas renew us, and the fading out of dead leaves clear our thoughts.
+The harshness of winter, when all is cold, bleak, lost, dark, angry, and fallen, giving way to a full-time spring, and summer.
+Flowers cannot bloom until the dead leaves fully fall off.
 
 ## Religious Liberty ##
 Christian Science embraces all religions, all churches, all races, and all of humanity.
@@ -240,7 +247,7 @@ My heart soars higher, my eyes look deeper, my vision grows further when he lets
 
 ## Fighting for Independence ##
 Let go of the gun.
-let the reign of Truth and Love in.
+Let the reign of Truth and Love in.
 Fighting for Independence, where there is ground beneath my feet,
 trust, love, and joy in the depths of my soul,
 goodness that is greater than evil
@@ -302,6 +309,12 @@ Equality for all.
 A connection to the land.
 A love of home and family.
 Freedom from racial, gender, and cultural politics.
+
+## Southern Titles ##
+"Ladies" at home, and the country club, "women" at work
+"Babygirl" and "babe" on the street, which sounds like a cat call after being raised to be a Southern lady
+Are "ladies" just upper-class, rich, white women or women from all races?
+Traditionally, "ladies" are just upper-class, rich, white women, but I see members of all races being "ladies" and "gentlmen" in the true sense of being able to take care of a home and doing fulfilling work in life.
 
 ## The Country Music and the Rejection ##
 Did it heal your relationship to the Country or the country?
@@ -403,7 +416,7 @@ From different places in the Universe
 
 ## Roots ##
 You can claim what you were born to be.
-Your roots may have dried out, but your roots run deeply into the groun.
+Your roots may have dried out, but your roots run deeply into the ground.
 Dig within deeply, remove the weeds, and discover the glory.
 The glory, the beauty, the soul of Soul is there.
 
