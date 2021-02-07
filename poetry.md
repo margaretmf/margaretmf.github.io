@@ -311,10 +311,11 @@ A love of home and family.
 Freedom from racial, gender, and cultural politics.
 
 ## Southern Titles ##
-"Ladies" at home, and the country club, "women" at work
-"Babygirl" and "babe" on the street, which sounds like a cat call after being raised to be a Southern lady
-Are ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) just upper-class, rich, white women or women from all races, associated with the Confederate flag?
-Traditionally, ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) are just upper-class, rich, white women, but I see members of all races being ["ladies" and "gentlemen"](https://empoweringwomennow.com/23-characteristics-of-a-classy-lady/) in the true sense of being able to take care of a home and doing fulfilling work in life.
+"Ladies" at home, and the country club, and "women" at work.
+"Babygirl" and "babe" on the street, which sounds like a cat call after being raised to be a Southern lady.
+Are ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) just upper-class, wealthy, white women or women from all races, associated with the Confederate flag?
+Traditionally, ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) are just upper-class, rich, white women, but I see members of all races being ["ladies" and "gentlemen"](https://empoweringwomennow.com/23-characteristics-of-a-classy-lady/) in the true sense of being able to take care of a home and do fulfilling work in life.
+And I love that homes can include African American art and culture.
 
 ## The Country Music and the Rejection ##
 Did it heal your relationship to the Country or the country?
@@ -2622,6 +2623,15 @@ Escaping the dark skeletons in the closet to be as fresh as the sunlight.
 ## Luck ##
 
 ## Regret ##
+Wow. That was such a big mistake.
+I should not have done that in the land of bitterness, and in my self-defeat.
+Lamenting over what could have been, what should have been, what was done wrong.
+Bemoaning over the past, and with a strong conscience, living in penitence with strong self-reproach.
+Repining for rue.
+
+<br>
+
+**Word Associations:** penitence, self-reproach, repine, bitterness, lament, bemoan, rue, defeat
 
 ## Confessions ##
 
