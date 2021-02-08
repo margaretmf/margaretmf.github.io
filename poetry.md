@@ -1310,7 +1310,7 @@ I have blemishes,
 I have made mistakes
 but I do not let this mar me from what perfection and good nature there is to lean on!
 
-Forbes can't stop me from continuing to live, love.
+Foibles can't stop me from continuing to live, love.
 Divine Love is omnipresent, there to wake up everyone and open up every one to his whole, limitless mind with faculites in tact.
 
 <br>
@@ -2160,6 +2160,18 @@ In the Science of the Earth, naturally Life goes on and on so that everyone and 
 
 
 ## Tradition ##
+Traditionally, values of loyalty, hard work, cheerfulness, and musicality guide out thinking and lives.
+It is the custom to show up, appreciate people, and stick to it.
+The heritage of everyone in the human race adds value, and rich is the ancestry and the legend in Soul.
+With each individual expression, our culture expands infinitely.
+Nothing is lsot from cultural diveristy.
+Folktale passes down lessons, and exists in every culture.
+What was the convention yesterday may not be the convention today.
+
+<br>
+
+**Word Associations:** values, custom, heritage, legend, fable, culture, folklore, convention
+
 
 ## Affection ##
 Are you going to buy into the madness?
@@ -2338,6 +2350,22 @@ There are always wonderful vistas ahead each day.
 
 
 ## A Voyage ##
+On a voyage to a new land.
+The passage to the unknown.
+It's new, it's uncertain, there's fear.
+Moving across with courage, trusting God with each step.
+One step leads to another with constant discovery, and unearthing.
+It's okay to explore, experiment, play around.
+Life is not stagnant, life is a journey.
+There's a constant search for goodness, new ideas, and new ways of being.
+
+<br>
+
+**Word Associations:** passage, jaunt, journey, crossing, discovery, vessel, explore, search
+
+
+<br>
+
 
 ## Moments ##
 Life is a series of moments, of being conscioius of the light, the love.
