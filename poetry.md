@@ -131,7 +131,11 @@ Forgiveness, returning to the original, the point of origin, the home, where all
 
 ## The Healing ##
 The healing is there; it's already within
-There's nothing to change; just the true ideas welling within to ressurect and live
+There's nothing to change; just the true ideas welling up within to ressurect and live
+
+## Progress ##
+
+## Harmony ##
 
 ## Life Lessons and the Next Generation ##
 Life lessons are continuing in beautiful ways through the next generation.
@@ -1253,7 +1257,7 @@ Thank you for this beautiful craft that all of humanity can cherish and love.
 
 ## The Night Sky ##
 The night sky sings with holiness and with peace
-The stars shine infintiely 
+The stars shine infinitely
 The blackness is so dark and the pitch of the night lights up everyone to sleep
 THe glimmer of the stars give hope and point people to inncocence, home
 The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
@@ -2634,6 +2638,15 @@ Repining for rue.
 **Word Associations:** penitence, self-reproach, repine, bitterness, lament, bemoan, rue, defeat
 
 ## Confessions ##
+Taking the wrong up to talk it down.
+Acknowledging the harm done, owning up to the wrong.
+Turning to God or to someone about the misdeeds, the mistakes, and the regrets.
+Feeling guilt, and seeking and receiving forgiveness.
+Finding absolution after living in contrition, sharing the darkness, and letting it roll off in sacarament with newer, higher, and diviner views.
+
+<br>
+
+**Word Associations:** misdeeds, mistake, absolution, regrets, contrition, guilt, sacrament, forgiveness
 
 ## Insanity ##
 Falling to pieces mentally,
