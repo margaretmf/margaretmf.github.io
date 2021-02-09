@@ -2479,6 +2479,17 @@ As a recluse, I find my source of energy within.
 In seclusion, I heal from the outside world and seek to understand the outside world.
 
 ## Romance ##
+The thrill of seeing your partner smile and love you back.
+The passion when finding someone share a laugh, a walk, a car ride, or a song with you.
+The intimate details being shared of one's desires, cares, concerns, faith that should be cast on God.
+The desire to grow together, express common goals, be a part of the collective humanity.
+The freedom from entanglement with other peope.
+The freedom from outside affairs with people.
+
+<br>
+
+**Word Associations:** thrill, amour, affair, flirtation, entangle, intimacy, passion, desire
+
 
 ## Appreciation ##
 I see work someone does, or experience someone doing something positive.
@@ -2528,6 +2539,18 @@ A fray of ideas unraveling in agitation.
 ## Creation ##
 
 ## Forgiveness ##
+The return to one's self.
+The change involved when letting go of false beliefs.
+The grace given to move forward and let the past go and be behind.
+The charity involved in seeing and assuming the best in people.
+The leniency in relationships that gives people room to grow and learn from mistakes.
+The mercy shared so that the ray of sun in one's heart can fully shine and enlighten.
+God moving the sinner with compassion that heals and lights through the obstructions.
+
+<br>
+
+**Word Associations:** clemency, compassion, mercy, absolution, leniency, charity, grace, repent
+
 
 ## Growth ##
 A surge of frustration, anger, wants surge inside me.
