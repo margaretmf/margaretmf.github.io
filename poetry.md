@@ -2085,6 +2085,17 @@ And on a trip to see location A to location B.
 
 
 ## Fame ##
+Known for the good done and expressed.
+Everyone living has done some good.
+Everyone should be and can be renown for the good done and being done.
+The bad done can be acknolwedged.
+The bad done can harm, reduce, and press down a reputation, but the gold within is always there to be refined.
+The immoral acts bring down popularity, but there's good ground we are all standing on to find high regards and good repute.
+
+<br>
+
+**Word Associations:** renown, repute, standing, acknowledgement, reputation, popularity, regard, immoral
+
 
 ## Poetry ##
 
@@ -2592,6 +2603,20 @@ It's the absence of the love that lies deep within everyone's heart.
 ## Imagination ##
 
 ## Innocence ##
+Childlike innocence. 
+A pure heart that is untouched by sin, want, decay, or unloveliness.
+A love for anyone and artless ability to play in life joyfully and freely.
+Virtuous in the face of adversity.
+Modest when achieving success.
+Impeccable with one's words with people.
+Decent when going out of the house.
+Tempered when relating to people.
+A clean, gentle spirit able to laugh and have fun.
+
+<br>
+
+**Word Associations:** virtue, clean, lamb, impeccable, artless, modesty, decency, temperance
+
 
 ## Inspiration ##
 
