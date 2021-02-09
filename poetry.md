@@ -107,6 +107,18 @@ I love that I am Southern.
 
 This. Is. Who. I am. 
 
+## Love ##
+Reaching far for and extending widely this love for you.
+It continues for ever and never stops.
+It loves you to the moon and back
+And dances with the stars after you are dead.
+It picks you up when you fall.
+And forgives you when you've failed.
+
+## Harmony the Real, Discord the Unreal ##
+God harmonizes everything.
+Harmony is the real, discord is the unreal.
+
 ## The Darkness ##
 In the dark, when I am all alone
 The light flashing through the car in front of me can't scare me
