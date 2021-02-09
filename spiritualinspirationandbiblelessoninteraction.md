@@ -1,5 +1,20 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
+
+* God is love
+
+"...God is love, and all who live in love live in God, and God lives in them."
+
+* lovingkindnesses, shadow of thy wings
+
+"thy lovingkindness"
+"O God! therefore the children of men put their trust under the shadow of thy wings"
+
+* the fatness of thy house, the river of thy pleasures
+
+* 
+
 ## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
 
 * know the Truth
@@ -89,33 +104,6 @@
 * children of light
 
 "now are ye light in the Lord: walk as children of light:"
-
-* Divine Love - meeting every need
-
-"Divine Love always has met and always will meet every human need."
-
-"The miracle of grace is no miracle to Love."
-
-* Psalm, the light
-
-"Christian Science throws on the Scriptures by substiting for the corporeal sense, the incorporeal or spiritual sense of Deity: -"
-
-* "love God", "love Him" - Assimilate the divine character
-
-"but the longing to be better and holier, expressed in daily watchfulness and in striving to assimilate more of the divine character"
-"will mould and fashion us anew"
-
-* Aligned with unselfed love
-
-"Whatever holds human thought in line with unselfed love, receives directly the divine power"
-
-* Broken-hearted
-
-"The Lord is nigh unto them that are of a broken heart; and saveth such as be of a contrite spirit." 
-
-* Recompense for work
-
-"The Lord recompense thy work, and a full reward be given thee of the Lord God of Israel, under whose wings thou art come to trust."
 
 ## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
  
