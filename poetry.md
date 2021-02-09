@@ -2412,12 +2412,36 @@ Supported by the design of the universe causing good prospects to live always.
 
 
 ## Blessings ##
+Blessings abound every day.
+Constant grace, new ways to give thanks, new ways to supply a need.
+Benedictions for the good going on.
+Gifts bestowed even when undeserved.
+Good luck for the ashes.
+Constant bounty of mountains.
+A bestowal of supplies. A boon.
+
+<br>
+
+**Word Associations:** gifts, grace, thanks, benediction, luck, boon, betstow, bounty
+
 
 ## Values ##
 
 ## Laughter ##
 
 ## Silence ##
+THe beauty of silence, of quiet.
+It hushes the noise all around.
+It's the peace in the storm, the calm, uplifted thought above the sea of troubles.
+In quietude is the grace of a still heart.
+It's the whisper of good ideas among evil suggestions, and thoughts.
+It's the profound mystery of grace underlying everything.
+It's the lull in the darkness.
+
+<br>
+
+**Word Associations:** hush, lull, peace, calm, quietude, stillness, whisper, profound
+
 
 ## Solitude ##
 Alone, I rest in peace, gather thoughts, enjoy loving something.
