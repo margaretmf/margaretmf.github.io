@@ -149,6 +149,22 @@ There's nothing to change; just the true ideas welling up within to ressurect an
 
 ## Harmony ##
 
+## Music ##
+Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, and stories of the present; stories of relationships, stories of politics, and nature.
+
+## Your Job ##
+Your job is an attitude towards life, and an outlook towards the world and humanity.
+Your job is not confined by your job title, your social status, your place.
+Your place is in the land of the divine, where ideas in your heart continuously unfold, and are not limited by the job or opinion of others.
+
+## The Study of History ##
+God's story is forever unfolding.
+The Bible is a history book that shares the chronicles of man, and life lessons.
+Every individual who is born on Earth is born into an existing story of the collective mankind.
+And every individual who is born on Earth has a story being created by God and him or herself.
+We are all part of a grand story that is ever-evolving and ever-progressing.
+And everyone has a story of his or her own singing through the earth by God to overcome evil with good.
+
 ## Life Lessons and the Next Generation ##
 Life lessons are continuing in beautiful ways through the next generation.
 
@@ -277,7 +293,7 @@ The water flows steadily through the channels, giving us peace and restoration.
 Forever in the night, the stars do shine.
 Our hearts burn.
 Everyone in the country, everyone on the Earth has a light like the star that burns, and shines.
-God holds us all amazingly int act, in one grand brotherhood, sisterhood.
+God holds us all amazingly in tact, in one grand brotherhood, sisterhood.
 
 ## The Union ##
 North, South, East, West
@@ -782,7 +798,7 @@ Illness leads to perfect health, recovery.
 ## Smiles ##
 Smiles are God's work through man.
 The sun shines its light that radiates through the Earth as man shines its happiness through a smile.
-There should be 7.2 billiion smiles, laughs, expressions of delight, and beams of hope on Earth today.
+There should be 7.2 billion smiles, laughs, expressions of delight, and beams of hope on Earth today.
 Smiling through all the Earth, our mankind is beautiful, whole, integrated.
 
 <br>
@@ -988,7 +1004,7 @@ Our fate is good, and the cycle of light continues forever out of the darkness.
 
 ## Historical Figure ##
 Thomas Jefferson, the first president, the first country-westerner.
-He revolutionized our country with democracy and land and nature.
+He revolutionized our country with democracy, a republic, and land and nature.
 He was the captain of the ship that freed America from Britain, the author of the Declaration of Independence, and the conqueror of the west.
 He was a hero, a leader, though he was flawed, and he set the foundation for the United States of America.
 
@@ -1005,7 +1021,7 @@ He was a hero, a leader, though he was flawed, and he set the foundation for the
 Humbling yourself to take responsibility for the wrongs done.
 Letting God carry our burdens, our cross.
 There is an obligation, a charge to be moral, to be pure, to be just, to respect boundaries.
-God's leadership, God's voice is active today to set all in motion, upright, and anger.
+God's leadership, God's voice is active today to set all in motion, upright, free, joyful, and light.
 There is a constant safeguard around us, keeping us safe.
 
 <br>
@@ -1203,7 +1219,7 @@ There's no stranger to God.
 
 ## War ##
 A war fights within.
-I feel I want, and desire xyz, but I know it's not what I really want.
+I feel I want, and desire something, but I know it's not what I really want.
 People argue back at me, and I am tempted to combat, but I seek ways to write patiently.
 End the strife within and chose to see the beauty in the world.
 Drop the bloodshed, drop the conflict, seriously drop it.
