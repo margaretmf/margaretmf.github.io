@@ -2495,7 +2495,7 @@ It's the lull in the darkness.
 
 ## Solitude ##
 Alone, I rest in peace, gather thoughts, enjoy loving something.
-In isolation, I find my self, m voice.
+In isolation, I find my self, my voice.
 In privacy, I sing a song and learn to love life.
 As a recluse, I find my source of energy within.
 In seclusion, I heal from the outside world and seek to understand the outside world.
@@ -2630,6 +2630,17 @@ A clean, gentle spirit able to laugh and have fun.
 
 
 ## Inspiration ##
+A new insight into the reality of life.
+The insight comes through revelation and intuition.
+On a whim, hearing something new, seeing something new.
+Living with a constant sense of delight for what is possible.
+Grateful for the latent talents that come out of nowhere.
+A boundless sense of elation supporting one's ability to spring up quickly.
+
+<br>
+
+**Word Associations:** whimsy, insight, elation, fervor, delight, talent, fancy, revelation
+
 
 ## A Journey ##
 
@@ -2670,7 +2681,7 @@ I want to be fascinated by it.
 It tries to possess me, take me over, overpower me.
 I learn to not get stuck in the pickle, and in a conundrum. 
 I learn to not be run over by the quandary.
-The enigma being presented is a charde.
+The enigma being presented is a charade.
 I choose to walk over the crux trying to entrap, and ensare me.
 
 <br>
@@ -2738,8 +2749,8 @@ There's so much tightness within.
 It's a living nightmare.
 Trapped in the dread of getting up out of bed another day to make known.
 Paralyzed by the wrongs done.
-Creeped out by the msytery of life.
-Taken over by the angst of what needs to be done and the termors on the Earth.
+Creeped out by the mystery of life.
+Taken over by the angst of what needs to be done and the tremors on the Earth.
 
 <br>
 
@@ -2754,7 +2765,7 @@ Taken over by the angst of what needs to be done and the termors on the Earth.
 
 ## Forgetting ##
 Disremembering the wrongs of the past,
-letting the false experiences go completely away in conscioiusness,
+letting the false experiences go completely away in consciousness,
 moving the negative experiences into oblivion,
 and starting on a clean slate with the error ommitted.
 Escaping the dark skeletons in the closet to be as fresh as the sunlight.
@@ -2801,6 +2812,17 @@ Working hastily and showing folly.
 **Word Associations:** delirium, lunacy, mania, irrational incoherent, delusion, neurosis, folly
 
 ## A Surprise ##
+An unexpected event that awakens one to see something, more of reality.
+It's baffling to understand and solve the puzzles.
+How could this have happened?
+It's so astounding.
+A sudden epiphany, with exclamations out of nowhere.
+A flood of information that feels like a Godsend.
+Ambushed by the surprises.
+ 
+ <br>
+ 
+ **Word Associations:** sudden, exclaim, unexpcted, epiphany, godsend, ambush, astound, baffle
 
 ## A Voice ##
 People say they can't hear your voice.
