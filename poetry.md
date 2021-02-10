@@ -157,6 +157,16 @@ Your job is an attitude towards life, and an outlook towards the world and human
 Your job is not confined by your job title, your social status, your place.
 Your place is in the land of the divine, where ideas in your heart continuously unfold, and are not limited by the job or opinion of others.
 
+## Present, Past ##
+"The past unravels. The present is unfolding."
+
+## Home ##
+This is a home for divine expression, divine orchestration, divine symphony, divine architecture, divine building, brother bird.
+
+## United ##
+United in our being.
+Standing in union with one another through loving what's in another's heart and soul.
+
 ## The Study of History ##
 God's story is forever unfolding.
 The Bible is a history book that shares the chronicles of man, and life lessons.
@@ -264,7 +274,7 @@ My mom always felt like the ideal Southern woman, and I have felt angry sometime
 
 More broadly, I love home on earth with all of humanity.
 
-## **Listening to country music inspired me to write some poetry on solitude, being single, independence and breaking up.** ##
+## **Listening to country music inspired me to write some poetry on solitude, being single, independence and breaking up with beliefs.** ##
 
 ## The Lone Bird ##
 The bird flies in solitude across the land.
@@ -354,8 +364,9 @@ Did it heal your relationship to the Country or the country?
 It healed my relationship to the Country and the country.
 I was already from the South, but negative memories of the South and race that infiltrated my thought were chased away.
 I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
-I was already aware of the lumber industry, but it brought me one step closer to it.
+I was already aware of the lumber industry and my great grandfather's work in it, but it brought me one step closer to it.
 I already knew Tennessee and bluegrass music, but it brought me one step closer to this light-hearted music as well as the Blues.
+I once took mandolin lessons and played piano, and it led me to dig deeper into myself to play more spontaneously.
 I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
 I thought I was relating to the South, but it made me aware of the beauty of the West.
 I had already been to South America, but it brought me more love for the South Americans.
