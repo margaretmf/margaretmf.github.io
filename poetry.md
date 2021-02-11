@@ -38,7 +38,7 @@ happiness with Mary for
 3 generations of Furr women.
 
 What blesses one blesses all,
-so the union can only bless everyone." 
+so the union can only bless everyone.
 
 ## The Love, and The Goodness within vs. Society and Culture ##
 
@@ -1778,9 +1778,6 @@ I am in a humanoid, where the space-time void enfolds and unfolds infinitely, an
 
 **Word Associations:** space, alien, explore, abduction, invasion, future, humanoid, galaxy
 
-<br>
-
-
 ## An Animal ##
 
 ## A Pet ##
@@ -1849,9 +1846,6 @@ Not held by the past, but a day made new by new affections, with the tingle brou
 
 **Word Associations:** crush, itch, amore, devotion, caring, warmth, tingle, tender
 
-<br>
-
-
 ## A Walk ##
 I take a walk down memory lane.
 I stroll, and see all the good people and beautiful images that have touched my life.
@@ -1865,9 +1859,6 @@ I know there is infinitely more to love and learn during the next phase of the w
 <br>
 
 **Word Associations:** stroll, fresh air, pulse, footsteps, path, promenade, breeze, wander
-
-<br>
-
 
 ## Flavors ##
 
@@ -1887,9 +1878,6 @@ I work steadfastly to love, be cheerful, and connect.
 
 **Word Associations:** stock, sure, credence, conviction, loyal, integrity, charge, steadfast
 
-<br>
-
-
 ## A Fragrance ##
 
 ## Opportunities ##
@@ -1905,9 +1893,6 @@ Carpe Diem.
 
 **Word Associations:** horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
 
-<br>
-
-
 ## Meditation ##
 Stop the rumination, the guilt, the worry.
 God knows each and every concern.
@@ -1922,9 +1907,6 @@ Be grateful for Zen.
 
 **Word Associations:** rumination, reflection, peace, introspection, tranquil, rapt, Zen, ponder
 
-<br>
-
-
 ## Equality ##
 I am equal to him riding his bike.
 I am equal to her walking down the street.
@@ -1937,9 +1919,6 @@ All of mankind working together, collaborating, and tolerating each other in one
 <br>
 
 **Word Associations:** parity, tolearance, balance, acceptance, fair, level, right, brotherhood
-
-<br>
-
 
 ## Independence ##
 The freedom within that supports standing alone.
@@ -1954,9 +1933,6 @@ The determination within to keep going.
 <br>
 
 **Word Associations:** freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
-
-<br>
-
 
 ## Reliability ##
 Childlike innocence in tact.
