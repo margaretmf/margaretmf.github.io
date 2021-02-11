@@ -2643,6 +2643,18 @@ A boundless sense of elation supporting one's ability to spring up quickly.
 
 
 ## A Journey ##
+A journey to a new place, a new way of living.
+Roaming through the wourld to discover new ideas, new viewpoints, new ways of being.
+Traversing through the streets to apreciate the beauty.
+Expediting the adventure to arise to a new height of understanding, living, perspicacity.
+Wandering through the woods to unearth the past, and discover something unfound.
+Going on an odyssey to explore new territories.
+Sojourning to make new ways possible.
+
+<br>
+
+**Word Associations:** pilgrimage, sojourn, roam, traverse, odyssey, expedition, circumnavigation, wander
+
 
 ## Judgment ##
 Ability to distinguish, to see what one needs to know about a situation.
@@ -2699,7 +2711,7 @@ A nirvana, wehre stress has no power at all.
 
 <br>
 
-**Word Associations:** eden, Elysium, heaven, bliss, delight, utpia, transport, nirvana
+**Word Associations:** eden, Elysium, heaven, bliss, delight, utopia, transport, nirvana
 
 
 ## Passion ##
@@ -2730,7 +2742,7 @@ One choice to think differently can become the sinew for many more thoughts and 
 
 ## Growing Older ##
 Another year has past.
-I have grown older, seen everything evolve, and perfected the ieprfect ideas.
+I have grown older, seen everything evolve, and perfected the imperfect ideas.
 Lessons have been gained, immature ways have been let go of and destroyed.
 The golden years that belong to the sun have yet to come.
 As I grow older, I pass by those elders who are more mature and venerable.
