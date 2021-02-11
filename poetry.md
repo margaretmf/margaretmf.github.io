@@ -2018,7 +2018,7 @@ An intelligent force is monitoring everything to keep everyone in check.
 
 ## Expectations ##
 An expectation - a knowing that something good will happen.
-Founded in a promise that there will be akind person, a wake up call, something new to learn/
+Founded in a promise that there will be a kind person, a wake up call, something new to learn
 Rested in a motive to understand life and improve.
 Based in a hope for the divine reality of mankind coming to full fruition.
 Association with a potential action springing from a thought in God.
