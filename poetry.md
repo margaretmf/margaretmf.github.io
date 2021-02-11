@@ -2158,6 +2158,16 @@ Gaining the smarts to know what to do.
 
 
 ## A Garden ##
+A garden of thoughts, some good, some bad.
+The good thoughts, feelings unfold, beginning with the seed into a flower.
+A the roots, the evil thoughts are weeded out.
+The garden within grows and grows with a rosebud sprouting up through the soil.
+And a terrace unfolding from that base.
+
+<br>
+
+**Word Associations:** flower, petals, soil, roots, seed, rosebud, Eden, terrace
+
 
 ## Ice ##
 
@@ -2512,6 +2522,11 @@ In isolation, I find my self, my voice.
 In privacy, I sing a song and learn to love life.
 As a recluse, I find my source of energy within.
 In seclusion, I heal from the outside world and seek to understand the outside world.
+
+<br>
+
+**Word Associations:** alone, isolation, seclusion, recluse, introvert, private, remote, hermit
+
 
 ## Romance ##
 The thrill of seeing your partner smile and love you back.
