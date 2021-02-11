@@ -152,7 +152,7 @@ There's nothing to change; just the true ideas welling up within to ressurect an
 ## Harmony ##
 
 ## Music ##
-Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, and stories of the present; stories of relationships, stories of politics, and nature.
+Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
 
 ## Your Job ##
 Your job is an attitude towards life, and an outlook towards the world and humanity.
@@ -296,6 +296,21 @@ Fighting for Independence, where there is ground beneath my feet,
 trust, love, and joy in the depths of my soul,
 goodness that is greater than evil
 and a light that embraces everything through all the Earth.
+
+## The Freerider ##
+She's a woman who can stand on her own two feet.
+She knows how to straddle a horse alone
+block and tackle like a true innovator
+and gain dominion over her heart.
+She may have made mistakes in the past
+but there's a golden light in her heart
+Freed from the chains of the opinions of people
+and the internalized oppressor.
+So much freedom is there for her ahead.
+There's a gigantic frontier of possibilities and internal peace.
+She's a lover of knowledge, and true education with a home full of books.
+She has a heart for people that forgives and sings.
+A true woman she is, expressing ladylike qualities and poise.
 
 ## Our Country ##
 Everyone in our country are like stars shining on the American flag
@@ -491,7 +506,7 @@ No words are needed because the color and the youthfulness are in the sound boun
 ## The Agitation in America ##
 When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
 the American dream felt out of reach to people.
-The American dream is not lost.
+The American dream is not lost. What is great about America remains in memory. What is wrong baout America will be revisisted and retold.
 America, founded on a rock, will always represent freedom to humanity.
 Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun.
 What's great about America remains great.
@@ -511,7 +526,6 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 ## Constant Evolution ##
 There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
 
-## **A Poem on Black Lives** ##
 ## Seeing Black Lives ##
 They help the police force as police officers.
 They play music.
@@ -529,7 +543,6 @@ They have healthy, beautiful homes.
 They love Allah, the same God that Christians worship.
 They also love God, and they have great faith through adversity.
 
-## **A Poem on Social Media** ##
 ## Social Media Usage ##
 Why look her, or him up one more time? 
 Lurking on social media; why lurk behind the scenes again?
@@ -545,6 +558,8 @@ Use wisdom, carefulness, and caution. Don't be someone from the outside looking 
 
 Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
+
+## Social Media - A Highway to Relationships ##
 
 ## What is My Motive? ##
 To love someone new today.
@@ -562,6 +577,11 @@ Why do I talk about race? To understand how someone perceives the world, to unde
 Why do I not talk about race? To respect boundaries, to talk about more elevated ideas above the physique.
 
 **A Poem on Healing**
+The feeling of healing is being restored to one's true self, what's already there, and what's waiting to be born and discovered.
+Dependent solely on the movement of God's love and God's word that speaks through intuition.
+The real, substantive thoughts already lay hidden behind the surface of false beliefs.
+The golden reality within is waiting to be awakened, unearthed, unhidden, and mined.
+One's wholeness is innate, in tact, and always there.
 
 **A Poem on Prayer for Humanity**
 
