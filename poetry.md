@@ -40,6 +40,8 @@ happiness with Mary for
 What blesses one blesses all,
 so the union can only bless everyone." 
 
+## The Love, and The Goodness within vs. Society and Culture ##
+
 ## A New Day ##
 It's a new day 
 Open your window to the sunlight
@@ -435,12 +437,12 @@ I never wanted to let him, her go
 He/she was so close to home
 I had prayed for so long
 I prayed for the wrong thing
-I learned to pray to lover ha and him
+I learned to pray to love her and him
 And I let it go
 
 In finding the beauty all around
 I let it go
-I entered a new day and opened my ehart again
+I entered a new day and opened my heart again
 No one can steal my heart
 
 ## It Starts At the Port ##
@@ -2109,6 +2111,17 @@ The immoral acts bring down popularity, but there's good ground we are all stand
 
 
 ## Poetry ##
+Listening within I find the rhyme and reason to the universe.
+Attuning to the inner muse, I find the words to capture the feelings.
+I am in touch with the composition waiting to be created.
+The composition within sparks up in verse, in rhyme, and in stanza.
+It turns into a lyric, and an epic of tracks.
+All of life's highs and lows captured in a poem that can be turned into something larger.
+
+<br>
+
+**Word Associations:** verse, rhyme, stanza, composition, muse, rhythm, lyric, epic
+
 
 ## Wishes ##
 The intention to love.
@@ -2118,7 +2131,7 @@ The ambition to create something with what is already done.
 The longing to be better.
 The hope to succeed.
 The will to turn visions and dreams into reality.
-THe yearning to forgive, let go, and speak with more compassionate tones.
+The yearning to forgive, let go, and speak with more compassionate tones.
 
 <br>
 
@@ -2210,11 +2223,11 @@ In the Science of the Earth, naturally Life goes on and on so that everyone and 
 
 
 ## Tradition ##
-Traditionally, values of loyalty, hard work, cheerfulness, and musicality guide out thinking and lives.
+Traditionally, values of loyalty, hard work, cheerfulness, and musicality guide our thinking and lives.
 It is the custom to show up, appreciate people, and stick to it.
 The heritage of everyone in the human race adds value, and rich is the ancestry and the legend in Soul.
 With each individual expression, our culture expands infinitely.
-Nothing is lsot from cultural diveristy.
+Nothing is lost from cultural diveristy.
 Folktale passes down lessons, and exists in every culture.
 What was the convention yesterday may not be the convention today.
 
@@ -2303,7 +2316,7 @@ God knows each and every concern.
 Stay tranquil, and ponder the good in life, the beauty.
 Meditation is the consciousness of good.
 Choose to be peaceful, joyful.
-Enjoy the refelctions of the light within.
+Enjoy the reflections of the light within.
 Ponder all the interconnectedness of humanity, and the rapture of a lively home.
 Be grateful for Zen.
 
@@ -2320,7 +2333,7 @@ I am equal to him riding his bike.
 I am equal to her walking down the street.
 I am equal to them driving in the cars.
 All of man is standing in equally balanced relationships to the Creator.
-Accepted under the same Sun, with fariness in judgment of the light in someone, and leveled in engagements.
+Accepted under the same Sun, with fairness in judgment of the light in someone, and leveled in engagements.
 Our Creator endows each man the ability to be creative even when working through the most mundane tasks.
 All of mankind working together, collaborating, and tolerating each other in one brotherhood.
 
@@ -2753,6 +2766,17 @@ As I grow older, I pass by those elders who are more mature and venerable.
 
  
 ## A Choice ##
+Making a choice to let it go, give it up, and love someone else.
+Making the choice to step over the dilemma keeping me in bed and walking down the path unfolding with grace in my heart.
+Choosing to tackle the challenge and overcome the problem.
+Married to the idea nad the one there is to love, seeing all there is that they can offer from the basis of their true self.
+Making a logical decision rather than giving into passion.
+Taking the alternative road rather than do what's popular and choosing to be confident with it.
+
+<br>
+
+**Word Associations:** marriage, path, challenge, alternative, dilemma, passion vs. logic, popular, ballot
+
 
 ## Jealousy ##
 
