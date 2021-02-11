@@ -599,11 +599,7 @@ The green, blue, grey, white is the substance of thought connecting us all in co
 
 <br>
 
-
 **Word Associations:** billows, deep, brine, offing, wave, flux, tide, current
-
-<br>
-
 
 ## Clouds ##
 The clouds. 
@@ -617,11 +613,7 @@ People imagine different things about them and how they support our ecosystem.
 
 <br>
 
-
 **Word Associations:** puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
-
-<br>
-
 
 ## First Love ##
 The flame of love within shows me the way to have fun with life and cherish the light within all around.
@@ -629,11 +621,7 @@ The source within is tender, and I relish the youthlike energy that everyone yea
 
 <br>
 
-
 **Word Associations:** tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
-
-<br>
-
 
 ## Spring ##
 A fresh season for living, moving, and loving begins.
@@ -642,11 +630,7 @@ From little seeds to full openings, it is perennial as the primrose.
 
 <br>
 
-
 **Word Associations:** budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
-
-<br>
-
 
 ## A Tree ##
 The tree that stands in front of my house has roots that go deep into the ground.
@@ -657,11 +641,7 @@ The timber keeps it steady.
 
 <br>
 
-
 **Word Associations:** sapling, woods, leaves, greenery, roots, branches, timber, forest
-
-<br>
-
 
 ## A Storm ##
 The storm is roaring and raging in the sky and in our hearts.
@@ -669,14 +649,7 @@ The blustering winds, the tempestuous feelings.
 There is nothing like a witner blast, and a heart filled with wrath that loses control.
 The storm roars without us, the sun is always shining, and it is always a beautiful world to be joyful, and cheerful in.
 
-<br>
-
-
 **Word Associations:** roaring, raging, blustering, tempestuous, squall, blast, gale, wrath
-
-
-<br>
-
 
 ## A Sunny Day ##
 A sunny day is like God smiling through the day.
@@ -687,12 +660,7 @@ We can all choose to appreciate the summery sense of life.
 
 <br>
 
-
 **Word Associations:** luminous, summery, shining, clarion, radiant, brilliant, bask, haze
-
-
-<br>
-
 
 ## Anger ##
 The feelings of guilt and shame turn to anger. 
@@ -712,12 +680,7 @@ But expressing gratitude for every ounce of good turns around the monstrous stor
 
 <br>
 
-
 **Word Associations:** acrimony, ire, enmity, indignation, vexation, choler, rage, malice
-
-
-<br>
-
 
 ## Sadness ##
 It's a huge nightmare, a shock to the whole bodily system.
@@ -730,12 +693,7 @@ There's always more beauty, and good cheer to wake up to.
 
 <br>
 
-
 **Word Associations:** heartache, bleakness, dysphoria, woe, grief, despondent, sorrow, suffering
-
-
-<br>
-
 
 ## Joy ##
 Joy comes from opening a window to the sun.
@@ -745,12 +703,7 @@ Elation comes when dancing and having a good time.
 
 <br>
 
-
 **Word Associations:** glee, rapture, ecstasy, bliss, cheer, contentment, delight, elation
-
-
-<br>
-
 
 ## Tears ##
 I weep inside.
@@ -765,12 +718,7 @@ The tears flow out, but I let a smile, and a laugh, and a dance have the last wo
 
 <br>
 
-
 **Word Associations:** crying, distress, grieving, sorrow, pain, weep, wailing, whimpering
-
-
-<br>
-
 
 ## Rain ##
 The rain falls down onto the windowshield.
@@ -783,12 +731,7 @@ The sunshine wants to evaporate the water after it falls.
 
 <br>
 
-
 **Word Associations:** deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid sunshine
-
-
-<br>
-
 
 ## Illness ##
 Illness sucks the life out of people.
@@ -801,12 +744,7 @@ Illness leads to perfect health, recovery.
 
 <br>
 
-
 **Word Associations:** malady, breakdown, affliction, ailing, relapse, disability, convalescence, recovery
-
-
-<br>
-
 
 ## Smiles ##
 Smiles are God's work through man.
@@ -816,12 +754,7 @@ Smiling through all the Earth, our mankind is beautiful, whole, integrated.
 
 <br>
 
-
 **Word Associations:** grin, laugh, amusement, delight, smirk, beam, dimple, lips
-
-
-<br>
-
 
 ## Music ##
 Life is a symphony.
@@ -832,12 +765,7 @@ Our experience is a living hymn.
 
 <br>
 
-
 **Word Associations:** melody, hymn, instrumental, orchestra, popular, tune, choral, rhythm
-
-
-<br>
-
 
 ## Hope ##
 A hope, a desire for something - something better.
@@ -849,12 +777,7 @@ An expectation of being in the right place.
 
 <br>
 
-
 **Word Associations:** expectation, wish, aspiration, ambition, belief, optimism, faith, anticipation
-
-
-<br>
-
 
 ## Mortality ##
 The fatal pull to feel compressed, stuck, ashamed, heavy, guilt-ridden.
@@ -869,12 +792,7 @@ In sleep, despite the heaviness and pull towards death, I feel the touch of eter
 
 <br>
 
-
 **Word Associations:** fatal, lethal, life, paradise, passing, repose, silence, sleep
-
-
-<br>
-
 
 ## Heaven ##
 Heaven is here, not somewhere out there.
@@ -887,12 +805,7 @@ Heaven gives its eternal rest.
 
 <br>
 
-
 **Word Associations:** Kingdom, glory, eternity, bliss, beyond, afterworld, hereafter, eternal rest
-
-
-<br>
-
 
 ## Parents ##
 Parents, the guardians and educators of youth.
@@ -903,12 +816,7 @@ God, good, is the parent mind for everyone.
 
 <br>
 
-
 **Word Associations:** guardian, idol, nurture, mother, father, childhood. upbringing teacher
-
-
-<br>
-
 
 ## Children ##
 Children, the sound of children playing is beautiful.
@@ -920,12 +828,7 @@ The changing seasons, the next generation, the progression of humanity, and mank
 
 <br>
 
-
 **Word Associations:** toddler, play, offspring, kids, little, foundling, youngsters, youth
-
-
-<br>
-
 
 ## Home ## 
 Home starts from within.
@@ -939,12 +842,7 @@ A healthy home contributes to a village.
 
 <br>
 
-
 **Word Associations:** house, fireside, village, kitchen, hearth, cottage, apartment, tenement
-
-
-<br>
-
 
 ## Work ##
 Rising up out of bed with the morning sun shining through the city to do the daily duties.
@@ -954,12 +852,7 @@ I exert myself, use my skills, put in the effort, and have fun.
 
 <br>
 
-
 **Word Associations:** toil, labor, wage, artisan, skill, exertion, effort, grind
-
-
-<br>
-
 
 ## Time ##
 Outside of time, stands eternity.
@@ -975,12 +868,7 @@ And moment by moment, we choose to stand in that goodness.
 
 <br>
 
-
 **Word Associations:** eternity, hours, period, era, clock, ticktock, infinity, moment
-
-
-<br>
-
 
 ## The Past ##
 The past is done. It's gone. It's a distant dream, a memory fading away so that the past of new mercies can unfold.
@@ -991,12 +879,7 @@ The cycle of light continues through history forever.
 
 <br>
 
-
 **Word Associations:** memory, distant, history, remembrance, antiquity, memoir, bygone, long ago
-
-
-<br>
-
 
 ## The Future ##
 No one knows what the future will bring.
@@ -1008,12 +891,7 @@ Our fate is good, and the cycle of light continues forever out of the darkness.
 
 <br>
 
-
 **Word Associations:** destiny, hope, potential, imminent, opportunity, fate, foresee, prophesy
-
-
-<br>
-
 
 ## Historical Figure ##
 Thomas Jefferson, the first president, the first country-westerner.
@@ -1023,12 +901,7 @@ He was a hero, a leader, though he was flawed, and he set the foundation for the
 
 <br>
 
-
 **Word Associations:** president, activist, revolutionary, captain, author, conqueror, hero, leader
-
-
-<br>
-
 
 ## Responsbility ##
 Humbling yourself to take responsibility for the wrongs done.
@@ -1039,12 +912,7 @@ There is a constant safeguard around us, keeping us safe.
 
 <br>
 
-
 **Word Associations:** cross, burden, leadership, obligation, safeguard, onus, charge, bond
-
-
-<br>
-
 
 ## Truth ##
 Waking up to the Truth of being, the Reality underlying our lives, the fact that goodness reigns, the genuity within every heart.
@@ -1052,12 +920,7 @@ Being honest with oneself, being authentic within, and waking up to the purity t
 
 <br>
 
-
 **Word Associations:** candor, purity, reality, fact, certainty, genuine, honesty, authentic
-
-
-<br>
-
 
 ## Dedication ##
 A dedication, a devotion to loving someone every day and seeing them in God's eyes.
@@ -1067,12 +930,7 @@ Sharing loyalty with people, expressing fervor.
 
 <br>
 
-
 **Word Associations:** devotion, allegiance, commit, piety, constancy, zeal, loyalty, fervor
-
-
-<br>
-
 
 ## Love ##
 Love blooms like a red rose within one's heart that is shared with others with no regret.
@@ -1084,12 +942,7 @@ Yearning for the love for all mankind and the smiles on all of mankind's fate is
 
 <br>
 
-
 **Word Association:** adoration, affection, yearning, flame, emotion, ardor, fondness, rapture
-
-
-<br>
-
 
 ## Deceit ##
 Deceit, it's like flirtation.
@@ -1102,12 +955,7 @@ All of this goes into the dumpster, all pretense is let go of.
 
 <br>
 
-
 **Word Association** trickery, duplicity, lies, guile, two-faced, imposter, pretense, fraud
-
-
-<br>
-
 
 ## Noise ##
 The bustle of the lawn mower outside my window wakes me up.
@@ -1119,12 +967,7 @@ Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, an
 
 <br>
 
-
 **Word Association:** bustle, din, clamor, tumult, uproar, thunder, crescendo, cacophony
-
-
-<br>
-
 
 ## Loneliness ##
 Sitting in your own corner alone in isolation, suffering from sin, where all within you is empty.
@@ -1136,12 +979,7 @@ In quiet, the innocence and grace of God within.
 
 <br>
 
-
 **Word Association:** isolation, empty, quiet, monotony, ache, silence, longing, seclusion
-
-
-<br>
-
 
 ## Anxiety ##
 Oh my God!
@@ -1157,12 +995,7 @@ I wait in apprehension for the future.
 
 <br>
 
-
 **Word Association:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
-
-
-<br>
-
 
 ## Snow ##
 The white snow melts into the soil of the brown earth.
@@ -1172,12 +1005,7 @@ The sun lights us all up and causes us all to shine.
 
 <br>
 
-
 **Word Associations:** white, drifts, hush, chill, flurry, blizzard, flake, frost
-
-
-<br>
-
 
 ## A River ##
 A channel of water flows on and on through the states.
@@ -1189,12 +1017,7 @@ The water flows through rapids.
 
 <br>
 
-
 **Word Associations:** flow, course, unstoppable, rushing, waterway, wade, bridge, rapids
-
-
-<br>
-
 
 ## Mountains ##
 Through the mountains, the Earth is singing.
@@ -1207,12 +1030,7 @@ humanity emnbracing it, all the Earth sings as one.
 
 <br>
 
-
 **Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
-
-
-<br>
-
 
 ## Stranger ##
 Someone new on the street who I have never met.
@@ -1223,12 +1041,7 @@ There's no stranger to God.
 
 <br>
 
-
 **Word Associations:** friend or foe, sojourner, mysterious, guest, newcomer, migrant, visitor, acquaintance
-
-
-<br>
-
 
 ## War ##
 A war fights within.
@@ -1242,10 +1055,6 @@ Say no to the enemy, and say yes to Love.
 
 **Word Associations:** combat, hostility, strife, bloodshed, allies, enemy, army, conflict
 
-
-<br>
-
-
 ## Cowardice ##
 Not being able to own up to mistakes
 Too weak to own up to iniquity
@@ -1257,12 +1066,7 @@ Leaving others in harm's way, and not able to accept the criminal recount.
 
 <br>
 
-
 **Word Associations:** spineless, weak, timid, afraid, abject, pathetic, wimp, deserter
-
-
-<br>
-
 
 ## Brotherhood ##
 Brotherhood expressed through playing sports with neighbors, 
@@ -1272,12 +1076,7 @@ Standing in unity and solidarity.
 
 <br>
 
-
 **Word Associations:** comradeship, fraternity, loyal, steadfast, solidarity, partner, unity, fellowship
-
-
-<br>
-
 
 ## A Work of Art ##
 The Earth we live on is a work of art.
@@ -1289,12 +1088,7 @@ Thank you for this beautiful craft that all of humanity can cherish and love.
 
 <br>
 
-
 **Word Associations:** portrait, brushstrokes, texture, color, craft, landscape, shade, light
-
-
-<br>
-
 
 ## The Night Sky ##
 The night sky sings with holiness and with peace
@@ -1305,12 +1099,7 @@ The wakeful individuality share the love for all mankind with a heart at rest fo
 
 <br>
 
-
 **Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
-
-
-<br>
-
 
 ## The Moon ##
 The moon is shining in the darkness.
@@ -1321,12 +1110,7 @@ The lunar eclipse shines also.
 
 <br>
 
-
 **Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
-
-
-<br>
-
 
 ## The Sun ##
 The Sun is always there.
@@ -1337,12 +1121,7 @@ All of our hearts, and minds, like the sun can come to full effulgence, beyond t
 
 <br>
 
-
 **Word Associations:** golden, effulgence, solstice, radiance, heat, dappled, shadow, zenith
-
-
-<br>
-
 
 # Imperfection ##
 I am not perfect,
@@ -1356,12 +1135,7 @@ Divine Love is omnipresent, there to wake up everyone and open up every one to h
 
 <br>
 
-
 **Word Associations:** flow, uniqueness, foible, blemish, shortcoming, nature, defect, marred
-
-
-<br>
-
 
 ## Serendipity ##
 By divine fluke, it's unexpected that we meet.
@@ -1372,12 +1146,7 @@ I continue to set my thoughts on the attitude of God, the perfection in the impe
 
 <br>
 
-
 **Word Associations:** karma, kismet, circumstance, divine, fluke, break, happenstance, unexpected
-
-
-<br>
-
 
 ## Perfection ##
 The goodness of God is perfect.
@@ -1388,12 +1157,7 @@ A new paragon exists for God to reign supremely.
 
 <br>
 
-
 **Word Associations:** flawless, supreme, paragon, diamond, pure, ideal, sublime, unattainbale
-
-
-<br>
-
 
 ## A Window ## 
 A window lets in the light.
@@ -1404,12 +1168,7 @@ Curtains and shutters protect people's privacy, and shut out the light when it's
 
 <br>
 
-
 **Word Associations:** sill, pane, view, light, panorama, curtain, shutter, glass
-
-
-<br>
-
 
 ## Change ##
 Heading into new territory.
@@ -1427,12 +1186,7 @@ There's variance.
 
 <br>
 
-
 **Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
-
-
-<br>
-
 
 ## Evil ##
 Thank you, God, a sense of good, a consciousness of joy, 
@@ -1443,12 +1197,7 @@ No vile can touch us.
 
 <br>
 
-
 **Word Associations:** demon, wicked, malignity, villain, harm, corrupt, nefarious, vile
-
-
-<br>
-
 
 ## Temptation ##
 I feel this pull, this urge to covet and think this unholy thought,
@@ -1462,12 +1211,7 @@ I walk over the seas of mortal mind.
 
 <br>
 
-
 **Word Associations:** covet, allure, bait, enticing, tantalize, draw, seduction, irresistible
-
-
-<br>
-
 
 ## Justice ##
 I seek to do what is right for those around me.
@@ -1482,12 +1226,7 @@ Justice is the rule of life, and anything unfair from the past can be replaced w
 
 <br>
 
-
 **Word Associations:** right, code, moral, truth, fair, redress, recompense, rule
-
-
-<br>
-
 
 ## Inequality ##
 It feels so unfair, oppressive to feel so desperate while others feel free and limitless.
@@ -1502,12 +1241,7 @@ I am thankful for the ones who prove the ability to let go of the chains that bi
 
 <br>
 
-
 **Word Associations:** unfair, injustice, racism, difference, bias, disparity, privilege, misfortune
-
-
-<br>
-
 
 ## Rise for a New Day ##
 Rise and shine for a new day.
@@ -1519,12 +1253,7 @@ The past can never be fully let go of, or redeemed, but the light will shine as 
 
 <br>
 
-
 **Word Associations:** none 
-
-
-<br>
-
 
 ## Knowledge ##
 There is love in knowledge.
@@ -1538,12 +1267,7 @@ With judgement, we know good from evil, right from wrong.
 
 <br>
 
-
 **Word Associations:** education, philosophy, light, scholarship, expertise, theory, wisdom, judgement
-
-
-<br>
-
 
 ## Freedom ##
 Ability to do what is needed.
@@ -1555,12 +1279,7 @@ Dominion when wanting to indulge in the wrong.
 
 <br>
 
-
 **Word Associations:** independence, autonomy, opportunity, liberation, range, ability, laissez faire, indulgence
-
-
-<br>
-
 
 ## Creativity ##
 Creative mind.
@@ -1572,12 +1291,7 @@ Genius using inspiriation.
 
 <br>
 
-
 **Word Associations:** inventive, originality, talent, vision, clever, imagination, genius, inspiration
-
-
-<br>
-
 
 ## Gratitude ##
 Gratitude zooms our hearts into and onto the good that is going on.
@@ -1587,12 +1301,7 @@ Gratitude is the ability to accept with humor, the harmony, the melody.
 
 <br>
 
-
 **Word Associations:** grace, profound, prose, recognition, thankful, honor, debt, humility
-
-
-<br>
-
 
 ## Faith ##
 I believe that goodness can come out of every situation.
@@ -1604,12 +1313,7 @@ With adoration of these beauteous things, we find our confidence that through ou
 
 <br>
 
-
 **Word Associations:** adoration, certainty, trust, fealty, belief, conviction, confidence, dogma
-
-
-<br>
-
 
 ## Violence ##
 Mortal mind is the aggressor. 
@@ -1624,10 +1328,6 @@ Peace comes from being secure in God, and it goes on for a lifetime.
 
 **Word Associations:** harm, brutality, aggression, pain, injury, attack, assault, tumult
 
-
-<br>
-
-
 ## Tragedy ##
 Falling into the deep, dark pit of wreckage, mistakes, failure, rejection is such a tragedy.
 Letting emotions override and control you, and feeling overtaken by adversity.
@@ -1638,10 +1338,6 @@ But always the light of life is there to turn us from tragedy to comedy with a s
 <br>
 
 **Word Associations:** doom, adversity, death, wreck, catastrophe, affliction, misfortune, curse
-
-
-<br>
-
 
 ## Winter ##
 As fall turns to winter,
@@ -1659,10 +1355,6 @@ and in just a little bit the buds will pop up.
 
 **Word Associations:** snow, chill, solstice, igloo, yule, fireside, evergreen, arctic
 
-
-<br>
-
-
 ## Fall ##
 The dark brown leaves bouncing up and down the street,
 glittering, hitting the windshield while it rains.
@@ -1675,11 +1367,6 @@ Death, decay, leading to new life.
 
 **Word Associations:** autumn, orange, foliage, harvest, leaves, bramches, cornucopia, death
 
-
-<br>
-
-
-
 ## Spirituality ##
 Spiritual beings we are by nature.
 We are born of God, and we worship this one God.
@@ -1689,10 +1376,6 @@ that keep us moving and marching forward always.
 <br>
 
 **Word Associations:** God, otherworldly, worship, creed, principle, faith, teachings, passion
-
-
-<br>
-
 
 ## Prayer ##
 Prayer is the heart's sincere desire.
@@ -1708,10 +1391,6 @@ Prayer is natural to man.
 
 **Word Associations:** invocation, entreat, appeal, humble, thanks, psalm, deliverance, blessing
 
-
-<br>
-
-
 ## Warmth ##
 The warmth of the sun shining down on the interstate in so comforting.
 The tenderness of the light radiatiing in a certain way.
@@ -1722,10 +1401,6 @@ There's a radiant glow, and I feel affectionate to all humanity.
 <br>
 
 **Word Associations:** comfort, tenderness, sharing, closeness, reassurance, glow, affection, radiate
-
-
-<br>
-
 
 ## Scared ##
 I stand aghast at the things that I've done that are wrong, weird, violence, hateful, embarassing.
@@ -1740,10 +1415,6 @@ I am afraid for the future, but I trust all will be done for the higher, supreme
 
 **Word Associations:** aghast, stricken, fearful, danger, risk, unsure, panic, afraid
 
-
-<br>
-
-
 ## A Glance ##
 I caught a brief glance of him.
 My impression is that he is mature, his heart is singing, and that he cares about humanity.
@@ -1754,10 +1425,6 @@ But it's just a blink, a flesh.
 <br>
 
 **Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
-
-
-<br>
-
 
 ## Grief ##
 I fall down, and hit the ground with the loss,
@@ -1772,10 +1439,6 @@ I trust God in leading everyone forward in the way that makes everyone happy.
 
 **Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
 
-
-<br>
-
-
 ## Beauty ##
 The brilliance of the beauty found in the soul of the universe.
 Beholding the loving sunrays being reflected through the window.
@@ -1788,10 +1451,6 @@ The exquisite sound of silence and the lovely sound of the trucks.
 
 **Word Associations:** behold, brilliance, lovely, pathos, muse, elegance, striking, exquisite
 
-
-<br>
-
-
 ## Confusion ##
 The mystery obscures the truth.
 Bewildered by the abandonment, the experience of being ignored, and the inner and outer turmoil.
@@ -1802,10 +1461,6 @@ The turbulence going on in society shaking everything.
 <br>
 
 **Word Associations:** obscure, bewilderment, turmoil, fluster, tangle, leather, turbulence, shaken
-
-
-<br>
-
 
 ## Courage ##
 With courage, I get back up with fortitude.
@@ -1818,10 +1473,6 @@ I have the guts to keep moving on with love in my heart for all mankind.
 
 **Word Associations:** prowess, spunk, intrepidty, fortitude, lion-hearted, dauntless, gust, pluck
 
-
-<br>
-
-
 ## Devotion ##
 Sanctifying my life to the holy one reflected through you, through me.
 I devote my life to standing with you in loyalty and in earnesty.
@@ -1831,10 +1482,6 @@ I love you with fealty and come for you always.
 <br>
 
 **Word Associations:** piety, loyalty, fidelity, earnest, sanctity, fealty, deference, service
-
-
-<br>
-
 
 ## Family ##
 Family is the group of people with our most sacred, kindred bonds.
@@ -1847,10 +1494,6 @@ and forever unfolds.
 
 **Word Associations:** kin, lineage, clan, tribe, blood, kindred, relationships, generation
 
-
-<br>
-
-
 ## Charity Starts at Home ##
 In Christian Science, Church, Home, and Career are all one.
 Home is the consciousness of God. Home is found in Church, Church is found in Career, and Career is found in Home.
@@ -1858,10 +1501,6 @@ Home is the consciousness of God. Home is found in Church, Church is found in Ca
 <br>
 
 **Word Associations:** none
-
-
-<br>
-
 
 ## Friendship ##
 A new friendship is amazing.
@@ -1876,10 +1515,6 @@ God holds us all in angelic realms in camaraderie, harmony, and one pact.
 
 **Word Associations:** pact, brotherhood, sisterhood, league, alliance, bond, rapport, camaraderie
 
-
-<br>
-
-
 ## History ##
 What is done is done.
 What is complete is complete.
@@ -1892,10 +1527,6 @@ His story from antiquity is continuous, ever-renewing and cyclical.
 <br>
 
 **Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
-
-
-<br>
-
 
 ## Humanity ##
 The smile on a face,
@@ -1912,10 +1543,6 @@ Mankind, a group of people, is abundant in making life-decision, and life-giving
 
 **Word Associations:** people, mankind, good will, fellowship, civility, uprightness, forbearance, compassion
 
-
-<br>
-
-
 ## Longing ##
 I crave, long for something out there that seems wrong to have.
 My heart throbs, I feel uncomfortable with this longing, sin, and error pining.
@@ -1925,10 +1552,6 @@ I search deeper for what I really thirst for, what I really hope for that is pea
 <br>
 
 **Word Associations:** craving, entreaty, throb, lovesick, thirst, pining, hope, languish
-
-
-<br>
-
 
 ## Peace ##
 Peace starts from within.
@@ -1943,10 +1566,6 @@ Joy comes through being happy for others and making true with the situation.
 
 **Word Associations:** order, truce, unity, amity, quiet, harmony, tranquility, joy 
 
-
-<br>
-
-
 ## Sorrow ##
 Suffering alone, working it out.
 I mourn in misery.
@@ -1958,10 +1577,6 @@ Joy cometh in the morning with the light of the sun, and the noonday.
 
 **Word Associations:** pang, mourning, misery, agony, bereavement, melancholoy, woe, suffering
 
-
-<br>
-
-
 ## Visions ##
 What brilliance there is in the vision of the Lord who speaks to us through our third eye and gives us beautiful imagery, glimpses, and insights.
 What brightness is reflected in the spirited perception of all things.
@@ -1970,10 +1585,6 @@ It's lovely to muse on how God share his fancies, and delivers us from imaginati
 <br>
 
 **Word Associations:** perception, glimpses, insight, acumen, brilliance, fancies, musings, imagination
-
-
-<br>
-
 
 ## Nighttime ##
 At nighttime, when I can't sleep in the darkness, I turn to the stars.
@@ -1989,10 +1600,6 @@ and God causes all to shine, so people can be aware.
 
 **Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, black
 
-
-<br>
-
-
 ## Betrayal ##
 Betrayal is mischief.
 After helping someone, that someone commits treason and breaks the covenant.
@@ -2005,10 +1612,6 @@ Duplicity in motives, deceit is uncool.
 
 **Word Associations:** duplicity, perfidy, Judas, Brutus, trickster, double, heartbreak, treason
 
-
-<br>
-
-
 ## Seeds ##
 One thought at a time we bear goodness and life in our minds and experience.
 A thought is a seed, and a seed can grow.
@@ -2019,10 +1622,6 @@ and the stem that gives it strength helps it live at its core.
 <br>
 
 **Word Associations:** beginnings, ideas, kernel, core, concept, embryo, germ, stem
-
-
-<br>
-
 
 ## Mother ##
 A mother holds her child, 
@@ -2035,10 +1634,6 @@ There is warmth in this place of divine origin.
 
 **Word Associations:** matriarch, origins, childhood, warm, womb, complex, goddess, caregiver
 
-
-<br>
-
-
 ## A Secret ##
 Some human experiences and thoughts that I must bury deep down in the darkest spot of my consciousness.
 I am ashamed and feel regret for such cryptic thoughts.
@@ -2050,10 +1645,6 @@ The dark mist in our thoughts can turn to light and be exposed.
 
 **Word Associations:** cryptic, dark, hush, private, clouded, mist, regret, buried
 
-
-<br>
-
-
 ## Dilemma ##
 A dilemma, a double bind.
 Feeling oxed in, and stuck in a mess of my own doing.
@@ -2063,10 +1654,6 @@ It's a green plight indeed, a quagmire.
 <br>
 
 **Word Associations:** bind, choice, boxed in, impasse, scrape, plight, mess, quagmire
-
-
-<br>
-
 
 ## Dreams ##
 The fantasy inside my head of something unreal.
@@ -2078,10 +1665,6 @@ I had a vision, it was a beautiful mental picture, but it proved to be nothing b
 <br>
 
 **Word Associations:** fantasy, trance, thought, image, illusion, mental picture, fancy, vision
-
-
-<br>
-
 
 ## Travel ##
 On a trek to discover something new.
@@ -2096,7 +1679,6 @@ And on a trip to see location A to location B.
 
 **Word Associations:** trek, ramble, wandering, touring, expedition, tour, voyage, trip
 
-
 ## Fame ##
 Known for the good done and expressed.
 Everyone living has done some good.
@@ -2109,7 +1691,6 @@ The immoral acts bring down popularity, but there's good ground we are all stand
 
 **Word Associations:** renown, repute, standing, acknowledgement, reputation, popularity, regard, immoral
 
-
 ## Poetry ##
 Listening within I find the rhyme and reason to the universe.
 Attuning to the inner muse, I find the words to capture the feelings.
@@ -2121,7 +1702,6 @@ All of life's highs and lows captured in a poem that can be turned into somethin
 <br>
 
 **Word Associations:** verse, rhyme, stanza, composition, muse, rhythm, lyric, epic
-
 
 ## Wishes ##
 The intention to love.
@@ -2136,7 +1716,6 @@ The yearning to forgive, let go, and speak with more compassionate tones.
 <br>
 
 **Words Associations:** intention, aspiration, ambition, hope, longing, will, yearning, desire
-
 
 ## Food ##
 
@@ -2153,7 +1732,6 @@ Gaining the smarts to know what to do.
 
 **Word Associations:** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
 
-
 <br>
 
 
@@ -2168,7 +1746,6 @@ And a terrace unfolding from that base.
 
 **Word Associations:** flower, petals, soil, roots, seed, rosebud, Eden, terrace
 
-
 ## Ice ##
 
 ## Science Fiction ##
@@ -2180,7 +1757,6 @@ I am in a humanoid, where the space-time void enfolds and unfolds infinitely, an
 <br>
 
 **Word Associations:** space, alien, explore, abduction, invasion, future, humanoid, galaxy
-
 
 <br>
 
@@ -2201,7 +1777,6 @@ It is sharing valiance and strength of spirit.
 
 **Word Associations:** courage, sacrifice, unflinching, strength, valiant, gallant, bold, daring
 
-
 ## Chance ##
 By chance, I meet these new people.
 Random encounters point me to my lifelong fate.
@@ -2211,7 +1786,6 @@ I am grateful for the good fortune, and gamble with what to do, knowing that som
 <br>
 
 **Word Associations:** luck, fortune, random, fate, remote, providence, gamble, destiny
-
 
 ## Kisses ## 
 
@@ -2231,7 +1805,6 @@ In the Science of the Earth, naturally Life goes on and on so that everyone and 
 
 **Word Associations:** preservation, conservation, ecosystem, environment, science, nature, Earth, planet
 
-
 ## Tradition ##
 Traditionally, values of loyalty, hard work, cheerfulness, and musicality guide our thinking and lives.
 It is the custom to show up, appreciate people, and stick to it.
@@ -2245,7 +1818,6 @@ What was the convention yesterday may not be the convention today.
 
 **Word Associations:** values, custom, heritage, legend, fable, culture, folklore, convention
 
-
 ## Affection ##
 Are you going to buy into the madness?
 It wasn't you, it wasn't of God.
@@ -2256,7 +1828,6 @@ Not held by the past, but a day made new by new affections, with the tingle brou
 <br>
 
 **Word Associations:** crush, itch, amore, devotion, caring, warmth, tingle, tender
-
 
 <br>
 
@@ -2274,7 +1845,6 @@ I know there is infinitely more to love and learn during the next phase of the w
 <br>
 
 **Word Associations:** stroll, fresh air, pulse, footsteps, path, promenade, breeze, wander
-
 
 <br>
 
@@ -2297,7 +1867,6 @@ I work steadfastly to love, be cheerful, and connect.
 
 **Word Associations:** stock, sure, credence, conviction, loyal, integrity, charge, steadfast
 
-
 <br>
 
 
@@ -2316,7 +1885,6 @@ Carpe Diem.
 
 **Word Associations:** horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
 
-
 <br>
 
 
@@ -2334,7 +1902,6 @@ Be grateful for Zen.
 
 **Word Associations:** rumination, reflection, peace, introspection, tranquil, rapt, Zen, ponder
 
-
 <br>
 
 
@@ -2350,7 +1917,6 @@ All of mankind working together, collaborating, and tolerating each other in one
 <br>
 
 **Word Associations:** parity, tolearance, balance, acceptance, fair, level, right, brotherhood
-
 
 <br>
 
@@ -2369,7 +1935,6 @@ The determination within to keep going.
 
 **Word Associations:** freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
 
-
 <br>
 
 
@@ -2383,9 +1948,6 @@ Staunch, and committed to reaching the goal.
 <br>
 
 **Word Associations:** incorrupt, honorable, constant, solid, trusty, staunch, decency, upright
-
-<br>
-
 
 ## Patience ##
 Wanting to react, but choosing to pause.
@@ -2401,10 +1963,6 @@ Being pulled by the stir, but experiencing the gentleness within.
 
 **Word Associations:** stoic, serene, calm, peace, composure, humility, gentleness, placity
 
-
-<br>
-
-
 ## Perspective ##
 I wake up with a new perspective on Life, on Earth each day.
 I wake up to see the sun from a slightly diffferent angle each morning.
@@ -2417,10 +1975,6 @@ There are always wonderful vistas ahead each day.
 <br>
 
 **Word Associations:** viewpoint, context, scene, vista, shift, frame, broad, angle
-
-
-<br>
-
 
 ## A Voyage ##
 On a voyage to a new land.
@@ -2436,12 +1990,8 @@ There's a constant search for goodness, new ideas, and new ways of being.
 
 **Word Associations:** passage, jaunt, journey, crossing, discovery, vessel, explore, search
 
-
-<br>
-
-
 ## Moments ##
-Life is a series of moments, of being conscioius of the light, the love.
+Life is a series of moments, of being conscious of the light, the love.
 An occasion to care, a flash taken by the mental camera, an instant of gratitude, a present day,
 a pause before a reaction, a twinkling blinking of an eye,
 a lingering hellow, a savor.
@@ -2449,10 +1999,6 @@ a lingering hellow, a savor.
 <br>
 
 **Word Associations:** occasion, flash, instant, present, pause, savor, twinkling, linger
-
-
-<br>
-
 
 ## Control ##
 Control.
@@ -2470,7 +2016,6 @@ An intelligent force is monitoring everything to keep everyone in check.
 
 **Word Associations:** govern, dominion, restraint, clout, authority direct, sway, monitor
 
-
 ## Expectations ##
 An expectation - a knowing that something good will happen.
 Founded in a promise that there will be akind person, a wake up call, something new to learn/
@@ -2482,7 +2027,6 @@ Supported by the design of the universe causing good prospects to live always.
 <br>
 
 **Word Associations:** promise, notion, supposition, design, motive, prospects, hope, potential
-
 
 ## Blessings ##
 Blessings abound every day.
@@ -2496,7 +2040,6 @@ A bestowal of supplies. A boon.
 <br>
 
 **Word Associations:** gifts, grace, thanks, benediction, luck, boon, betstow, bounty
-
 
 ## Values ##
 
@@ -2515,7 +2058,6 @@ It's the lull in the darkness.
 
 **Word Associations:** hush, lull, peace, calm, quietude, stillness, whisper, profound
 
-
 ## Solitude ##
 Alone, I rest in peace, gather thoughts, enjoy loving something.
 In isolation, I find my self, my voice.
@@ -2526,7 +2068,6 @@ In seclusion, I heal from the outside world and seek to understand the outside w
 <br>
 
 **Word Associations:** alone, isolation, seclusion, recluse, introvert, private, remote, hermit
-
 
 ## Romance ##
 The thrill of seeing your partner smile and love you back.
@@ -2540,7 +2081,6 @@ The freedom from outside affairs with people.
 
 **Word Associations:** thrill, amour, affair, flirtation, entangle, intimacy, passion, desire
 
-
 ## Appreciation ##
 I see work someone does, or experience someone doing something positive.
 I appreciate them and who they are.
@@ -2552,7 +2092,6 @@ I hold them in high regard, and high veneration.
 <br>
 
 **Word Associations:** gratitude, tribute, thankful, salute, favor, regard, esteem, veneration
-
 
 ## Carpe Diem ##
 Carpe diem, sieze the day.
@@ -2569,7 +2108,6 @@ Pluck out all the negativity.
 
 **Word Associations:** live, pluck, seize, dare, boldness, endeavor, audacity, nerve
 
-
 ## Character ##
 
 ## Colors ##
@@ -2584,7 +2122,6 @@ A fray of ideas unraveling in agitation.
 <br>
 
 **Word Associations:** fray, breach, clash, rival, contest, embroil, protagonist, strife
-
 
 ## Creation ##
 
@@ -2601,7 +2138,6 @@ God moving the sinner with compassion that heals and lights through the obstruct
 
 **Word Associations:** clemency, compassion, mercy, absolution, leniency, charity, grace, repent
 
-
 ## Growth ##
 A surge of frustration, anger, wants surge inside me.
 A purer sense of love for people and all mankind sprouts and begins to flower.
@@ -2616,7 +2152,6 @@ The bud within is made to open to full grace.
 <br>
 
 **Word Associations:** surge, prosper, flowering, sprout, swell, unfold, boost, bud
-
 
 ## Hate ##
 What do I hate?
@@ -2635,7 +2170,6 @@ It's the absence of the love that lies deep within everyone's heart.
 <br>
 
 **Word Associations:** ire, venom, spite, scorn, malevolence, aversion, bile, wrath
-
 
 ## Humility ##
 
@@ -2656,7 +2190,6 @@ A clean, gentle spirit able to laugh and have fun.
 
 **Word Associations:** virtue, clean, lamb, impeccable, artless, modesty, decency, temperance
 
-
 ## Inspiration ##
 A new insight into the reality of life.
 The insight comes through revelation and intuition.
@@ -2668,7 +2201,6 @@ A boundless sense of elation supporting one's ability to spring up quickly.
 <br>
 
 **Word Associations:** whimsy, insight, elation, fervor, delight, talent, fancy, revelation
-
 
 ## A Journey ##
 A journey to a new place, a new way of living.
@@ -2682,7 +2214,6 @@ Sojourning to make new ways possible.
 <br>
 
 **Word Associations:** pilgrimage, sojourn, roam, traverse, odyssey, expedition, circumnavigation, wander
-
 
 ## Judgment ##
 Ability to distinguish, to see what one needs to know about a situation.
@@ -2698,7 +2229,6 @@ The reason behind a choice.
 
 **Word Associations:** acuen, savvy, reason, intuition, sense, perception, prudence, wisdom
 
-
 ## Moving On ##
 One door closes loudly, and another door opens quietly.
 Hasten to move through the new door opening quietly,
@@ -2711,7 +2241,6 @@ Continue to learn, push through the obstacles, and launch the new day.
 <br>
 
 **Word Associations:** hasten, momentum, go forth, launch, progress, proceed, continue, push
-
 
 ## A Mystery ##
 Why are events happening the way they are? I do not know.
@@ -2728,7 +2257,6 @@ I choose to walk over the crux trying to entrap, and ensare me.
 
 **Word Associations:** conundrum, pickle, quandary, crux, enigma, puzzlement, charade, baffle
 
-
 ## Paradise ##
 Heaven within, where no passion can reign.
 Balanced bliss governing the day with thoughtful intentions and freedom from want.
@@ -2741,7 +2269,6 @@ A nirvana, wehre stress has no power at all.
 
 **Word Associations:** eden, Elysium, heaven, bliss, delight, utopia, transport, nirvana
 
-
 ## Passion ##
 
 ## Sleep ##
@@ -2753,7 +2280,6 @@ I enter into a trance, slumber, and then wake up.
 <br>
 
 **Word Associations:** dream, doze, Morpheus, repose, torpor, trance, slumber, somnolence
-
 
 ## Soul Mate ##
 
@@ -2779,7 +2305,6 @@ As I grow older, I pass by those elders who are more mature and venerable.
 
 **Word Associations:** golden years, mature, dotage, decline, elder, venerable, evolved, perfected
 
- 
 ## A Choice ##
 Making a choice to let it go, give it up, and love someone else.
 Making the choice to step over the dilemma keeping me in bed and walking down the path unfolding with grace in my heart.
@@ -2792,8 +2317,17 @@ Taking the alternative road rather than do what's popular and choosing to be con
 
 **Word Associations:** marriage, path, challenge, alternative, dilemma, passion vs. logic, popular, ballot
 
-
 ## Jealousy ##
+The strife from wanting what someone else has and feeling the need to compete.
+Envying them because they express something fully that seems incompeltely expressed in me.
+Feeling antagonism beceause they are perfect, and I seem to lack.
+I have it within already, but it seems like I am just a copy, and animosity drives anger and a grudge.
+They have the authority, and the power.
+I had some of these ideas too, but I feel driven to spitefulness.
+
+<br>
+
+**Word Associations:** rivalry, envy, antagonism, animosity, spite, grudge, covetous, strife
 
 ## Fear ##
 There's so much tightness within.
@@ -2806,7 +2340,6 @@ Taken over by the angst of what needs to be done and the tremors on the Earth.
 <br>
 
 **Word Associations:** dread, tremor, paralyzed, foreboding, nightmare, creeps, jitters, angst
-
 
 ## A Breath ##
 
