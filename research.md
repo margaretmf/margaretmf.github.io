@@ -1,8 +1,11 @@
 ## Why is Nashville the Center of Everything? ##
 
-## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
-
 ## How is History Shared? How Do We Appreciate and Share the Past? ##
+## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
+English teachers define "romance" as "somewhere between the real world and fairy-land, where the actual and imaginary may meet, and each imbue itself with the nature of the other."
+
+It's great to appreciate the best parts of our nation and past. What is being glorified, however?
+
 
 ## How Does Music Heal? ##
 
