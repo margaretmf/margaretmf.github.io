@@ -171,7 +171,7 @@ Your place is in the land of the divine, where ideas in your heart continuously 
 "The past unravels. The present is unfolding."
 
 ## Home ##
-This is a home for divine expression, divine orchestration, divine symphony, divine architecture, divine building, brother bird.
+This is a home for divine expression, divine orchestration, divine symphony, divine architecture, divine building, brother birds.
 
 ## United ##
 United in our being.
@@ -307,8 +307,8 @@ and a light that embraces everything through all the Earth.
 
 ## The Freerider ##
 She's a woman who can stand on her own two feet.
-She knows how to straddle a horse alone
-block and tackle like a true innovator
+She knows how to straddle a horse alone,
+block and tackle like a true innovator,
 and gain dominion over her heart.
 She may have made mistakes in the past
 but there's a golden light in her heart
@@ -431,6 +431,22 @@ Shoving the things down that I should not share
 Feeling uncomfortable, embarassed, and over-exposed
 
 ## Industry 2.0 ##
+I am a highway girl.
+I love to pray when I drive.
+My thought moves slowly.
+I have the freedom to process information.
+I remember the long drives from VA through TN and back down to NC.
+I love the sounds on the highway, the harmony of the trucks, the order of the cars, the roadside hotels, and the people to meet at gas stations.
+
+The internet is the new highway to Truth.
+Anything and everything can be uncovered, discovered, and captured.
+There's so much love, joy, happiness, beauty, and grace to share online.
+There are so many words of wisdom to express.
+
+Everyone interconnects online in the way the highway connected people in new ways.
+New connections can be made, and old connections can be revived.
+But be careful what you share. All the information moves so quickly. Some of it is advertisment like the billboards on the side of the road, with an attention-seeking image, but no authentic response back.
+And there's a quick way to vent, compare, compete, or be exposed to things you may not want to be exposed to.
 
 ## Why Am I Being Tracked? ##
 
@@ -567,8 +583,6 @@ Use wisdom, carefulness, and caution. Don't be someone from the outside looking 
 
 Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
-
-## Social Media - A Highway to Relationships ##
 
 ## What is My Motive? ##
 To love someone new today.
@@ -876,7 +890,7 @@ A healthy home contributes to a village.
 ## Work ##
 Rising up out of bed with the morning sun shining through the city to do the daily duties.
 There's a song and a whistle in the daily grind.
-Finding the fun in the tool makes it worthwhile.
+Finding the fun in the work makes it worthwhile.
 I exert myself, use my skills, put in the effort, and have fun.
 
 <br>
@@ -1158,7 +1172,6 @@ I fall short,
 I have blemishes,
 I have made mistakes
 but I do not let this mar me from what perfection and good nature there is to lean on!
-
 Foibles can't stop me from continuing to live, love.
 Divine Love is omnipresent, there to wake up everyone and open up every one to his whole, limitless mind with faculites in tact.
 
