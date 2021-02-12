@@ -2317,6 +2317,16 @@ I enter into a trance, slumber, and then wake up.
 **Word Associations:** dream, doze, Morpheus, repose, torpor, trance, slumber, somnolence
 
 ## Soul Mate ##
+In Soul, the source of our souls and hearts, we may find multiple kindred spirits.
+I can see aspects in everyone that feel like me, or feel like home, or feel like family in some way. I can trust in them and treat them like a confidante.
+We all share the same source of companionship that blesses and uplifts homes, communities, and activities united on Earth.
+True love is always pointing us to something greater, grander, and more symphonious about ourselves, and the sweet heart within.
+True love is always uncovering the Truth that we need to know about mankind.
+It's good to commit to one partner, or spouse, or lover, but there are partners everywhere when God is partnering with us to weave His story, and His Song, and His Soul to higher heights and views.
+
+<br>
+
+**Word Associations:** partner, lover, spouse, kindred, confidante, companion, true love, sweetheart
 
 ## Strength ##
 When everything goes awry, I go within to find the strength to move forward.
@@ -2379,6 +2389,20 @@ Taken over by the angst of what needs to be done and the tremors on the Earth.
 ## A Breath ##
 
 ## A Shadow ##
+A dark side underlying the light.
+The false, fake, sham part of the two-faced being.
+It's unreal, a mimic.
+It obscures the light, the true being.
+It obfuscates humanity's reality.
+It blacken's the human experience and leads to pain.
+It's the dark undercurrents of humanity waiting to arouse in agitation.
+It extinguishes the part within that lights us up.
+It's a shadow because it's not the full refleced self.
+It's the self hidden by the lightlessness, waiting to evolve from shadow to light.
+
+<br>
+
+**Word Associations:** two-faced, dark side, lightless, mimic, obfuscate, blacken, obscure, extinguish
 
 ## Society ##
 
