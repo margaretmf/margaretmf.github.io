@@ -85,4 +85,7 @@ https://www.jstor.org/stable/272056?seq=1
 https://secondhandsongs.com/work/9147/all
 http://www-usr.rider.edu/~vrme/v16n1/volume6/visions/fall5
 https://www.mentalfloss.com/article/82584/long-history-behind-song-cotton-eye-joe
+http://ruthellengruber.com/blog/images/confederate-battle-flag-over-the-imaginary-wild-west/
+https://biologicalrootsofhumanity.wordpress.com/2019/06/15/a-cultural-shift-or-variation-cowboys-and-the-confederate-flag/
+https://www.cnn.com/style/article/sonya-clark-truce-flag/index.html
 
