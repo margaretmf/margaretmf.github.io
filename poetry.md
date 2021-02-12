@@ -41,6 +41,12 @@ What blesses one blesses all,
 so the union can only bless everyone.
 
 ## The Love, and The Goodness within vs. Society and Culture ##
+Man, and Woman are dependent on Love.
+Love moves us to appreciate one another.
+Love moves us to smile at each other.
+Love moves us to forgive, and share a good laugh.
+Love moves us to pause, and stop reacting.
+Love moves us to understand someone who is different, and really listen.
 
 ## A New Day ##
 It's a new day 
@@ -116,6 +122,8 @@ It loves you to the moon and back
 And dances with the stars after you are dead.
 It picks you up when you fall.
 And forgives you when you've failed.
+It remembers everything true at heart about you.
+And synchronizes all of your work.
 
 ## Harmony the Real, Discord the Unreal ##
 God harmonizes everything.
@@ -377,27 +385,28 @@ Traditionally, ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-l
 And I love that homes can include African American art and culture.
 
 ## The Country Music and the Rejection ##
-Did it heal your relationship to the Country or the country?
+Did it heal my relationship to the Country or the country?
 It healed my relationship to the Country and the country.
 I was already from the South, but negative memories of the South and race that infiltrated my thought were chased away.
 I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
 I was already aware of the lumber industry and my great grandfather's work in it, but it brought me one step closer to it.
-I already knew Tennessee and bluegrass music, but it brought me one step closer to this light-hearted music as well as the Blues.
+I already knew Tennessee blues and Virginia bluegrass music, but it brought me one step closer to this light-hearted music as well as the Blues.
 I once took mandolin lessons and played piano, and it led me to dig deeper into myself to play more spontaneously.
 I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
 I thought I was relating to the South, but it made me aware of the beauty of the West.
-I had already been to South America, but it brought me more love for the South Americans.
+I had already been to South America, but it brought me more love for the South Americans and Spanish Americans.
 I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish and Irish music.
 I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
 I had already felt denied by Southern culture, but it woke me up to my Southern mom.
-I was already aware of the trucks at the Port and on the roads, but it led me to love the truck drivers more.
+I was already aware of the trucks at the Port and on the roads in Bristol, but it led me to love the truck drivers more everywhere.
 I had thought Country music was just for White People, but I realized I already listened to country music produced by African Americans.
 I denied that the music was for me, and prayed that there was another woman the song was for.
 I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
 I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
 He broke away, and I trusted he was led to something better. 
+When seeing more deeply, I realized he was a cowboy, a real cowboy, and saw more innocence in the cowboy hat.
 When listening more deeply, it reminded me of my high school friend, and woke me up to how he viewed the world in a clearer light.
-I fell down hard to the ground, learned some life lessons, and the Black man saved my life with good cheer, good faith, and a good conversation.
+I fell down hard to the ground, learned some life lessons, and the Black man from the South saved my life with good cheer, good faith, and a good conversation.
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
 
 ## Cars on the Roads #
@@ -506,10 +515,10 @@ No words are needed because the color and the youthfulness are in the sound boun
 ## The Agitation in America ##
 When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
 the American dream felt out of reach to people.
-The American dream is not lost. What is great about America remains in memory. What is wrong baout America will be revisisted and retold.
+The American dream is not lost. What is great about America remains in memory, waiting to be reborn. What is wrong baout America will be revisisted and retold.
 America, founded on a rock, will always represent freedom to humanity.
 Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun.
-What's great about America remains great.
+What's great about America remains great. 
 What needs to be known about America will be known.
 The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
 There's newness for the country coming to life.
@@ -528,13 +537,13 @@ There is a constant story of being, evolution of thought, revolution of light, r
 
 ## Seeing Black Lives ##
 They help the police force as police officers.
-They play music.
+They play blues music and create new, cool music.
 They read in church.
 They create amazing art.
 They help the homeless community.
 They take care of little kids and love them, and hug them.
 They help people feel better after feeling fallen, or rejected.
-They are great sorority formal partners.
+They are great sorority date function partners.
 They create art and music.
 They dance in the street.
 They love their work.
