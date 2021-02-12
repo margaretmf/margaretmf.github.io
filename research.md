@@ -2,7 +2,7 @@
 
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
 
-## The Civil War - How Do We Share History? Why Do We Share History? Land and Race ##
+## How is History Shared? ##
 
 ## How Music Heals ##
 
@@ -79,7 +79,7 @@ Early setbacks for black artists are given a passing mention, before the series 
 Although 'Country Music' doesn’t delve much deeper to examine the everyday racism in the music and its greatest stars, the truth lies in the present day. The mingling of cultures brought about this new genre, and yet, it’s evolved to forget and exclude African Americans. Or perhaps black America has decided to leave country music behind."
 
 
-## Cotton-Eyed Joe ##
+
 https://flaglerlive.com/80446/confederate-flag-swastika-pt/
 https://www.jstor.org/stable/272056?seq=1
 https://secondhandsongs.com/work/9147/all
@@ -88,4 +88,4 @@ https://www.mentalfloss.com/article/82584/long-history-behind-song-cotton-eye-jo
 http://ruthellengruber.com/blog/images/confederate-battle-flag-over-the-imaginary-wild-west/
 https://biologicalrootsofhumanity.wordpress.com/2019/06/15/a-cultural-shift-or-variation-cowboys-and-the-confederate-flag/
 https://www.cnn.com/style/article/sonya-clark-truce-flag/index.html
-
+https://www.barrypopik.com/index.php/new_york_city/entry/cotton_eyed_joe_cotton_eye_joe
