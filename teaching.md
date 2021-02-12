@@ -2,28 +2,36 @@
 
 ## Critical Reading ##
 * Tragedy
-A dramatic composition, often in verse, dealing with a serious or somber theme, typically that of a great person destined through a flaw of character or conflict with some overpowering force, as fate or society, to downfall or destruction.
+(1) A dramatic composition, often in verse, dealing with a serious or somber theme, typically that of a great person destined through a flaw of character or conflict with some overpowering force, as fate or society, to downfall or destruction.
 
-The art and theory of writing and producing tragedies.
+(2) The art and theory of writing and producing tragedies.
 
-Any literary composition, as a novel, dealing with a somber theme carried to a tragic conclusion.
+(3) Any literary composition, as a novel, dealing with a somber theme carried to a tragic conclusion.
 
-The tragic element of drama, of literature generally, or of life.
+(4) The tragic element of drama, of literature generally, or of life.
 
-A lamentable, dreadful, or fatal event or affair.
+(5) A lamentable, dreadful, or fatal event or affair.
 
-A drama or literary work in which the main character is brought to ruin or suffers extreme sorrow, especially as a consequence of a tragic flaw, moral weakness, or inability to cope with unfavorable circumstances.
+(6) A drama or literary work in which the main character is brought to ruin or suffers extreme sorrow, especially as a consequence of a tragic flaw, moral weakness, or inability to cope with unfavorable circumstances.
+
 
 * Crucible
-A container of metal or refractory material employed for heating substances to high temperatures
+(1) A container of metal or refractory material employed for heating substances to high temperatures
 
-A hollow area at the bottom of a furance in which the metal collects
+(2) A hollow area at the bottom of a furance in which the metal collects
 
-A severe, searching test or trial
+(3) A severe, searching test or trial
 
-A place, time, or situation characterized by the confluence of powerful intellectual, social, economic, or political forces
+(4) A place, time, or situation characterized by the confluence of powerful intellectual, social, economic, or political forces
 
-*
+
+* Aphoristic Style
+(1) A style that employs aphorisms, brief witty sayings, such as quotations for the day
+
+
+* Romance
+(1) "somewhere between the real world and fairy-land, where the actual and imaginary may meet, and each imbue itself with the nature of the other"
+
 
 ## Where the Red Fern Grows by Wilson Rawls ##
 
@@ -108,4 +116,5 @@ the Big Sycamore Tree, the River, the Tree foliage
 * whistling // dog fight 
 
 * "surprise during the perfect day"
+
 
