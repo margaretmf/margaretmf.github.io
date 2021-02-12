@@ -258,6 +258,7 @@ Opening up to the light causes man's eyes to light up with a sparkle and a glow.
 This is true opening up.
 
 ## The Democratic Republic and the Debate Inside My Head ##
+Two parties of people governing
 
 ## Children's Play and Hallucinations ##
 Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
@@ -344,14 +345,14 @@ The water flows steadily through the channels, giving us peace and restoration.
 Forever in the night, the stars do shine.
 Our hearts burn.
 Everyone in the country, everyone on the Earth has a light like the star that burns, and shines.
-God holds us all amazingly in tact, in one grand brotherhood, sisterhood.
+God holds us all amazingly in tact, in one grand brotherhood, and sisterhood.
 
 ## The Union ##
 North, South, East, West
 We all stand in this union, 
 where everything is interconnected, 
-rising above the conflict, the chaos, 
-finding our common bond, and the bridge to the other side
+rising above the conflict, the chaos, the discordant beliefs, and the enslavement of man
+finding our common bond, and the bridge to the other side, and the joy to love a neighbor another day
 
 ## The Rose Within ##
 There is a rose within everyone's heart.
@@ -428,7 +429,7 @@ I had already felt eternity once, but I felt eternity for the whole country, all
 ## Cars on the Roads #
 In the red, white, and blue, where there are all sorts of people.
 Every one is individual.
-There are cool blue and brown buicks, sweet red trucks, sophisticated gray and black CRVs, all driving on the same roads.
+All sorts of cars of many hues are driving on the same roads.
 Weaving in and out through the cities and the land, we all live in one country under the God in which we trust.
 ## engineering, math, the distance between cars, everyone is individual, a sea of cars ##
 
