@@ -2,9 +2,9 @@
 
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
 
-## How is History Shared? ##
+## How is History Shared? How Do We Appreciate and Share the Past? ##
 
-## How Music Heals ##
+## How Does Music Heal? ##
 
 ## Trucking and Automation ##
 
