@@ -40,6 +40,22 @@ happiness with Mary for
 What blesses one blesses all,
 so the union can only bless everyone.
 
+## Spiritual Lessons From Every Relationship ##
+A lesson on reading and speaking up.
+A lesson on singing, playing music, and music history in the South.
+A lesson on how Black Lives are Amazing in Norfolk.
+A lesson on the Spanish roots of African Americans.
+A lesson on the Jamaican roots of African Americans.
+A lesson on not stalking people on social media and detaching from the situation.
+A lesson on not romanticisizing the South.
+A lesson on the history of the United States of America.
+A lesson on keeping the tone of conversation cheerful.
+A lesson on keeping email messages tidy and clean.
+A lesson on forgiving people and treating people as brethren.
+A lesson on appreciating people's names.
+A lesson on giving candid feedback to people and listening to people well.
+A lesson on being ok with solitude and being ok with being single.
+
 ## The Love, and The Goodness within vs. Society and Culture ##
 Man, and Woman are dependent on Love.
 Love moves us to appreciate one another.
