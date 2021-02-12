@@ -79,3 +79,10 @@ Early setbacks for black artists are given a passing mention, before the series 
 Although 'Country Music' doesn’t delve much deeper to examine the everyday racism in the music and its greatest stars, the truth lies in the present day. The mingling of cultures brought about this new genre, and yet, it’s evolved to forget and exclude African Americans. Or perhaps black America has decided to leave country music behind."
 
 
+## Cotton-Eyed Joe ##
+https://flaglerlive.com/80446/confederate-flag-swastika-pt/
+https://www.jstor.org/stable/272056?seq=1
+https://secondhandsongs.com/work/9147/all
+http://www-usr.rider.edu/~vrme/v16n1/volume6/visions/fall5
+https://www.mentalfloss.com/article/82584/long-history-behind-song-cotton-eye-joe
+
