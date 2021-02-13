@@ -47,7 +47,6 @@ The correct prayer is 'Shepherd, Show me how to love'
 
 I love to shift my perception to see people as God's daughters and sons
 
-
 ## Spiritual Lessons From Every Relationship ##
 A lesson on reading and speaking up.
 A lesson on singing, playing music, and music history in the South.
@@ -219,6 +218,8 @@ And synchronizes all of your work.
 ## Harmony the Real, Discord the Unreal ##
 God harmonizes everything.
 Harmony is the real, discord is the unreal.
+God knows what I need to learn what I need to learn, gain a new insight, and understand something.
+God is never mocked, and God is never making fun of people.
 
 ## The Darkness ##
 In the dark, when I am all alone
@@ -1977,6 +1978,16 @@ I know there is infinitely more to love and learn during the next phase of the w
 ## Flavors ##
 
 ## Pride ##
+Taking pride in all things great about your people and your land.
+Expressing arrogance, a sense of superiority that one is better than another.
+Boasting how great one is while believing others are inferior.
+Showing the confidence to enjoy life and having the pomp to prove to someone else they don't live life correctly.
+Expressing the dignity to express good cheer, and good peace.
+Having an ego filled with what's right for oneself and a love for all of humanity.
+
+<br>
+
+**Word Associations:** lion, dignity, pomp, ostentation, arrogance, boast, confidence, ego
 
 ## Trust ##
 I take stock in everything I have done correctly,
@@ -2380,6 +2391,17 @@ A nirvana, wehre stress has no power at all.
 **Word Associations:** eden, Elysium, heaven, bliss, delight, utopia, transport, nirvana
 
 ## Passion ##
+The fervor to do something.
+An intense excitement within for something.
+Taking the heat that lights up the Earth with love, and renewal.
+A fervent desire to grow in harmony, love, grace, and good cheer.
+A reason within to live another day with ardor.
+The zeal within to move forward.
+Lust for something that can't be had.
+
+<br>
+
+**Word Associations:** ardor, ferver, intensity, heat, zest, lust, desire, zeal
 
 ## Sleep ##
 In sleep, I dream, and find peace.
