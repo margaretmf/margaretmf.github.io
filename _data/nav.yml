@@ -48,6 +48,12 @@
   
 - name: "Research"
   link: "research"
+  
+- name: "Vocabulary"
+  link: "Vocabulary"
+  
+- name: "Coding Concepts"
+  link: "Coding Concepts"
 
   
 
