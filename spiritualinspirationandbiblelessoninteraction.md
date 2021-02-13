@@ -87,6 +87,7 @@
 
 "Sorrow is turned into joy when the body is controlled by spiritual Life, Truth, and Love."
 
+
 ## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
 
 * know the Truth
@@ -434,13 +435,66 @@
 
 * Preach the gospel
 
-"Preach the gospel toe very creature."
-"Speak the turth to every form of error."
+"Preach the gospel to every creature."
+"Speak the truth to every form of error."
 
 * the omnipotence of God
 "When the omnipotence of God is preached and His absoluteness is set forth, Christian sermons will heal the sick."
 
+* love man, love God
 
+"Beloved, let us love one another: for love is of God; and every one that loveth is born of God, and knoweth God."
+
+* Peter, Lord, "my brother sin against me, and I forgive him"
+"seven times seven"
+"seventy times seven"
+
+* Judge not, condemn not
+
+"Judge not, and ye shall not be judged: condemn not, and ye shall not be condemend: forgive, and ye shall be forgiven:"
+
+* Bless, persecute
+
+"Bless them which persecute you: bless, and curse not."
+
+* Jesus' prayer, "Forgive us our debts"
+
+* forgive us our debts
+"Forgive us our debts"
+"And Love is reflected in love"
+
+* "The rich in spirit help the poor in one grand brotherhood, all having the same Principle, or Father; and blessed is that man who seeth his brother's need and supplieth it, seeking his own in another's good."
+
+* Science of Christ
+
+"Science of Christ"
+"love his neighbor as himself"
+"God's omnipotence and the healing power of the divine Love"
+"mankind"
+
+* power of Christian Science
+"The power of Christian Science and divine Love is omnipotent. It is indeed adequate to unclasp the hold and to destory disease, sin, and death."
+
+* love from the Father
+"Behold, what manner of love the Father hath bestowed upon us, that we shold be called the sons of God:"
+
+* love in word, and deed, and in truth
+"My little children, let us not love in word, neither in tongue; but in deed and in truth"
+
+* the love that dwelleth within us
+"If we love oe another, God dwelleth in us, and his love is perfected in us."
+
+* brethren
+"love as brethren"
+
+* True substance
+"reflection and demonstration of divine Love, healing sickness and destorying sin"
+
+* "Love one another"
+simple, profound
+
+* Living the life that approaches the Supreme Good
+"Ask yourself: Am I living the life that approaches the supreme good? Am I demonstrating the healing power of Truth and Love? If so, then the way will grow brighter 'unto the perfect day.' Your fruits will prove what the understanding of God brings to man. Hold perpetually this thought, - that it is the spiritual idea, the Holy Ghost and Christ, which enables you to demonstrate, with scientific certainty, the rule of healing, based upon its divine Principle, Love, underlying, overlying, and encompassing all true being."
 
 
 ## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
