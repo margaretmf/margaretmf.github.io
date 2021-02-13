@@ -13,7 +13,79 @@
 
 * the fatness of thy house, the river of thy pleasures
 
-* 
+* a God full of compassion
+
+"But thou, O Lord, art a God full of compassion, and gracious, longsuffering, and plenteous in mercy and truth."
+
+* Jesus taught
+
+"And Jesush went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of sickness and all manner of idsease among the people."
+
+* the multitudes, a mountain, his disciples
+
+"Blessed are the merciful: for they shall botain mercy."
+
+"Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy. But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you. THat ye may be the children of your Father which is in heaven."
+
+* God fashions all things after His own likeness
+
+"God fashions all things, after His own likeness"
+
+"Life is reflected in existence, Truth in truthfulness, God in goodness, which impart their own peace and permanence, Love, redolent with unselfishness, bathes all in beauty and light."
+
+* Love our enemies, Golden Rule
+
+"We should love our enemies and help them on the basis of the Golden Rule"
+
+* Understand the power of Love
+
+"To fear sin is to misunderstand the power of Love and the divine Science of being in man's relation to God - to doubt His government and distrust His omnipotent care."
+
+* overcome evil with good
+
+"Know thyself, and God will supply the wisdom and the occasion for a victory over evil."
+
+"Clad in the panopoly of Love, human hatred cannot reach you. The cement of a higher humanity will unite all interests in the one divinity."
+
+* God's children
+
+"Truth and Love reign in the real man, showing that man in God's image is unfallen and eternal."
+"The kingdom of God is within you."
+
+* harmonize with His Principle
+
+"For true happiness, man must harmonize with his Principle"
+"the Son must be in accord with the Father"
+
+* Jesus and the multitude
+
+"And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick."
+
+* Jesus, moved with compassion
+
+"And Jesus, moved with compassion, put forth his hand, and touched him, and saith unto him, I will; be thou clean"
+"the leprosy departed"
+"cleansed"
+
+* Christianity as Jesus taught it
+
+"Christianity as Jesus taught it was not a creed, nor a system of ceremonies, nor a special gift from a ritualistic Jehovah; but it was the demonstration of divine Love casting out error and healing the sick, not merely in the name of Christ, or Truth, but in demonstration fo Truth, as must be the case in the cycles of divine Light."
+
+* the divine way in Christian Science
+
+"Universal Love is the divine way in Christian Science."
+
+* Love is the true incentive
+
+"Love for God and man is the true incentive in both healing and teaching. Love inspires, illumines, designates, and leads the way. Right motives give pinions to thought, and strength and freedom to speech and action."
+
+* "legitimate Christian Science, aflame with divine Love"
+
+* "The genuine Christian Scientists is adding to his patient's mental and moral power, and is increasing his patient's spirituality while restoring him physically through Divine Love."
+
+* sorrow, Joy
+
+"Sorrow is turned into joy when the body is controlled by spiritual Life, Truth, and Love."
 
 ## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
 
