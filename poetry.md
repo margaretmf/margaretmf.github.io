@@ -5,6 +5,9 @@ is_contact: true
 
 ## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
 
+## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically."
+
+
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
 I sing with the stars above, where everyone has a place.
@@ -46,6 +49,9 @@ The correct prayer is 'Shepherd, Show me how to love'
 'through the darkness'
 
 I love to shift my perception to see people as God's daughters and sons
+
+## God Stills the Storm ##
+God stills the storm, literally and figuratively, holds the rain off, lets man worship with the Sun shining, and causes the rainbow to peek through after the rain.
 
 ## Spiritual Lessons From Every Relationship ##
 A lesson on reading and speaking up.
@@ -163,15 +169,16 @@ She holds her covenant with all mankind.
 ## The Shadow Side ##
 "Yea, though I walk through the shadow of death, I shall fear no evil, for thy rod and thy staff shall comfort me for all the rest of the days of my life."
 This is the shadow side to who you are. There's a gentle soul beneath it all, waiting to unfold into greatness, and ready to smile at all of the humanity and all of the human race. There's a heart waiting to sing in the post office and the laundry room.
+It's amazing, and beautiful how God led his people out of slavery. It's not God's purpose for man to be enslaved. God leads his people through the wilderness.
 
 ## The Ocean ##
 The ocean crashes every day upon the shore.
 The deep waters of God are where the sin is stirred out.
-And the holiness of God can cleanse what is wrong away.
+The holiness of God can cleanse what is wrong away.
 
 ## Connected, Yet Ostracized ##
 When I am feeling connected yet ostracized, I want to yell out, but I pause 
-to remember the values to live out with the connections, not the connections themselves.
+and remember the values to live out with the connections, not the connections themselves.
 
 ## I AM ##
 I’m a graduate of UVA. 
@@ -218,7 +225,8 @@ And synchronizes all of your work.
 ## Harmony the Real, Discord the Unreal ##
 God harmonizes everything.
 Harmony is the real, discord is the unreal.
-God knows what I need to learn what I need to learn, gain a new insight, and understand something.
+God knows what I need to learn, how I need to gain a new insight, and how I need to understand something.
+God knows what to draw out of his people.
 God is never mocked, and God is never making fun of people.
 
 ## The Darkness ##
@@ -334,7 +342,20 @@ Opening up to the light causes man's eyes to light up with a sparkle and a glow.
 This is true opening up.
 
 ## The Democratic Republic and the Debate Inside My Head ##
-Two parties of people governing
+Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with order, and a set of ways to handle collective challenges.
+No party has absolute control. The party in control has representative power over a set of people and over the collective whole. The party not in control also represents another set of people.
+The governmental structure builds in a space for dialogue, or a debate that gives room for disagreement that can yield to agreement.
+Not everyone has to agree, but everyone should point their thought to the greater good that supports the life, love, and soul that exists within people's hearts and minds.
+New ideas can evolve out of conflict and disagreement, leading to something better than before.
+A new nation is built everytime conflict erupts so destructively.
+A republic:
+A democracy:
+The debate over which set of ideas, or system of government runs in my head. I feel like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion.
+
+## I am Whole ##
+Dropping the narrative that I have made a mistake. Taking on the narrative that I am whole.
+God's way is higher than my way.
+And "all works together for good" when seeking to understand, desiring to progress, yearning to improve, going within to love more, working to apologize, asking to learn, working to perceive correctly in the light.
 
 ## Children's Play and Hallucinations ##
 Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
@@ -414,7 +435,7 @@ She has a heart for people that forgives and sings.
 A true woman she is, expressing ladylike qualities and poise.
 
 ## Our Country ##
-Everyone in our country are like stars shining on the American flag
+Everyone in our country are like stars shining on the American flag.
 The light can't burn out.
 The people are so innocent.
 The water flows steadily through the channels, giving us peace and restoration.
@@ -644,27 +665,28 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 ## Constant Evolution ##
 There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
 
-## Seeing Black Lives ##
+## Seeing Black Lives, Seeing Integration ##
 They help the police force as police officers. [White people are also, and they contribute to racial healing.]
-They play blues music and create new, cool music. [White people do too, and they sing with African Americans.]
+They write good poetry.
+They play fun music and create new, cool music. [White people do too, and they sing with African Americans.]
 They read in church. [White people do too, and they are good partners.]
-They create amazing art. [White people do too, and they support art in their homes.]
+They create amazing art. [White people do too, and they find ways to put art in their homes.]
 They help the homeless community. [White people do too, and they are good drivers.]
 They take care of little kids and love them, and hug them. []
 They help people feel better after feeling fallen, or rejected. []
 They are great sorority date function partners. []
-They create art and music. []
 They dance in the street. []
 They love their work. []
 They support their kids. []
 They have healthy, beautiful homes. []
-They love Allah, the same God that Christians worship. []
-They also love God, and they have great faith through adversity. []
+They love God, and they have great faith through adversity.
+They also love Allah, the same God that Christians worship. []
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
 Lurking on social media; why lurk behind the scenes again?
 I put a stop to the lurking, and control my usage.
+I even delete the application on my own, and seek new online applications.
 
 The images are beautiful; I am receiving Christmas Cards all years.
 It's a place to express love, and appreciation, and meet people from a distance.
@@ -705,7 +727,7 @@ One's wholeness is innate, in tact, and always there.
 
 
 ## The American Chain [Written in 2010] ##
-As a child, I gerw up singing 'I am proud to be an American' like many of my peers. I never knew what it meant to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for hom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are'. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
+As a child, I grew up singing 'I am proud to be an American' like many of my peers. I never knew what it meant to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for hom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are'. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
 
 A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Obama began his speech the responses from everyone in the audience gave a feel of community support. Everyone was there for a common rreason; to support Obama, to support the Democrats, and most of all to support the United States of America. I felt love from each person standing near me. Everyone stood in a tight place, for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
 
