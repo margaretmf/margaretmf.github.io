@@ -2232,6 +2232,18 @@ A bestowal of supplies. A boon.
 ## Values ##
 
 ## Laughter ##
+A joy, a smile, and a good laugh after a mistake.
+It hurts my belly in a weird way because I laugh so hard.
+After a fall, a laugh is such good medicine, the best medicine indeed.
+I rejoice in knowing that it's not that big of a deal.
+I don't have to take myself too seriously, someone can poke through my funny bone and lead me to improve.
+I can share some merriment with someone. It comes with a burst of sound.
+It pokes a hole through me to see just how strong I am with humor as a shield.
+It comes in a shriek and a howl, and nothing is hurt after all.
+
+<br>
+
+**Word Associations:** joy, belly, medicine, shriek, howl, merriment, rejoice, burst
 
 ## Silence ##
 THe beauty of silence, of quiet.
