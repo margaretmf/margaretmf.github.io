@@ -2563,6 +2563,19 @@ It's the self hidden by the lightlessness, waiting to evolve from shadow to ligh
 **Word Associations:** two-faced, dark side, lightless, mimic, obfuscate, blacken, obscure, extinguish
 
 ## Society ##
+It's a trend to use social media and then take a break.
+It's fashionable to wear cowboy boots and listen to country music.
+Populism capitalizes on the false stories, sentiments, and stereotypes shared through the media.
+Opinions have no weight in God's kingdom within, and without.
+But sometimes people are outcasted because of the weight of human opinion.
+It's the responsibility of mankind to let go of, spurn the wrong, and interpet what they need, hear, and see.
+Don't believe it all.
+Progress is built on understanding.
+Seek to understand another's viewpoint, and perspective.
+
+<br>
+
+**Word Associations:** trend, media, opinion, populism, fashion, responsiblity, outcast, progress
 
 ## Forgetting ##
 Disremembering the wrongs of the past,
