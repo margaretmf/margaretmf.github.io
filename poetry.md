@@ -53,6 +53,41 @@ I love to shift my perception to see people as God's daughters and sons
 ## God Stills the Storm ##
 God stills the storm, literally and figuratively, holds the rain off, lets man worship with the Sun shining, and causes the rainbow to peek through after the rain.
 
+## Working with EVERFI ##
+I was grateful that through the doubt, God intuitively led me to a place just right for me and everyone, where I was integrated with family members and community members doing their life work in the world.
+I was grateful to deliberately choose to work for a leader who loved African American history and shared African American history.
+I was grateful to deliberately choose to help people understand how perception can shift behavior, though I did not fully understand that at the time.
+I was grateful to appreciate harmony expressed in the workplace with people from all different cultural perspectives in the country and the world.
+I was grateful to learn about the Natives, learn about the people from Kentucky, learn about California, and learn about Washington, DC.
+I was grateful to gain an understanding of what it means to feel "white privilege" in the workplace while loving what those from other cultural backgrounds are offering the world, the nation, the community, and the business world.
+I was grateful to see the spirit of compassion being expressed by people in the workplace, with the darkness in the world being transformed into light.
+I was grateful for company-wide events that brought people together in union twixt the darkness and the light.
+I was grateful to be part of the "THIS IS IT" moment when things started booming, roaring, becoming the full thing.
+I was grateful to see the inspiration of Martin Luther King, Jr. shared in an engineering class being reflected through the business.
+I was grateful to build solutions and be a part of the "Smart Things Should Build Things Movement".
+I didn't know everything there is to know about African American History, but I was grateful to start a lifelong journey of appreciating the country, learning about perception, learning about people, working in teams, learning about African American History, and preventing violence on the basis of sex and race.
+I was grateful to defend true womanhood, the "Princesses of Peace" who are able to lead, and appreciate true manhood.
+
+
+----------
+
+
+People may come from different perspectives, different sides, different points of view, but unite in the divine interest, expressing their talents in original, heart-felt ways.
+
+## Exploring The Controversy ##
+A flag is a sign, and a symbol.
+I can understand how people feel like the Confederate flag represents good things about Southern culture, Southern heritage, and the birth of the American Country.
+The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve.
+But the Civil War was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
+The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations.
+Land and economy are part of the South, but land and economy expand to the North.
+
+## The External and Internal Oppressor ##
+People condemn resentment, and anger for oppression or bad treatment.
+If someone is being patient for an extended period of time towards someone mistreating them, neglecting a part of who they are, undermining them, condescending them, patronizing them, or misunderstanding them, while they are forgiving them, the internal oppressor will seem like resentment with guilt, internal mockery, a sense of threat, self-hatred, and anger towards the ongoing enabling of negative behavior.
+The internal oppressor is the external oppressor internalized.
+The love from God shields man so that no form of human hatred can reach, and the love from God delivers man from this internal or external oppressor that leads to more aggression internally towards oneself or externally towards others.
+
 ## Spiritual Lessons From Every Relationship ##
 A lesson on reading and speaking up.
 A lesson on singing, playing music, and music history in the South.
@@ -665,22 +700,26 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 ## Constant Evolution ##
 There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
 
-## Seeing Black Lives, Seeing Integration ##
-They help the police force as police officers. [White people are also, and they contribute to racial healing.]
+## Seeing Black Lives ##
+They help the police force as police officers. 
 They write good poetry.
-They play fun music and create new, cool music. [White people do too, and they sing with African Americans.]
-They read in church. [White people do too, and they are good partners.]
-They create amazing art. [White people do too, and they find ways to put art in their homes.]
-They help the homeless community. [White people do too, and they are good drivers.]
-They take care of little kids and love them, and hug them. []
-They help people feel better after feeling fallen, or rejected. []
-They are great sorority date function partners. []
-They dance in the street. []
-They love their work. []
-They support their kids. []
-They have healthy, beautiful homes. []
+They play fun music and create new, cool music. 
+They read in church. 
+They create amazing art.
+They help the homeless community. 
+They share interracial relationships.
+They express their narratives, and their side of the story.
+They take care of little kids and love them, and hug them. 
+They help people feel better after feeling fallen, or rejected. 
+They are great sorority date function partners. 
+They are good students in school.
+They invest in the community.
+They dance in the street. 
+They love their work. 
+They support their kids. 
+They have healthy, beautiful homes. 
 They love God, and they have great faith through adversity.
-They also love Allah, the same God that Christians worship. []
+They also love Allah, the same God that Christians worship. 
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
