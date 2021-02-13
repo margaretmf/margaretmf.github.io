@@ -50,6 +50,12 @@ The correct prayer is 'Shepherd, Show me how to love'
 
 I love to shift my perception to see people as God's daughters and sons
 
+## Attitude on Life ##
+I have sounded and attacked like President Donald Trump in some ways.
+I aspire to sound, and be thoughtful, and secure like Present Barack Obama, who I have met.
+I am interested in party switching, and the progress in The United States of America.
+I reflect on the ideals of home, Reconstruction and Civil Rights, and more.
+
 ## God Stills the Storm ##
 God stills the storm, literally and figuratively, holds the rain off, lets man worship with the Sun shining, and causes the rainbow to peek through after the rain.
 
