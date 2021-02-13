@@ -40,6 +40,14 @@ happiness with Mary for
 What blesses one blesses all,
 so the union can only bless everyone.
 
+## The Correct Prayer ##
+The correct prayer is 'Shepherd, Show me how to love'
+'how to love as God loves'
+'through the darkness'
+
+I love to shift my perception to see people as God's daughters and sons
+
+
 ## Spiritual Lessons From Every Relationship ##
 A lesson on reading and speaking up.
 A lesson on singing, playing music, and music history in the South.
@@ -47,7 +55,7 @@ A lesson on how Black Lives are Amazing in Norfolk.
 A lesson on the Spanish roots of African Americans.
 A lesson on the Jamaican roots of African Americans.
 A lesson on not stalking people on social media and detaching from the situation.
-A lesson on not romanticisizing the South.
+A lesson on not romanticizing the South.
 A lesson on the history of the United States of America.
 A lesson on keeping the tone of conversation cheerful.
 A lesson on keeping email messages tidy and clean.
@@ -89,6 +97,73 @@ Mortal mind wants to assert itself through fear, through judgment, through offen
 Divine Mind asserts itself through peace, through compassion, through empathy, through understanding, through patience, through prayer.
 Mortal mind wants to control through pressure, through anger, through manipulation, through jealousy.
 Divine Mind wants to control through morality, through the consciousness of good, through helpfulness, through good character.
+
+## Love's Debut, Love's Marriage ##
+She's quiet,
+She's humble,
+She's light-hearted, and smiling.
+
+She's musical,
+She's forgiving,
+She's dancing, and modest.
+
+She's inclusive,
+She's articulate,
+She's thoughtful, and wise.
+
+She's all-embracing,
+She's resilient,
+She's grateful, and at home.
+
+She's a searcher for humanity in the darkest areas of the world.
+She's a lover of Jesus and Mary Baker Eddy.
+She knows that Love has the throne and that Love is Life's true crown and glory.
+
+He's thankful,
+He's gracious,
+He's joyful, and kind.
+
+He's trustworthy,
+He's satisfied,
+He's helpful, and strong.
+
+He's embracive,
+He's courageous,
+He's free, and aware.
+
+He's a lover of mankind, and inclusive of all.
+With a passion for Church, He's a searcher for Truth in all areas of the world.
+He knows that Divine Mind has the throne and that reflecting Principle and Joy is the Way.
+God is the source of her peace, and speaks to her with the still, small voice.
+
+
+----------
+
+
+She knows that what blesses one, blesses all.
+She's consistent, precise, persistent, and dedicated.
+She's graceful, balanced, life-giving, and free.
+
+He provides strength and structure.
+He's law-abiding and principled.
+He's eternal, and omnipotent.
+
+
+----------
+
+
+She's a searcher for humanity, and a seeker of the light in the darkest areas of the world.
+She uses Truth's double-edged sword to end civil wars and human strife.
+She's self-complete and wedded to the author of the universe.
+She holds her covenant with all mankind.
+
+
+----------
+
+
+## The Shadow Side ##
+"Yea, though I walk through the shadow of death, I shall fear no evil, for thy rod and thy staff shall comfort me for all the rest of the days of my life."
+This is the shadow side to who you are. There's a gentle soul beneath it all, waiting to unfold into greatness, and ready to smile at all of the humanity and all of the human race. There's a heart waiting to sing in the post office and the laundry room.
 
 ## The Ocean ##
 The ocean crashes every day upon the shore.
@@ -569,21 +644,21 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
 
 ## Seeing Black Lives ##
-They help the police force as police officers.
-They play blues music and create new, cool music.
-They read in church.
-They create amazing art.
-They help the homeless community.
-They take care of little kids and love them, and hug them.
-They help people feel better after feeling fallen, or rejected.
-They are great sorority date function partners.
-They create art and music.
-They dance in the street.
-They love their work.
-They support their kids. 
-They have healthy, beautiful homes.
-They love Allah, the same God that Christians worship.
-They also love God, and they have great faith through adversity.
+They help the police force as police officers. [White people are also, and they contribute to racial healing.]
+They play blues music and create new, cool music. [White people do too, and they sing with African Americans.]
+They read in church. [White people do too, and they are good partners.]
+They create amazing art. [White people do too, and they support art in their homes.]
+They help the homeless community. [White people do too, and they are good drivers.]
+They take care of little kids and love them, and hug them. []
+They help people feel better after feeling fallen, or rejected. []
+They are great sorority date function partners. []
+They create art and music. []
+They dance in the street. []
+They love their work. []
+They support their kids. []
+They have healthy, beautiful homes. []
+They love Allah, the same God that Christians worship. []
+They also love God, and they have great faith through adversity. []
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
