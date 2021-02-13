@@ -58,7 +58,7 @@ I was grateful that through the doubt, God intuitively led me to a place just ri
 I was grateful to deliberately choose to work for a leader who loved African American history and shared African American history.
 I was grateful to deliberately choose to help people understand how perception can shift behavior, though I did not fully understand that at the time.
 I was grateful to appreciate harmony expressed in the workplace with people from all different cultural perspectives in the country and the world.
-I was grateful to learn about the Natives, learn about the people from Kentucky, learn about California, and learn about Washington, DC.
+I was grateful to learn about the Natives in Montana, learn about the beloved people from Kentucky, learn about the technologists from California, and learn about the Americans in Washington, DC.
 I was grateful to gain an understanding of what it means to feel "white privilege" in the workplace while loving what those from other cultural backgrounds are offering the world, the nation, the community, and the business world.
 I was grateful to see the spirit of compassion being expressed by people in the workplace, with the darkness in the world being transformed into light.
 I was grateful for company-wide events that brought people together in union twixt the darkness and the light.
