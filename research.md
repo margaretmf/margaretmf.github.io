@@ -83,6 +83,12 @@ Although 'Country Music' doesn’t delve much deeper to examine the everyday rac
 
 ## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false)
 
+## [How Mark Twain Invented the Wild West](https://themillions.com/2017/01/how-mark-twain-invented-the-wild-west.html) ##
+
+## [Roughing It](https://en.wikipedia.org/wiki/Roughing_It) ##
+
+## [Mark Twain](https://texastrailoffame.org/inductees/mark-twain/) ##
+
 https://biologicalrootsofhumanity.wordpress.com/2019/06/15/a-cultural-shift-or-variation-cowboys-and-the-confederate-flag/
 https://www.cnn.com/style/article/sonya-clark-truce-flag/index.html
 
