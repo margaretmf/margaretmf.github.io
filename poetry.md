@@ -1977,6 +1977,15 @@ A good creature isnide, indeed, waiting to turn from the Beast to the Beauty, li
 **Word Associations:** fur, tail, beast, untamed, wild, creature, mammal, feral
 
 ## A Pet ##
+A dog, the best companion in life.
+Someone to feed, walk, cuddle with, hug, and kiss.
+More friendly than a cat.
+Just as fun to play with as a rabbit.
+Keeping man in good company like a parrot, or a snake, but not caged in or dangerous.
+
+<br>
+
+**Word Associations:** companion, dog, cat, turtle, rabbit, snake, company, parrot
 
 ## Heroism ##
 Heroism - as it goes, "everywhere, life is filled with it."
