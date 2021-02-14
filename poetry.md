@@ -2661,6 +2661,19 @@ Taken over by the angst of what needs to be done and the tremors on the Earth.
 **Word Associations:** dread, tremor, paralyzed, foreboding, nightmare, creeps, jitters, angst
 
 ## A Breath ##
+Something speaks to me in the depth of my soul to lead me to rise up for another day.
+Rise up to the sounds, rise up to the light, rise up to the cheerful phone calls.
+A way of being moves through me, there's something at the depth of my breath that is not myself animating me.
+With inspiriation, I feel energized for the day for myself and others.
+THe good thoughts roll off on everyone around, leading to fresh insights for everyone.
+In the depth of the pain, there's a gasp of wind in humanity moving me forward with a book or a dance on the street.
+Some say I inspire them, I surprise myself, and my thoughts expand and renew my views.
+I gasp for the air of good cheer, and clear insights, and catch the wind.
+It's fresh, like the breeze.
+
+<br> 
+
+**Word Associations:** inspire, expand, renewal, energize, gasp, wind, freshen, depth
 
 ## A Shadow ##
 A dark side underlying the light.
