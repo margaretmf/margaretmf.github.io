@@ -86,7 +86,7 @@ I can understand how people feel like the Confederate flag represents good thing
 The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve.
 But the Civil War was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
 The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations.
-Land and economy are part of the South, but land and economy expand to the North.
+Land and economy are part of the South, but land and economy expand to the North and the West.
 
 ## The External and Internal Oppressor ##
 People condemn resentment, and anger for oppression or bad treatment.
@@ -256,12 +256,17 @@ This. Is. Who. I am.
 ## Love ##
 Reaching far for and extending widely this love for you.
 It continues for ever and never stops.
-It loves you to the moon and back
+It expands forever with all of humanity growing as well.
+It loves you to the moon and back.
 And dances with the stars after you are dead.
 It picks you up when you fall.
 And forgives you when you've failed.
 It remembers everything true at heart about you.
 And synchronizes all of your work.
+It knows you with all your full glory and colors.
+It knows how to guide and protect you.
+It nudges you always to the right intuitions and ideas.
+It sees the light in you when darkness and discord are all around.
 
 ## Harmony the Real, Discord the Unreal ##
 God harmonizes everything.
