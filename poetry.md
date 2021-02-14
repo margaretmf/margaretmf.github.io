@@ -51,7 +51,6 @@ so the union can only bless everyone.
 The correct prayer is 'Shepherd, Show me how to love'
 'how to love as God loves'
 'through the darkness'
-
 I love to shift my perception to see people as God's daughters and sons
 
 ## Attitude on Life ##
@@ -64,6 +63,41 @@ I reflect on the ideals of home, Reconstruction and Civil Rights, integration, a
 
 ## God Stills the Storm ##
 God stills the storm, literally and figuratively, holds the rain off, lets man worship with the Sun shining, and causes the rainbow to peek through after the rain.
+
+## A System of Ideas ##
+"You, oh God, are the source and circumference of being.
+Thank you God, that you work through us individually as distinct ideas.
+Thank you God, for knowing where each idea needs to be to bless, uplift, and be a healing influence.
+Thank you, God, for your system of ideas. We abide in you, you abide in us. What blesses one, blesses all."
+
+## Confidence ##
+"with faith"..."in God"
+Being so one with God that one can be happy for all of those around you.
+Being able express help to someone who seems to be struggling and being confident in his or her abilities.
+Feeling at ease in the body.
+Being able to admit to to mistakes nd accept rebueks with joy for how to become better.
+Being so rooted in God that there's a knowledge that God's idea is fit somewhere.
+Being free from the pull to compare or judge or feel judged.
+
+## The Harmony of True Business ##
+"Union in its highest meaning is the universal union of God and man, divine Principle and idea. True management, since God is infinite must be God's absolute government of His perfect, spiritual universe, including man. Mary Baker Eddy unites in Science and Health with Key to the Scriptures (p. 209), 'Mind supreme over all with its formations and governing them all, is the central sun of His own systems of ideas, the Life"
+
+## Speak Gently ##
+"Speak gently!
+It is better far to rule by love, than fear
+Speak gently, let not harsh words mar
+The good we might do here!
+
+Speak gently!
+Love doth whisper low
+The vows that true hearts bind;
+And gently Friendhip's accents flow;
+Affector's voice is kind.
+
+Speak gently to the little child!
+It's love be sure to gain
+Teach it in accents soft and mild.
+It may not long remain."
 
 ## Working with EVERFI ##
 I was grateful that through the doubt, God intuitively led me to a place just right for me and everyone, where I was integrated with family members and community members doing their life work in the world.
