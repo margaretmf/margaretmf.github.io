@@ -503,6 +503,7 @@ finding our common bond, and the bridge to the other side, and the joy to love a
 There is a rose within everyone's heart.
 It must be watered, it must be nourished.
 The love is strong, and the light is bright, even at night. It is all one with all of humanity.
+Nothing is as beautiful as a red rose in the harsh, blasts of a winter storm.
 
 ## Healing from Abuse, both the Abused and the Abuser ##
 There was no reason to be jealous.
@@ -573,6 +574,10 @@ I fell down hard to the ground, learned some life lessons, and the Black man fro
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
 You can let this go, darling, your good, Southern uncle already calls you darling, so do not worry child, heaven has got a plan for you, always.
 
+## At the Root ##
+At the root is the same heart responding and reacting to the same culture. 
+The same heart is at the root singing, appreciating, and interpreting.
+
 ## Cars on the Roads #
 In the red, white, and blue, where there are all sorts of people.
 Every one is individual.
@@ -591,16 +596,23 @@ and leaves room for all to grow in their own way.
 ## Healing from Email Attacks ##
 
 ## Opening Up, Anger, Strife ##
-Shoving the things down that I should not share
-Feeling uncomfortable, embarassed, and over-exposed
+Shoving the things - "the secrets" down that I should not share.
+Feeling uncomfortable, embarassed, and over-exposed.
+But it's ok.
+I can rise up another day.
+"The secrets" are exposed.
+They are not mine in the light of God.
 
 ## Industry 2.0 ##
 I am a highway girl.
 I love to pray when I drive.
 My thought moves slowly.
+The white and brown trucks remind me of modern-day horse and buggy cars.
 I have the freedom to process information.
+I can hear the beauty of the sounds.
+I open my eyes to new people in roadside hotels and at gas stations.
+I cherish the order and harmony of all the cars driving together through mid-day traffic.
 I remember the long drives from VA through TN and back down to NC.
-I love the sounds on the highway, the harmony of the trucks, the order of the cars, the roadside hotels, and the people to meet at gas stations.
 
 The internet is the new highway to Truth.
 Anything and everything can be uncovered, discovered, and captured.
@@ -765,7 +777,7 @@ I even delete the application on my own, and seek new online applications.
 
 The images are beautiful; I am receiving Christmas Cards all years.
 It's a place to express love, and appreciation, and meet people from a distance.
-It's a place to see the beauty and childlike grace and innocence expressed in everyone.
+It's a place to see the beauty, and childlike grace, and innocence expressed in everyone.
 People express joy in amazing ways and share that with everyone online.
 
 But why open up so much to strangers from a distance?
