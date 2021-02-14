@@ -119,23 +119,17 @@ Love moves us to pause, and stop reacting.
 Love moves us to understand someone who is different, and really listen.
 
 ## A New Day ##
-It's a new day 
-Open your window to the sunlight
-Take a deep breath and smile
-Welcome humanity, and the world into your heart with love
-Close the door to peering into the lives of others
-Trust they are right where they are meant to be
+It's a new day.
+Open your window to the sunlight.
+Take a deep breath and smile.
+Welcome humanity, and the world into your heart with love.
+Close the door to peering into the lives of others.
+Trust they are right where they are meant to be.
 
 ## A New Day ##
-It is a new day,
-the fan is blowing,
-the water is running,
-the sound of silence plays in the background.
-
+It is a new day, the fan is blowing, the water is running, the sound of silence plays in the background.
 I made mistakes, reacted out of anger yesterday, yet again.
-
 But the sun is dawning on a new day, and I can choose to reform, and let go.
-
 The sun is shining on the Earth from a new angle, shedding new perspectives on things.
 
 ## Mortal Mind and Divine Mind ##
@@ -549,25 +543,27 @@ Did it heal my relationship to the Country or the country?
 It healed my relationship to the Country and the country.
 I was already from the South, but negative memories of the South and race that infiltrated my thought were chased away.
 I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
-I was already aware of the lumber industry and my great grandfather's work in it, but it brought me one step closer to it.
-I already knew Tennessee blues and Virginia bluegrass music, but it brought me one step closer to this light-hearted music as well as the Blues.
+I was already aware of the lumber industry and my great grandfather's work in it, but it brought me one step closer to it. I learned to love those presently working in the lumber industry.
+I already knew Tennessee Blues and Virginia Bluegrass music, but it brought me one step closer to this light-hearted music as well as the Jazz music pictures in Norfolk.
 I once took mandolin lessons and played piano, and it led me to dig deeper into myself to play more spontaneously.
 I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
-I thought I was relating to the South, but it made me aware of the beauty of the West.
+I thought I was relating to the South, but it made me aware of the beauty of the West, and the freedom in the South.
 I had already been to South America, but it brought me more love for the South Americans and Spanish Americans.
 I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish and Irish music.
 I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
 I had already felt denied by Southern culture, but it woke me up to my Southern mom.
 I was already aware of the trucks at the Port and on the roads in Bristol, but it led me to love the truck drivers more everywhere.
-I had thought Country music was just for White People, but I realized I already listened to country music produced by African Americans.
+I had thought Country music was just for White People, but I realized I already listened to and played country music produced by African Americans.
 I denied that the music was for me, and prayed that there was another woman the song was for.
 I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
 I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
 He broke away, and I trusted he was led to something better. 
 When seeing more deeply, I realized he was a cowboy, a real cowboy, and saw more innocence in the cowboy hat.
 When listening more deeply, it reminded me of my high school friend, and woke me up to how he viewed the world in a clearer light.
+I saw the beauty of the Medieval English country, and true chivalry, where women and men are equal.
 I fell down hard to the ground, learned some life lessons, and the Black man from the South saved my life with good cheer, good faith, and a good conversation.
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
+You can let this go, darling, your good, Southern uncle already calls you darling, so do not worry child, heaven has got a plan for you, always.
 
 ## Cars on the Roads #
 In the red, white, and blue, where there are all sorts of people.
@@ -605,8 +601,27 @@ There are so many words of wisdom to express.
 
 Everyone interconnects online in the way the highway connected people in new ways.
 New connections can be made, and old connections can be revived.
-But be careful what you share. All the information moves so quickly. Some of it is advertisment like the billboards on the side of the road, with an attention-seeking image, but no authentic response back.
+But be careful what you share. All the information moves so quickly. Some of it is advertisement, like the billboards on the side of the road, with an attention-seeking image, but no authentic response back.
 And there's a quick way to vent, compare, compete, or be exposed to things you may not want to be exposed to.
+
+## Georgia ##
+Traditionally, there's racism in Georgia.
+As I look more deeply, I see how White Americans are innocent.
+The land has been taken back, restored, and freed from slavery.
+There are white-only plantations, and African Americans who have taken back the land.
+There are White Americans and African Americans eating together at diners.
+Thank you, God, for the good you do through your Christian brothers and sisters.
+Martin Luther King, Jr.'s work was so powerful.
+Your eyes were on the prize all along, leading your people along.
+
+## I LOVE THE BLACK MAN ##
+I am grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men.
+I am grateful for conversations with him about a key African American leader.
+The stereotype of African Americans is that their neighborhoods are dangerous, in debt, in poverty.
+The stereotype of African Americans is that they are borderline criminals.
+They do so much good, however.
+This is the stereotype.
+Everyone has a story. Everyone has a past. Everyone has a future. This is only the beginning of America's journey to freedom. I believe in the Black man.
 
 ## Why Am I Being Tracked? ##
 
@@ -727,8 +742,10 @@ They are good students in school.
 They invest in the community.
 They dance in the street. 
 They love their work. 
+They live for the future.
 They support their kids. 
 They have healthy, beautiful homes. 
+They lead teams at work.
 They love God, and they have great faith through adversity.
 They also love Allah, the same God that Christians worship. 
 
