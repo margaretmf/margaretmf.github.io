@@ -81,8 +81,9 @@ Early setbacks for black artists are given a passing mention, before the series 
 
 Although 'Country Music' doesn’t delve much deeper to examine the everyday racism in the music and its greatest stars, the truth lies in the present day. The mingling of cultures brought about this new genre, and yet, it’s evolved to forget and exclude African Americans. Or perhaps black America has decided to leave country music behind."
 
-
+## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false)
 
 https://biologicalrootsofhumanity.wordpress.com/2019/06/15/a-cultural-shift-or-variation-cowboys-and-the-confederate-flag/
 https://www.cnn.com/style/article/sonya-clark-truce-flag/index.html
+
 
