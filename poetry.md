@@ -8,6 +8,10 @@ is_contact: true
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically."
 
 
+## Gratitude List ##
+Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
+Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
+
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
 I sing with the stars above, where everyone has a place.
@@ -316,6 +320,12 @@ In silence, there's the reality of someone's heart beating without any verbal co
 In silence, there's space to stand aghast at and laugh at the ways people push people over, silence people, and ridicule people over quietude.
 In silence, there's space to appreciate the mystery of it all, and enjoy the interconnectedness of Life.
 In silence, there's the opportunity to say no to the silent arguments masquerading through my thought.
+
+
+----------
+
+
+Popular culture speaks silently. One must think to understand different perspectives on popular culture. One must be alert to silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
 
 ## Music ##
 Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
@@ -2122,6 +2132,18 @@ I know there is infinitely more to love and learn during the next phase of the w
 **Word Associations:** stroll, fresh air, pulse, footsteps, path, promenade, breeze, wander
 
 ## Flavors ##
+So many flavors in life.
+There are many ways to taste part of our culture.
+The sweetness of people serving food in a Chinese Restaurant.
+The zest of people dancing in the street.
+THe savor of someone preserving the past essence of America.
+The spiciness of people opening up a new business.
+The relishing of ideas that make us think home and hotel halls.
+The tang in a dance show.
+
+<br>
+
+**Word Associations:** taste, sweet, zest, savor, essence, spicy, tang, relish
 
 ## Pride ##
 Taking pride in all things great about your people and your land.
