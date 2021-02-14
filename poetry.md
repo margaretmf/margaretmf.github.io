@@ -307,6 +307,16 @@ There's nothing to change; just the true ideas welling up within to ressurect an
 
 ## Harmony ##
 
+## "What Beauty There Is In Silence" ##
+"What beauty there is in silence".
+In silence, there's true strength with no one telling her to find her strength.
+In silence, there's knowledge without words.
+In silence, there's space to muse.
+In silence, there's the reality of someone's heart beating without any verbal communication.
+In silence, there's space to stand aghast at and laugh at the ways people push people over, silence people, and ridicule people over quietude.
+In silence, there's space to appreciate the mystery of it all, and enjoy the interconnectedness of Life.
+In silence, there's the opportunity to say no to the silent arguments masquerading through my thought.
+
 ## Music ##
 Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
 
