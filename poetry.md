@@ -2230,6 +2230,15 @@ A bestowal of supplies. A boon.
 **Word Associations:** gifts, grace, thanks, benediction, luck, boon, betstow, bounty
 
 ## Values ##
+The values that our parents and teachers share with us show us how to treat people, cope with challenges, and recover after doing something bad.
+Standards of living, being, and doing provide the code to decisions.
+Upward, higher ideals lead us to who we really can be.
+An inner conscience rebuking su when something is wrong, guiding us to ethic.
+Thank you for th ementors who help to correct and help us get back up with good mores.
+
+<br>
+
+**Word Associations:** mores, scruples, ethics, standards, conscience, ideals code, tenet
 
 ## Laughter ##
 A joy, a smile, and a good laugh after a mistake.
@@ -2372,8 +2381,30 @@ It's the absence of the love that lies deep within everyone's heart.
 **Word Associations:** ire, venom, spite, scorn, malevolence, aversion, bile, wrath
 
 ## Humility ##
+Having the humility to own up to the things done wrong,
+respect rebukes and boundaries, and love someone who seems better.
+Expressing the modesty to know when to back down from a fight, and recognize the strength and power reflected in all of the people alike.
+SHowing the reserve not to lash out, demonstrating the meekness to do the right thing.
+Being gentle when a temper comes up.
+Showing docility in the face of adversity.
+Realizing the opposite of bashfulness.
+Expressing contrition for wrong-doing, and knowing ones mistakes.
+
+<br>
+
+**Word Associations:** reserve, bashfulness, docile, meek, fawn, modesty, contrition, gentle
 
 ## Imagination ##
+An invention of the human mind.
+A vivid vision inside that's not fully reality.
+It's an invention to cope with something causing pain inside.
+It's fantastically providing a false sense of condidence to cover something up.
+The inner stimulus, enterprising with fictitioius ideas.
+Images seen through the eye originally are romanticized, not see in the full light, distored, and reversed into artistry that's like make-believe.
+
+<br>
+
+**Word Associations:** vivid, invention, fantatstic, stimulating, vision, enterprise, originality, artistry
 
 ## Innocence ##
 Childlike innocence. 
@@ -2404,7 +2435,7 @@ A boundless sense of elation supporting one's ability to spring up quickly.
 
 ## A Journey ##
 A journey to a new place, a new way of living.
-Roaming through the wourld to discover new ideas, new viewpoints, new ways of being.
+Roaming through the world to discover new ideas, new viewpoints, new ways of being.
 Traversing through the streets to apreciate the beauty.
 Expediting the adventure to arise to a new height of understanding, living, perspicacity.
 Wandering through the woods to unearth the past, and discover something unfound.
