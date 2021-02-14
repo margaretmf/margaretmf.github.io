@@ -52,9 +52,11 @@ I love to shift my perception to see people as God's daughters and sons
 
 ## Attitude on Life ##
 I have sounded and attacked like President Donald Trump in some ways.
+Donald Trump supports people with valid points. Concerns over infrastructure, agriculture, and preserving what's best in the Republic are valid.
+I have met President Barack Obama. The purpose of life is to transform. All of humanity is transforming at once.
 I aspire to sound, and be thoughtful, and secure like Present Barack Obama, who I have met.
 I am interested in party switching, and the progress in The United States of America.
-I reflect on the ideals of home, Reconstruction and Civil Rights, and more.
+I reflect on the ideals of home, Reconstruction and Civil Rights, integration, and more.
 
 ## God Stills the Storm ##
 God stills the storm, literally and figuratively, holds the rain off, lets man worship with the Sun shining, and causes the rainbow to peek through after the rain.
@@ -2120,6 +2122,14 @@ I work steadfastly to love, be cheerful, and connect.
 **Word Associations:** stock, sure, credence, conviction, loyal, integrity, charge, steadfast
 
 ## A Fragrance ##
+A sweet smell of goodness, mercy, and love, coming from a bouquet of new ideas and projects.
+Gracious aroma blessing the whole Earth, with the smell of it.
+A savory, intoxicating subtle way to express a love for someone.
+There's a balm of freshness, coming from the honeysuckle.
+
+<br>
+
+**Word Associations:** bouquet, balm, aroma, savory, musk, honeysuckle, intoxicate, subtle
 
 ## Opportunities ##
 There's a new horizon ahead.
@@ -2695,6 +2705,15 @@ Escaping the dark skeletons in the closet to be as fresh as the sunlight.
 **Word Associations:** oblivion, disremember, consign, escape, pass, omit, scorn, clean slate
 
 ## Luck ##
+The windfall profit found from a chance encounter to a new land when availing oneself of the blessings.
+Through luck, there's a win, and a breakthrough that beats the odds.
+Fortune made though such a fire stroke that hits right on target.
+Huge glory and abudnance ahead that meets the infinite need.
+Grace in disguise, synchronized working out for the best for oneself and mankind.
+
+<br>
+
+**Word Associations:** stroke, profit, win, windfall, break, avail, odds, fortune
 
 ## Regret ##
 Wow. That was such a big mistake.
@@ -2721,7 +2740,7 @@ Finding absolution after living in contrition, sharing the darkness, and letting
 ## Insanity ##
 Falling to pieces mentally,
 losing control,
-letting a eprson, place, or thing control me.
+letting a person, place, or thing control me.
 Heading into delirium, expressing incoherent thoughts, making irrational decisions, feeling lost in the delusion.
 Running around like a madwoman in a state of mania.
 Appearling like a lunatic.
