@@ -10,7 +10,10 @@ is_contact: true
 
 ## Gratitude List ##
 Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
-Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
+Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
+Grateful for the sound of the laundry machine.
+Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
+Grateful for a home someone architected at a schoolhouse on a farm.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
@@ -289,7 +292,9 @@ This. Is. Who. I am.
 
 ## Love ##
 Reaching far for and extending widely this love for you.
-It continues for ever and never stops.
+You are already part of my family. 
+You remind me of people I already know.
+This love continues for ever and never stops.
 It expands forever with all of humanity growing as well.
 It loves you to the moon and back.
 And dances with the stars after you are dead.
