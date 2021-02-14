@@ -89,6 +89,8 @@ Although 'Country Music' doesn’t delve much deeper to examine the everyday rac
 
 ## [Mark Twain](https://texastrailoffame.org/inductees/mark-twain/) ##
 
+## [Scandalous Saddle](https://truewestmagazine.com/the-scandalous-saddle/)
+
 https://biologicalrootsofhumanity.wordpress.com/2019/06/15/a-cultural-shift-or-variation-cowboys-and-the-confederate-flag/
 https://www.cnn.com/style/article/sonya-clark-truce-flag/index.html
 
