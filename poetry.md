@@ -2010,6 +2010,15 @@ I am grateful for the good fortune, and gamble with what to do, knowing that som
 **Word Associations:** luck, fortune, random, fate, remote, providence, gamble, destiny
 
 ## Kisses ## 
+In our lowest moment, faith shall kiss our heart, and show us how loved within we are.
+Embraced by the lips of angels voicing our innate goodness and completeness, a clasping of a faithful heart-to-heart meets the great need.
+Teh passion within of the kisses of good leads us to find the warmth of the flame abright leading us to love everyone.
+A gentle touch ont he cheek reminding them how precioius they are, how gentle they are makes the day.
+Caressing softly with love makes the home on fire, lit aglow.
+
+<br>
+
+**Word Associations:** lips, cheek, warm, wet, clasp, passion, caress, embrace
 
 ## A Waterfall ##
 
