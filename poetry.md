@@ -1961,6 +1961,15 @@ I am in a humanoid, where the space-time void enfolds and unfolds infinitely, an
 **Word Associations:** space, alien, explore, abduction, invasion, future, humanoid, galaxy
 
 ## An Animal ##
+The untamed animalistic beast inside of me.
+It's wild and fierce, ferocious and untamed.
+It's like a feral cat for a human.
+Waiting to be unloosed, uncaptivated, and liberated into the domesticated sense of itself.
+A good creature isnide, indeed, waiting to turn from the Beast to the Beauty, like all mammals do.
+
+<br>
+
+**Word Associations:** fur, tail, beast, untamed, wild, creature, mammal, feral
 
 ## A Pet ##
 
@@ -2320,6 +2329,14 @@ Pluck out all the negativity.
 ## Character ##
 
 ## Colors ##
+The true colors within someone, waiting to shine through like an inner rainbow coming out of the storm.
+In all its brilliance, all the colors are there, reflecting all the many hues displayed through the world.
+Many pigments and shades captured within the inner and outer expression of all that can be experienced in life inwardly and outwardly.
+From vermillion to cobalt to scarlet, so much is there, waiting ot unfold in the light like an inner prism, part of an outer prism.
+
+<br>
+
+**Word Associations:** pigment, shade, tincture, complexion, scarlet, cobalt, brilliance, vermillion
 
 ## Conflict ##
 A fight over something or someone.
