@@ -2611,7 +2611,19 @@ One small intuition can grow and grow into potency.
 One small seed can be the muscle for a long, entire life.
 One choice to think differently can become the sinew for many more thoughts and actions to come.
 
+<br>
+
+**Word Associations:** vitality, fortitude, health, power, muscle, sinew, pith, potency
+
 ## A Sunset ##
+The sun sets another day over the mountains.
+The orange, and the gold meet the nightfall.
+The day declines at eventide, and the night is gloaming with peace.
+At twilight, I love to find the still, small voice, sharing what I need to know another day.
+
+<br>
+
+**Word Associations:** eventide, gloaming, nightfall, dusk, orange, gold, decline, twilight
 
 ## Growing Older ##
 Another year has past.
@@ -2756,7 +2768,7 @@ losing control,
 letting a person, place, or thing control me.
 Heading into delirium, expressing incoherent thoughts, making irrational decisions, feeling lost in the delusion.
 Running around like a madwoman in a state of mania.
-Appearling like a lunatic.
+Appearing like a lunatic.
 Working hastily and showing folly.
 
 <br>
