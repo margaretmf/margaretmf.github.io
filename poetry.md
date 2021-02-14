@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
+## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out myown poetry. ##
 
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically."
 
@@ -275,6 +275,12 @@ God is never mocked, and God is never making fun of people.
 In the dark, when I am all alone
 The light flashing through the car in front of me can't scare me
 The light within guiding me with intelligence, peace, security is so strong as the light flashing through the car
+
+## A Romantic Vision ##
+A rose, a flower blossoming through the wintery blast, the darkness of the night.
+
+## A Dose of Reality ##
+The sounds of the neighborhood working together in harmony for good.
 
 ## Words Cannot Express ##
 Words cannot express the deep things of God.
@@ -873,7 +879,7 @@ The timber keeps it steady.
 ## A Storm ##
 The storm is roaring and raging in the sky and in our hearts.
 The blustering winds, the tempestuous feelings.
-There is nothing like a witner blast, and a heart filled with wrath that loses control.
+There is nothing like a winter blast, and a heart filled with wrath that loses control.
 The storm roars without us, the sun is always shining, and it is always a beautiful world to be joyful, and cheerful in.
 
 **Word Associations:** roaring, raging, blustering, tempestuous, squall, blast, gale, wrath
