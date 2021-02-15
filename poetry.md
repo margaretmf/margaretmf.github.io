@@ -2021,6 +2021,15 @@ The yearning to forgive, let go, and speak with more compassionate tones.
 **Words Associations:** intention, aspiration, ambition, hope, longing, will, yearning, desire
 
 ## Food ##
+Thank you for the daily food to chew on.
+There's so much substance in it.
+I wish to digest it fully, and take delight in the taste, to imbibe all that it has to offer.
+My daily diet consists of taking care of myself with the nutriets.
+I eat what feels like heaven's cuisine, and take it all in, masticating it for the day.
+
+<br>
+
+**Word Associations:** imbibe, taste, chew, eat, digest, masticate, cuisine, diet
 
 ## Education ##
 Education for a lifetime.
@@ -2117,6 +2126,13 @@ Caressing softly with love makes the home on fire, lit aglow.
 **Word Associations:** lips, cheek, warm, wet, clasp, passion, caress, embrace
 
 ## A Waterfall ##
+The water rapidly moving down into the pool with endless possibilities, roaring into the river, and pouring into the pull.
+Wlaking up to it, I feel the spray and the foam on my cheek.
+The beautiful cascade of blue material forever flows on and on in a cycle.
+
+<br>
+
+**Word Associations:** cascade, power, possibility, rapids, spray, foam, roaring, pool
 
 ## Summer ##
 
