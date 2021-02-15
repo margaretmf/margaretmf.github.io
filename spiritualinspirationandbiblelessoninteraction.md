@@ -66,11 +66,26 @@ The Scriptures imply that God is All-in-all."
 
 "Man as the offspring of God, as the idea of Spirit is the immortal evidence that Spirit is harmonious and man eternal."
 
-* Man, tributary to God, Spirit, and nothign else
+* Man, tributary to God, Spirit, and nothing else
 
 "Man is tributary to God, Spirit, and to nothing else. God's being is infinity, freedom, harmony, and boundless bliss. 'Where the Spirit of the Lord is, there is liberty.'"
 
 "the realm of God"
+
+* praise the Lord
+
+"praise the Lord for his goodness, and for hisw onderful works"
+"he satisfieth the longing soul"
+he "filleth the hungry soul with goodness"
+"He broughout them out of darkness and the shadow of death, and brake their bands in sunder"
+
+* the fruit of the Spirit
+
+"the fruit of the Spirit is in all goodness and righteousness and truth;"
+
+"have no fellowship with the unfruitful works of darkness, but rather reprove them"
+
+"be filled with the Spirit"
 
 ## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
 
