@@ -1,5 +1,77 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## Week of February 1, 2020 - 'Spirit' - Inspiring Passage ##
+* The Lord's People
+
+"The Lord says: 'My people, I promise to give you my Spirit and my message"
+
+* The Glory of the Lord is Hidden to the senses
+
+"...Eye hath not seen, nor ear heard, neither have entered into the heart of mna, the things which God hath prepared for them that love him."
+
+* Revelation
+
+"But God hath revealed them untu us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God."
+
+* the Holy Ghost teacheth
+
+* diversities of gifts
+
+"but the Same Spirit"
+
+* one Spirit, one Body
+
+"For by one Spirit are we all baptized into one body"
+
+* "the spirit of the Lord", "the greatness of his might", "strong in power, not one faileth"
+
+* God is ALl-in-all
+
+The Scriptures imply that God is All-in-all."
+
+* God is individual, incorporeal, always meeting us where we are
+
+"God is individual, incorporeal. He is divine Principle, Love, the universal cause, the only creator, and there is no other self-existence. He is all-inclusive, and is reflected by all that is real and eternal, and by nothing else. He fills all space, and it is impossible to conceive of such omnipresence and individuality except as infinite Spirit or Mind. Hence all is Spirit and spiritual."
+
+* "three great verities of Spirit"
+
+"omnipresence, omniscience, omnipotence"
+
+"Spirit possessing all power, filling all space, constituting all Science, - contradict forever the belief that matter can be actual"
+"eternal verities reveal primeval existence as the radiant reality of God's creation, in which all that He has made is pronounced by His wisdom good."
+
+* True Existence
+
+* God, the Creator
+
+"The spirit of God hath made me, and the breath of the Almighty hath given me life."
+
+* the sons, children of God
+
+"have not received the spirit of bondage again to fear, but ye have received the Spirit of adoption"
+
+* all things work together for good for those who love God
+
+"And we know that all things work together for good to them that love God, to them who are the called according to his purpose."
+
+* the glory of the Lord, the same image, from glory to glory
+
+"we all, with open face"
+
+* one Spirit
+
+"In Science man is the offspring of Spirit. The beautiful, good, and pure constitute his ancestry. His origin is not, like that of mortals, in brute instinct, nor does he pass through material conditions prior to reaching intelligence. Spirit is his primitive and ultimate source of being; God is his Father, and Life is the law of his being."
+
+* Man, the offspring of God
+
+"Man as the offspring of God, as the idea of Spirit is the immortal evidence that Spirit is harmonious and man eternal."
+
+* Man, tributary to God, Spirit, and nothign else
+
+"Man is tributary to God, Spirit, and to nothing else. God's being is infinity, freedom, harmony, and boundless bliss. 'Where the Spirit of the Lord is, there is liberty.'"
+
+"the realm of God"
+
 ## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
 
 * God is love
