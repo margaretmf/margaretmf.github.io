@@ -2745,7 +2745,7 @@ As I grow older, I pass by those elders who are more mature and venerable.
 Making a choice to let it go, give it up, and love someone else.
 Making the choice to step over the dilemma keeping me in bed and walking down the path unfolding with grace in my heart.
 Choosing to tackle the challenge and overcome the problem.
-Married to the idea nad the one there is to love, seeing all there is that they can offer from the basis of their true self.
+Married to the idea and the one there is to love, seeing all there is that they can offer from the basis of their true self.
 Making a logical decision rather than giving into passion.
 Taking the alternative road rather than do what's popular and choosing to be confident with it.
 
