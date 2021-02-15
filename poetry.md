@@ -2059,6 +2059,15 @@ And a terrace unfolding from that base.
 **Word Associations:** flower, petals, soil, roots, seed, rosebud, Eden, terrace
 
 ## Ice ##
+The water freezes into ice.
+Touching the transformed material chills mhy fingers.
+I must put glvoes onb ecause it's frigid, and frozen.
+I run my hand over the tip of the crystal clear iceberg in winter.
+It's a glacier.
+
+<br>
+
+**Word Associations:** chill, freeze, glacier, crystal, winter, iceberg, frigid, frozen
 
 ## Science Fiction ##
 In the space alien to who I am,
