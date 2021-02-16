@@ -10,6 +10,10 @@ is_contact: true
 ## There is some other writing at the bottom. ##
 
 
+## Diary Entry - 10 Years in the Future ##
+Dear Margaret,
+Remember how on this day, 10 years ago, how forgiven you felt for the first time for all the crimes done, and all the wrongs done. You had so much deep love and deep thought for humanity. You started growing in new ways, and waking up old passions for English writing and children's books. You started understanding cultural nuances more clearly, and finding full freedom from suicidal thinking. You had love for family so much on this day 10 years ago, as well as love for the little ones on the street. You let go of the things you needed to be letting go of, and you started learning some of the deeper things you needed to learn. Thank God for moving you forward for 10 years and bringing healing, color, good relationships, full freedom from suicide, and and fulfillment into your life. The sun continues to shine every day.
+
 ## Gratitude List ##
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
 * Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
@@ -17,6 +21,7 @@ is_contact: true
 * Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
 * Grateful for a home someone architected at a schoolhouse on a farm.
 * Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified.
+* Grateful for the voice on the news, representing ethics and good judgment.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
