@@ -87,6 +87,53 @@ he "filleth the hungry soul with goodness"
 
 "be filled with the Spirit"
 
+* one Real attraction to Spirit
+
+"There is but one real attraction, that of Spirit. The pointing of the needle to the pole symbolizes this all-embracing power or the attraction of God, divine Mind."
+
+* man's spiritual gravitation and attraction
+
+"man's spiritual gravitation and attraction to one Father, in whome we 'live, and move, and have our being'"
+"divine Principle, Soul, Spirit, God"
+
+* mortal
+
+"other control, attraction" - "mortal"
+
+* the five senses, "warreth against Spirit"
+
+"These so-called material senses must yield to the infinite Spirit, named God."
+
+* material man, involuntary and voluntary error
+
+"Material man is made up of involuntary and voluntary error, of a negative right and a positive wrong, the latter calling itself right. Man's spiritual individuality is never wrong."
+
+* the supremacy of Spirit
+
+"the supremacy of Spirit"
+"the claims of matter"
+"mortals"
+"lay off mortality and find the indissoluble spiritual link which establishes man forever in the divine likeness, inseparable from his creator"
+
+* a spirit in man, and the Almighty inspires him
+
+"there is a spirit in man: and the inspiration of the Almighty giveth them understanding"
+
+* praise the Lord
+
+"And ye shall eat in plenty, and be satisfied, and praise the name of the Lord your God, that hath dealt wondrously with you: and my people shall never be ashamed."
+"I am the Lord your God, and none else"
+
+* two years, Pharaoh dreamed
+
+"I have dreamed a dream, and there is none that can interpret it"
+
+* seven years of great plenty, seve years of famine
+
+Behold, there come seve years of great plenty throughout all the land of Egypt: And there shall arise after them seven years of famine; and all the plenty shall be forgotten in the land of Egyp; and the famine shall consume the land;"
+
+* "the land of Egypt", "the spirit of God"
+
 ## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
 
 * God is love
