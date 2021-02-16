@@ -5,15 +5,18 @@ is_contact: true
 
 ## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out myown poetry. ##
 
-## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically."
+## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
+
+## There is some other writing at the bottom. ##
 
 
 ## Gratitude List ##
-Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
-Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
-Grateful for the sound of the laundry machine.
-Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
-Grateful for a home someone architected at a schoolhouse on a farm.
+* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
+* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
+* Grateful for the sound of the laundry machine.
+* Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
+* Grateful for a home someone architected at a schoolhouse on a farm.
+* Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
@@ -598,6 +601,7 @@ Equality for all.
 A connection to the land.
 A love of home and family.
 Freedom from racial, gender, and cultural politics.
+Where the country began and started.
 
 ## Southern Titles ##
 "Ladies" at home, and the country club, and "women" at work.
@@ -616,6 +620,7 @@ I already knew Tennessee Blues and Virginia Bluegrass music, but it brought me o
 I once took mandolin lessons and played piano, and it led me to dig deeper into myself to play more spontaneously.
 I was already from Virginia, but it shed light on West Virginia, nearby, and brought me one step closer to Old Virginia.
 I thought I was relating to the South, but it made me aware of the beauty of the West, and the freedom in the South.
+I already had ancestors who rode astride, but I grew more aware of the global trend of riding astride.
 I had already been to South America, but it brought me more love for the South Americans and Spanish Americans.
 I had already been to Scotland and Ireland, but it woke up my memories of a love for Scottish and Irish music.
 I had already traveled to the West to visit the natives, but it called my attention to the greater whole.
@@ -655,12 +660,10 @@ and leaves room for all to grow in their own way.
 ## Healing from Email Attacks ##
 
 ## Opening Up, Anger, Strife ##
-Shoving the things - "the secrets" down that I should not share.
+Shoving the things down that I should not share.
 Feeling uncomfortable, embarassed, and over-exposed.
 But it's ok.
 I can rise up another day.
-"The secrets" are exposed.
-They are not mine in the light of God.
 
 ## Industry 2.0 ##
 I am a highway girl.
@@ -2925,3 +2928,27 @@ The two work harmoniously as one gives generously, and the other receives a rati
 <br>
 
 **Word Associations:** support, cooperation, ration, teamwork, collaboration, sacrifice, charity, generosity
+
+
+----------
+
+
+## 2020 -  Pivotal Year - A Draft ##
+It's intuitively known to man that man is coexistent with God in one grand brotherhood that has the freedom to sing and soar far above the clouds.
+Do I choose to live together with others in human strife, or do I harmonize with people?
+This determines whether I, we truly can sing and soar, and this depends on my tone of heart, mind, conversation, song, and ears.
+
+The first grand spiritual lessons I learned were to feel the love from my mom while doing homework, understand the lives of African Americans while watching 'Eyes on the Prize' with my dad, appreciate diversity in the human race, treat an enemy like a cousin or a brother, 'speaking gently to the harsh words', truly love the ex-girlfriend of an enemy rather than feel intimitaed by or compared to with her, love the kindred spirit of a guy I felt I liked on social media, and rally hear what the Holy Spirit, not human opinion, communicates about man.
+
+There have been times when I've expressed humility when meeting President Obama and visited the White House to 'hack the gender pay gap'. And unfortunately there have been times when I have melted down, attacked people through horrible communication and threatened to kill people in ways that sound like President Donald Trump has sometimes sounded out of fear, envy, or pride.
+
+Song on Pangea, President Obama Election, I Believe
+
+The time finally came for me to choose, like a nation does, whether I turn to the light or to the shadow. Can I put downt he civil war sword of my grandfather's monstrous rage And the gun images I had sent?
+
+We all dwell in the Shadow of the Almighty at all times whether we knot it or not. But do I choose to make my bed in fear, envy, a sense of inferioirty, physical pain, discouragement, anger, rage, self-justification, gun violence, self-mutilation, and hell? Or do I choose to make my bed in heaven? God will always be there behind the clouds of mortal sense like the Sun does, moving our receptive hearts and minsd always in the right direction, but moment by moment, I have the ability to choose where I make my bed. Psalm 23:4 'Yea, though I walk through the darkest valley, I will fear no evil, for you are with me' represents this spiritual concept.
+
+My mom worked as a teacher like my grandmother did. And as a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men teaching, and I remember feeling a constant mortal sene that I was dependent on men or desperate to be in a relationship with a guy.
+
+...
+
