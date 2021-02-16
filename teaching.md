@@ -24,6 +24,8 @@
 * "somewhere between the real world and fairy-land, where the actual and imaginary may meet, and each imbue itself with the nature of the other"
 
 
+----------
+
 
 ## The River by Gary Paulsen ##
 
@@ -148,6 +150,9 @@
 ## Allusions ##
 * Alludes to "Huckleberry Finn" (p. 85)
 * "he had read a history of the Civil War and the author had written abot the men being 'cut down by fire'"
+
+
+----------
 
 
 ## Where the Red Fern Grows by Wilson Rawls ##
