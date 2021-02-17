@@ -10,6 +10,9 @@ It's also great to learn from the dark aspects of the past.
 Romanticizing the past stems from feeling like people have lost something from the past. Romanticizing the past also stems from glorifying a past that was not as pretty in reality. Aspects of the past still remain present today in new forms. Through stories, people can take up dark aspects of the past and learn from them. Also through stories, people can take up hidden realities not fully covered in traditional ones.
 
 
+----------
+
+
 ## [Occupational Therapy](https://www.slideshare.net/StephanvanBreenenCli/occupational-therapy-and-intellectual-disability) ##
 "Intelligence": cognitive functions, "learning, reasoning, manipulating information, and identifying patterns and relationships, solving problems, recall, planning"
 
@@ -21,24 +24,43 @@ Even with someone with a "borderline intellectual deficit", and "no apparent def
 ## How Does Music Heal? ##
 
 
+----------
+
+
 ## Trucking and Automation ##
+
+
+----------
 
 
 ## Nashville Country Music ##
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
 
+
+----------
+
+
 ## [Southern White Patriarchy](https://www.researchgate.net/publication/335328771_Southern_White_Patriarchy) ##
 "The pedestal upon which southern white womanhood stands is buttressed by an equally sacred southern white masculinity characterized by a distorted notion of honor, a penchant for violence, and male righteousness and superiority. Thus, Second-Wave Feminism spurred not only a defiant anti-feminism with which many white southern men and women identified, but also a men’s rights campaign that portrayed men as victims of reverse discrimination and promoted a dominant and defensive masculinity that was very familiar to southern white audiences. This misogyny, along with a religious assertion of manhood that was popular in southern evangelical churches, provided Republicans with an opportunity to build their partisan brand among white southerners. Often masked by romanticized notions of chivalry, southern white masculinity depends upon a patriarchal system and the traditional gender roles inherent in that system. The GOP would appeal to both as it chased southern white voters throughout the Long Southern Strategy."
+
+
+----------
 
 
 ## [Robber Barons](https://mises.org/library/truth-about-robber-barons) ##
 
 ## [Robber Barons](https://en.wikipedia.org/wiki/Robber_baron) ##
 
-
 ## [US Railway Mail Service](https://www.archives.gov/publications/prologue/2005/fall/fast-mail-1.html) ##
 
+
+----------
+
+
 ## [Railway Post Office](https://www.cs.mcgill.ca/~rwest/wikispeedia/wpcd/wp/r/Railway_post_office.htm) ##
+
+
+----------
 
 
 ## [Confederate Flag](https://www.theguardian.com/us-news/2018/aug/06/pride-and-prejudice-the-americans-who-fly-the-confederate-flag) ##
@@ -119,6 +141,7 @@ If you can put a rebel flag on it, they do: beach towels, BBQ aprons, windshield
 "'The war really was about slavery, and they didn’t hide it then,' I say as she listens intently. 'But I don’t believe everyone who likes the flag is racist. Many people were taught certain things.'"
 
 
+----------
 
 
 ## [The Myth of the Cowboy](https://www.theguardian.com/books/2013/mar/20/myth-of-the-cowboy) ##
@@ -141,6 +164,9 @@ I don't think it was an accident that the ideal-typical cowboy hero of the class
 In a way the loner lent himself to imaginary self-identification just because he was a loner. To be Gary Cooper at high noon or Sam Spade, you just have to imagine you are one man, whereas to be Don Corleone or Rico, let alone Hitler, you have to imagine a collective of people who follow and obey you, which is less plausible. I suggest that the cowboy, just because he was a myth of an ultra-individualist society, the only society of the bourgeois era without real pre-bourgeois roots, was an unusually effective vehicle for dreaming – which is all that most of us get in the way of unlimited opportunities. To ride alone is less implausible than to wait until that marshal's baton in your knapsack becomes reality."
 
 
+----------
+
+
 ## [Cowboys in Life and Legend](https://faculty.chass.ncsu.edu/slatta/cowboys/CBintro.htm) ##
 "Etymologists trace the use of the term cowboy back to 1000 AD in Ireland. Swift used it in 1705, logically enough, to describe a boy who tends cows. Modern usage, first in hyphenated form, dates from the 1830s in Texas. Colonel John S. "Rip" Ford used the word cow-boy to describe the Texan border raider who drove off Mexican cattle during the 1830s. The term carried a tinge of wildness, of life at the fringes of law and 'civilization.' After the American Civil War, Westerners applied the term cowboy to ranch hands, rather than cattle thieves. 
 
@@ -159,6 +185,9 @@ By about 1890 much of the range had been fenced. The westward extension of the r
 Cowboys bedding down for the night - VIEWS OF THE COWBOY: The cowboy generated conflicting appraisals. When observed at the end of a long trail drive, 'hellin' 'round town," cowboys attracted little praise. The Topeka Commonwealth (August 15, 1871), painted an unflattering portrait of the cowboy on a tear.
 
 Cowboys were no paragons of virtue, as many romantics and popularizers would have it. Nor were they the uncouth barbarians of the plains described by self-anointed spokesmen of civilization and culture. Externalities--principally the law and employers--imposed restrictions that shaped their lives. But cowboys lived as much as possible by their own internal codes of conduct. The cardinal virtues for the American cowboy were to do his best and to be cheerful, courageous, uncomplaining, helpful, and chivalrous. Of course, few cowboys maintained these ideals at all times in their lives."
+
+
+----------
 
 
 ## [Country Music](https://www.indiewire.com/2019/09/country-music-pbs-ken-burns-rosanne-cash-marty-stuart-1202173799/) ##
@@ -187,6 +216,10 @@ Although 'Country Music' doesn’t delve much deeper to examine the everyday rac
 ## [Roughing It](https://en.wikipedia.org/wiki/Roughing_It) ##
 
 ## [Mark Twain](https://texastrailoffame.org/inductees/mark-twain/) ##
+
+
+----------
+
 
 ## [Scandalous Saddle](https://truewestmagazine.com/the-scandalous-saddle/)
 
