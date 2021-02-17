@@ -41,6 +41,86 @@ Even with someone with a "borderline intellectual deficit", and "no apparent def
 ## [Railway Post Office](https://www.cs.mcgill.ca/~rwest/wikispeedia/wpcd/wp/r/Railway_post_office.htm) ##
 
 
+## [Confederate Flag](https://www.theguardian.com/us-news/2018/aug/06/pride-and-prejudice-the-americans-who-fly-the-confederate-flag) ##
+"A listening tour in Mississippi asks flag supporters why they still support a symbol that represents pain, division and difficult history"
+by Donna Ladd with pictures by Kate Medley
+
+“'Effie, it’s just been a bad day,' the lawman said to his sister, as the six-year-old listened. 'I just had to go cut a black boy down off that hanging tree and take him to his mama.'
+
+The infamous tree, used for lynching, was bending over a bridge on Highway 433 toward Lexington.
+
+'What did he do?' Effie Luby asked.
+
+'He raped and killed a white woman.'"
+
+
+"The first cut of the film also showed Lindy and husband, Ira Isonhood, flying the Confederate battle flag on a 20ft pole in the backyard of one of their homes.
+
+To many white people in the south and beyond, the Confederate flag is a sign of historic pride and defiance to whatever is currently called 'liberalism'; to most black Americans, the flag stands for white supremacy and racial violence. Today, the symbol often appears at 'pro-white' rallies and is a lightning rod in America’s calcifying racial divides."
+
+"The flag’s history is fraught and complicated, as was the bloody civil war that erupted in 1861 between the US south – where America’s slave trade had relocated and expanded by the mid-1800s – and the north. After the north won, it imposed a harsh Reconstruction on the south that still fuels white resentment today.
+
+The post-war white south embraced the Confederate battle flag, making it their sentimental symbol of the 'lost cause' of the war. By the time Mississippi embedded it into its new state flag in 1894, the flag was used to both honor the Confederate dead as well as a **'romanticized'** version of the war’s purpose.
+
+By the mid-20th century, the flag symbolized white resistance to ending segregation laws. The Ku Klux Klan flew it at lynching parties and angry mobs waved it outside public schools as black children enrolled; in front of white “segregation academies” and next to leering dogs unleashed on black protesters wanting the right to vote. (Today, its supporters say the KKK co-opted it.)
+
+The Isonhoods were the first stop of my May 2018 listening tour of Mississippi with photographer Kate Medley to ask flag supporters in our home state why they still support a symbol that represents so much pain, division and difficult history – even as they urge black Americans to get over their resistance to it."
+
+
+"'The Confederate flag played a big, big part in our history,' Ira says. '… Why are these minorities pushing to do away with this flag? Look at what’s happening to our statues!' he says."
+
+"'Slavery was an issue, but not the cause,' the teacher tells me. He repeats SCV’s selective semantics with precision: the south seceded over 'states’ rights' to financial independence; the north and Abraham Lincoln weren’t against slavery at the outset; northern tariffs were killing the south; few southerners and soldiers owned humans; slavery was fading anyway; and it wasn’t about white supremacy."
+
+"I later relay Lindy’s questions to Genesis Be, a 31-year-old hip-hop artist, public speaker and anti-Confederate flag activist from Biloxi. I met Be after reporting that her grandfather, Pastor Clyde Briggs, was a target of the Klan in the 1960s for trying to organize and arm black people against white supremacy. I have stuck my finger into a bullet hole in her family home where the Klan fired into the wall above where her aunt, then a child, slept."
+
+
+"By 1861, the south was demanding slavery expansion into western territories, which Lincoln’s 'Black Republicans' adamantly opposed. The SCV is correct, though, that Lincoln did not initially call for emancipation. In fact, Frederick Douglass called Lincoln 'preeminently the white man’s president, entirely devoted to the welfare of white men.'"
+
+
+"Massey, who identifies as more “Blackfoot-Cherokee” than white, isn’t interested in military history, saying the flag celebrates her heritage as a southerner, period. She grew up in Red Bay, Alabama, in a former slave region that the last census showed as 93% white and 1% black.
+
+'We just didn’t believe in racism. Nobody, my whole town,' she says."
+
+
+“'It was there when our grandfathers, great-grandfathers, were struggling to feed their six, eight, 10 kids. It flew for all colors, black, white, whatever,' she says."
+
+
+"Hentz, 41, is from Missouri, once a violent slave state, but calls the flag just an 'inanimate object,' adding: 'Stop letting it control you.'
+
+'If you don’t breathe life into something, it will die,” Massey adds.
+
+The friends reject being offended over what Hentz calls 'just a piece of cloth'.
+
+'It was poor white southerners who fought in these battles, being strung along by rich, property-owning whites who banked on the ignorance and arrogance of the poor whites to fight and die in the war,' Be says."
+
+
+"Gentlemanly Kevin Davis is surprised when we show up at his large white antebellum-style house in Simpson County. We are stopping by homes with flags, but owners keep pointing us on down the road to him.
+
+Davis – no relation to Jeff – has taught history in public and private schools, and also turned out to be an SCV member. Thirteen of his ancestors fought for the south, but most didn’t own slaves. Three died in battle, and one in a makeshift hospital in the Lyceum at Ole Miss in Oxford, Mississippi – one of numerous buildings built by slaves.
+
+'To me, the flag is not a racist thing. It’s a piece of our heritage that should be left there to honor sacrifices,' Davis says in a cozy parlor, adding that most soldiers were 'dirt-poor farmers' with no slaves."
+
+
+"We’re on Highway 49 south when it pops up: Flag Heads, which sells 'adult novelties' and Confederate tchotchkes.
+
+If you can put a rebel flag on it, they do: beach towels, BBQ aprons, windshield dice, coasters, flip-flops, polar fleeces, bikinis, umbrellas and more. Pipes fill a glass case, and we avoid the curtained adult room."
+
+
+"Johnson, CEO of the NAACP, says he wishes poor whites would recognize how powerful politicians have long played racial politics with Confederate emblems – a deliberate strategy to divide them from people with shared economic interests.
+
+'The very same people that exploit the working class for cheap labor and create systems to undermine their development through poor education systems use issues of racial division to maintain economic control,' the NAACP president says."
+
+
+"The flag could easily be honored or studied in museums, he adds.
+
+'The NAACP respects the constitutional, first amendment right for private citizens to maintain symbols and monuments on private property,' he says. 'Enjoy.'"
+
+
+"'The war really was about slavery, and they didn’t hide it then,' I say as she listens intently. 'But I don’t believe everyone who likes the flag is racist. Many people were taught certain things.'"
+
+
+
+
 ## [The Myth of the Cowboy](https://www.theguardian.com/books/2013/mar/20/myth-of-the-cowboy) ##
 "Our starting point is the fact that, in and outside Europe, the 'western' in its modern sense – that is, the myth of the cowboy – is a late variant of a very early and deep-rooted image: that of the wild west in general. Fenimore Cooper, whose popularity in Europe followed immediately upon his first publication – Victor Hugo thought he was 'the American Walter Scott' – is the most familiar version of this. Nor is he dead. Without the memory of Leatherstocking, would English punks have invented Mohican hairstyles?
 
