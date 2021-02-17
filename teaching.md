@@ -27,6 +27,41 @@
 ----------
 
 
+## Tone ##
+The attitude of the writer or narrator toward the subejct, characters, conflict, or audience.
+* Sympathetic
+* Critical
+* Formal
+* Informal
+* Friendly
+* Distant
+* Personal
+* Pompous
+* Ironic
+* Bitter
+* Compassionate
+* Ambivalent
+* Objective
+* Ecstatic
+* Incredulous
+* Despairing
+* Resigned
+* Playful
+* Serious
+* Mocking
+* Reverent
+* Calm
+* Exciting
+* Delighted
+* Surprised
+* Horrified
+* Mournful
+* Exulting
+
+
+----------
+
+
 ## The River by Gary Paulsen ##
 
 ## Questions ##
