@@ -21,7 +21,135 @@ Even with someone with a "borderline intellectual deficit", and "no apparent def
 "People with intellectual disability": "learn and process information more slowly", have time with "money, time, and subtleties of interpersonal interactions" and "cultural nuances"
 
 
-## How Does Music Heal? ##
+* "Usually recognizes familiar people and has strong relationships with key people in their lives."
+* "Most will have little or no speech and will rely on facial expression and body language and gestures to express their needs or feelings and those interacting with and supporting them must be active and keen observers in interpreting changes in a person's demeanor or behavior"
+* "Communication systems for people with this level of disability generally rely on photographs or objects to faciliate understanding, e.g. a picture of a cup, or the cup itself, may be used in conjunction with the spoken question"
+* "People with severe/profound disabilities will require lifelong assistance in personal care tasks, communication, and support in accessing community facilities/services"
+
+
+"Many people find the subtleties of interpersonal relationships and social rules difficult to understand (particulary as adolescents) and may inadvertently transgress social boundaries."
+
+Recognizing that someone has intellectual disability
+* Ability to identify signs that a person may have intellectual disability
+* Awareness that intellectual disability affects different people in different ways
+* Ability to seek information to understand each person's unique support needs
+
+
+Poor Communication is a Barrier
+* Better communication could increase your ability to understand and improve the mental health of your patients who have an intellectual disability.
+
+The Significance of Good Communication
+* An understanding that good communication is important when supporting someone who has an intellectual disability.
+* An understanding that difficulties in communication arise due to the interaction of disability, psychological function and social context.
+
+
+Communication Difficulties
+* People with an intellectual disability commonly experience problems with communication.
+
+Social Communication
+* Cultural Norms, Eye Contact, Negotiating Personal Space
+
+Intellectual Disability and Mental Illness
+* Anxiety, Depression, Mood Disorders, Schizophrenia, and Other Psychoses
+* Impact on Communication
+* Depression, Agitation
+
+Aggressive Behavior
+* Someone's behavior can communicate an issue or need, and be a valuable source of information about their condition. The important thing is tot hink about what the behavior is telling you - how can you analyze the behavior and its possible causes or meanings?
+
+Aggressive, self-injurious behavior - a substitute for communication about psycholgoica symptoms, emotions, or other troublesome situations, like a health problem or pain
+
+Behavioral Presentation
+* Someone's level of intellectual disability has a significant impact on their expression of underlying emotional states or psychiatric symptoms.
+* Intellectual Disability, Severe, Atypical Presentations of symptoms
+
+Training in Inter-Cultural Communication
+* Using someone's first name
+* Asking yes/no questions
+* Listening closely
+
+People with Intellectual Disability - Increased Risk of
+* Mental Illness
+* Maltreatment, Bullying, and Sexual Assault
+* Lower Rates of Physical Activity
+* Hospitalization
+* Dental Disease (up to 8.5 times more common, and poor rate of treatment)
+* Vision Impairment and Eye Disorders
+* Hearing Impairment
+* Thryoid Problems
+* Epilepsy
+* Heart Disease
+* Osteoporosis
+
+Risk Factors for Mental Illness Associated with Intellectual Disability
+* Low self-esteem
+* Lower autonomy and less freedom to make own decisions
+* Poorer communication skils
+* Fewer coping and emotional regulation skills
+* Higher levels of frustration
+* Greater difficulty complying with treatemnts
+* Increased risk-taking bheavior
+* Higher levels of illness and other disabilities
+* Having fewer interpersonal and social relationships
+
+Intellectual Disaiblity, Behavioral Problems
+The Behavior May Be a Response to Pain, or Be A Symptom of Health or Mental Health Problem
+Disability, Limited Communication Ability
+
+PsychoSocial Impact of Intellectual Disability
+* Ambiguity, Limited Information, Shock
+* Significant Emotional, and Practical Adjustments
+* Assumptions, Expectations, Hopes, Unexpected Gifts
+* Significant Financial Adjustment
+
+Social
+* Social contact and establishing a wide variety of relationships
+* Having leisure and other interests
+* Moving around independently
+* Experiencing social milestones such as gaining employment or getting a driver's license
+
+Communication
+Cognition: the ability to process information varies across a wide range in people with an intellectual disability
+
+Freedom from Discrimination
+
+Privacies in Mental Health
+Right to Privacy
+Respect, Dignity, Duty of Care
+Consent to Sharing Sensitive Information
+
+
+## [Should Music Be Used in Occupational Therapy?](https://ajot.aota.org/article.aspx?articleid=1874468) ##
+The healing power of music - many cultures, for many centuries
+
+Music, dance therapy
+
+"Nothing is more laden with emotional associations"
+"Nothing is more capable of recreating situations"
+
+Therapeutic modality
+
+Disorders, psychoses
+
+"Occupational therapy addresses the dysfunction found in a wide variety of psychiatric, developmental, and physical disorders."
+
+
+## [Music & Sound Therapy](https://www.ot-innovations.com/music-sound-therapy/) ##
+"Music is a very powerful sensory modulation tool! The therapeutic effects of music on the nervous system are well researched. Literature states that a 60 beat per minute pulse can help entrain healthy internal rhythms. Some important considerations before using music in the environment or during OT treatment sessions include the following: diagnosis, age, culture, environment, personal preferences, sensitivities, and personal history."
+
+"Slower paced music with a consistent and predictable rhythm is known for having calming effects on the system, while upbeat & quick paced music is generally alerting and facilitates action/movement. Some popular examples are listed below:
+
+Ambient music encompasses a variety of music; most common today are many of the “relaxation tapes” widely available on the market. The purpose of these recordings is to produce a general state of relaxation.
+
+Bach & Pachabel: These compositions are consistent and predictable, and have a pulse of approximately 50-70 beats per minute.
+
+Mozart or Hayden: There is continuity, clarity, and order in these compositions – although they have greater changes in rhythm, time, and color than that of Baroque.
+
+Tchaikovsky or Beethoven: Emotional and dynamic compositions known for their strong rhythms, emotional context changes, and unique sound textures which tend to stimulate the imagination."
+
+
+[Music as a Therapeutic Medium for Occupational Engagement: Implications for Occupational Therapy]()
+"Music is a meaningful occupation; a summary of current literature and the authors’ experiences regarding health and wellness benefits and potential for music as a therapeutic medium in occupational therapy practice is presented. An interview and a summary of the authors’ experiences illustrate the role for music and its benefits for occupational therapy. These benefits are described through three themes which emerged: (a) music as a means of increasing group cohesion toward common goals, (b) music as a means of increasing socialization, and (c) music as a meaningful occupation can empower individuals to enhance and embrace wellness and recovery."
 
 
 ----------
