@@ -139,7 +139,7 @@ Disorders, psychoses
 
 "Slower paced music with a consistent and predictable rhythm is known for having calming effects on the system, while upbeat & quick paced music is generally alerting and facilitates action/movement. Some popular examples are listed below:
 
-Ambient music encompasses a variety of music; most common today are many of the “relaxation tapes” widely available on the market. The purpose of these recordings is to produce a general state of relaxation.
+Ambient music encompasses a variety of music; most common today are many of the 'relaxation tapes' widely available on the market. The purpose of these recordings is to produce a general state of relaxation.
 
 Bach & Pachabel: These compositions are consistent and predictable, and have a pulse of approximately 50-70 beats per minute.
 
@@ -161,8 +161,115 @@ Tchaikovsky or Beethoven: Emotional and dynamic compositions known for their str
 ----------
 
 
-## Nashville Country Music ##
+## Nashville Country Music - Southern, and Western ##
+
+
+----------
+
+
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
+
+
+## [What Do We Call This?](https://www.wnycstudios.org/podcasts/otm/segments/what-call-on-the-media) ##
+* Trump - "I alone can fix this"
+* Fear, "others" who he has vilified, "fear of his own demagoguery"
+* Infuriating bitterness
+* Normal, good, law-abiding citizens who want their country back and want their freedom - protesters, rioters, monsters, domestic terrorists, insurrectionists - penetrating the Capitol
+* How did they think this out? 
+* Extremists doing damage in the capitol - was it just a protest? 
+* QANon, White Supremacists - these people talk to each other online
+* The speed of the attack, breaches
+Washington Memorial
+* "Choice of words" are crucial - "mob"
+* "It's a puzzle"
+* "A woman who was shot and killed"
+* "The election was stolen", "voters who were upset"
+* Consequences for law-breaking lies
+
+## [The Dark Familiarity of Trump's Lost Cause](https://www.wnycstudios.org/podcasts/otm/segments/dark-familiarity-trumps-lost-cause-on-the-media) ##
+* Facebook's Supreme Court
+* What users can and cannot post
+* Grievance, indignation, vengeance - "believed that something was stolen from them"
+* The Confederate Battle Flag inside the Capitol Building, 1800s 
+* President Donald Trump embarked on a Lost Cause, projecting on America
+* Historian of the Civil War, tracking the history of Lost Cause Mythology
+* "Dead Rebels"
+* 1880s, 1890s - monuments are going up; diaries are being published, justifying the slave-holding South - Lost Cause Mythology - States' Rights - Stonewall Jackson, Robert E. Lee
+* Several generations of young children hear these stories, raised on the stories of the Lost Cause
+* Popular Culture - Hollywood, "Birth of a Nation"
+* Rapists, Reconstruction
+* "Gone With the Wind" - fair Southern Belles, Mammy - loyal, faithful African Americans who knew their place and didn't challenge the structure - they were members of the family - this is something that was imbibed by the entire nation
+* Margaret Mitchell's version of the Confederacy
+* Confederate Banner, Football Games, University of Mississippi
+* Voter Suppressions, Lynchings - using the "Confederate Flag" as an emblem
+* "Stop the Steel" narrative
+* Martyrdom, "the sense of victimization"
+* Confederates, Abolitionists
+* Reductive comparsions, misunderstanding
+* "Parallels between the Lost Cause"
+* "Confederates knew they lost", and they were "justifying that they lost"
+* Grew out of 200 years of chattel slavery
+* Political, cultural, social gains
+* "Trivialize slavery", glib comparisons
+* "America has a whole was built on a belief of white supremacy"; not just Confederates were white supremacists
+* A much larger, and deeper well
+* Professor of history at the University of Virginia
+
+## [Why Appeasement Won't Work This Time Around](https://www.wnycstudios.org/podcasts/otm/segments/why-appeasement-wont-work-time-around-on-the-media) ##
+* Historical parallels of white resentment
+* "What to do and what not to do next"
+* Voter Suppression of Southern Blacks
+* Biden's election victory
+* Withdraw troops from Southern slave troops
+* The Old South, the freedom to oppress Southern Blacks without interference
+* Catastrope of appeasement, politics of reconciliation
+* White terrorism, counter-democratic
+* Countless people being killed
+* Clues across the South
+* This is part of our history
+* "What to do about our current divide?"
+* "Stop the steel"
+* Dystopian fantasy, wrong impulse, wrong strategy, legitimate grievance
+* Reconciliation between the North and the South
+* "Men of honor defending what they believe to be their way of life"
+* "Thrown under the bus"
+* "Treasonist actions"
+* "You cannot negotiate with 'White Supremacy'"
+* Fort Sumter
+* "some things are not negotiable in a Democratic Republic"
+* White nationalism undergirding the original Lost Cause Myth ("it was a thing of the South")
+* "Stop the Steel" - amorphis - White Supremaicism 
+* Political elites, the legacy
+* "A failed insurrection" vs. "not a failed insurrection", "a symbol", "a fruit of the poisonous tree"
+* "If we can't rule the Republic, we will burn it down"
+* Dred Scott - "a Southern dream come true" - underlying dynamic, appeasement, "treasonist kind of behavior"
+
+* [Why Some Hear 'The Night They Drove Old Dixie Down' As A Neo-Confederate Anthem](https://www.wnycstudios.org/podcasts/otm/segments/why-some-hear-night-they-drove-old-dixie-down-neo-confederate-anthem-on-the-media)
+* Tracks, Old Dixie, Americana, "Richmond that fell"
+* The night that took "Good ole Dixie down" in 1969
+* Rock n' roll Canon, charged subject matter
+* "Wife in TN"
+* Robert E. Lee
+* Nostalgic re-telling of the Civil War, the Southern farmer, laden with grief
+* Neo-confederate
+* Political climate, 27 - year old Country musician in Alabama
+* "Revise some lyrics"
+* "I hope we piss off the right people"
+* "Telling the history of the Civil War", "Reconstruction a failure", "Myth of Confederate virtue"
+* W. E. B. Dubois, Reconstruction in America, "working class", "prohibited solidarity", white/black workers - W. E. B. Dubois - decades for his work to gain a foothold in Civil War History - "just pharoah singing the Blues"
+* Dixie was defeated
+* American History
+* "recently liberated enslaved people"
+* Neo-confederacy
+* Complex negotiation
+* Growing up in Alabama
+* "Lost Cause"
+* "Staying in Your Lane"
+* Canada, Missisippi Delta - Colored vs. White Bathrooms
+* Cotton farmer, accommodate these kind of things
+* "The south is going to rise again"
+* The piano - "something crept out of him" - a movie about a Southern family in the Civil War period
+* Rebel stand
 
 
 ----------
@@ -290,6 +397,18 @@ The white American south has kept some of its most pestilential prejudices intac
 "Much like some claim that the religion of Islam has been distorted and misused by some radical groups so is the case with this flag. Once the symbol of a misguided attempt to form a nation of slave holding states it is now been appropriated by hate groups, anti-government types, and militia types. So just as politicians call for those in mainstream Islam to denounce those who distort its tenets than so should they call for this flag to be put away and for strong statements to be made by white Southern Baptists Church leaders of their disgust for those groups and their use of this symbol. The nation it represented was defeated both on the battlefield and by choosing a path against human dignity. The flag belongs in museum as a reminder that people can find all kinds of ways to try to legitimize oppression even forming a central government and associated banner when hypocritically speaking of states rights."
 
 
+## [Confederate Railroad - Crashing symbols](https://www.oneillinois.com/stories/2019/7/10/crashing-symbols) ##
+"Two flags: one a symbol of the nascent nation, the other a symbol of the insurgent Confederacy that declared itself independent only to be dragged back into the union in the Civil War. It seems simple enough. They’re just flags, after all. What’s the offense?
+
+They’ve both become loaded with significance, that’s what, and many Illinoisans take offense over what they’ve come to represent.
+
+The Confederate stars and bars is a symbol of pride to many in the South, to be sure. But that raises the question, what exactly are people proud of when they display that flag? Southern resilience? A particularly Southern spirit of ornery independence? Outright rebellion? Slavery?
+
+ It’s a loaded symbol, and to many it’s genuinely fearsome, representing not only slavery, but those who would assert white supremacy today."
+ 
+ “The Confederate flag is a symbol of the hate, oppression, and enslavement of African Americans. It was flown over states that committed treason and started a war — so that they could keep enslaving people. Hundreds of thousands were slaughtered in this fight over whether the nation should allow slavery or end it. Abraham Lincoln’s assassin was a disciple of the Confederacy. In short, the Confederate flag symbolizes slavery and the rebellion against the United States, and it is exactly what our state’s greatest son, President Lincoln, was fighting against. This symbol of hate, oppression, and bloodshed is categorically different from political satire.”
+
+
 ----------
 
 
@@ -330,7 +449,6 @@ This would certainly explain why cowboys are better known than vaqueros or gauch
 I don't think it was an accident that the ideal-typical cowboy hero of the classic invented west was a loner, not beholden to anyone; nor, I think, that money was not important for him. As Tom Mix put it: "I ride into a place owning my own horse, saddle and bridle. It isn't my quarrel, but I get into trouble doing the right thing for somebody else. When it's all ironed out, I never get any money reward.
 
 In a way the loner lent himself to imaginary self-identification just because he was a loner. To be Gary Cooper at high noon or Sam Spade, you just have to imagine you are one man, whereas to be Don Corleone or Rico, let alone Hitler, you have to imagine a collective of people who follow and obey you, which is less plausible. I suggest that the cowboy, just because he was a myth of an ultra-individualist society, the only society of the bourgeois era without real pre-bourgeois roots, was an unusually effective vehicle for dreaming – which is all that most of us get in the way of unlimited opportunities. To ride alone is less implausible than to wait until that marshal's baton in your knapsack becomes reality."
-
 
 ## [Cowboys in Life and Legend](https://faculty.chass.ncsu.edu/slatta/cowboys/CBintro.htm) ##
 "Etymologists trace the use of the term cowboy back to 1000 AD in Ireland. Swift used it in 1705, logically enough, to describe a boy who tends cows. Modern usage, first in hyphenated form, dates from the 1830s in Texas. Colonel John S. "Rip" Ford used the word cow-boy to describe the Texan border raider who drove off Mexican cattle during the 1830s. The term carried a tinge of wildness, of life at the fringes of law and 'civilization.' After the American Civil War, Westerners applied the term cowboy to ranch hands, rather than cattle thieves. 
@@ -387,8 +505,80 @@ Although 'Country Music' doesn’t delve much deeper to examine the everyday rac
 
 
 ## [Scandalous Saddle](https://truewestmagazine.com/the-scandalous-saddle/)
+"Women riding aside leads to dangerous (and ridiculous) saddle invention.
+
+Buffalo Bill’s Wild West sharpshooter Annie Oakley rode aside, as in this picture, performing '…horseback tricks from a sidesaddle, a contraption with a flat seat, on which the rider sat sideways, and a thick, leather-covered hook, which the rider used to anchor herself by her leg to the horse’s back,' wrote Glenda Riley, in The Life and Legacy of Annie Oakley. She also took advantage of the sidesaddle, Riley added. When Oakley dangled off the side of her horse to pick up a hat off the ground, she appeared as if “she floated on the horse’s back.
+
+As absurd as this may sound, the sidesaddle took hold in the 14th century to protect the virginity of a teenaged princess traveling across Europe to wed the young King of England.
+
+Surprised? Don’t feel alone. Most assume the sidesaddle was the natural outcome of fashion, demanded by the long, flowing, sometimes over-hooped skirts favored for so many centuries.
+
+For some 500 years, women were told the only way a 'proper lady' sat on a horse was sideways, holding on for dear life, a passenger on a 1,500-pound animal she could barely control."
+
+
+"Princess Anne of Bohemia, a predecessor of the modern Czech Republic, was the daughter of the most powerful monarch in Europe in 1382 when she left for England to wed King Richard II. To ensure her virgin marriage, ruling men instructed her to ride aside, rather than astride."
+
+
+"Women hadn’t always ridden so askew.
+
+Although ancient Greek sculptures depict women riding aside, it was an option, not a demand. Joan of Arc didn’t ride into battle in the 1400s as a dainty maid. Geoffrey Chaucer depicted his 'Wife of Bath' riding astride in the 1300s. Central Asian women mounted horses like their brothers did, and Amazon women were famous for both their trousers and riding astride.
+
+But then came Anne and the fixation on 'virtuous virgins.' Folks like to mimic royals, so the idea of a sidesaddle spread.
+
+By 1600, riding aside was the only way a “decent” woman could ride a horse without scorn. Most women went willingly along—except for Catherine the Great, of course, who was so powerful, she decreed her court would all ride astride.
+
+'The reins, both of personal power and individual equestrian control, had been taken away by men who now restricted a woman’s political and equestrian destinies,' CuChullaine O’Reilly wrote for the Long Riders Guild Academic Foundation."
+
+
+"Sidesaddle Designs
+
+The earliest sidesaddle design was little more than a pillow and a piece of wood that faced the woman off to the scenery on the left side of the horse. This replaced the pillion—a small padded seat where the woman rode behind a male rider. The newer saddle allowed the lady to ride alone, but still gave her no control over the animal—she sat so precariously, it’s a wonder all rides didn’t end in injury. Another rider held the reins and led her horse along; she could do little but cling to the pommel and hope she didn’t fall off. The woman was not exactly “riding” the horse; she was just sitting on it as it moved.
+
+In the 16th century, Catherine de’ Medici is credited with inspiring a saddle that allowed the woman to face forward. In this saddle, she hooked her right leg around a pommel on the saddle and placed her left foot in a stirrup. This gave her a fighting chance to stay in the saddle and handle the reins herself. But even this saddle only allowed her to proceed slowly—any speed was dangerous.
+
+Even some female writers agreed. As the 20th century dawned and balked, British author Alice Hayes saw the first rumblings against a sidesaddle, denouncing these 'feminine desperadoes.' Although she vehemently argued women should ride sidesaddle, she did admit that the sidesaddle’s impractical design placed women in harm’s way."
+
+"1893 book, The Horsewoman: A Practical Guide to Side-Saddle Riding"
+
+
+"By 1900, American women were split on the issue—along geographic lines. Women in the East clung to the sidesaddle as proper and necessary, while Western women saw them as impractical and dangerous. Western women were far more likely to use a horse for farm and ranch labor than their Eastern sisters, who saw the horse as a weekend entertainment.
+
+'Not one of us would tolerate the old-fashioned sidesaddle,' said one of the record 25 women inducted into the Vaquero Riding Club, composed of expert horsemen of Spanish heritage, during the early 1900s."
+
+
+“'Two-Gun' Nan Aspinwall began calling herself 'Montana Girl' in 1906, two years before she started performing with Buffalo Bill’s Wild West and Pawnee Bill’s Great Far East troupe, where she became a hit."
+
+“Snappy Western Girl Who Rode Horse Clear Across Continent”
+
+Death Valley Days
+Sisters in the Saddle
+
+"In 1912, Alberta Claire made her 8,000-mile solo trip from Wyoming to Oregon, down through California, across the Arizona desert and into New York City. Along the way, she declared to anyone who’d listen that she had both the right to ride astride and the right to vote.
+
+History does not record whether or not Claire ever met New York’s Inez Milholland, though they were contemporaries. Nevertheless, these two women were sisters in the saddle.
+
+Nobody tied politics and riding astride as did Milholland, the beautiful face of the suffrage movement.
+
+Milholland was born into a liberal family of means in Brooklyn in 1886. She became a lawyer—turned down by Yale and Harvard because of her sex—and gave lectures throughout the nation to support women’s rights. She led suffrage marches in 1911, 1912 and 1913, while astride a white horse named Gray Dawn."
+
+
+"Getting up on a high horse takes on a new meaning when you think about the public performances of women ascending hot air balloons while seated sidesaddle on her horse, as shown in this circa 1880 lithograph. The first horse sent aloft in the air flew by platform, a dream realized by fox hunter Tetu-Brissy in 1797, and the horse graduated to a balloon in 1830, thanks to English aeronaut Charles Green. — Courtesy Library of Congress"
+
+
+"Western women were also making their mark as North America’s first professional female athletes—in rodeos. Not one of them considered riding sidesaddle as they put their lives on the line to entertain while on horseback."
+
+
+"Strangely enough, though, one of the greatest rodeo queens got her start riding sidesaddle. In her first rodeo event, at a county fair in 1906, 13-year-old Vera McGinnis was the only rider who rode sidesaddle, in a dress, competing against much older girls. 'It so happened that the horse show judge was a bit old fashioned and frowned upon such things as girls riding clothespin-style so Vera won first prize, a gold-handled umbrella,' True West reported in 1991."
+
+“Sidesaddles and Suffragettes, the Fight to Ride and Vote.”
+
+“'The fall of the sidesaddle is linked to the rise of female liberty, for it was the dawning of political freedom which brought about the overdue death of this repressive equine invention,' she wrote."
+
+The Book of the Horse
+Outrageous Arizona
+Cattle Kate
 
 https://biologicalrootsofhumanity.wordpress.com/2019/06/15/a-cultural-shift-or-variation-cowboys-and-the-confederate-flag/
-https://www.cnn.com/style/article/sonya-clark-truce-flag/index.html
+
 
 
