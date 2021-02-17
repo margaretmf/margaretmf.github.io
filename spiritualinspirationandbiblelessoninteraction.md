@@ -1,6 +1,10 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
-## Week of February 1, 2020 - 'Spirit' - Inspiring Passage ##
+## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
+
+## Week of February 8, 2020 - 'Soul' - Inspiring Passages ##
+
+## Week of February 1, 2020 - 'Spirit' - Inspiring Passages ##
 * The Lord's People
 
 "The Lord says: 'My people, I promise to give you my Spirit and my message"
@@ -285,6 +289,59 @@ marvel
 
 "Sorrow is turned into joy when the body is controlled by spiritual Life, Truth, and Love."
 
+* A teacher from God
+
+"Jesus
+
+"we know that thou art a teacher come from God"
+"God be with him"
+"Except a man be born again, he cannot see the kingdom of God."
+
+* Born again
+
+"That which is born of the flesh is flesh; and that which is born of the Spirit is spirit. Marvel not that I said unto thee, Ye must be born again. The wind bloweth where it listeth, and thou hearest the sound thereof, but canst tell whence it cometh, and whither it goeth: so is every one that is born of the Spirit."
+
+* Spirit blesses man
+
+"the sorrowing are comforted"
+"the sinning are reformed"
+"the effects of one universal God, the invisible good dwelling in eternal Science"
+
+* wind (pneuma), spirit
+
+"The wind [pneuma] bloweth where it listeth... So is every one that is born of the Spirit"
+
+* Emerge gently
+
+"come naturally into Spirit through better health and morals and as the result of spiritual growth"
+
+* Lengthened days
+
+"The understanding that Life is God, Spirit, lengthens our days by strengthening our trust in the deathless reality of Life, its almightiness and immortality."
+
+* the spirit of the Lord Go is upon me
+
+"the Lord hath anointed me to preach good tidings"
+
+* beauty for ashes
+
+"To appoint unto them that mourn in Zion, to give unto them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness; that they might be called trees of righteousness, the planting of the Lord, that he might be glorified."
+
+* Unformed thoughts gathered
+
+"Spirit, God, gathers unformed thoughts into their proper channels, and unfolds these thoughts even as He opens the petals of a holy purpose in order that the purpose may appear."
+
+* reapparance of Christianity
+
+"the reappearance of the Christianity which heals the sick and destorys error, and no other sign shall be given."
+
+* immortality and life, the way
+
+* Be ye therefore perfect
+
+"Be ye therefore perfet, even as your Father which is in heaven is perfect!"
+"Go ye into all the world, and preach the gospel to every creature!"
+"Heal the sick!"
 
 ## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
 
