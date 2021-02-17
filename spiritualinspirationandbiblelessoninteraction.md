@@ -158,6 +158,46 @@ Behold, there come seve years of great plenty throughout all the land of Egypt: 
 
 "we know all human need and are able to discern the thought of the ski and the sinning for the purpose of healing them"
 
+* Am I a God at hand?
+
+not a God far off
+"I fill heaven and earth"
+
+* the Lord knows me and has searched me
+
+O Lord, thou hast searched me, and known me."
+
+* the power of Spirit
+
+marvel
+
+* present with the Lord
+
+"We are confident, I say, and willing rather to be absent from the body, and to be present with the Lord."
+
+* The Christ, the Spirit, Jesus
+
+"I am the way, the truth, and the life"
+"I and my Father are one"
+"Jesus is the name of the man who, more than all other men, has presented CHrist, the true idea of GOd, healing the sick and the sinning and destroying the power of death."
+
+* God is infinite, omnipresent
+
+"If Spirit pervades all space, it needs no material method for the transmission of messages."
+
+* Science can heal the sick
+
+"space is no obstacle to Mind"
+
+"Immortal Mind heals what eye hath not seen"
+"the spiritual capacity to comprehend though and to heal by the Truth-power"
+
+* the offspring of God, not of man
+
+* bear witness to Truth
+
+"If Spirit or the pwoer of divine Love bear witness to the truth, this is the ultimatum, the scientific way, and the healing is instantaneous."
+
 ## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
 
 * God is love
