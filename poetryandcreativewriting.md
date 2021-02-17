@@ -41,7 +41,7 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 We are all tributary to the same source, but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
-## Do you prefer taking riss or having a safety net? ##
+## Do you prefer taking risks or having a safety net? ##
 Having a net to fall bac on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, i drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
 
 ## Diary Entry - 10 Years in the Future ##
