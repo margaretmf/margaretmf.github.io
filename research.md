@@ -141,8 +141,48 @@ If you can put a rebel flag on it, they do: beach towels, BBQ aprons, windshield
 "'The war really was about slavery, and they didn’t hide it then,' I say as she listens intently. 'But I don’t believe everyone who likes the flag is racist. Many people were taught certain things.'"
 
 
+## [Confederate Flag in Popular Culture - Americana or Racist Symbol](https://www.theguardian.com/artanddesign/shortcuts/2015/jun/22/confederate-flag-pop-culture-harmless-americana-racist-symbol) ##
+
+"For a long time the flag was a touchstone for everyone from Primal Scream to the Dukes of Hazzard, but the Charleston murders have brought the American south’s iconic symbol under new scrutiny.
+
+In the pop artist Larry Rivers’s haunting 1959 painting The Last Civil War Veteran, a man lies on his death bed under the flags of both the Confederacy and the Union. It is one of a series of works in which Rivers depicts the Confederate flag as a piece of Americana, a totem of history, a pop icon. He is far from the only artist to have used it in this way.
+
+As the flag of the old American south comes under scrutiny for being an image of – and maybe an incitement to – racism and murderous bigotry, it is worth remembering that for a long time it has had a more ambiguous, apparently innocent reputation in popular culture.
+
+No one accused the Dukes of Hazzard of white suprematism when the good ol’ boys who had a rollicking time in the 1970s TV series flaunted the starred diagonals of the flag that has become famous as the “Confederate battle flag” on their Dodge Charger. Similarly, no one has taken issue with its appearance everywhere from a Primal Scream album cover, which used a photograph of the stars without bars by William Eggleston, to Matt Groening’s self-parodic appearance as a flag-waving, far-right propagandist in The Simpsons (the joke being that it’s the opposite of the truth).
+
+The Confederate flag suddenly looks like a starkly, horribly political totem, but can a flag have only one meaning? It is not even completely authentic: in reality, the southern states had several flags in the civil war, and the famous image is just part of a battery of original insignia, reduced in memory to one. Back when Larry Rivers was exploring it as a pop art icon, Jasper Johns made his great image of the Union flag with layers of collaged newsprint under its wax-painted stars and bars. In Flag, Johns captures the many stories hidden within nationhood. Flags are complex documents.
+
+It is reasonable now to wonder if the Confederate flag is pure racist imagery, but its widespread cultural use would suggest it is more complicated than that. It also raises a bigger question. Is white southern identity itself something that needs to be abandoned or condemned? The proud cultural history of the south embraces everything from Jack Daniels and country music to the novels of William Faulkner and paintings of Cy Twombly – can that cultural richness be dismissed as archaic conservative nostalgia, or worse?
+
+In reality, the struggle between regressive prejudices and human decency in the south has long been fought within its cultural traditions, not against them. The obvious example is country music. Robert Altman’s portrayal of country as a cynical conservative style in his film Nashville now looks like a hopelessly ignorant view of a tradition that includes radical voices like Steve Earle and Townes van Zandt.
+
+The white American south has kept some of its most pestilential prejudices intact since the civil war. But it is not racist to drink bourbon, listen to Texas outlaw music or eat crabcakes, and it may not be racist to display a flag. In the end, it is just a piece of cloth."
+
+"Much like some claim that the religion of Islam has been distorted and misused by some radical groups so is the case with this flag. Once the symbol of a misguided attempt to form a nation of slave holding states it is now been appropriated by hate groups, anti-government types, and militia types. So just as politicians call for those in mainstream Islam to denounce those who distort its tenets than so should they call for this flag to be put away and for strong statements to be made by white Southern Baptists Church leaders of their disgust for those groups and their use of this symbol. The nation it represented was defeated both on the battlefield and by choosing a path against human dignity. The flag belongs in museum as a reminder that people can find all kinds of ways to try to legitimize oppression even forming a central government and associated banner when hypocritically speaking of states rights."
+
+
 ----------
 
+
+## [Montana Bullriders & Confederate Flag](https://www.goldmountaintrading.com/bullrider-buckle.html) ##
+"Large Bullrider Buckle with Flags by Montana Silversmiths. A 4 inch by 5 inch buckle with lots of color and contrast ... no doubt is left that the wearer of this buckle is into bulls, bulls, and more bulls! American and Confederate flags frame a bull and rider going at full steam ahead. Silver stars shine brightly against the black bordered background."
+
+## [The Wild West Meets the Southern Border](The Wild West Meets the Southern Border) ##
+"The show is about to start, so we step into the O.K. Corral and find seats in the metal bleachers, among twenty or thirty spectators. The show itself goes over my head—Clantons, Earps, Clantons, Earps—but every single one of the many gunshots in the short performance makes me jump. Perhaps because I didn’t grow up in the U.S., Wild West reënactments evoke no nostalgia in me. When I ask American friends what they know about the reënactment world, most mumble something about the Civil War. Some were dragged as kids to a reënactment of the Battle of Gettysburg, which for the past twenty-five years has taken place annually at the site where the real battles were fought. Few people I come across know that there are more than fifty thousand Civil War reënactors in the country, members of a guild with strict hierarchies and distinctions. Tony Horwitz, in his book “Confederates in the Attic,” analyzes what he calls “a period rush,” the particular adrenaline-fuelled energy that comes with being fully immersed in an authentic re-creation. Authenticity is the yardstick in reënactment culture. A “farb” is a reënactor who doesn’t spend enough time or money on props and costumes. The most committed call themselves “living historians,” and the “hard-cores” among them sometimes go on spartanlike diets in order to resemble underfed nineteenth-century soldiers; others soak the buttons that they sew on their uniforms in urine, to generate just the right amount of rust."
+
+"America was mythologizing, via tourism and pop culture, its still recent past, and there was plenty of material to work with. In the latter half of the nineteenth century, nickelodeons and dime novels had featured the “lawless towns” of the West, and stories of cowboys, saloons, gunfights, and outlaws had become part of the collective imagination. Then came television and Hollywood, to further consolidate the myths of the Wild West."
+
+"Traywick is full of stories, a kind of Wizard of Oz of Tombstone, and the author of countless reënactment skits. He wrote the original O.K. Corral scene (and played Wyatt Earp for twenty years)."
+
+"Traywick tells Pejk and Cantú a long story about beheadings in China and shows them pictures of decapitated men, while I browse in the bookstore. There’s a Confederate flag in the back, some Mayan masks and relics behind Traywick’s desk, a few dusty mariachi hats, many framed pictures of admirals and generals—among them Nathan Bedford Forrest, a Confederate Army general and the first Grand Wizard of the Ku Klux Klan—and a poster of Donald Trump dressed as a cowboy, with a gun under his belt, and the slogan 'Keeping America Safe Again.'"
+
+"The mythos of the Wild West celebrates the spirit of those who sought to settle in a new land, domesticate its difficulties, and thrive. Why, I ask, is that spirit admired in some cases and condemned in others? Our Shakespeare guides protest that I’m conflating two different things. One case is 'historical' and the other is . . . not."
+
+"Driving south, toward the border, we see no signs of crisis, no migrants, and few cars. We see a Border Patrol cam truck—a pickup with a surveillance camera mounted on a tall mast—and many commercial trucks, probably transporting commodities in and out of the country. The great paradox of the nafta agreement is that it has allowed for freer trade of merchandise across the border, and less freedom of movement for people."
+
+
+"Shakespeare is in New Mexico. Tombstone, in Arizona. Both are old mining towns near the U.S.-Mexico border. They came into existence in the eighteen-seventies, during the silver strike, but soon suffered the same fate as most of the other mining towns in the region: boom, depression, abandonment, and then a strange kind of afterlife."
 
 ## [The Myth of the Cowboy](https://www.theguardian.com/books/2013/mar/20/myth-of-the-cowboy) ##
 "Our starting point is the fact that, in and outside Europe, the 'western' in its modern sense – that is, the myth of the cowboy – is a late variant of a very early and deep-rooted image: that of the wild west in general. Fenimore Cooper, whose popularity in Europe followed immediately upon his first publication – Victor Hugo thought he was 'the American Walter Scott' – is the most familiar version of this. Nor is he dead. Without the memory of Leatherstocking, would English punks have invented Mohican hairstyles?
@@ -162,9 +202,6 @@ This would certainly explain why cowboys are better known than vaqueros or gauch
 I don't think it was an accident that the ideal-typical cowboy hero of the classic invented west was a loner, not beholden to anyone; nor, I think, that money was not important for him. As Tom Mix put it: "I ride into a place owning my own horse, saddle and bridle. It isn't my quarrel, but I get into trouble doing the right thing for somebody else. When it's all ironed out, I never get any money reward.
 
 In a way the loner lent himself to imaginary self-identification just because he was a loner. To be Gary Cooper at high noon or Sam Spade, you just have to imagine you are one man, whereas to be Don Corleone or Rico, let alone Hitler, you have to imagine a collective of people who follow and obey you, which is less plausible. I suggest that the cowboy, just because he was a myth of an ultra-individualist society, the only society of the bourgeois era without real pre-bourgeois roots, was an unusually effective vehicle for dreaming – which is all that most of us get in the way of unlimited opportunities. To ride alone is less implausible than to wait until that marshal's baton in your knapsack becomes reality."
-
-
-----------
 
 
 ## [Cowboys in Life and Legend](https://faculty.chass.ncsu.edu/slatta/cowboys/CBintro.htm) ##
