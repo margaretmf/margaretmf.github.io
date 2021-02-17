@@ -10,34 +10,35 @@ is_contact: true
 ## There is some other writing at the bottom. ##
 
 
-# Beliefs from 2010 #
+# Beliefs #
 ## Art ##
-*I believe* participation in the fine arts brings joy
+*I believe* participation in the fine arts brings joy [in 2009, 2010]
 
 *Do I still believe this?*
-I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings.
+I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. [2021]
 
 ## Nature ##
-*I believe* nature allows a simpler and fuller life
+*I believe* nature allows a simpler and fuller life [in 2009, 2010]
 
 *Do I still believe this?*
-I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee.
+I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee. [2021]
 
 ## Spirituality ##
-*I believe* "God is all and God is good"
+*I believe* "God is all and God is good" [in 2009, 2010]
 
 *Do I still believe this?* 
 I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others.
 I have found that I can see God's expression everyone through compassion, intelligence, joy, peace.
 I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas.
+
 ## Individual/Society ##
-*I believe* "each individual is a link in the chain - if that link fell, the chain would break."
+*I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
  
 *Do I still believe this?*
 I do not know, but I love this concept, and I have felt reminded of this intuitively.
 I love learning about interconnectedness, and how we are all connecting each other to a higher sense of what's right and good.
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
-We are all tributary to the same source, but there are distinct differences between everyone in good ways.
+We are all tributary to the same source, but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
 ## Diary Entry - 10 Years in the Future ##
