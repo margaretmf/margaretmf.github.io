@@ -134,6 +134,30 @@ Behold, there come seve years of great plenty throughout all the land of Egypt: 
 
 * "the land of Egypt", "the spirit of God"
 
+* Foresight, Ancient Prophents - Spiritual, Incorporeal Standpoint
+
+"The anceint prophets gained their foresight from a spiritual, incorporeal standpoint, not by foreshadowing evil and mistaking fact for fiction"
+
+* In Harmony with the Truth of Being
+
+"When sufficiently advanced in Science to be in harmony with the truth of being, men become seers and prophets involuntarily, controlled not by demons, spirits, or demigods, but by the one Spirit."
+
+"the ever-present, divine Mind"
+"thought which is in rapport with this Mind"
+"to know the past, the present, and the future"
+
+* Spirit, understanding, lifts consciousness, leads into all truth
+
+* Spirit, all-knowing, "prelcudes the need of believing"
+
+* Spirit, the Ego, never dreams, understands all
+
+"Spirit is the Ego which never dreams, but understands all things; which never errs, and is ever conscious; which never believes, but knows; whichi s never born and never dies. Spiritual man is the likeness of this Ego."
+
+* knowing the human need, discernment
+
+"we know all human need and are able to discern the thought of the ski and the sinning for the purpose of healing them"
+
 ## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
 
 * God is love
