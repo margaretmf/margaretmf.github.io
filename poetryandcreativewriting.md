@@ -10,6 +10,35 @@ is_contact: true
 ## There is some other writing at the bottom. ##
 
 
+# Beliefs from 2010 #
+## Art ##
+*I believe* participation in the fine arts brings joy
+
+*Do I still believe this?*
+I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings.
+
+## Nature ##
+*I believe* nature allows a simpler and fuller life
+
+*Do I still believe this?*
+I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee.
+
+## Spirituality ##
+*I believe* "God is all and God is good"
+
+*Do I still believe this?* 
+I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others.
+I have found that I can see God's expression everyone through compassion, intelligence, joy, peace.
+I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas.
+## Individual/Society ##
+*I believe* "each individual is a link in the chain - if that link fell, the chain would break."
+ 
+*Do I still believe this?*
+I do not know, but I love this concept, and I have felt reminded of this intuitively.
+I love learning about interconnectedness, and how we are all connecting each other to a higher sense of what's right and good.
+I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
+We are all tributary to the same source, but there are distinct differences between everyone in good ways.
+
 # Creative Writing #
 ## Diary Entry - 10 Years in the Future ##
 Dear Margaret,
@@ -68,6 +97,28 @@ but willfulness, heaviness, and pain took over and used me.
 Knowing what's right, but doing what's wrong will lead to prison.
 Complaining when I could pause, and being grateful will lead to prison.
 Hitting back when I can forgive will lead to prison.
+
+## The Friend ##
+Sitting in a dark room, she sits alone
+With a heart yearning to express itself.
+
+In another dark room nearby, a piano sits alone
+With ivory yearning to be tickled.
+
+'Why cannot the piano be my friend?' she thinks.
+With stiff legs she introduces herself to Steinway,
+and in return she receives a great gift.
+
+Her body is no longer stiff, no longer limited.
+Her eyes no longer shed tears.
+Her fingers dance across the black and white keys.
+Her ears open up and hear the sound of music.
+Her soul spreads its wings and flies.
+Her heart has found freedom.
+And her mind has found relief.
+
+She is now content
+With the company of a friend.
 
 ## A Poem for a Marriage, a Wedding ##
 In your weddedness to God,
