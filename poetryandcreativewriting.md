@@ -10,10 +10,31 @@ is_contact: true
 ## There is some other writing at the bottom. ##
 
 
+### Creative Writing ###
 ## Diary Entry - 10 Years in the Future ##
 Dear Margaret,
 Remember how on this day, 10 years ago, how forgiven you felt for the first time for all the crimes done, and all the wrongs done. You had so much deep love and deep thought for humanity. You started growing in new ways, and waking up old passions for English writing and children's books. You started understanding cultural nuances more clearly, and finding full freedom from suicidal thinking. You had love for family so much on this day 10 years ago, as well as love for the little ones on the street. You let go of the things you needed to be letting go of, and you started learning some of the deeper things you needed to learn. Thank God for moving you forward for 10 years and bringing healing, color, good relationships, full freedom from suicide, and and fulfillment into your life. The sun continues to shine every day.
 
+## Letter to Oneself ##
+Sweet Margaret,
+Do not feel self-conscious all the time; you look beautiful, you make good grades, and you express kindness to everyone when you smile and reach out. Rather than worry about what people think of you, either say hello or give a smile to people instead.
+
+I know you often feel unhappy because of how some of your friends have treated you. Stop dwelling on this though; reach out and meet new friends. Have confidence that by expressing happiness, your right friends will come at the right time.
+
+I know how much kidness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the ward of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
+
+I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of secnes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
+
+You are a beautiful teenage girl; you thus need to stop having negative thoughts about your body and looks because it will only have a negative impact. Knowing that you reflect God's perfect image, you will feel more confdient about your looks, your intelligence, and your musical or athletic strengths.
+
+To stop criticizing yourself, you must believe in your strengths and know your great value in the world. Share your love with everyone. Live each day full of greetings, smiles, laughter, and joy.
+
+Much love,
+Margaret
+
+3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
+
+### Poetry ###
 ## Gratitude List ##
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
 * Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
