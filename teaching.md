@@ -1,6 +1,6 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-## Critical Reading ##
+# Critical Reading #
 ## Tragedy ##
 * A dramatic composition, often in verse, dealing with a serious or somber theme, typically that of a great person destined through a flaw of character or conflict with some overpowering force, as fate or society, to downfall or destruction.
 * The art and theory of writing and producing tragedies.
@@ -57,6 +57,32 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * Horrified
 * Mournful
 * Exulting
+
+
+----------
+
+
+## Index of Templates from *They Say/I Say: The Moves That Matter in Academic Writing* by Graff and Birkenstein ##
+### Introducing What 'They Say' ###
+* A number of presidential hopefuls have recently suggested that X's work on poverty has several fundmanetal problems.
+* It has become common today to dismiss X's contribution to the field of sociology.
+* In their recent work, Y and Z have offered harsh critiques of Dr. X for _____
+
+### Introducing Standard Views ###
+* Americans today tend to believe that ______________.
+* Conventional wisdom has it that ______________.
+* Common sense seems to dictate that ______________.
+* The standard way of thinking about topic X is that ______________.
+* It is oftens aid that ______________.
+* My whole life I have heard it said that ______________.
+* You would think that ______________.
+* Many people assumed that ______________.
+
+### Introducing Something Implied or Assumed ###
+* ALthouh none of them have ever said so directly, my teachers have often given me the impression that ______________.
+* One implication of X's treatment of ______________ is that ______________.
+* Although X does not say so directly, she apparently assumes that ______________.
+* While they rarely admit as much, ______________ often take it for granted that ______________. 
 
 
 ----------
