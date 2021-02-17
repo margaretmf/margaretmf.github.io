@@ -170,106 +170,106 @@ Tchaikovsky or Beethoven: Emotional and dynamic compositions known for their str
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
 
 
-## [What Do We Call This?](https://www.wnycstudios.org/podcasts/otm/segments/what-call-on-the-media) ##
-* Trump - "I alone can fix this"
-* Fear, "others" who he has vilified, "fear of his own demagoguery"
-* Infuriating bitterness
-* Normal, good, law-abiding citizens who want their country back and want their freedom - protesters, rioters, monsters, domestic terrorists, insurrectionists - penetrating the Capitol
-* How did they think this out? 
-* Extremists doing damage in the capitol - was it just a protest? 
-* QANon, White Supremacists - these people talk to each other online
-* The speed of the attack, breaches
+* [What Do We Call This?](https://www.wnycstudios.org/podcasts/otm/segments/what-call-on-the-media) 
+Trump - "I alone can fix this"
+Fear, "others" who he has vilified, "fear of his own demagoguery"
+Infuriating bitterness
+Normal, good, law-abiding citizens who want their country back and want their freedom - protesters, rioters, monsters, domestic terrorists, insurrectionists - penetrating the Capitol
+How did they think this out? 
+Extremists doing damage in the capitol - was it just a protest? 
+QANon, White Supremacists - these people talk to each other online
+The speed of the attack, breaches
 Washington Memorial
-* "Choice of words" are crucial - "mob"
-* "It's a puzzle"
-* "A woman who was shot and killed"
-* "The election was stolen", "voters who were upset"
-* Consequences for law-breaking lies
+"Choice of words" are crucial - "mob"
+"It's a puzzle"
+"A woman who was shot and killed"
+"The election was stolen", "voters who were upset"
+Consequences for law-breaking lies
 
-## [The Dark Familiarity of Trump's Lost Cause](https://www.wnycstudios.org/podcasts/otm/segments/dark-familiarity-trumps-lost-cause-on-the-media) ##
-* Facebook's Supreme Court
-* What users can and cannot post
-* Grievance, indignation, vengeance - "believed that something was stolen from them"
-* The Confederate Battle Flag inside the Capitol Building, 1800s 
-* President Donald Trump embarked on a Lost Cause, projecting on America
-* Historian of the Civil War, tracking the history of Lost Cause Mythology
-* "Dead Rebels"
-* 1880s, 1890s - monuments are going up; diaries are being published, justifying the slave-holding South - Lost Cause Mythology - States' Rights - Stonewall Jackson, Robert E. Lee
-* Several generations of young children hear these stories, raised on the stories of the Lost Cause
-* Popular Culture - Hollywood, "Birth of a Nation"
-* Rapists, Reconstruction
-* "Gone With the Wind" - fair Southern Belles, Mammy - loyal, faithful African Americans who knew their place and didn't challenge the structure - they were members of the family - this is something that was imbibed by the entire nation
-* Margaret Mitchell's version of the Confederacy
-* Confederate Banner, Football Games, University of Mississippi
-* Voter Suppressions, Lynchings - using the "Confederate Flag" as an emblem
-* "Stop the Steel" narrative
-* Martyrdom, "the sense of victimization"
-* Confederates, Abolitionists
-* Reductive comparsions, misunderstanding
-* "Parallels between the Lost Cause"
-* "Confederates knew they lost", and they were "justifying that they lost"
-* Grew out of 200 years of chattel slavery
-* Political, cultural, social gains
-* "Trivialize slavery", glib comparisons
-* "America has a whole was built on a belief of white supremacy"; not just Confederates were white supremacists
-* A much larger, and deeper well
-* Professor of history at the University of Virginia
+* [The Dark Familiarity of Trump's Lost Cause](https://www.wnycstudios.org/podcasts/otm/segments/dark-familiarity-trumps-lost-cause-on-the-media) 
+Facebook's Supreme Court
+What users can and cannot post
+Grievance, indignation, vengeance - "believed that something was stolen from them"
+The Confederate Battle Flag inside the Capitol Building, 1800s 
+President Donald Trump embarked on a Lost Cause, projecting on America
+Historian of the Civil War, tracking the history of Lost Cause Mythology
+"Dead Rebels"
+1880s, 1890s - monuments are going up; diaries are being published, justifying the slave-holding South - Lost Cause Mythology - States' Rights - Stonewall Jackson, Robert E. Lee
+Several generations of young children hear these stories, raised on the stories of the Lost Cause
+Popular Culture - Hollywood, "Birth of a Nation"
+Rapists, Reconstruction
+"Gone With the Wind" - fair Southern Belles, Mammy - loyal, faithful African Americans who knew their place and didn't challenge the structure - they were members of the family - this is something that was imbibed by the entire nation
+Margaret Mitchell's version of the Confederacy
+Confederate Banner, Football Games, University of Mississippi
+Voter Suppressions, Lynchings - using the "Confederate Flag" as an emblem
+"Stop the Steel" narrative
+Martyrdom, "the sense of victimization"
+Confederates, Abolitionists
+Reductive comparsions, misunderstanding
+"Parallels between the Lost Cause"
+"Confederates knew they lost", and they were "justifying that they lost"
+Grew out of 200 years of chattel slavery
+Political, cultural, social gains
+"Trivialize slavery", glib comparisons
+"America has a whole was built on a belief of white supremacy"; not just Confederates were white supremacists
+A much larger, and deeper well
+Professor of history at the University of Virginia
 
-## [Why Appeasement Won't Work This Time Around](https://www.wnycstudios.org/podcasts/otm/segments/why-appeasement-wont-work-time-around-on-the-media) ##
-* Historical parallels of white resentment
-* "What to do and what not to do next"
-* Voter Suppression of Southern Blacks
-* Biden's election victory
-* Withdraw troops from Southern slave troops
-* The Old South, the freedom to oppress Southern Blacks without interference
-* Catastrope of appeasement, politics of reconciliation
-* White terrorism, counter-democratic
-* Countless people being killed
-* Clues across the South
-* This is part of our history
-* "What to do about our current divide?"
-* "Stop the steel"
-* Dystopian fantasy, wrong impulse, wrong strategy, legitimate grievance
-* Reconciliation between the North and the South
-* "Men of honor defending what they believe to be their way of life"
-* "Thrown under the bus"
-* "Treasonist actions"
-* "You cannot negotiate with 'White Supremacy'"
-* Fort Sumter
-* "some things are not negotiable in a Democratic Republic"
-* White nationalism undergirding the original Lost Cause Myth ("it was a thing of the South")
-* "Stop the Steel" - amorphis - White Supremaicism 
-* Political elites, the legacy
-* "A failed insurrection" vs. "not a failed insurrection", "a symbol", "a fruit of the poisonous tree"
-* "If we can't rule the Republic, we will burn it down"
-* Dred Scott - "a Southern dream come true" - underlying dynamic, appeasement, "treasonist kind of behavior"
+* [Why Appeasement Won't Work This Time Around](https://www.wnycstudios.org/podcasts/otm/segments/why-appeasement-wont-work-time-around-on-the-media) 
+Historical parallels of white resentment
+"What to do and what not to do next"
+Voter Suppression of Southern Blacks
+Biden's election victory
+Withdraw troops from Southern slave troops
+The Old South, the freedom to oppress Southern Blacks without interference
+Catastrope of appeasement, politics of reconciliation
+White terrorism, counter-democratic
+Countless people being killed
+Clues across the South
+This is part of our history
+"What to do about our current divide?"
+"Stop the steel"
+Dystopian fantasy, wrong impulse, wrong strategy, legitimate grievance
+Reconciliation between the North and the South
+"Men of honor defending what they believe to be their way of life"
+"Thrown under the bus"
+"Treasonist actions"
+"You cannot negotiate with 'White Supremacy'"
+Fort Sumter
+"some things are not negotiable in a Democratic Republic"
+White nationalism undergirding the original Lost Cause Myth ("it was a thing of the South")
+"Stop the Steel" - amorphis - White Supremaicism 
+Political elites, the legacy
+"A failed insurrection" vs. "not a failed insurrection", "a symbol", "a fruit of the poisonous tree"
+"If we can't rule the Republic, we will burn it down"
+Dred Scott - "a Southern dream come true" - underlying dynamic, appeasement, "treasonist kind of behavior"
 
-* [Why Some Hear 'The Night They Drove Old Dixie Down' As A Neo-Confederate Anthem](https://www.wnycstudios.org/podcasts/otm/segments/why-some-hear-night-they-drove-old-dixie-down-neo-confederate-anthem-on-the-media)
-* Tracks, Old Dixie, Americana, "Richmond that fell"
-* The night that took "Good ole Dixie down" in 1969
-* Rock n' roll Canon, charged subject matter
-* "Wife in TN"
-* Robert E. Lee
-* Nostalgic re-telling of the Civil War, the Southern farmer, laden with grief
-* Neo-confederate
-* Political climate, 27 - year old Country musician in Alabama
-* "Revise some lyrics"
-* "I hope we piss off the right people"
-* "Telling the history of the Civil War", "Reconstruction a failure", "Myth of Confederate virtue"
-* W. E. B. Dubois, Reconstruction in America, "working class", "prohibited solidarity", white/black workers - W. E. B. Dubois - decades for his work to gain a foothold in Civil War History - "just pharoah singing the Blues"
-* Dixie was defeated
-* American History
-* "recently liberated enslaved people"
-* Neo-confederacy
-* Complex negotiation
-* Growing up in Alabama
-* "Lost Cause"
-* "Staying in Your Lane"
-* Canada, Missisippi Delta - Colored vs. White Bathrooms
-* Cotton farmer, accommodate these kind of things
-* "The south is going to rise again"
-* The piano - "something crept out of him" - a movie about a Southern family in the Civil War period
-* Rebel stand
+# [Why Some Hear 'The Night They Drove Old Dixie Down' As A Neo-Confederate Anthem](https://www.wnycstudios.org/podcasts/otm/segments/why-some-hear-night-they-drove-old-dixie-down-neo-confederate-anthem-on-the-media)
+Tracks, Old Dixie, Americana, "Richmond that fell"
+The night that took "Good ole Dixie down" in 1969
+Rock n' roll Canon, charged subject matter
+"Wife in TN"
+Robert E. Lee
+Nostalgic re-telling of the Civil War, the Southern farmer, laden with grief
+Neo-confederate
+Political climate, 27 - year old Country musician in Alabama
+"Revise some lyrics"
+"I hope we piss off the right people"
+"Telling the history of the Civil War", "Reconstruction a failure", "Myth of Confederate virtue"
+W. E. B. Dubois, Reconstruction in America, "working class", "prohibited solidarity", white/black workers - W. E. B. Dubois - decades for his work to gain a foothold in Civil War History - "just pharoah singing the Blues"
+Dixie was defeated
+American History
+"recently liberated enslaved people"
+Neo-confederacy
+Complex negotiation
+Growing up in Alabama
+"Lost Cause"
+"Staying in Your Lane"
+Canada, Missisippi Delta - Colored vs. White Bathrooms
+Cotton farmer, accommodate these kind of things
+"The south is going to rise again"
+The piano - "something crept out of him" - a movie about a Southern family in the Civil War period
+Rebel stand
 
 
 ----------
