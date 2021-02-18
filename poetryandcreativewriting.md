@@ -13,7 +13,7 @@ is_contact: true
 # Beliefs #
 ## Art ##
 *I believe* participation in the fine arts brings joy [in 2009, 2010]
-
+ 
 *Do I still believe this?*
 I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. [2021]
 
@@ -151,6 +151,12 @@ The correct prayer is 'Shepherd, Show me how to love'
 'how to love as God loves'
 'through the darkness'
 I love to shift my perception to see people as God's daughters and sons
+
+## Unconditional Love ##
+Even after I've done something wrong, I can feel the love within.
+It's coming up for me to love all of those around me.
+Anything else is worry, and human judgment.
+I can drop this, and walk freely with the Lord, and the Love within.
 
 ## Attitude on Life ##
 I have sounded and attacked like President Donald Trump in some ways.
@@ -912,11 +918,13 @@ There is a constant story of being, evolution of thought, revolution of light, r
 
 ## Seeing Black Lives ##
 They help the police force as police officers. 
-They write good poetry.
-They play fun music and create new, cool music. 
+They write good poetry. 
+They play fun music and create new, cool music.
+They dance in school and on the streets.
 They read in church. 
 They create amazing art.
 They help the homeless community. 
+They work to reduce crime.
 They share interracial relationships.
 They express their narratives, and their side of the story.
 They take care of little kids and love them, and hug them. 
@@ -924,12 +932,12 @@ They help people feel better after feeling fallen, or rejected.
 They are great sorority date function partners. 
 They are good students in school.
 They invest in the community.
-They dance in the street. 
 They love their work. 
 They live for the future.
 They support their kids. 
 They have healthy, beautiful homes. 
 They lead teams at work.
+They built our country.
 They love God, and they have great faith through adversity.
 They also love Allah, the same God that Christians worship. 
 
