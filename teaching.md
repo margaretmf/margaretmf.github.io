@@ -116,6 +116,16 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 
 * "She climbed over the big wall" 
 
+* "take a walk by the gate in the stone wall"
+* "the cottage"
+* "the open gate", "orphanage children", "puzzling"
+* "climbing the big wall" - difficult in the winter
+* "the clearing"
+* the cottage was Mandy's place
+* the orphanage was a place of security
+* Mandy deals with mixed feelings in mature ways
+* freedom taken away by the Matron
+
 ### Who? ###
 * "Mandy", "who loved to read" and "they exchanged books at the local library at least once a week"
 * "matron, Mrs. Hannah Bridie", "a graying elderly woman"
@@ -137,6 +147,12 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * brown // conkers
 * "still and gray"
 * gray, bleak // day
+* yellow // stalks
+* sparkling // frost
+* russet and golden // blooms
+* dark // shape
+* fuzzy // feeling
+* hot // drink
 
 ### Adjectives ###
 * soft // countryside
@@ -174,6 +190,11 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * willful // stealing
 * muddy // earth
 * dripping // wet
+* gusty // winds
+* brave // folowers
+* bare // trees
+* damp, cold // cottage
+* paralyzing // moment
 
 ### Vocabulary ###
 * "excursion"
@@ -183,6 +204,9 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "distress"
 * "resentment"
 * "turbulent"
+* "defiantly"
+* "inevitably"
+* "trudged"
 
 ### Allusions ###
 * Alludes to "the wonders of Robinson Crusoe"
@@ -195,6 +219,8 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * Imagination, Daydreaming
 * Impulse, Contemplation 
 * Friendship
+* Strong Feelings Articulated
+* Dreams
 
 ### Interesting Sentences or Paragraphs ###
 * "It was a wondrous thing to discover an ant carrying something twice as large as itself, or a beetle moving slowly over the blades of green to an unknown destination. She watched the bees gathering nectar from her flowers and the small spiders scuttling in all directions. At such times she forgot about her everyday world and was transported into the kingdom of all things small where a butterfly seems like an overwhelmingly beautiful giant creature; where the smallest twig is a tree, and a pebble a mountain." (pp. 100-101) [Discovery]
@@ -221,7 +247,23 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * She resolved to be more watchful and careful going to and from the cottage from now on. She would notice someone before he noticed her, that was for sure." (p. 127) [Self-Improvement]
 
 
-* "The autumn school term begna. The weather was brisk and clear. The days grew shorter and it became dark earlier in the evenings." (p. 128) [Autumn]
+* "The autumn school term began. The weather was brisk and clear. The days grew shorter and it became dark earlier in the evenings." (p. 128) [Autumn]
+* "She longed for the spring to come again, for sunny days and a time when she could plant her garden once more and watch it grow. The prospect of the long, cold winter made her despondent." (p. 132) [Winter]
+
+
+* "Her heart turning somersaults, Mandy tried to remember if it had been like this the day before. She couldn't remember." (p. 135) [Feelings]
+
+* "Today she had a desire to return to the security of the orphanage. SHe couldn't get rid of the premonition that something was about to happen." (p. 136) [Security of the Orphange, Premonition]
+
+
+* "Whoever had written the note must be kind and generous and good. Not someone to frighten and hurt her. It was a tremendous relief." (p. 138) [Note]
+
+
+* "It seemed that school would never come to an end." (p. 140)
+* "mandy felt tremendous relief when the school bell finally rang. At least the rest of the afternoon was her own." (p. 140)
+
+
+* "Matron's words left Mandy feeling utterly desolate. How could she explain that taking away her freedom was like taking half her life as well? Her whole being was centered around the cottage, and now that such exciting things were happening, she shouldn't be prevented from going there. BUt what could she say to Matron?" (p. 150)
 
 
 ----------
