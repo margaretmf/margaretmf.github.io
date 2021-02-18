@@ -4,6 +4,97 @@
 
 ## Week of February 8, 2020 - 'Soul' - Inspiring Passages ##
 
+* Remember the Lord
+
+"Everyone on this earth will remember you, Lord"
+
+* cry unto God
+
+"I cried unto God with my voice, even unto God with my voice; and he gave ear unto me."
+
+* the days of old, the years of ancient times
+
+* the song of the night
+
+"I call to remembrance my song in the night: I commune with mine own heart: and my spirit made diligent search>"
+
+* Remember, Meditate
+
+"I will remember the works of the Lord: surely I will remember thy wonders of old."
+"I will meditate also of all thy work, and talk of thy doings."
+
+* Sanctuary
+
+"The way, O God, is in the sanctuary: who is so great a God as our God?"
+"the God that doest wonders"
+"declarest thy strength among the people"
+
+* I am the Lord
+
+"I am the Lord your God."
+
+* tabernacle
+
+"I will walk among you, and will be your God, and ye shall be my people."
+
+* the judgments of the Lord
+
+"Yea, in the way of thy judgments, O Lord, have we waited for thee; the desire of our soul is to thy name, and to the remembrance of thee. With my soul have I desired thee in the night; yea, with my spirit within me will I seek thee early:"
+
+* soul, living
+
+"My soul thirsteth for God, for the living God"
+
+"Soul, or Spirit, is God, unchangeable, and eternal"
+"man coexists with and reflects Soul, God, for man is God's image'
+
+"The proper use of the word soul can always be gained by substituting the word God, where the deific meaning is required. In other cases, use the word sense, and you will have the scientific signification."
+
+* Lose the false sense of Soul, and gain eternal Life
+
+"Only by losing the false sense of Soul can we gain the eternal understanding of Life as immortality brought to light."
+
+* Spiritual sense - conscioius
+
+"Spiritual sense is a conscious, constant capacity to understand God."
+
+* thou art our God
+
+"O God, thou art my God"
+"I seek thee", "I thirsteth", "thirsty land"
+
+* Soul, satisfied
+
+"My soul shall be satisfied as with marrow and fatness"
+
+* Praise the Lord, joy
+
+"praise thee with joyful lips"
+
+* Meditate at night
+
+"meditate on thee in the night watches"
+
+* Right hand
+
+"thy right hand upholdeth me"
+
+* It is God's power
+
+"It is God that girdeth me with strength, and maketh my way perfect."
+
+* Praise the Lord
+
+"Praise ye the Lord. I will praise the Lord with my whole heart in the assembly of the upright and in the congregation."
+
+* the works of the Lord are great
+
+"The works of the Lrod are great, sought out of all them that have pleasure therein."
+
+* wonderful works, gracious Lord
+
+"He hath made his wonderful works to be remembered: the Lord is gracious and full of compassion."
+
 ## Week of February 1, 2020 - 'Spirit' - Inspiring Passages ##
 * The Lord's People
 
