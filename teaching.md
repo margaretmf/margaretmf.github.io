@@ -117,13 +117,16 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "she could glimpse many trees growing thick and strong"
 * "Her desire to see over the wall"
 * "I could really see for miles and miles"
+
 * "Sunlight filtered through the leaves in bright patches"
 * "the trees", "the path", "the woods"
 * "the sound of running water", "the slighests noise", "the gurgling sound of running water was nearer now, and birds sang in the trees. It was a perfectly lovely afternoon"
 * "the shafts of sunshine that came through the windows"
+
 * "the high stone wall", "the old apple tree", "the orchard"
 * "the difficult nights" when "she felt troubled and disturbed"
 * "the night sky winking above her"
+
 * "Her mind was filled with plans and ideas and lists of things to get for it. It was midnight before she fell asleep."
 * "Gathering up the tools, she hurried around to the back door of the orphange. Leaving the rake and the fork on the doorstep, she burst into the big kitchen and fond Alice, the cook, just sitting down at the large wooden table to eat her own belated lunch."
 * "glorious afternoon", "the sun beat down and the scent of the earth mingled with grass and clover" // "it was in full bloom" // "a bank of rhododendrons"
@@ -133,6 +136,12 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "the plants", "the plastic watering"
 * "the orchard", "the rope", "the box of seedlings", "the apple tree"
 * "but the cottage was her secret. She had found it. It belonged to her. She didn't want to share. Not just yet."
+
+* Mandy's friendship with Snow, a deer, a creature
+
+* Matron Bridie taking the orphanage children on a day-trip to the sea
+
+* "She climbed over the big wall" 
 
 ### Who? ###
 * "Mandy", "who loved to read" and "they exchanged books at the local library at least once a week"
@@ -150,6 +159,11 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * glorious colors of red, orange, yellow, and gold
 * green // ferns "growing on the banks"
 * gorgeous red, flamelike color
+* brown // spots
+* white // patch
+* brown // conkers
+* "still and gray"
+* gray, bleak // day
 
 ### Adjectives ###
 * soft // countryside
@@ -173,6 +187,29 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * surprised // look
 * wild-rose // tree
 * wild // flowers
+* thieving // eyes
+* untidy // hedges
+* ragged // lawn
+* distracted // woman
+* glorious // outdoors
+* slippery // sound
+* wretched // things
+* bigger // branches
+* mossy // bank
+* thick // branches
+* disastrous // thing
+* willful // stealing
+* muddy // earth
+* dripping // wet
+
+## Vocabulary ##
+* "excursion"
+* "savored"
+* "vaguely"
+* "copiously"
+* "distress"
+* "resentment"
+* "turbulent"
 
 ## Allusions ##
 * Alludes to "the wonders of Robinson Crusoe"
@@ -182,7 +219,36 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 ## Themes ##
 * Adventure, Discovery
 * Nature
-* Imagination
+* Imagination, Daydreaming
+* Impulse, Contemplation 
+* Friendship
+
+### Interesting Sentences or Paragraphs ###
+* "It was a wondrous thing to discover an ant carrying something twice as large as itself, or a beetle moving slowly over the blades of green to an unknown destination. She watched the bees gathering nectar from her flowers and the small spiders scuttling in all directions. At such times she forgot about her everyday world and was transported into the kingdom of all things small where a butterfly seems like an overwhelmingly beautiful giant creature; where the smallest twig is a tree, and a pebble a mountain." (pp. 100-101) [Discovery]
+
+* "She drew in her breath with excitement and he lovely creature raised its head and gazed at her, seeming not at all afraid. For the longest moment it stood there, the prominent ears twitching. Mandy marveled at the creature's exquisite beauty - the delicate face with the almond-shaped eyes and the soft wet muzzle." (p. 102) [Love for Animals and Nature]
+
+* "That night she dreamed of the deer. Strangely, the animal was holding her. She cuddled close into the soft fur and touched and ksised it gently. In the morning her pillow was wet with tears." (p. 102) [Friendship with the Deer]
+
+
+* "A day at the sea is just what you need. The fresh air will do you good." (p. 107) [Fresh Air]
+
+
+* "On an impulse Mandy turned and threw the broken parts as far as she could into the bushes." (p. 114) [Impulse, Broken]
+
+
+* "It rained on four of the following seven days. It was the longest, most miserable week of Mandy's young life." (p. 123) [Rainy]
+
+* She had never felt so desperate or depressed. Not to see her beloved cottage. To wonder how it looked and how her precious flowers were doing. Would they survive without her care? She felt claustrophobic and imprisoned. It was terrible." (p. 123) [Sense of Being Desperate]
+
+
+* "Mandy longed to break down and tell her friend everything. She ached for sympathy and understanding. But she remained silent, and that was the very thing guaranteed to change Sue's mood and make her almost antagonistic toward Mandy." (p. 124) [Friendship]
+
+
+* She resolved to be more watchful and careful going to and from the cottage from now on. She would notice someone before he noticed her, that was for sure." (p. 127) [Self-Improvement]
+
+
+* "The autumn school term begna. The weather was brisk and clear. The days grew shorter and it became dark earlier in the evenings." (p. 128) [Autumn]
 
 
 ## The River by Gary Paulsen ##
