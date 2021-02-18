@@ -29,34 +29,7 @@
 
 ## Tone ##
 The attitude of the writer or narrator toward the subejct, characters, conflict, or audience.
-* Sympathetic
-* Critical
-* Formal
-* Informal
-* Friendly
-* Distant
-* Personal
-* Pompous
-* Ironic
-* Bitter
-* Compassionate
-* Ambivalent
-* Objective
-* Ecstatic
-* Incredulous
-* Despairing
-* Resigned
-* Playful
-* Serious
-* Mocking
-* Reverent
-* Calm
-* Exciting
-* Delighted
-* Surprised
-* Horrified
-* Mournful
-* Exulting
+* Sympathetic. Critical. Formal. Informal. Friendly. Distant. Personal. Pompous. Ironic. Bitter. Compassionate. Ambivalent. Objective. Ecstatic. Incredulous. Despairing. Resigned. Playful. Serious. Mocking. Reverent. Calm. Exciting. Delighted. Surprised. Horrified. Mournful. Exulting.
 
 
 ----------
@@ -249,6 +222,9 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 
 
 * "The autumn school term begna. The weather was brisk and clear. The days grew shorter and it became dark earlier in the evenings." (p. 128) [Autumn]
+
+
+----------
 
 
 ## The River by Gary Paulsen ##
@@ -462,5 +438,8 @@ the Big Sycamore Tree, the River, the Tree foliage
 * whistling // dog fight 
 
 * "surprise during the perfect day"
+
+
+----------
 
 
