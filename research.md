@@ -9,6 +9,8 @@ It's also great to learn from the dark aspects of the past.
 
 Romanticizing the past stems from feeling like people have lost something from the past. Romanticizing the past also stems from glorifying a past that was not as pretty in reality. Aspects of the past still remain present today in new forms. Through stories, people can take up dark aspects of the past and learn from them. Also through stories, people can take up hidden realities not fully covered in traditional ones.
 
+Sharing history helps people understand why the world is the way it is, and how our ancestors made decisions. Sharing stories from the past differs from believing that the past is better than the present in an imaginary, and delusional way, however. 
+
 
 ----------
 
@@ -155,7 +157,92 @@ Tchaikovsky or Beethoven: Emotional and dynamic compositions known for their str
 ----------
 
 
-## Trucking and Automation ##
+## [Trucking and Automation](https://www.usatoday.com/story/opinion/2017/06/20/rigged-system-rips-off-port-truckers-editorials-debates/103015290/) ##
+"Many U.S. consumers care deeply about the way their products are made. Some insist on buying American; others press corporations for codes of conduct that forbid sweatshops in foreign lands.
+
+"But what many might not know is that some highly deplorable conditions exist right here in America, in the transport of goods rather than their manufacture.
+
+A huge volume of the nation's imports arrive by container ship in Southern California, where short-haul truckers take the merchandise to nearby rail yards or storage depots, a key step in the goods' journey to some of the nation's leading retail stores. A year-long investigation by the USA TODAY Network found that a good chunk of the port trucking industry relies heavily on a modern-day form of indentured servitude.
+
+The abuse starts when a trucking company pressures its drivers to sign lease-to-own contracts on their tractor-trailer rigs. Often, these drivers speak little English and do not understand what they are getting into."
+
+
+"Network reporter Brett Murphy documented hundreds of cases like this at Los Angeles ports since 2010, including 1,150 instances in which drivers had filed formal complaints, 140 trucking companies that had been accused by at least one driver of shorting drivers on pay, and more than 120 cases in which drivers said they worked 12 to 20 hours at a time, in violation of federal highway safety laws."
+
+
+"Federal law has numerous workplace protections, but only for employees. The trucking companies at the Port of Los Angeles classify their drivers, incorrectly in many cases, as independent contractors rather than employees."
+
+
+"If a category of worker is to exist outside of the Fair Labor Standards Act and other workplace protection laws, Congress needs to either delegate workplace authority to the states, or set minimum standards to protect contract workers against exploitation."
+
+
+"The industry points to a study stating that drivers like being independent contractors. But the study is commissioned by the industry, uses data not available to outsiders, and includes long-haul drivers as well as the port truckers who are the subject of so much abuse."
+
+
+## [Review: The Big Rig: Trucking and the Decline of the American Dream](https://www.labornotes.org/blogs/2017/10/review-big-rig-trucking-and-decline-american-dream) ##
+"Truck drivers seem to have re-entered the public consciousness in 2017—but today our understanding of the occupation is far from the freewheeling “cowboy of the highway” image of the 1970s. It’s also no longer synonymous with “Teamster” or even seen as a desirable job.
+
+These days most talk about truckers centers on self-driving vehicles and the prospect that more than three million professional drivers will be replaced by robots. Business writers excitedly write about how this “cost-saving” technology lies just around the corner, only briefly pausing to consider the social crisis that would be created by laying off so many workers.
+
+As a truck driver myself, I know that so much of what we do is far too complicated to be replaced by technology any time soon. We do a lot more than just hold a steering wheel. We navigate city streets and highways that are perpetually “under construction,” deal with distracted drivers who spend more time looking at their phones than at the road, maneuver impossibly narrow spaces to make deliveries, and back trailers up to dock doors, sometimes across traffic, with no room for error—and that's just what we do from the driver’s seat, not counting time for inspections, dropping and hooking, loading and unloading."
+
+
+"As 27-year driver Greg Simmons says in a recent New York Times profile of long-haul truckers, “We’re throwaway people. Nobody cares about us.” Simmons says he feels trapped in an occupation that no longer provides a decent living, thanks to corporate innovations like the pay-by-mile system, which doesn’t account for all the hours drivers get stuck in traffic or wait on trailers to be loaded or unloaded, a process that often takes hours.
+
+For truckers at the ports who move goods from ships to warehouses, the situation is even worse. An in-depth USA Today report (June 20, 2017) exposed the terrible conditions faced by immigrants driving trucks at the ports of Los Angeles and Long Beach, describing their situation as “modern-day indentured servitude.”
+
+Many port truckers are locked into lease agreements in which a large portion of their wages goes toward their truck and vehicle maintenance. Their bosses use these leasing agreements to force drivers into punishing schedules, threatening them with losing their truck (and forfeiting all the wages paid into the truck) if they refuse to work beyond the legal maximum hours or if they get sick and can't work. They are also often misclassified as “independent contractors,” depriving drivers of basic protections like overtime compensation, family and medical leave, and unemployment insurance."
+
+
+"Deregulation, beginning with President Carter and continued by Ronald Reagan, did away with the federal permit system and encouraged thousands of new carriers to enter the industry. By dramatically increasing competition, both shipping prices and wages were driven down considerably. It became more affordable for shippers to use 'truckload' shipments, where a trailer is filled exclusively with one shipper’s freight and sent directly to its destination, instead of relying on the union-dense “less than truckload” terminals to move smaller shipments."
+
+
+## [The Big Rig: Trucking and the Decline of the American Dream](https://www.ucpress.edu/book.php?isbn=9780520278127) ##
+## [Alone on the Open Road: Truckers Feel Like ‘Throwaway People’](https://www.nytimes.com/2017/05/22/us/trucking-jobs.html) ##
+
+
+## [Rigged](https://www.usatoday.com/pages/interactives/news/rigged-forced-into-debt-worked-past-exhaustion-left-with-nothing/) ##
+"Most days, the trucker would drive more than 16 hours straight hauling LG dishwashers and Kumho tires to warehouses around Los Angeles, on their way to retail stores nationwide."
+
+
+"He rarely went home to his family. At night, he crawled into the back of his cab and slept in the company parking lot."
+
+
+"Talavera was a modern-day indentured servant. And there are hundreds, likely thousands more, still on the road, hauling containers for trucking companies that move goods for America’s most beloved retailers, from Costco to Target to Home Depot.
+
+These port truckers -- many of them poor immigrants who speak little English -- are responsible for moving almost half of the nation’s container imports out of Los Angeles’ ports. They don't deliver goods to stores. Instead they drive them short distances to warehouses and rail yards, one small step on their journey to a store near you.
+
+A yearlong investigation by the USA TODAY Network found that port trucking companies in southern California have spent the past decade forcing drivers to finance their own trucks by taking on debt they could not afford. Companies then used that debt as leverage to extract forced labor and trap drivers in jobs that left them destitute.
+
+Using the contracts, submitted as evidence in labor complaints, and shipping manifests, reporters matched the trucking companies with the most labor violations to dozens of retail brands, including Target, Hewlett-Packard, Home Depot, Hasbro, J.Crew, UPS, Goodyear, Costco, Ralph Lauren and more.
+
+This isn’t a case of a few bad trucking companies accused of mistreating a handful of workers.
+
+Since 2010, at least 1,150 port truck drivers have filed claims in civil court or with the California Department of Industrial Relations’ enforcement arm, known as the labor commission."
+
+
+"Prominent civil rights leader Julian Bond once called California port truckers the new black tenant farmers of the post-Civil War South. Sharecroppers from that era rented farmland to make their living and regularly fell into debt to their landlords. Widespread predatory practices made it nearly impossible for the farmers to climb out.
+
+Through lease contracts, California’s port truckers face the same kinds of challenges in ways that experts say rarely happen in the U.S. today.
+
+You’re working to get yourself out of the debt. You just don’t see anything like that.
+
+Reporters tried to contact owners and managers at more than 30 trucking companies. Many did not respond or declined to comment."
+
+
+"Retailers don't directly hire the truckers who move their goods at the pier. They generally hire large shipping or logistics firms that line up trucking companies through a maze of subcontractors."
+
+
+"Truckers at dozens of companies describe the same basic scene. They were handed a lease-to-own contract by their employer and given a choice: Sign immediately or be fired. Many drivers who spoke little English said managers gave them no time to seek legal advice or even an interpreter to read the contract
+
+Drivers gave their old trucks – many of which they owned outright – to their company as a down payment. And just like that they were up to $100,000 in debt to their own employer. The same guys would have had a tough time qualifying for a Hyundai days earlier."
+
+
+"For years, Rene Flores regularly has driven 20 hours a day, six days a week, hauling pistachios and medical equipment into the desert from the Port of Long Beach.
+
+'If I don’t work,” Flores says, “my kids will starve.'
+
+He keeps a log book of fake hours in the glovebox and the real one hidden beneath his seat in case of a surprise inspection."
 
 
 ----------
