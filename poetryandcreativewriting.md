@@ -82,6 +82,7 @@ Margaret
 * Grateful or the Soaps and Suds in Norfolk that serves the community
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for self-assessment, honesty with myself about self-justification
+* Grateful for the Underground Railroad
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
@@ -601,10 +602,11 @@ More broadly, I love home on earth with all of humanity.
 The bird flies in solitude across the land.
 It lifts its wings alone so gracefully.
 I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by her quiet strength.
-Not heartbroken when he breaks my heart.
-Not angry when he ignores my words.
-Not startled when he has a new friend.
-But relieved that I can fly freely with love and peace in my heart, and still sing my song too.
+Freely able to sail through the clouds and onto the wire alone
+Not heartbroken when he breaks my heart. // Fully loved when my heart breaks
+Not angry when he ignores my words. // At peace when my words are ignored
+Not startled when he has a new friend. // Loving when I see I am replaced
+Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
 No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
 
@@ -741,6 +743,14 @@ Digging into the depth of the earth, wedded to the earth,
 where the soil is thick
 and knows her story
 and leaves room for all to grow in their own way.
+
+# Stars Twinkling At Each Other ##
+Stars twinkling at each other
+Showing each other their light
+Sharing the light with all the other stars
+In the universal dance in the night sky
+My love for you is like a star twinkling and winking at another star
+In a universal dance of liberty and peace
 
 ## Healing from Weird Words ##
 
