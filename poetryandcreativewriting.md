@@ -466,7 +466,7 @@ In silence, there's the opportunity to say no to the silent arguments masqueradi
 ----------
 
 
-Popular culture speaks silently. One must think to understand different perspectives on popular culture. One must be alert to silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
+Popular culture speaks subtly. One must think to understand different perspectives on popular culture. One must be alert to subtle, silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
 
 ## Music ##
 Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
