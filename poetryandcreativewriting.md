@@ -41,6 +41,11 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 We are all tributary to the same source, but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## What is something you have dreamed about? ##
+This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
+
+In the past, I have listened to music by Al Green and appreciated the African American music in Memphis. It turned from dream to reality, when I met the man whose father played music with Al Green in memphis. I love the history of African Americans in the city.
+
 ## Do you prefer taking risks or having a safety net? ##
 Having a net to fall bac on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, i drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
 
