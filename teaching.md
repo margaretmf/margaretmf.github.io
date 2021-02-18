@@ -88,6 +88,79 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 ----------
 
 
+## Mandy by by Julie Andrews Edwards ##
+
+## Questions ##
+### When? ###
+* 1968, " a magical summer"
+* "the months of spring and early summer"
+
+### Where? ###
+* "the wonders of the beautiful place"
+* "stables, kennels, an old dairy, a family cemetery, a lake with a weir, vegetable gardens, a bird sanctuary, glorious beech woods, and abundant wildlife"
+* "the image of the little shell cottage"
+* "the outskirts of a pretty country village called St. Martin's Green"
+* "an imposing residence" with "generous, tall windows and large, high-ceilinged rooms"
+
+### What? ###
+* "the germ of a story lodged in my brain"
+* "playing a game with the children"
+* "white house called St. Martin's Orphanage"
+* 30 children "in her care" ["apart from ensuring that they receive as good an education as possible, she oversees the laundry, the food, and the cleaning of the home. She maintains discipine and tires to observe and help each child in a personal way. Her day begins at the first light of dawn, and she is never finished until late in the evening."]
+* Mandy - "loves to read", "her precious books", "paints, crayons, and paper for painting and drawing", "living in her own dream world"
+* "She would cry for no reason at all, seemingly, and it frightened her when she did. She tried to be brave and put away her feelings. Her attempts to keep busy were mostly an effort to fill her life so taht she had no time to feel disconsolate. As Mandy grew, her longings grew stronger and sometimes she felt as though she must surely break apart with so much going on inside her. It was as though she were searching for something, though what or where it was she could not say."
+* "The high stone wall at the back of the orphanage held a great fascination for Mandy."
+* "she could glimpse many trees growing thick and strong"
+* "Her desire to see over the wall"
+* "I could really see for miles and miles"
+* "Sunlight filtered through the leaves in bright patches"
+* "the trees", "the path", "the woods"
+* "the sound of running water", "the slighests noise", "the gurgling sound of running water was nearer now, and birds sang in the trees. It was a perfectly lovely afternoon"
+* "the shafts of sunshine that came through the windows"
+* "the high stone wall", "the old apple tree", "the orchard"
+* "the difficult nights" when "she felt troubled and disturbed"
+* "the night sky winking above her"
+* "Her min was filled with plans and ideas and lists of things to get for it. It was midnight before she fell asleep."
+
+### Who? ###
+* "Mandy", "who loved to read" and "they exchanged books at the local library at least once a week"
+* "matron, Mrs. Hannah Bridie", "a graying elderly woman"
+* "plain, good-natured woman"
+
+### Color ###
+* black // wrough-iron railing runs
+* green // lawn
+* silvery-green // trunk
+* blue // sky
+* soft white // little house
+* gray // dusk
+
+### Adjectives ###
+* soft // countryside
+* disturbing // feelings
+* high stone // wall
+* large // apple tree
+* pink-and-white-blossomed // branches
+* yellow // stones
+* soft, frothy // blossoms
+* new // world
+* fine-textured // bark
+* open and clear // woods
+* open and sunny // clearing
+* old, garden // rake
+* little // brook
+* silken // strands (cobwebs hung)
+* secret // place
+* darkening // sky
+* night // sky
+* kitchen // garden
+
+## Allusions ##
+* Alludes to "the wonders of Robinson Crusoe"
+* Alludes to Alice in Wonderland
+* Alludes to Gulliver's Travels
+
+
 ## The River by Gary Paulsen ##
 
 ## Questions ##
