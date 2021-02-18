@@ -146,13 +146,13 @@ is_contact: true
 ### **Sounds** ### 
 (1) The sound of an innocent heart
 (2) Water running
-(3) Law mowing
+(3) Lawn mowing
 (4) The piano playing
 (5) A hymn coming out my mouth "come cast your burdens on the Lord"
 
 ## **Day 13** ##
 ### **Images** ##
-(1) Rusted trucks and cars in farmalnd
+(1) Rusted trucks and cars in farmland
 (2) Gas stations
 (3) Birds flying in the sky
 (4) Green leaves on trees
@@ -163,7 +163,7 @@ is_contact: true
 ### **Sounds** ##
 (1) A man on the radio sharing the Bible
 (2) Blues and jazz music
-(3) Cheerful southern voices from Mississippi sharing freindliess 'where the Red Fern Grows'
+(3) Cheerful southern voices from Mississippi sharing friendliess 'where the Red Fern Grows'
 (4) Car driving by on the left
 (5) Windshield wipers where it rains
 
@@ -194,7 +194,7 @@ is_contact: true
 (4) Women walking with a young girl
 (5) Homes united in Indiana from a blue house to a white house with the sunlight shining through
 (6) Christmas decorations on white picket fences
-(7) A man on an orange ladder putting Christmas lights on
+(7) A man on an orange ladder putting Christmas lights on a house
 (8) Red trucks in driveway, and on streets
 (9) City lights
 
@@ -234,7 +234,7 @@ is_contact: true
 ### **Sounds** ##
 (1) Community voices talking about family challenges in Starbucks
 (2) Aunt Jeannie's voice
-(3) oilet flushing
+(3) Toilet flushing
 (4) Water dripping
 (5) The rain pitter, patter
 
@@ -309,7 +309,7 @@ is_contact: true
 ### **Images** ###
 (1) Brown leaves on the windshield in the morning
 (2) Blue cadillac
-(3) Nomadic clothing in the windo
+(3) Nomadic clothing in the window
 (4) Free people from all races
 (5) Black mailbox
 
@@ -351,7 +351,7 @@ is_contact: true
 (3) Gates opening and closing with workers
 (4) Crossroads with trucks driving above
 (5) Line of cars driving to school
-(6) The sun refelcting through specks of water ont he black road
+(6) The sun refelcting through specks of water on the black road
 
 ### **Sounds** ###
 (1) R&B music playing on the road
@@ -417,13 +417,13 @@ is_contact: true
 ## **Day 28** ##
 ### **Images** ###
 (1) The reds and whites on Country music street - red truck, guitars, and lights
-(2) Innocence and freedom for all races in Nashivlle - "it's 2020"
+(2) Innocence and freedom for all races in Nashville - "it's 2020"
 (3) Brick buildings that look like Ireland
 (4) Green leaves near the water
 (5) The construction workers working on the street in green
 
 ### **Sounds** ###
-(1) Blues/jazz msuic on staying the night in Bristol
+(1) Blues/jazz music on staying the night in Bristol
 (2) A bus honking a horn
 (3) The sounds of cars moving and sounding like ocean waves
 (4) Peace, be still; sin no more in the morning after acknowledging a sinful act
@@ -530,6 +530,50 @@ is_contact: true
 (2) The sound of new ideas to develop character
 (3) The sound of discipline
 
+## **Day 34** ##
+### **Images** ##
+(1) An American flag in the window of a truck
+(2) Stacks of clothes
+(3) A man sitting on the porch outside of a house
+(4) A man walking with boots and a beard in Kentucky and West Virginia
+(5) Egg yolk
+
+### **Sounds** ##
+(1) A phone buzzing
+(2) A cheerful voice of an aunt
+(3) A man singing a song about the Black man in Memphis
+(4) Air conditioning blowing in a hotel
+(5) Cars driving outside
+
+## **Day 35** ##
+### **Images** ##
+(1) Tide moving through the water with the cargo in the background
+(2) Cargo on the side of highways
+(3) The sun shining through Noroflk
+(4) A man working for a church and bringing food
+
+## ** Sounds** ##
+(1) The sound of country music from VA
+(2) Celtic inspired country music
+(3) Johnny Cash
+(4) Leaves bouncing above the street
+(5) The sound of a new day
+
+## **Day 36** ##
+### **Images** ###
+(1) Truck with haystack
+(2) Western Express logo on a truck
+(3) Love expressed in the people working in the tree business
+(4) The Water near the trees
+(5) The Friendly people
+
+### **Sounds** ###
+(1) A honking horn
+(2) Watern running
+(3) Gas being pushed into a car
+(4) A gas tank being filled
+(5) The birds singing in the South
+
 <br>
 
 <br>
@@ -542,6 +586,13 @@ is_contact: true
 * Oceans, Rivers, Bays
 * People can learn about history and the country through music
 & Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
+
+## ** Plantation ** ##
+The definition of plantation
+Plantations with no slaves vs. slave plantations - the distinction
+Endentured servants in Scotland
+Education frees, the history of schooling
+African music, African land, Cairo
 
 
 <br>
