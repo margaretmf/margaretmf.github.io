@@ -1,5 +1,8 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
+The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", and "Mandy".
+
+
 # Critical Reading #
 ## Tragedy ##
 * A dramatic composition, often in verse, dealing with a serious or somber theme, typically that of a great person destined through a flaw of character or conflict with some overpowering force, as fate or society, to downfall or destruction.
