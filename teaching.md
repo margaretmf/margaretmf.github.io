@@ -129,6 +129,10 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * Mandy deals with mixed feelings in mature ways
 * freedom taken away by the Matron
 
+* "the big wall"
+* "the little bird"
+* "the beautiful deer"
+
 ### Who? ###
 * "Mandy", "who loved to read" and "they exchanged books at the local library at least once a week"
 * "matron, Mrs. Hannah Bridie", "a graying elderly woman"
@@ -156,6 +160,13 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * dark // shape
 * fuzzy // feeling
 * hot // drink
+* dark // jacket
+* gray // clouds
+* gray // sky
+* black // spinning darkness
+* soft, rose-colored // silk
+* golden // sounds
+* white // flakes
 
 ### Adjectives ###
 * soft // countryside
@@ -198,6 +209,15 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * bare // trees
 * damp, cold // cottage
 * paralyzing // moment
+* weak // smile
+* faint // sounds
+* foolish // decision
+* ominous // clouds
+* stormy // sky
+* terrible // nightmare
+* virgin // snow
+* comforting // sounds
+* silvery // light
 
 ### Vocabulary ###
 * "excursion"
@@ -210,6 +230,7 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "defiantly"
 * "inevitably"
 * "trudged"
+* "exuded"
 
 ### Allusions ###
 * Alludes to "the wonders of Robinson Crusoe"
@@ -263,10 +284,27 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 
 
 * "It seemed that school would never come to an end." (p. 140)
-* "mandy felt tremendous relief when the school bell finally rang. At least the rest of the afternoon was her own." (p. 140)
+* "mandy felt tremendous relief when the school bell finally rang. At least the rest of the afternoon was her own." (p. 140) [School]
 
 
-* "Matron's words left Mandy feeling utterly desolate. How could she explain that taking away her freedom was like taking half her life as well? Her whole being was centered around the cottage, and now that such exciting things were happening, she shouldn't be prevented from going there. BUt what could she say to Matron?" (p. 150)
+* "Matron's words left Mandy feeling utterly desolate. How could she explain that taking away her freedom was like taking half her life as well? Her whole being was centered around the cottage, and now that such exciting things were happening, she shouldn't be prevented from going there. BUt what could she say to Matron?" (p. 150) [Feeling Desolate]
+
+
+* "It seemed as though the heavens opened up and descended in one massive torrent. The rain poured down." (p. 160) [Heavens Opening Up]
+
+
+* "She realized now why Mandy's behavior had been so strange the past few months, why she would need to steal the cups and saucers and knives and forks. She remembered how Alice had mentioned Mandy's requests for dusters and a broom. And Jake had spoken of Mandy's one time interest in a garden project. She had wondered if it had anthing to do with the incident concerning the shears. Now, she knew that it all fitted together." (p. 173) [Strange Behavior, Orphan]
+
+
+* "A beautiful garden was immediately beneath her room, consisting mostly of low, box-hedged areas containing several hundred rose trees. Beyond the formal planting was a large green lawn leading to a wide stream which separated the lawn from several acres of pastureland. Beyond the fields were miles of woodland stretching as far as Mandy could see. It was a beautiful sight." (p. 204) [Beautiful Garden]
+
+
+* "Mandy felt an emotion rising within her which she couldn't understand. She had a sudden desire to weep. She turned her head away from the light and looked toward the window. The white flakes were still falling through the black night, brushing gently on teh glass. Tears rolled down her cheeks on to the pillow." (p. 235) [Mandy's Emotions as an Orphan]
+
+
+* "She received books to read and crayons to color with, and she thought that no other girl in the whole world could be so lucky." (p. 243) [Mandy's Emotions as an Orphan]
+* "How wonderful it would be to live her own life, to be free to decide thing for herself." [To Be Free from the Orphanage]
+* "A deep sadness overcame her and she pulled the bear close and held it tightly. She cuddled down beneath the covers, pulling the sheet up over her head." [Deep Sadness as An Oprhan]
 
 
 ----------
