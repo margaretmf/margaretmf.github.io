@@ -107,8 +107,12 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "playing a game with the children"
 * "white house called St. Martin's Orphanage"
 * 30 children "in her care" ["apart from ensuring that they receive as good an education as possible, she oversees the laundry, the food, and the cleaning of the home. She maintains discipine and tires to observe and help each child in a personal way. Her day begins at the first light of dawn, and she is never finished until late in the evening."]
+
+
 * Mandy - "loves to read", "her precious books", "paints, crayons, and paper for painting and drawing", "living in her own dream world"
 * "She would cry for no reason at all, seemingly, and it frightened her when she did. She tried to be brave and put away her feelings. Her attempts to keep busy were mostly an effort to fill her life so taht she had no time to feel disconsolate. As Mandy grew, her longings grew stronger and sometimes she felt as though she must surely break apart with so much going on inside her. It was as though she were searching for something, though what or where it was she could not say."
+
+
 * "The high stone wall at the back of the orphanage held a great fascination for Mandy."
 * "she could glimpse many trees growing thick and strong"
 * "Her desire to see over the wall"
@@ -120,7 +124,15 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "the high stone wall", "the old apple tree", "the orchard"
 * "the difficult nights" when "she felt troubled and disturbed"
 * "the night sky winking above her"
-* "Her min was filled with plans and ideas and lists of things to get for it. It was midnight before she fell asleep."
+* "Her mind was filled with plans and ideas and lists of things to get for it. It was midnight before she fell asleep."
+* "Gathering up the tools, she hurried around to the back door of the orphange. Leaving the rake and the fork on the doorstep, she burst into the big kitchen and fond Alice, the cook, just sitting down at the large wooden table to eat her own belated lunch."
+* "glorious afternoon", "the sun beat down and the scent of the earth mingled with grass and clover" // "it was in full bloom" // "a bank of rhododendrons"
+* "A sparrow came and perched on the low fence and watched her with a beady eye. Wood pigeons cooed softly in the trees, where they probably had a nest."
+* "money box", "savings"
+* seeds, flowers, planting, garden // "marigold seedlings"
+* "the plants", "the plastic watering"
+* "the orchard", "the rope", "the box of seedlings", "the apple tree"
+* "but the cottage was her secret. She had found it. It belonged to her. She didn't want to share. Not just yet."
 
 ### Who? ###
 * "Mandy", "who loved to read" and "they exchanged books at the local library at least once a week"
@@ -134,6 +146,10 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * blue // sky
 * soft white // little house
 * gray // dusk
+* white // trumpetlike flowers
+* glorious colors of red, orange, yellow, and gold
+* green // ferns "growing on the banks"
+* gorgeous red, flamelike color
 
 ### Adjectives ###
 * soft // countryside
@@ -154,11 +170,19 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * darkening // sky
 * night // sky
 * kitchen // garden
+* surprised // look
+* wild-rose // tree
+* wild // flowers
 
 ## Allusions ##
 * Alludes to "the wonders of Robinson Crusoe"
 * Alludes to Alice in Wonderland
 * Alludes to Gulliver's Travels
+
+## Themes ##
+* Adventure, Discovery
+* Nature
+* Imagination
 
 
 ## The River by Gary Paulsen ##
