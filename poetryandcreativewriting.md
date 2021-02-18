@@ -88,6 +88,8 @@ Margaret
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for self-assessment, honesty with myself about self-justification
 * Grateful for the Underground Railroad
+* Grateful for Black History month
+* Grateful for the man singing with the Consortium in Memphis
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
@@ -175,6 +177,10 @@ Thank you God, that you work through us individually as distinct ideas.
 Thank you God, for knowing where each idea needs to be to bless, uplift, and be a healing influence.
 Thank you, God, for your system of ideas. We abide in you, you abide in us. What blesses one, blesses all."
 
+The idea that one shares sparks an idea for another to appreciate and share.
+That idea that another appreciates and shares motivates an idea for someone else to work with.
+There's a system of ideas, constantly moving, constantly inspiring, constantly renewing, and remembering, and constantly uplifting.
+
 ## Confidence ##
 "with faith"..."in God"
 Being so one with God that one can be happy for all of those around you.
@@ -232,6 +238,8 @@ The people waving the Confederate flag or wearing Confederate symbols are not ba
 But the Civil War was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
 The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations.
 Land and economy are part of the South, but land and economy expand to the North and the West.
+
+## The Virginia Flag ##
 
 ## The External and Internal Oppressor ##
 People condemn resentment, and anger for oppression or bad treatment.
@@ -350,6 +358,13 @@ She holds her covenant with all mankind.
 "Yea, though I walk through the shadow of death, I shall fear no evil, for thy rod and thy staff shall comfort me for all the rest of the days of my life."
 This is the shadow side to who you are. There's a gentle soul beneath it all, waiting to unfold into greatness, and ready to smile at all of the humanity and all of the human race. There's a heart waiting to sing in the post office and the laundry room.
 It's amazing, and beautiful how God led his people out of slavery. It's not God's purpose for man to be enslaved. God leads his people through the wilderness.
+
+## Sprouting Up ##
+An idea from within sprouts up.
+It starts as a small seed of intuition reminding someone of something latent, a memory of the past, a tale in the family.
+Cultivating a love for this small seed lets it grow into a greater reality.
+It grows and grows into its full self.
+The idea from within the home that's already there becomes a full garden, a full way of being.
 
 ## The Ocean ##
 The ocean crashes every day upon the shore.
@@ -756,14 +771,41 @@ and knows her story
 and leaves room for all to grow in their own way.
 
 ## Stars Twinkling At Each Other ##
-Stars twinkling at each other
-Showing each other their light
-Sharing the light with all the other stars
-In the universal dance in the night sky
-My love for you is like a star twinkling and winking at another star
-In a universal dance of liberty and peace
+I see you winking at me.
+I wonder what good you have to share with me.
+I wink back and wish you the best.
+
+This love is like a star twinkling at another star,
+sharing the light in the middle of the night,
+dancing with one another in the symphony of the night sky.
+
+Everyone can see you winking at me.
+They can see the start of a new friendship.
+It's like all the other stars in the sky sharing the light and love
+In a universal dance of peace, love, and joy.
 
 ## Healing from Weird Words ##
+Oh my gosh!
+Those words in all capital letters I sent.
+Those hateful comments.
+That jealous message.
+Those awful reactions.
+I am so sorry.
+
+I know, it's so petty.
+I was so hateful.
+I was trying to seek revenge.
+I felt so hurt, and so offended.
+It's hard to take back.
+
+Oh my gosh!
+I was making fun of myself.
+I was afraid of the bullying.
+I felt so angry and so much of the weight and blame.
+
+Thank you for forgiving me.
+
+I am glad to write with more order, grace, and punctuality.
 
 ## Healing from Email Attacks ##
 
@@ -856,14 +898,11 @@ Every morning, the orange, green, white, and blue trucks drive from the shipyard
 The trucks drive harmoniously down Hampton Roads like the birds do when they fly.
 Where do they go? From the driveways in the port city to the shipyard to the country roads.
 There's a beautiful chain of freight traveling through the port cities and then through the country.
+And some have American flags hanging in the windows.
 
 ## From Port to Port ##
-From port to port
-The sun shines in every place
-From different angles
-We all look to the same sun
-From different corners of the Earth
-From different places in the Universe
+From port to port the sun shines in every place from different angles.
+We all look to the same sun from different corners of the Earth from different places in the Universe.
 
 ## Roots ##
 You can claim what you were born to be.
