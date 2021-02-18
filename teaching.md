@@ -175,7 +175,7 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * muddy // earth
 * dripping // wet
 
-## Vocabulary ##
+### Vocabulary ###
 * "excursion"
 * "savored"
 * "vaguely"
@@ -184,12 +184,12 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "resentment"
 * "turbulent"
 
-## Allusions ##
+### Allusions ###
 * Alludes to "the wonders of Robinson Crusoe"
 * Alludes to Alice in Wonderland
 * Alludes to Gulliver's Travels
 
-## Themes ##
+### Themes ###
 * Adventure, Discovery
 * Nature
 * Imagination, Daydreaming
@@ -262,7 +262,7 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * the lake, the clearing, the clouds
 
 
-## Where? ####
+### Where? ####
 * the edge of the lake
 
 ### What? ###
@@ -347,7 +347,7 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * "Becoming a part of nature"
 
 
-## Allusions ##
+### Allusions ###
 * Alludes to "Huckleberry Finn" (p. 85)
 * "he had read a history of the Civil War and the author had written abot the men being 'cut down by fire'"
 
