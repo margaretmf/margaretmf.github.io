@@ -55,10 +55,56 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * Many people assumed that ______________.
 
 ### Introducing Something Implied or Assumed ###
-* ALthouh none of them have ever said so directly, my teachers have often given me the impression that ______________.
+* Although none of them have ever said so directly, my teachers have often given me the impression that ______________.
 * One implication of X's treatment of ______________ is that ______________.
 * Although X does not say so directly, she apparently assumes that ______________.
 * While they rarely admit as much, ______________ often take it for granted that ______________. 
+
+### Introducing an Ongoing Debate ###
+* In discussions fo X, one controversial issue has been ______________. On the one hand,  ______________ argues  ______________. On the other hand,  ______________ contends  ______________. Others even maintain  ______________. My own view is  ______________.
+* When it comes to the topic of  ______________, most of us will agree that  ______________. Where the agreement usually ends, however, is on the question of  ______________. Whereas some are convincted that  ______________, others maintain that  ______________.
+* In conclusion, then, as I suggested earlier, defenders of  ______________ can't have it both ways. Their assertion that  ______________ is contradicted by their claim that  ______________.
+
+### Capturing Authorial Intent ###
+Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concedes. Demonstrates. Deplores. Celebrates. Emphasizes. Insists. Observes. Questions. Refutes. Reminds. Reports. Suggests. Urges.
+
+* X agrees that  ______________.
+
+### Disagreeing, With Reasons ###
+* X is mistaken because she overlooks  ______________.
+* X's claim that  ______________ rests on the questionable assumption that  ______________.
+* X contradicts herself/can't have it both ways. On the one hand she argues  ______________. But on the other hand, she also says  ______________.
+* By focusing on  ______________, X overlooks the deeper problem of  ______________.
+* X claims  ______________, but we don't need him to tell us that. Anyone familiar with  ______________ has long known that  ______________.
+
+### Agreeing and Disagreeing Simultaneously ###
+* Although I agree with X up to a point, I cannot accept his overall conclusion that  ______________.
+* Although I disagree with much that X says, I fully endorse his final conclusion that  ______________.
+* Though I concede that  ______________, I still insist that  ______________.
+* Even though I concede that  ______________, I still insist that  ______________.
+* Even though X provides ample evidence that  ______________, Y and Z's research on  ______________ and  ______________ convinces me that  ______________ instead.
+* It is right that  ______________, but she seems on dubious ground when she claims that  ______________.
+* While X is probably wrong when she claims that  ______________, she is right that  ______________.
+* My feelings on the issue are mixed. I do support X's position that  ______________, but I find Y's argument about  ______________ and Z's research on  ______________ to be equally persuasive.
+
+### Introducing Objections Informally ###
+* But is my proposal realistic? What are the chances of it actually being adopted?
+* Yet it is always true that  ______________? Is it always the case, as I have been suggesting, that  ______________?
+* However, does the evidence I have cited prove conclusively that  ______________?
+* 'Impossible,' you say. 'Your evidence must be skewed.'
+
+### Making Concessions While Still Standing Your Ground ###
+* Although I grant that  ______________, I still maintain that  ______________.
+* Proponents of X are right to argue that  ______________. But they exaggerate when they claim that  ______________.
+* While it is true that  ______________, it does not necessarily follow that  ______________.
+* On the one hand, I agree with X that  ______________. But. on the other hand, I still insist that  ______________.
+
+### Contextualizing the Issue ###
+* Provide an engaging opening to your essay that provides background material to frame your issue.
+* The complex issue you are responding to does not only have one right position or solution.
+* Provide the linking language that ties your claim to the ideas of the documents and back to your thesis.
+* Control the documents, and list the facts. Start and end always with claims and analysis.
+* Conclude with the "so what?" issue, and lead educated, informed citizens to continue to think about the issue at hand.
 
 
 ----------
