@@ -87,7 +87,6 @@ Margaret
 * Grateful or the Soaps and Suds in Norfolk that serves the community
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for self-assessment, honesty with myself about self-justification
-* Grateful for the Underground Railroad
 * Grateful for Black History month
 * Grateful for the man singing with the Consortium in Memphis
 
@@ -899,6 +898,18 @@ The trucks drive harmoniously down Hampton Roads like the birds do when they fly
 Where do they go? From the driveways in the port city to the shipyard to the country roads.
 There's a beautiful chain of freight traveling through the port cities and then through the country.
 And some have American flags hanging in the windows.
+
+## It All Started in Virginia ##
+It all started in Virginia.
+Some people chose liberty and traveled across the seas.
+They had no idea what they would discover, but they discovered some new land for the mark of freedom.
+Not everything was perfect when they discovered this new land.
+There were hypocrites, and there was violent behavior.
+But they launched the way for some pioneering people.
+But the sail launched the ground landing for some pioneering people.
+
+Now is the time of awakening.
+Now is the time of revival.
 
 ## From Port to Port ##
 From port to port the sun shines in every place from different angles.
