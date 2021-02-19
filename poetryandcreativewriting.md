@@ -244,6 +244,7 @@ The traumatic memories of a past of enslavement have still come up, waiting to b
 Land and economy are part of the South, but land and economy expand to the North and the West.
 
 ## The Virginia Flag ##
+Such a beautiful blue symbol, representing freedom from tyrann and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
 
 ## The External and Internal Oppressor ##
 People condemn resentment, and anger for oppression or bad treatment.
@@ -350,7 +351,7 @@ He's eternal, and omnipotent.
 
 
 She's a searcher for humanity, and a seeker of the light in the darkest areas of the world.
-She uses Truth's double-edged sword to end civil wars and human strife.
+She uses Truth's double-edged sword to end human strife.
 She's self-complete and wedded to the author of the universe.
 She holds her covenant with all mankind.
 
