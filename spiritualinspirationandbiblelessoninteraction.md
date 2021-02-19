@@ -434,6 +434,50 @@ marvel
 "Go ye into all the world, and preach the gospel to every creature!"
 "Heal the sick!"
 
+* Science of Being, man as Perfect, the Father as Perfect
+
+"The Science of being reveals man as perfect, even as the Father is perfect, because the Soul, or Mind, of the spiritual man is God, the divine Principle of all being, and because this real man is governed by Soul instead of sense, by the law of Spirit, not by the so-called laws of matter."
+
+* "false estimates of soul as dwelling in sense and of mind as dwelling in matter"
+
+* belief, temporary loss
+
+* mortal dream
+
+"This state of error is the mortal dream of life and substance as existent in matter."
+"the immortal reality of being"
+
+* Humanity, this Science
+
+"When humanity does understand this Science, it will become the law of Life to man, - even the higher law of Soul, which prevails over material sense through harmony and immortality."
+
+* Definition of Man
+
+"harmonious and immortal man has existed forever"
+"always beyond and above the mortal illusion of any life, substance, and intelligence as existent in matter"
+
+* Soul, infinite resources
+
+"Soul has infinite resources with which to bless mankind, and happiness would be more readily attained and would be more secure in our keeping, if sought in Soul."
+
+* "greatly rejoice in the Lord"
+
+"and shall be joyful in my God"
+
+* the robe of Righteousness
+
+* Abraham, the God of heaven, the God of Earth
+
+"And he said, O lord God of my master Abraham, I pray thee, send me good speed this day, and shew kindness unto my master Abraham."
+
+* shewed kindness
+
+"Blessed be the Lord God of my master Abraham, who hath not left destitute my master of his mercy and his truth: I being in the way, the Lord led me to the house of my master's brethren."
+
+* God hath joined together
+
+"What therefore God hath joined together, let not man put asunder."
+
 ## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
 
 * know the Truth
