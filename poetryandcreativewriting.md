@@ -756,7 +756,9 @@ When listening more deeply, it reminded me of my high school friend, and woke me
 I saw the beauty of the Medieval English country, and true chivalry, where women and men are equal.
 I fell down hard to the ground, learned some life lessons, and the Black man from the South saved my life with good cheer, good faith, and a good conversation.
 I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
-You can let this go, darling, your good, Southern uncle already calls you darling, so do not worry child, heaven has got a plan for you, always.
+You can let this go, darling, your good, Southern uncles and aunts already calls you darling.
+So do not worry child, heaven has got a plan for you, always.
+You are a true Southerner, indeed, who is admitting to your wrongs, and seeking to understand and be better.
 
 ## At the Root ##
 At the root is the same heart responding and reacting to the same culture. 
@@ -861,6 +863,11 @@ This is the stereotype.
 Everyone has a story. Everyone has a past. Everyone has a future. This is only the beginning of America's journey to freedom. I believe in the Black man.
 
 ## Why Am I Being Tracked? ##
+Why am I being tracked?
+Why is someone viewing all my posts that I share?
+Why is someone looking me up when I don't know them?
+Why is someone knowing everything about me when I have never met them?
+Why is someone using my information?
 
 ## Same Roads, New View ##
 I have driven down these roads before
@@ -972,30 +979,30 @@ America is not at the center, but represents freedom-finding, for all ethnic bac
 ## Constant Evolution ##
 There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
 
-## Seeing Black Lives ##
-They help the police force as police officers. 
-They write good poetry. 
-They play fun music and create new, cool music.
-They dance in school and on the streets.
-They read in church. 
-They create amazing art.
-They help the homeless community. 
-They work to reduce crime.
-They share interracial relationships.
-They express their narratives, and their side of the story.
-They take care of little kids and love them, and hug them. 
-They help people feel better after feeling fallen, or rejected. 
-They are great sorority date function partners. 
-They are good students in school.
-They invest in the community.
-They love their work. 
-They live for the future.
-They support their kids. 
-They have healthy, beautiful homes. 
-They lead teams at work.
-They built our country.
-They love God, and they have great faith through adversity.
-They also love Allah, the same God that Christians worship. 
+## Seeing Black Lives [Seeing Integration, Reconstruction's Effects] ##
+They help the police force as police officers. [Seeing Integration, Reconstruction's Effects]
+They write good poetry. [Seeing Integration, Reconstruction's Effects] 
+They play fun music and create new, cool music. [Seeing Integration, Reconstruction's Effects]
+They dance in school and on the streets. [Seeing Integration, Reconstruction's Effects]
+They read in church.  [Seeing Integration, Reconstruction's Effects]
+They create amazing art. [Seeing Integration, Reconstruction's Effects]
+They help the homeless community.  [Seeing Integration, Reconstruction's Effects]
+They work to reduce crime. [Seeing Integration, Reconstruction's Effects]
+They share interracial relationships. [Seeing Integration, Reconstruction's Effects]
+They express their narratives, and their side of the story. [Seeing Integration, Reconstruction's Effects]
+They take care of little kids and love them, and hug them.  [Seeing Integration, Reconstruction's Effects]
+They help people feel better after feeling fallen, or rejected.  [Seeing Integration, Reconstruction's Effects]
+They are great sorority date function partners.  [Seeing Integration, Reconstruction's Effects]
+They are good students in school. [Seeing Integration, Reconstruction's Effects]
+They invest in the community. [Seeing Integration, Reconstruction's Effects]
+They love their work.  [Seeing Integration, Reconstruction's Effects]
+They live for the future. [Seeing Integration, Reconstruction's Effects]
+They support their kids.  [Seeing Integration, Reconstruction's Effects]
+They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
+They lead teams at work. [Seeing Integration, Reconstruction's Effects]
+They built our country. [Seeing Integration, Reconstruction's Effects]
+They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
+They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
