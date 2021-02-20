@@ -41,6 +41,33 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Bullying ##
+Hello, Mr. Bully
+Remember me?
+You were a bully.
+You picked a fight.
+You couldn't pronounce my name correctly.
+You acted like I couldn't do my work properly.
+Hello, Mr. Bully.
+Remember me?
+I visited your apartment?
+And you poked fun of me.
+You treated me like I was stupid.
+Right in the center of your home.
+You patronized me.
+Hello, Mr. Bully.
+Remember me?
+I forgave you.
+But you denied me.
+You put yourself on a pedestal.
+You treated me like I asked for weird favors from me.
+Hello. Mr. Bully.
+You are part of a church of with Celebrities.
+And I am never enough, never competitive enough.
+Thank you for provoking me.
+I watch on the selfies online.
+I watch all the Celebrities.
+
 ## What is something you have dreamed about? ##
 This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
 
