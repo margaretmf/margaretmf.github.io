@@ -23,6 +23,8 @@ I believe and have found that playing music and participating in improv brings j
 *Do I still believe this?*
 I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee. [2021]
 
+I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
+
 ## Spirituality ##
 *I believe* "God is all and God is good" [in 2009, 2010]
 
@@ -62,33 +64,6 @@ Some individuals at EVERFI acted as signficcant mentors tome. The lead systems a
 There is a child within you first. she is innocent, free, light-hearted, and joyful. She has a good sense of humor, and she's quick to get back up and try new things. She loves to sing, and play music, and play with little ones. she also loves the sound of children playing.
 
 For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
-
-## Bullying ##
-Hello, Mr. Bully
-Remember me?
-You were a bully.
-You picked a fight.
-You couldn't pronounce my name correctly.
-You acted like I couldn't do my work properly.
-Hello, Mr. Bully.
-Remember me?
-I visited your apartment?
-...And you poked fun of me.
-You treated me like I was stupid.
-...Right in the center of your home.
-You patronized me.
-Hello, Mr. Bully.
-Remember me?
-I forgave you.
-...But you denied me.
-You put yourself on a pedestal.
-You treated me like I asked for weird favors of you.
-Hello. Mr. Bully.
-You are part of a church of with Celebrities.
-And I am never enough, never competitive enough.
-Thank you for provoking me.
-I see all the selfies online.
-I watch all the Celebrities.
 
 ## What is something you have dreamed about? ##
 This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
@@ -143,6 +118,42 @@ Margaret
 * Grateful for the man singing with the Consortium in Memphis
 * Gratitude for Muslim prayers 
 * Gratitude for the world history teacher at Norfolk Academy
+
+## What Can America Achieve? Diamante Poems ##
+Despair,
+enormous, steep,
+scorching, perishing, callousing,
+The climb is summoned by a new spirit -
+overcoming, unyielding, conquering,
+bright, energetic,
+Hope
+
+## Bullying ##
+Hello, Mr. Bully
+Remember me?
+You were a bully.
+You picked a fight.
+You couldn't pronounce my name correctly.
+You acted like I couldn't do my work properly.
+Hello, Mr. Bully.
+Remember me?
+I visited your apartment?
+...And you poked fun of me.
+You treated me like I was stupid.
+...Right in the center of your home.
+You patronized me.
+Hello, Mr. Bully.
+Remember me?
+I forgave you.
+...But you denied me.
+You put yourself on a pedestal.
+You treated me like I asked for weird favors of you.
+Hello. Mr. Bully.
+You are part of a church of with Celebrities.
+And I am never enough, never competitive enough.
+Thank you for provoking me.
+I see all the selfies online.
+I watch all the Celebrities.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
@@ -1109,6 +1120,13 @@ Finally, in January 2009, on the Inaugaration Day, although I was not there, I w
 Throughout Obama's campaign and these three events, because I have grown love my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the "Homework Help" program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
 
 Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop" (577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual ahs the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
+
+# Precis #
+In her internet journal entitled 'Teaching Mark Twain's Adventures of Huckleberry Fin' published in July of 1995, Shelley Fisher Fishkin argues that students should study the novel because it can make a difference in addressing the issues of racism. By making opinions and providing examples for them, she develops her argument. Fishkin describes the difference the novel can make when taught correctly in order to make the novel have a bigger impact. She encourages educators to teach the irony and satire Tain uses through a serious and urging tone.
+
+Gregory ROberts, the writer of the internet journal, "'Huck Finn' a msterpiece - or an insul', published on November 26, 3003, suggests the importance of teaching *The Adventures of Huckleberry Finn* in high schools. He makes this suggestion clear by providing research and quotes from other sources. He presents research from both sides of the argument in order to give the correct view of the issue. Roberts uses a formal tone as he presents information to the general public.
+
+Eugenia Harris asserts that *The Adventures of Huckleberry Finn* teaches us about American culture and we should thus continue to teach it in internet article "'Huck Finn' still pushes buttons, professor says', pbulished on September 26, 2000. Harris develops her assertion trhough using research and arguing against the opinions of others. She explains that books that have challenging content cause discussion and allow people to grow up in order to persuade readers of the importance of reading *The Adventures of Huckleberry Finn*. Using a critical and assertive tone, Harris intends to convince the general public the importance of teaching the novel.
 
 <br>
 
