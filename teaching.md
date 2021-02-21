@@ -62,6 +62,11 @@ Also. As. As well as. Both. In the same manner. In the same way. Like. Likewise.
 ## To Contrast ##
 Although. But Differ. Even though. However. In contrast. Instead. Nevertheless. On the contrary. On the other hand. Unless. Unlike. While. Yet.
 
+## Sentence Structure ##
+* One Complex, One Compound, One Compound-Complex Sentence.
+* To Be Verbs
+* A gerund, a participial phrase, an infinitive, and a nominative absolute
+
 
 ----------
 
