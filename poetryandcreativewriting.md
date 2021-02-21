@@ -51,21 +51,21 @@ You acted like I couldn't do my work properly.
 Hello, Mr. Bully.
 Remember me?
 I visited your apartment?
-And you poked fun of me.
+...And you poked fun of me.
 You treated me like I was stupid.
-Right in the center of your home.
+...Right in the center of your home.
 You patronized me.
 Hello, Mr. Bully.
 Remember me?
 I forgave you.
-But you denied me.
+...But you denied me.
 You put yourself on a pedestal.
-You treated me like I asked for weird favors from me.
+You treated me like I asked for weird favors of you.
 Hello. Mr. Bully.
 You are part of a church of with Celebrities.
 And I am never enough, never competitive enough.
 Thank you for provoking me.
-I watch on the selfies online.
+I see all the selfies online.
 I watch all the Celebrities.
 
 ## What is something you have dreamed about? ##
