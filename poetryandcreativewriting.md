@@ -41,6 +41,14 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
+Some individuals at EVERFI acted as signficcant mentors tome. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when yougner men have reacted out to ask about data science.
+
+## You have a child and you have written on piece of advice that will be carried in his/her pocket for life. What is that advice? ##
+There is a child within you first. she is innocent, free, light-hearted, and joyful. She has a good sense of humor, and she's quick to get back up and try new things. She loves to sing, and play music, and play with little ones. she also loves the sound of children playing.
+
+For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
+
 ## Bullying ##
 Hello, Mr. Bully
 Remember me?
