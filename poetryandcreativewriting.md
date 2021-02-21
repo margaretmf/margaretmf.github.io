@@ -41,6 +41,20 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## What historical figure would you like to interview? What would you ask? ##
+W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interview. I would love to learn more about their experiences as African Americans in the old American country. 
+
+* What were your greatest challenges?
+* How did you overcome these challenges?
+* What did you discover in relation to white people?
+* What were your hopes for the next generations of Black folks?
+* Did you believe in God? How did God communicate to you?
+* What was some interesting are people in your generation of Black folk created?
+* What did you enjoy about writing?
+
+## Have you done any research into your ancestors? What interesting surprises have you discovered? ##
+Through my grandmother, and my intuition underly someone's country music on "Going South", I discovered surprises about my ancestor, Dar. Thomas Walker, who discovered the Cumberland Gap. He surveyed the land, led the country West, and explored Kentucky before Daniel Boone. With the Indians as guides, they passed through the native land and discovered the birth of America.
+
 ## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
 Some individuals at EVERFI acted as signficcant mentors tome. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when yougner men have reacted out to ask about data science.
 
