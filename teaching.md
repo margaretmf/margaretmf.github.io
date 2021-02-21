@@ -38,6 +38,21 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 ----------
 
 
+## Logos, Ethos, and Pathos ##
+* Logos - appeal to reason
+* Ethos - appeal based on the character and authority of the author
+* Pathos - appeal based on emotions
+* Analysis of Word Choice (powerful, connotative words; discuss annotations with these words that strengthen his appeal)
+* Repetition (what he is emphasizing)
+* Use of Contrast (to make an idea clearer through balancing opposites)
+* Dialogue (what he/another character is thinking or feeling)
+* Imagery or Metaphor (which senses these images appeal to)
+* Questions (what he wants us to ask ourselves), or any other technique you discover
+
+
+----------
+
+
 ## Index of Templates from *They Say/I Say: The Moves That Matter in Academic Writing* by Graff and Birkenstein ##
 ### Introducing What 'They Say' ###
 * A number of presidential hopefuls have recently suggested that X's work on poverty has several fundmanetal problems.
