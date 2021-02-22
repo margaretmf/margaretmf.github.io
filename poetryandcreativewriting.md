@@ -65,6 +65,9 @@ There is a child within you first. She is innocent, free, light-hearted, and joy
 
 For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
 
+## Write about the last time you felt guilty. ##
+Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mea because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awfu. I move on to new, and healthier relationships.
+
 ## What is something you have dreamed about? ##
 This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
 
