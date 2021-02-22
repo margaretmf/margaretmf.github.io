@@ -118,6 +118,7 @@ Margaret
 * Grateful for the man singing with the Consortium in Memphis
 * Gratitude for Muslim prayers 
 * Gratitude for the world history teacher at Norfolk Academy
+* Grateful for the sound of the dishwasher
 
 ## What Can America Achieve? Diamante Poems ##
 Despair,
@@ -154,6 +155,19 @@ And I am never enough, never competitive enough.
 Thank you for provoking me.
 I see all the selfies online.
 I watch all the Celebrities.
+
+...Don't worry....
+I fought back.
+I retaliated.
+I sent images of guns.
+I became a bully back.
+I became passive aggressive out of anger.
+I started harassing people.
+
+...But Child, seriously...
+The correct approach is to stop the bullying,
+Let people speak up for themselves,
+Be more patient, observant, and considerate.
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
