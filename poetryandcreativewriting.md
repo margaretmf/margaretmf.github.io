@@ -57,6 +57,9 @@ W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interv
 ## Have you done any research into your ancestors? What interesting surprises have you discovered? ##
 Through my grandmother, and my intuition underly someone's country music on "Going South", I discovered surprises about my ancestor, Dr. Thomas Walker, who discovered the Cumberland Gap. He surveyed the land, led the country West, and explored Kentucky before Daniel Boone. With the Indians as guides, they passed through the native land and discovered the birth of America.
 
+## Are there any lines that you simply will not cross? ##
+Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil of threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
+
 ## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
 Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
 
