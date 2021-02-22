@@ -139,6 +139,23 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Control the documents, and list the facts. Start and end always with claims and analysis.
 * Conclude with the "so what?" issue, and lead educated, informed citizens to continue to think about the issue at hand.
 
+## Shades of Gray ##
+* Do not think of black and white.
+* Think in shades of gray. Complexity. "It might mean this; it might mean that."
+* "While Fitzgerald associates Tom primarily with the color red to imply anger and defensiveness, Fitzgeral also employes white imagery to ironically imply Tom's corrupion due to his racism and hypocrisy."
+* One Body Paragraph, Three Strong Examples, the same color
+
+## Parts of Speech ##
+* Compound sentence
+* Complex sentence
+* Compound-complex sentence
+* Brief simple sentence for emphasis
+* Begin with an infinitive
+* Begin with a gerund
+* Begin with a participle phrase
+* Include a nominative absolute
+* Use a semicolon effectively
+
 
 ----------
 
