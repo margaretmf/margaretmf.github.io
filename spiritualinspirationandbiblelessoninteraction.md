@@ -54,7 +54,7 @@
 
 "Only by losing the false sense of Soul can we gain the eternal understanding of Life as immortality brought to light."
 
-* Spiritual sense - conscioius
+* Spiritual sense - conscious
 
 "Spiritual sense is a conscious, constant capacity to understand God."
 
@@ -89,7 +89,7 @@
 
 * the works of the Lord are great
 
-"The works of the Lrod are great, sought out of all them that have pleasure therein."
+"The works of the Lord are great, sought out of all them that have pleasure therein."
 
 * wonderful works, gracious Lord
 
@@ -106,7 +106,7 @@
 
 * Revelation
 
-"But God hath revealed them untu us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God."
+"But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God."
 
 * the Holy Ghost teacheth
 
@@ -169,7 +169,7 @@ The Scriptures imply that God is All-in-all."
 
 * praise the Lord
 
-"praise the Lord for his goodness, and for hisw onderful works"
+"praise the Lord for his goodness, and for his wonderful works"
 "he satisfieth the longing soul"
 he "filleth the hungry soul with goodness"
 "He broughout them out of darkness and the shadow of death, and brake their bands in sunder"
@@ -229,7 +229,7 @@ Behold, there come seve years of great plenty throughout all the land of Egypt: 
 
 * "the land of Egypt", "the spirit of God"
 
-* Foresight, Ancient Prophents - Spiritual, Incorporeal Standpoint
+* Foresight, Ancient Prophets - Spiritual, Incorporeal Standpoint
 
 "The anceint prophets gained their foresight from a spiritual, incorporeal standpoint, not by foreshadowing evil and mistaking fact for fiction"
 
@@ -247,7 +247,7 @@ Behold, there come seve years of great plenty throughout all the land of Egypt: 
 
 * Spirit, the Ego, never dreams, understands all
 
-"Spirit is the Ego which never dreams, but understands all things; which never errs, and is ever conscious; which never believes, but knows; whichi s never born and never dies. Spiritual man is the likeness of this Ego."
+"Spirit is the Ego which never dreams, but understands all things; which never errs, and is ever conscious; which never believes, but knows; which is never born and never dies. Spiritual man is the likeness of this Ego."
 
 * knowing the human need, discernment
 
@@ -291,7 +291,7 @@ marvel
 
 * bear witness to Truth
 
-"If Spirit or the pwoer of divine Love bear witness to the truth, this is the ultimatum, the scientific way, and the healing is instantaneous."
+"If Spirit or the power of divine Love bear witness to the truth, this is the ultimatum, the scientific way, and the healing is instantaneous."
 
 ## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
 
