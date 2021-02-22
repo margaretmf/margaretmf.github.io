@@ -169,6 +169,20 @@ The correct approach is to stop the bullying,
 Let people speak up for themselves,
 Be more patient, observant, and considerate.
 
+## Americana ##
+I'm sure you, 
+someone with far HIGHER IQ,
+just watched from your high-standing pedestal 
+the joke
+on a woman 
+supposed to be a blonde-haired Southern Virgin
+understand 
+the social, cultural, and political nuances 
+of 
+Confederate flags, Cowboy boots, and Americana Music like Grateful Dead that my dad listens to far too late
+I am sure it is really funny for onlookers to be known as a heartbreaking cowgirl, a damsel in distress to people who reminded me of my great grandfather who worked in the lumber industry
+I think I grew up with aspergers, process things slowly, and catch on to things way too late
+
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
 I sing with the stars above, where everyone has a place.
