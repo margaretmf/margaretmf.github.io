@@ -49,9 +49,9 @@ W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interv
 * What were your greatest challenges?
 * How did you overcome these challenges?
 * What did you discover in relation to white people?
-* What were your hopes for the next generations of Black folks?
+* What were your hopes for the next generations of African Americans?
 * Did you believe in God? How did God communicate to you?
-* What was some interesting are people in your generation of Black folk created?
+* What was some interesting are people in your generation of African Americans?
 * What did you enjoy about writing?
 
 ## Have you done any research into your ancestors? What interesting surprises have you discovered? ##
@@ -103,6 +103,14 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Grandparents ##
+I remember all the stories my grandparents shared.
+The stories they shared sing through me intuitively.
+I recall them like a piece of music breathing through me.
+I love the Good Lord first thing in the morning when the sun rises, the birds chirp, and there's time to eat blueberry muffins.
+I love the song of the South singing through the lumber industry and the railroads in Memphis.
+
+
 ## Gratitude List ##
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
 * Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
@@ -156,18 +164,6 @@ Thank you for provoking me.
 I see all the selfies online.
 I watch all the Celebrities.
 
-...Don't worry....
-I fought back.
-I retaliated.
-I sent images of guns.
-I became a bully back.
-I became passive aggressive out of anger.
-I started harassing people.
-
-...But Child, seriously...
-The correct approach is to stop the bullying,
-Let people speak up for themselves,
-Be more patient, observant, and considerate.
 
 ## Americana ##
 I'm sure you, 
