@@ -175,6 +175,10 @@ popular culture. Handlin, an architect and teacher, begins with the Colonial per
 
 Thus it is crucial that the technical ingenuity and industrial heritage of the American lumber industry is preserved before all remains are relegated to a museum and replaced by new technology. While the production of modern engineered wood products has created a niche market within the industry, new modified and augmented lumber released each year slowly replace their predecessors that contain only wood. Historians, documentarians and preservationists must soon act to record this stalwart of American manufacturing before the lumber industry ceases to exist altogether."
 
+
+----------
+
+
 ## [Trucking and Automation](https://www.usatoday.com/story/opinion/2017/06/20/rigged-system-rips-off-port-truckers-editorials-debates/103015290/) ##
 "Many U.S. consumers care deeply about the way their products are made. Some insist on buying American; others press corporations for codes of conduct that forbid sweatshops in foreign lands.
 
@@ -518,6 +522,103 @@ The Confederate stars and bars is a symbol of pride to many in the South, to be 
 
 
 ----------
+
+
+## [150 Years Ago, The Homestead Act Transformed the West] ##
+"All across forests of the West, 10-by-12-foot cabins stand forlorn and forgotten, many with tumbledown roofs and gaping doors. Yet these modest homesteads represent a revolution in public-land policy: They were the culmination of an American dream born of Thomas Jefferson’s belief that at our best, we would become a nation of independent farmers.
+
+This year marks the 150th anniversary of the fruit of Jefferson’s conviction -- the 1862 Homestead Act. The federal law changed the West forever by providing a new start for urban emigrants, immigrant families and single women.
+
+Passed by Congress in 1862, during the Civil War, the Homestead Act celebrates one of the great settlement opportunities in world history. Only a young, brawny nation like the United States would be able, or willing, to give away free land.
+
+Congress realized Jefferson’s dream when it voted to provide 160 acres, a quarter section, of free land, for anyone willing to live on it for five years, plant crops and build a cabin 10 by 12 feet in size to “prove up” their claim. In the American West, 57 percent of homesteaders made good on their claims for 600,000 patents on 80 million acres of what had been public domain.  The lure of free land drew American emigrants in covered wagons as well as European immigrants who crossed oceans and took railroads west.
+
+Blake Bell, historian at the Homestead National Monument of America in Nebraska, notes that the Homestead Act “transformed the United States and the world as millions of lives were forever impacted by the government’s distribution of free land.”
+
+A remarkable feature of this uniquely American law was its openness. The law did not require that homesteaders be American citizens, or even that homesteaders be men. Any adult could take up free land in the West, and dozens of single mothers tried their hand at homesteading.
+
+The Homestead Act became wildly popular, and over the decades different versions of the law would be passed, such as the Timber Culture Act (1873), the Desert Land Act (1877), the Enlarged Homestead Act of 1909, a stock-grazer’s law where ranchers could own the surface but the federal government kept the minerals, and even a special homestead law for World War I veterans. Between 1862 and 1934, when the Taylor Grazing Act greatly diminished homesteading, 4 million land grants averaging 160 acres were made in 30 states.
+
+Of course, fraud flourished.  Conniving ranchers sent their cowboys to homestead key springs and land along creeks. Tales are told of homesteaders swearing on the Bible that they had built a 10-by-12 cabin, without admitting that it was only 10-by-12 inches. Brothers sought adjoining claims and built one cabin straddling 320 acres instead of separate cabins on 160 acres.
+
+Most of the homesteads have long since been incorporated into larger farms or ranches. So it was exciting to find a family that still owns its ancestors’ original homestead of 160 acres, no more, no less. The land is located in the Wet Mountain Valley of Colorado, against the east side of the rugged Sangre de Cristo Mountains.
+
+Named a Colorado Centennial Farm, it represents five generations of consecutive family ownership since Moritz and Matilde Brandenburg homesteaded the ground in 1880. Their land patent was signed by President Chester A. Arthur. Great-great-grandson John Brandenburg explained, “The ground here was like it was in Germany -- loamy soil. It was tough times to homestead. My parents almost lost the place during the Depression in the 1930s, when you couldn’t find a dollar.”
+
+But while thousands of homestead families sold their claims and moved away, the Brandenburgs hung on. Now the land is under a conservation easement held by the San Isabel Land Protection Trust, which safeguards sweeping views of the Sangre de Cristo Range, white now with the first snows.  Brandenburg and his son, Ken, hope to keep their property in the family. As Ken says, “It’s our refuge.”
+
+I grew up on a former homestead of 160 acres in southeast Colorado, attending high school on the High Plains, the short-grass prairie of songbirds, raptors, jackrabbits and grama grass. It was a place of vastness where I had a view as far as the eye could see.
+
+The homesteading legacy that peopled the West endures. Though forlorn cabins, roofless against winter winds, stand empty today, those simple structures represent success for families starting fresh, thanks to the key law that settled the West."
+
+
+## [The Homestead Act](Homestead Act: Primary Documents in American History) ##
+"Enacted in 1862, the Homestead Act encouraged Western migration by offering settlers 160 acres of public land. This guide compiles Library of Congress digital materials, external websites, and a print bibliography."
+
+"Signed into law by President Abraham Lincoln on May 20, 1862, the Homestead Act encouraged Western migration by providing settlers 160 acres of public land. In exchange, homesteaders paid a small filing fee and were required to complete five years of continuous residence before receiving ownership of the land. After six months of residency, homesteaders also had the option of purchasing the land from the government for $1.25 per acre. The Homestead Act led to the distribution of 80 million acres of public land by 1900."
+
+"President Abraham Lincoln’s signing of the Homestead Act on May 20, 1862 granted Americans 160-acre plots of public land for the price a small filing fee. The Civil War-era act, considered one of the United States’ most important pieces of legislation, led to Western expansion and allowed citizens of all walks of life—including former slaves, women and immigrants—to become landowners."
+
+
+"In a July 4, 1861 speech, Lincoln told the nation the purpose of America’s government was "to elevate the condition of men, to lift artificial burdens from all shoulders and to give everyone an unfettered start and a fair chance in the race of life." He followed through with the passage of the Homestead Act, which remained active for 124 years until it was repealed in 1976, and resulted in 10 percent of U.S. land—or 270 million acres—to be claimed and settled.
+
+The incentive to move and settled on western territory was open to all U.S. citizens, or intended citizens, and resulted in 4 million homestead claims, although 1.6 million deeds in 30 states were actually officially obtained. Montana, followed by North Dakota, Colorado and Nebraska had the most successful claims. Native Americans were forced from their lands and onto reservations to make way for homesteaders.
+
+During a speech made in Ohio in February 1861, Lincoln said the act was “worthy of consideration, and that the wild lands of the country should be distributed so that every man should have the means and opportunity of benefiting his condition."
+
+
+"Of course, there were those who took advantage of homesteading. According to the National Archives, a limited number of farmers and laborers could afford to build a farm, which included access to tools, crops, livestock and more.
+
+“In the end, most of those who purchased land under the act came from areas quite close to their new homesteads (Iowans moved to Nebraska, Minnesotans to South Dakota, and so on),” the agency states. “Unfortunately, the act was framed so ambiguously that it seemed to invite fraud, and early modifications by Congress only compounded the problem. Most of the land went to speculators, cattlemen, miners, lumbermen, and railroads.”"
+
+
+"Americans hold a certain image of the West and Great Plains: a vague concoction of pioneers in covered wagons, hardworking, honest farmers, and, of course, Little House on the Prairie. The Homestead Act (1862) garnered widespread interest in settling the U.S. West; it created the impression that anyone willing to work hard could eke out a living on their own property. Self-fashioned pioneers streamed over the prairie’s overland trails in an attempt to forge their own success on the frontier."
+
+
+"Signed into law by President Abraham Lincoln in 1862 during the Civil War, the Homestead Act was the most comprehensive land distribution bill passed in the nineteenth century. Prior to the act, the U.S. government auctioned or sold public land in large lots that ordinary citizens could not afford to buy or manage. The Homestead Act ambitiously shifted land ownership and development towards average American citizens."
+
+
+"During the Civil War Abraham Lincoln and his Republican majority passed a series of bills intended to develop the United States West, taking advantage of the fact that there was little competition after the South left Congress. These laws had been stymied during the Antebellum sectional crisis due to the issue of slavery in Western territories."
+
+
+"The Homestead Act of 1862 stated that any current or future citizen, with a mere ten dollars, could claim a homestead of up to 160 acres of government land, and “improve” the land by putting it to use as a family plot. This meant erecting a dwelling and farming the soil for a period of five years. If the claimant did so for the allotted period, they could then gain ownership of their land free of charge. The act did not define what it meant to be the “head of a family,” save for an age restriction of twenty-one years if a single individual sought land, which made the Act egalitarian; it allowed African Americans, persecuted and famine-struck immigrants, and even women a chance to find freedom and success in the West. Although many of these settlers were not successful (due in part to expanding industrialization and the harsh climate of the Plains), the Homestead Act endured as the driving force for many Americans and immigrants seeking the “American dream,” as well as in exacerbating the strained relationship between the individual farmer and railroad companies who owned the majority of Western territory."
+
+
+"Kansas: The Land of Promise for African Americans
+In the Reconstruction South during the 1870s, volatile racism pushed former black slaves to seek refuge in the Midwest. Many took advantage of the Homestead Act as an opportunity to manage their own households through subsistence farming while forging new lives in the Midwest. The Homestead Act did not ask for an applicant’s race (it was assumed, at the time, applicants would all be white), so in order for historians to find African American homesteading family records in the National Archives, they must triangulate them with other sources."
+
+
+"Exclusively Black Settlements
+Several exclusively black settlements began to emerge in Kansas after the Homestead Act. The most well-known was a town called Nicodermus, established in 1877. Founded by land prospector W.R. Hill and advertised by black minister W.R. Smith to black communities throughout the south, the town steadily increased in size, and by 1880 over 100 people had settled there. As African Americans slowly became disheartened and disillusioned by the difficulty of homesteading, migration numbers tapered off. However, between the years of 1869 and 1879, 27,000 blacks moved to Kansas, and though few found the success they had been hoping for, a considerable number stayed, finding it a better alternative to the South. 10 An 1879 issue of the Topeka Colored Citizen stated: “Our advice…to the people of the South, Come West, Come to Kansas…in order that you may be free from the persecution of the rebels. If blacks come here and starve, all well. It is better to starve to death in Kansas than to be shot and killed in the South.” (24:41) In the end, the challenges of African American homesteaders mirrored those of other settlers: some persevered and stayed, while others went into debt and left, discouraged by an Act that they had hoped would bring them prosperity or, at the very least, a small pocket of land and a home to call their own."
+
+
+## Lewis and Clark Expedition]()
+"The Lewis and Clark Expedition began in 1804, when President Thomas Jefferson tasked Meriwether Lewis with exploring lands west of the Mississippi River that comprised the Louisiana Purchase. Lewis chose William Clark as his co-leader for the mission. The excursion lasted over two years: Along the way they confronted harsh weather, unforgiving terrain, treacherous waters, injuries, starvation, disease and both friendly and hostile Native Americans. Nevertheless, the approximately 8,000-mile journey was deemed a huge success and provided new geographic, ecological and social information about previously uncharted areas of North America."
+
+"Most of the land Lewis and Clark surveyed was already occupied by Native Americans. In fact, the Corps encountered around 50 Native American tribes including the Shoshone, the Mandan, the Minitari, the Blackfeet, the Chinook and the Sioux.
+
+Lewis and Clark developed a first contact protocol for meeting new tribes. They bartered goods and presented the tribe’s leader with a Jefferson Indian Peace Medal, a coin engraved with the image of Thomas Jefferson on one side and an image of two hands clasped beneath a tomahawk and a peace pipe with the inscription, “Peace and Friendship” on the other.
+
+They also told the Indians that America owned their land and offered military protection in exchange for peace.
+
+Some Indians had met “white men” before and were friendly and open to trade. Others were wary of Lewis and Clark and their intentions and were openly hostile, though seldom violent.
+
+In August, Lewis and Clark held peaceful Indian councils with the Odo, near present-day Council Bluffs, Iowa, and the Yankton Sioux at present-day Yankton, South Dakota."
+
+"They crossed through Montana and made their way to the Continental Divide via Lemhi Pass where, with Sacagawea’s help, they purchased horses from the Shoshone. While there, Sacagawea reunited with her brother Cameahwait, who hadn’t seen her since she was kidnapped."
+
+"Lewis’ group took a shortcut north to the Great Falls of the Missouri River and explored Marias River—a tributary of the Missouri in present-day Montana—while Clark’s group, including Sacagawea and her family, went south along the Yellowstone River. The two groups planned to rendezvous where the Yellowstone and Missouri met in North Dakota."
+
+
+"Lewis and Clark returned to Washington, D.C., in the fall of 1806 and shared their experiences with President Jefferson.
+
+While they had failed to identify a coveted Northwest Passage water route across the continent, they had completed their mission of surveying the Louisiana Territory from the Mississippi River to the Pacific Ocean, and did so against tremendous odds with just one death and little violence.
+
+The Corps had traveled more than 8,000 miles, produced invaluable maps and geographical information, identified at least 120 animal specimens and 200 botanical samples and initiated peaceful relations with dozens of Native American tribes.
+
+Both Lewis and Clark received double pay and 1,600 acres of land for their efforts. Lewis was made Governor of the Louisiana Territory and Clark was appointed Brigadier General of Militia for Louisiana Territory and a federal Indian Agent.
+
+Clark remained well-respected and lived a successful life. Lewis, however, was not an effective governor and drank too much. He never married or had children and died in 1809 of two gunshot wounds, possibly self-inflicted. A few years later, Sacagawea died, and Clark became her children’s guardian."
 
 
 ## [New Frontiers: South and West](https://wwnorton.com/college/history/archive/resources/documents/ch19_01.htm) ##
