@@ -164,6 +164,9 @@ Thank you for provoking me.
 I see all the selfies online.
 I watch all the Celebrities.
 
+...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people.
+
+...But Child, seriously... The correct approach is to stop the bullying, Let people speak up for themselves, Be more patient, observant, and considerate.
 
 ## Americana ##
 I'm sure you, 
