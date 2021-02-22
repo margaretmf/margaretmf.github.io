@@ -73,7 +73,7 @@ In the past, I have listened to music by Al Green and appreciated the African Am
 ## Do you prefer taking risks or having a safety net? ##
 Having a net to fall back on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, i drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
 
-## What is the best thing. you have ever been given? ##
+## What is the best thing you have ever been given? ##
 While roaming the streets of Wahington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
 
 ## Diary Entry - 10 Years in the Future ##
