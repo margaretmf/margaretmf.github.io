@@ -128,6 +128,9 @@ I love the song of the South singing through the lumber industry and the railroa
 * Gratitude for the world history teacher at Norfolk Academy
 * Grateful for the sound of the dishwasher
 
+## Interracial Couples ##
+The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
+
 ## What Can America Achieve? Diamante Poems ##
 Despair,
 enormous, steep,
@@ -331,7 +334,7 @@ The traumatic memories of a past of enslavement have still come up, waiting to b
 Land and economy are part of the South, but land and economy expand to the North and the West.
 
 ## The Virginia Flag ##
-Such a beautiful blue symbol, representing freedom from tyrann and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
+Such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
 
 ## The External and Internal Oppressor ##
 People condemn resentment, and anger for oppression or bad treatment.
