@@ -494,6 +494,9 @@ The Confederate stars and bars is a symbol of pride to many in the South, to be 
  It’s a loaded symbol, and to many it’s genuinely fearsome, representing not only slavery, but those who would assert white supremacy today."
  
  “The Confederate flag is a symbol of the hate, oppression, and enslavement of African Americans. It was flown over states that committed treason and started a war — so that they could keep enslaving people. Hundreds of thousands were slaughtered in this fight over whether the nation should allow slavery or end it. Abraham Lincoln’s assassin was a disciple of the Confederacy. In short, the Confederate flag symbolizes slavery and the rebellion against the United States, and it is exactly what our state’s greatest son, President Lincoln, was fighting against. This symbol of hate, oppression, and bloodshed is categorically different from political satire.”
+ 
+ 
+ ## [Railroad Songs and Ballads](https://www.loc.gov/folklife/LP/AFS_L61_opt.pdf) ##
 
 
 ----------
