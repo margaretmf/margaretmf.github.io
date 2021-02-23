@@ -60,6 +60,9 @@ Through my grandmother, and my intuition underly someone's country music on "Goi
 ## Are there any lines that you simply will not cross? ##
 Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil of threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
 
+## What would you like to be forgiven for? ##
+When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loved that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
+
 ## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
 Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
 
@@ -1185,7 +1188,23 @@ Both Whitman and Dicksinon use their poetry as a device to explore themselves as
 
 While both poets explore themselves in their poems, Whitman's view on himself differs from Dickinson's view of herself; they reveal their view of themselves not only through their word choice, but also through their syntax, meter, and tone. By giving a celebratory tone in his opening. 'I celebrate myself, and sing myself', Whitman describes his satisfaction as an individual to the reader (line 1, Whitman). He continues to give a sense of pride and freedom when he writes, 'I loafe and invite my soul'; he feels confident in letting his soul free (line 4, Whitman). Dickinson, on the other hand, represents a negative tone when she exclaims taht she '[is] a Nobody!'; she does not yet feel content with herself as a unique indidvidual (line 1, Dickinson). Unlike Whitman's expressing a friendly tone when he reassures the reader that 'every atom belonging to me as good belongs to [him]', Dickinson exclaims, 'how dreary - to be - Somebody!', giving a critical tone (line 5, Dickinson). By using dashes to split up her sentence, Dickinson also expresses jealousy when she uses this critical tone. Through their differing styles, they also show their view of their self. Whitman's poetry has no meter but forms rhythm through his lists and wording. Using the seventeen-syllable phrase that contains rhythm, 'I harbor for good or bad, I permit to speak at every hazard', Whitman uses a free and extensive style, representing his confident self (line 11, Whitman). Whitman also utilizes an idiom and a longer, more detailed phrase, 'Born here of parents born here from parents the same' (line 7, Whitman). By writing long, detailed phrases liek this one, he portrays an extensive and free self. Dickinson, however, portrays dissatisfaction with the self by using a restrictive style with iambic meter and a more restrained pattern in the number of syllables. Dickinson writes simpler sentences and shorter lines with six-eight syllables. In one of her longest lines of eight syllables, she writes two sentences - a two-word sentence and a four-word sentence, 'Don't tell! they'd adertise-you know!', DIckinson reveals a dissatisifed and restrained self (line 6, Dickinson).
 
-As the two poets, Whitman and Dickinson went through life writing poetry and exploring themselves, it led to the publications of poetry about the self. Although they both search and discover about the self in their poems, their different mehtods including Whitman's extensive style and Dickinson's restrictive style reflect the overall philosophy and personality of the poets. Extending recognition to all individuals, Whitman grew up interested in the 'One existing throughout the Many' and promoted both himself and all unique persons ins ociety. Dickinson's growing up as a reclusive and skeptical woman can explain her style and tone in 'I'm Nobody!'. Because Whitman and Dickinson ahve different personal beliefs, they utilize different methods, and styles which reflect their selves.
+As the two poets, Whitman and Dickinson went through life writing poetry and exploring themselves, it led to the publications of poetry about the self. Although they both search and discover about the self in their poems, their different mehtods including Whitman's extensive style and Dickinson's restrictive style reflect the overall philosophy and personality of the poets. Extending recognition to all individuals, Whitman grew up interested in the 'One existing throughout the Many' and promoted both himself and all unique persons in society. Dickinson's growing up as a reclusive and skeptical woman can explain her style and tone in 'I'm Nobody!'. Because Whitman and Dickinson ahve different personal beliefs, they utilize different methods, and styles which reflect their selves.
+
+## "The New Colossus" ##
+"It is not like the impudent and bold giant of Greek fame
+Who conquers many lands with strength;
+On our newly founda nd open gates shall stand 
+A mighty and bravew oman holding a torch
+With confined flames, and her name is
+The Mother of Exiles. From her guiding and fixed hand
+She gives a world-wide welcome; her gentle eyes direct
+That this harbor frames.
+'Continue to display the important stories of your old lands!'
+SHe cries with a shut mouth. 'I welcome your country's 
+Poor and hardworking, your people that desire freedom,
+And the unaccepted of yoru land.
+These homeless people shall be sent to me,
+For I use my lamp to guide them through!'"
 
 <br>
 
