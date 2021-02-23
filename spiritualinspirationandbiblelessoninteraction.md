@@ -95,6 +95,119 @@
 
 "He hath made his wonderful works to be remembered: the Lord is gracious and full of compassion."
 
+* Science of being - reveals man as perfect
+
+"The Science of being reveals man as perfect, even as the Father is perfect, because the Soul, or Mind, of the spiritual man is God, the divine Principle of all being, and because this real man is governed by SOul instead of sense, by the law of Spirit, not by the so-called laws of matter."
+
+* False estimates of soul
+
+"false estimates of soul as dwelling in sense and of mind as dwelling in matter"
+"belief strays into a sense of temporary loss or absence of soul, spiritual truth"
+"This state of error is the mroal dream of life and substance as existent in matter, and is directly opposite to the immortal reality of being."
+
+* the Science of being
+
+"the law of Life to man"
+"even the higher law of Soul, which prevails over material sense through harmony and immortality"
+
+* definition of man
+
+"harmonious and immortal man has, existed forever, and is always beyond and above the mortal illusion of any life, substance, and intelligence as existent in matter"
+
+* Soul, infinite resources
+
+"Soul has infinite resources with which to bless mankind, and happiness would be more readily attained and would be more secure in our keeping, if sought in Soul."
+
+* greatly rejoice in the Lord
+
+"I will greatly rejoice in the Lord, my soul shall be joyful in my God"
+"the garments of salvation"
+"the robe of righteousness"
+"a bridegroom"
+
+* Abraham, the Lord, the God of heaven, the God of the earth, the Canaanite, kindred, son Isaac
+* the servant, the goods, his master, Mesopotamia, city of Nahor
+
+"And he said, O lord God of my master Abraham, I pray thee, send me good speed this day, and shew kindness unto my master Abraham."
+"shewed kindness unto my master"
+
+Rebekah, Bethuel, Milcah, the wife of Nahor, Abraham's brother, with her pitcher upon her shoulder
+
+"Drink, my Lord"
+
+* Blessed be the Lord God of Abraham
+
+"Blessed be the Lord God of my master Abraham, who hath not left destitute my master and his truth: I being in the way, the Lord led me to the house of my master's brethren."
+
+* Marriage, God joining together
+
+"What therefore God hath joined together, let not man put asunder."
+
+* Bride, and bridgeroom. Spiritual understanding.
+
+"Bride. Purity and innocence, conceiving man in the idea of God; a sense of Soul, which has spiritual bliss and enjos but cannot suffer."
+"Bridegroom. Spiritual understanding; the pure consciousness that God, the divine Principle, creates man as His own spiritual idea, and that God is the only creative power."
+
+"Marriage is the legal and moral provision for generation among human kind. Until the spiritual creation is discerned intact, is apprehended and understood, and His kingdom is come as in the vision of the Apocalypse, - where the corporeal sense of creation was cast out, and its spiritual sense was revealed from heaven, - marriage will continue, subject to such moral regulations as will secure increasing virtue."
+
+* Unselfish ambition, noble life-motives, purity
+
+"Unself ambition, noble life-motives, and purity, - these constitutents of thought, mingling, constitute individually and collectively true happiness,s trenght, and permanence. There is moral freedom in Soul."
+
+* tender solicitude, happiness, mutual attention, approbation, married life
+
+"Fulfilling the different demands of their united spheres, their sympathies should blend in sweet confidence and cheer,e ach partner sustaining the other, - thus hallowing the union of interests and affections, in which the heart finds peace and home."
+
+"Marriage should signify a union of hearts."
+
+* seek the Lord your God
+
+"Now set your heart and your soul to seek the Lord your God;"
+
+the misery, the waters, passing away
+"be clearer"
+"the noonday"
+"shine forth"
+"the morning"
+
+* spirit of peace, power, love, sound mind
+
+"For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind."
+
+* divine Mind, the soul of Man, dominion over all things
+
+"The divine Mind is the Soul of man, and gives man dominion over all things."
+
+* Soul is individualized
+
+"Soul is the substance, Life, and intelligence of man, which is individualized, but not in matter."
+
+* In Science, eternal, perfect, harmonious in every action
+
+"In Science, all being is eternal, spiritual, perfect, harmonious in every action."
+
+* Mind, immortal; mortal body; mortal belief
+
+* Soul, Principle
+
+"Soul is not compassed by finiteness. Principle is not to be found in fragmentary ideas."
+
+* Temporary, Infinite
+
+"The material body and mind are temporal, but the realman is spiritual and eternal. The identity of the real man is not lost, but found through this explanaiton; for the consciousness infinitude of existence and of all identity is thereby discerned and remains unchanged. It is impossible that man should lsoe aught that is real, when God is all and eternally his."
+
+* Soul, cast down
+
+"Why art thou cast down, O my soul? and why art thou disquieted within me? hope thou in God: for I shall yet praise him, who is the health of my countenance, and my God."
+
+* God exalteth his power
+
+"magnify God's work"
+
+* the power of Spirit, Galilee
+
+"synagogues, being glorified of all"
+
 ## Week of February 1, 2020 - 'Spirit' - Inspiring Passages ##
 * The Lord's People
 
