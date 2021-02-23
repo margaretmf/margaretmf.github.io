@@ -59,7 +59,7 @@ Intellectual Disability and Mental Illness
 Aggressive Behavior
 * Someone's behavior can communicate an issue or need, and be a valuable source of information about their condition. The important thing is tot hink about what the behavior is telling you - how can you analyze the behavior and its possible causes or meanings?
 
-Aggressive, self-injurious behavior - a substitute for communication about psycholgoica symptoms, emotions, or other troublesome situations, like a health problem or pain
+Aggressive, self-injurious behavior - a substitute for communication about psychological symptoms, emotions, or other troublesome situations, like a health problem or pain
 
 Behavioral Presentation
 * Someone's level of intellectual disability has a significant impact on their expression of underlying emotional states or psychiatric symptoms.
@@ -387,6 +387,59 @@ Rebel stand
 ## [Southern White Patriarchy](https://www.researchgate.net/publication/335328771_Southern_White_Patriarchy) ##
 "The pedestal upon which southern white womanhood stands is buttressed by an equally sacred southern white masculinity characterized by a distorted notion of honor, a penchant for violence, and male righteousness and superiority. Thus, Second-Wave Feminism spurred not only a defiant anti-feminism with which many white southern men and women identified, but also a men’s rights campaign that portrayed men as victims of reverse discrimination and promoted a dominant and defensive masculinity that was very familiar to southern white audiences. This misogyny, along with a religious assertion of manhood that was popular in southern evangelical churches, provided Republicans with an opportunity to build their partisan brand among white southerners. Often masked by romanticized notions of chivalry, southern white masculinity depends upon a patriarchal system and the traditional gender roles inherent in that system. The GOP would appeal to both as it chased southern white voters throughout the Long Southern Strategy."
 
+## [Crying Shame: The Power of White Woman's Tears](https://www.smh.com.au/entertainment/books/crying-shame-the-power-of-white-women-s-tears-20190820-p52iy7.html) ## 
+"One of the earliest critiques of White Womanhood comes from one of the most underrated figures of the suffragette era. Frances Ellen Watkins Harper was a poet, journalist, fiction writer and a formidable presence on the abolitionist speakers’ circuit.
+
+In 1866 she gave a far-sighted speech at the 11th National Women’s Rights Convention in New York City before a crowd that included key suffragist figures Elizabeth Cady Stanton and Susan B. Anthony.
+
+'We are all bound up in one great bundle of humanity, and society can’t trample on the weakest and feeblest among its members without receiving the curse in its own soul,' she declared.
+
+You white women speak of rights, I speak of wrongs. I do not believe that giving white women the ballot is immediately going to cure all the ills of society. I do not believe that white women are dew-drops just exhaled from the skies.
+
+Harper argued the condition of poor white men in the South was a direct consequence of the law favouring rich slave-owners: in enslaving black men, white men paralysed the moral strength of the nation and the rights of lower-class whites. Likewise, in the cities of the North, white women were turning away when black women tried to hail streetcars only to find the conductor refused to let them ride.
+
+'Have women nothing to do with this? While there exists this brutal element in society which tramples upon the feeble and treads down the weak, I tell you that if there is any class of people who need to be lifted out of their airy nothings and selfishness, it is the white women of America.'
+
+The key, then, to white women’s liberation lay in whether or not they considered black women to be women like themselves, and in using this recognition as the first step in building a fairer society. Sadly, those white women didn’t and arguably many still don’t. Rather than rejecting the concept of white women as virtuous "dew-drops" inherently equipped to right the wrongs of their white male counterparts, white women have largely chosen to navigate and bolster the existing system to gain some advantages, which necessarily come at the expense of people of colour. And this has meant adopting the persona of the damsel in distress.
+
+Perhaps no story encapsulates this more clearly and tragically than that of Emmett Till. The 14-year-old from Chicago was visiting family in 1955 Mississippi when he was accused of whistling at a white woman, Carolyn Bryant. Abducted by a group of white men including Bryant’s husband, he was beaten to death and dumped in the Tallahassee River. His killers were acquitted by an all-white jury. In 2018, Bryant recanted her testimony, admitting Till had not harassed her in any way.
+
+This is the power of the white damsel in distress. It is a power that is not in the past.
+
+We see this modern-day dynamic of white women’s innocence and virtue used as a justification for the oppression of brown and black bodies in the rhetoric of our politicians. Last year, US President Donald Trump invoked the protection of women as a rationale for demonising the so-called 'migrant caravan' - the dehumanising name given to the thousands of people attempting to make their way from Central America to the US border in the hope of finding safety. He conjured up the image of the white damsel, saying, ‘Women want security. Women don’t want that caravan’, echoing the messages of slavery, segregation and more recent white supremacist literature.
+
+In 1997, sociologist Abby L. Ferber published White Man Falling, a discourse analysis of newsletters and magazines printed by white supremacist groups. What she found, along with a preoccupation with 'saving' Western civilisation and restoring the reputation of the white Western male, was an obsession with policing the bodies of white women and the borders of 'white' countries.
+
+'America is being invaded by a deluge of legal and illegal non-White intruders: swarms of Mexican, Puerto Rican, Negro, Oriental and Jewish scum who are thronging across our wide-open borders,' thundered one publication, arguing that this 'unarmed invasion' threatened the white race because of the possibility of white women 'crossbreeding with inferior specimens', which would lead to the end of the white race through the contamination of white blood with 'inferior blood'.
+
+The logic of policing racial boundaries is not new. It is the foundation that all settler-colonies were built on.
+
+'I am being harassed': Damsels in distress
+
+The white damsel has enjoyed an online resurgence in this era of viral memes, and the past couple of years have seen a proliferation of white women caught on camera in the United States calling the police on black people for simply existing.
+
+Perhaps no meme better exposes the dangerous fiction that lies at the heart of the white damsel in distress trope than 'BBQ Becky'. In this viral video, a middle-aged white woman can be seen on her mobile phone angrily requesting police show up to eject a black family barbecuing in a park. After many words of consternation between Becky and the white woman who is filming her, a defiant Becky refuses to return a business card belonging to the other woman and storms off.
+
+The camera follows her, and the transformation in Becky’s demeanour is remarkable to witness. In a matter of minutes, she goes from assertive to combative to aggressive to defiant, and finally, when she spots and rushes towards a bewildered-looking white male police officer, becomes the white damsel in distress. Bursting into tears when she reaches her apparent rescuer, she manages to heave out a few words between gulping sobs: 'I am being harassed.'
+
+This incident demonstrates that white women are not only aware of their privileged status in society but use it to surreptitiously manipulate and dominate people of colour, only to resort to the damsel in distress archetype of white female innocence and victimhood when challenged.
+
+The original damsel in distress trope was a way for white women to exercise some limited power. I say 'limited' not because it didn’t have far-reaching effects but because it required white women to adhere to strict rules to be accepted. The damsel is an infantilised woman whose purity and innocence is both inherent and sanctified, leading to her perceived reliance on men and to the obsession with virginity that persists even in a Western world that is supposedly sexually liberated.
+
+The damsel ensured white women were at least considered human, even though it relegated them to subordinate status. But it did so by ruthlessly excluding non-white women from the construction of womanhood. It is not that non-white women were considered inferior to white women: they were not considered to be women at all. The damsel can only be white.
+
+Only white women were considered worthy of protecting, because only white women could ensure the continuation of a 'pure white race'. Black women, Indigenous women, brown women: all colonised women were regarded as lacking in innocence because their bodies were already freely, openly and liberally transgressed by white men.
+
+When white women invoke the damsel, they resurrect this bloody history. This is what makes white women’s tears so damaging and, yes, so violent when they are turned against people of colour. White women’s tears have little effect on white men - just ask Christine Blasey Ford, whose emotional testimony was not enough to prevent her alleged abuser being confirmed to the US Supreme Court - because they were never designed to implicate white men. This is why sexual violence by white men was rarely punished historically and why to this day so many white people still react so blithely to sexual assault and domestic violence perpetrated by white men, even when the victims are white women. This is why a self-confessed 'pussy grabber' can be elected president of the United States.
+
+To be a white man in the white supremacist construction is to have the right to sexual access to all women, while at the same time sequestering the bodies of white women to prevent men of colour ingratiating themselves into white society.
+
+A white man raping a white woman is not a threat to white male power. If it threatens to destroy the woman’s life then so be it. This, I believe, is why despite all our claims our society still does not take violence against women seriously. When perpetrated by white men, frequently such violence is ignored or blame heaped onto the victim. It is only when white women are violated or even imagined to be violated by non-white men that white society suddenly seems to find its moral compass.
+
+This is not to say that men of colour never assault white women - they do - but the scale of the white fear of brown and black men raping innocent white women with no repercussions is a gross perversion of the historical reality. White fear betrays deep-seated anxieties about white men being "replaced" at the top of the racial and gender hierarchy and white society collapsing; I don’t mean the total destruction of society here - merely it no longer being solely in the control of white men and women.
+
+White people as a collective still fear sharing power and status. They fear no longer being the special race. The Enlightened race. The civilised and civilising race. This is obvious to anyone watching the rise of right-wing 'populism', the alt-right and the resurgence of neo-Nazis. Perhaps, as people of colour half-joke, white people fear being treated the way they have long treated the minorities they have subordinated. At the very least, there appears to be a complete denial that the only thing that has made white people 'superior' is their own insistence that they are."
+
 
 ----------
 
@@ -524,6 +577,11 @@ The Confederate stars and bars is a symbol of pride to many in the South, to be 
 ----------
 
 
+
+
+----------
+
+
 ## [150 Years Ago, The Homestead Act Transformed the West] ##
 "All across forests of the West, 10-by-12-foot cabins stand forlorn and forgotten, many with tumbledown roofs and gaping doors. Yet these modest homesteads represent a revolution in public-land policy: They were the culmination of an American dream born of Thomas Jefferson’s belief that at our best, we would become a nation of independent farmers.
 
@@ -592,7 +650,7 @@ In the Reconstruction South during the 1870s, volatile racism pushed former blac
 Several exclusively black settlements began to emerge in Kansas after the Homestead Act. The most well-known was a town called Nicodermus, established in 1877. Founded by land prospector W.R. Hill and advertised by black minister W.R. Smith to black communities throughout the south, the town steadily increased in size, and by 1880 over 100 people had settled there. As African Americans slowly became disheartened and disillusioned by the difficulty of homesteading, migration numbers tapered off. However, between the years of 1869 and 1879, 27,000 blacks moved to Kansas, and though few found the success they had been hoping for, a considerable number stayed, finding it a better alternative to the South. 10 An 1879 issue of the Topeka Colored Citizen stated: “Our advice…to the people of the South, Come West, Come to Kansas…in order that you may be free from the persecution of the rebels. If blacks come here and starve, all well. It is better to starve to death in Kansas than to be shot and killed in the South.” (24:41) In the end, the challenges of African American homesteaders mirrored those of other settlers: some persevered and stayed, while others went into debt and left, discouraged by an Act that they had hoped would bring them prosperity or, at the very least, a small pocket of land and a home to call their own."
 
 
-## Lewis and Clark Expedition]()
+## Lewis and Clark Expedition](https://www.history.com/topics/westward-expansion/lewis-and-clark) ##
 "The Lewis and Clark Expedition began in 1804, when President Thomas Jefferson tasked Meriwether Lewis with exploring lands west of the Mississippi River that comprised the Louisiana Purchase. Lewis chose William Clark as his co-leader for the mission. The excursion lasted over two years: Along the way they confronted harsh weather, unforgiving terrain, treacherous waters, injuries, starvation, disease and both friendly and hostile Native Americans. Nevertheless, the approximately 8,000-mile journey was deemed a huge success and provided new geographic, ecological and social information about previously uncharted areas of North America."
 
 "Most of the land Lewis and Clark surveyed was already occupied by Native Americans. In fact, the Corps encountered around 50 Native American tribes including the Shoshone, the Mandan, the Minitari, the Blackfeet, the Chinook and the Sioux.
