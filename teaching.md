@@ -63,9 +63,28 @@ Also. As. As well as. Both. In the same manner. In the same way. Like. Likewise.
 Although. But Differ. Even though. However. In contrast. Instead. Nevertheless. On the contrary. On the other hand. Unless. Unlike. While. Yet.
 
 ## Sentence Structure ##
-* One Complex, One Compound, One Compound-Complex Sentence.
-* To Be Verbs
-* A gerund, a participial phrase, an infinitive, and a nominative absolute
+* Complex Sentence
+* Compound Sentence
+* Compound-complex Sentence
+* Brief Simple Sentence
+* An infinitive, a gerund, a participle phrase, a nominative absolute, a semicolon effectively
+* To be verbs
+
+
+## Colors ##
+* Gray, somewhere between white (good) and black (evil). Security and reliability. Gloomy, depressing, bland, cold, cloudy, grey day.
+Elegance, humility, respect, reverence, stability, subtlety, wisdom, old age, anachronism, boredom, decay, decrepitude, dullness, dust, sex, entanglement, pollution, urban sprawl, strong emotions, balance, neutrality, mourning, formality, March.
+
+* White, the color that represents purity, neutraliy, sterility, and youth. Cleanliness or sterility. Medicine. Neutrality and surrender.
+Light, reverence, purity, truth, snow, peace, innocence, cleanliness, simplicity, security, humility, sterility, winter, coldness, sex, criticism, surrender, cowardice, fearfulness, unimaginative, air, death (Eastern cultures), life, marriage (Western cultures), hope, Aries, Pisces (star signs), bland, empty and unfriendly (interior), January (Winter).
+
+* Black, multi-dimesnional color. Classic or new. Ominous and death. Funerals. An air of intelligence (graduation robes), rebellion (the bad guy), mystery (space).
+Evil symbolism (complements the good in the world) and the popular color in all indstries. Absence, modernity, power, sophistication, formality, elegance, wealth, mystery, style, evil, death, fear, seriousness, conventionality, sex, rebellion, anarchism, unity, sorrow, life, rebirth (ancient Egypt), professionalism's, slimming quality (fashion), January (Northern Hempisphere only).
+
+* Red, and the heart beat. Intense, passionate, and invokes an inherent physiological response. The color of celebration and good luck (China), purity and integrity (India), mourning (South Africa) or communism.
+Bold, audacious, accent, and highlight. It's an integral part of human emotion. Passion, strength, energy, fire, love, sex, adcitement, speed, heat, arrogance, ambition, leadership, masculinity, power, danger, gaudiness, blood, war, anger, revolution, viva la revolucion (Che), radicalism, socialism, communism, aggression, summer, autum, stop, Mars (planet), respect, Aries (star sign), December, the ROman Catholic Church, martyrs, the Holy Spirit, conservatism (U.S. politics), radical/socialism (UK, European politics), wealth (China), marriage (India). Studies show that red can have a physical effect, increasing the rate of respiration and raising blood pressure; red also is said to make people hungry (McDonalds, Burgerville, corner cafe's); the red ruby is the traditional 40th wedding anniversary gift. Red is also the color of the devil in modern Western culture.
+
+* Blue
 
 
 ----------
