@@ -66,6 +66,9 @@ When feeling provoked or made fun of, I have lashed out or lost control. The las
 ## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
 Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
 
+## Describe the most beautiufl sound you have ever heard. ##
+The church bells ringing through my ears make me feel so good. I think them chiming are a beautiful sound. I love the sound of the trees moving with the breeze, and I find peace in the sound of the harmonious silence. There exists a power in silence. Beautiful sounds fill the Earth each and every day. Another one I love is the sound of children laughing from an apartment window.
+
 ## You have a child and you have written on piece of advice that will be carried in his/her pocket for life. What is that advice? ##
 There is a child within you first. She is innocent, free, light-hearted, and joyful. She has a good sense of humor, and she's quick to get back up and try new things. She loves to sing, and play music, and play with little ones. she also loves the sound of children playing.
 
