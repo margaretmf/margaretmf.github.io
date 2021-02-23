@@ -194,7 +194,7 @@ the misery, the waters, passing away
 
 * Temporary, Infinite
 
-"The material body and mind are temporal, but the realman is spiritual and eternal. The identity of the real man is not lost, but found through this explanaiton; for the consciousness infinitude of existence and of all identity is thereby discerned and remains unchanged. It is impossible that man should lsoe aught that is real, when God is all and eternally his."
+"The material body and mind are temporal, but the real man is spiritual and eternal. The identity of the real man is not lost, but found through this explanaiton; for the consciousness infinitude of existence and of all identity is thereby discerned and remains unchanged. It is impossible that man should lose aught that is real, when God is all and eternally his."
 
 * Soul, cast down
 
@@ -207,6 +207,89 @@ the misery, the waters, passing away
 * the power of Spirit, Galilee
 
 "synagogues, being glorified of all"
+
+* recognize Soul as substnatial
+
+"Do you say the time has not yet come in which to recognize Soul as substantial and able to control the body?"
+Jesus "demonstrated the power of Spirit"
+"'He that believeth on me, the works that I do shall he do also,' and who also said, 'But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth.'"
+
+* Truth, God's remedy
+
+"Truth is God's remedy for error of every kind, and Truth destorys only what is untrue."
+"Christ casts out evils."
+
+* the sick, the sinning receptive of Divine Science
+
+"elevates even mortal mind to the contemplation of something better than disease or sin. The true idea of God gives the true understanding of Life and Love, robs the grave of victory, takes away all sin and the delusion that there are other minds, and destroys mortality."
+
+* Mind, the master
+
+Divine Mind "the master of the corporeal senses"
+"conquers sickness, sin, and death"
+"Exercise this God-given authority. Take possession of your body, and govern its feeling and action."
+"Rise in the strength of Spirit to resist all that is unlike good. God has made man capable of this, and nothing can vitiate the ability and power divinely bestowed on man."
+
+* The laws of spiritual existence
+
+"Divine Mind governs"
+"man is harmonious"
+
+* Praise the Lord, and seek him
+
+"they shall praise the Lord that seek him: your heart shall live for ever. All the ends of the world shall remember and turn unto the Lord."
+
+* God's servant
+
+"Behold my servant, whom I have chosen; my beloved, in whom my soul is well pleased: I will put my spirit upon him, and he shall shew judgment to the Gentiles."
+
+* the Lord "had compassion on her"
+
+* the great Exemplar, the healer
+
+"Like the great Exemplar, the healer should speak to disease as one having authority over it, leaving Soul to master the false evidences of the corporeal senses and to assert its claims over mortality and disease."
+
+* man lives, and can never change in Science
+
+"Life is the law of SOul, even the law of the spirit of Truth, and Soul si never without its representative."
+"Man's individual being can no more die nor disappear in unconsciousness than can Soul, for both are immortal."
+
+* Imperfect mortals and the ultimate spiritual perfection
+
+"Imperfect mortals grasp the ultimate of spiritual perfection slowly; but to begin aright and to continue the strife of demonstrating the great problem of being, is doing much."
+
+* Knowledge of accomplishing the good
+
+"Knowledge that we can accomplish the good we hope for, stimulates the system to act in the direction which Mind points out."
+
+* Life is God, God is omnipotent
+
+"Remember the former things of old: for I am God, and there is none else"
+
+* my soul delighteth
+
+"I the Lord have called thee in righteousness, and will hold thine hand, and will keep thee, and give thee for a covenant of the people, for a light of the Gentiles;" 
+
+* Gracious is the Lord
+
+"Gracious is the Lord, and righteous; yea, our God is merciful."
+"the Lord hath dealt bountifully with thee"
+"I will walk before the Lord in the land of the living."
+
+* stages of consciousness
+
+"As human thought changes from one stage to another of conscious pain and painlessness, sorrow, and jow, - from fear to hope and from faith to understanding, - the visible manifetation will at last be man governed by Soul, not by material sense."
+
+* man's perfection, real and unimpeachable
+
+"Remember that man's perfection is real and unimpeachable, whereas imperfection is blameworthy, unreal, and is not brought about by divine Love."
+
+* sinless joy, perfect harmony, immortality of Life
+
+"possessing unlimited divie beauty and goodness"
+"the only veritable, indestructible man, whose being is spiritual"
+
+* Man, the reflection of Soul
 
 ## Week of February 1, 2020 - 'Spirit' - Inspiring Passages ##
 * The Lord's People
