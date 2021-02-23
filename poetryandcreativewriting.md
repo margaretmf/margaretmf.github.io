@@ -1709,8 +1709,8 @@ Standing in unity and solidarity.
 ## A Work of Art ##
 The Earth we live on is a work of art.
 There is divine interconnectedness expressed all around through people's actions.
-The landscape of the sun shines on every one slightly differently,
-from a different perspective.
+The light of the sun shines on every one slightly differently,
+from a different perspective through the landscape.
 The colors, the hues are beautiful brushstrokes revealing the prism of light.
 Thank you for this beautiful craft that all of humanity can cherish and love.
 
@@ -1719,10 +1719,10 @@ Thank you for this beautiful craft that all of humanity can cherish and love.
 **Word Associations:** portrait, brushstrokes, texture, color, craft, landscape, shade, light
 
 ## The Night Sky ##
-The night sky sings with holiness and with peace
-The stars shine infinitely
-The blackness is so dark and the pitch of the night lights up everyone to sleep
-THe glimmer of the stars give hope and point people to inncocence, home
+The night sky sings with holiness and with peace.
+The stars shine infinitely.
+The blackness is so dark and the pitch of the night lights up everyone to sleep.
+THe glimmer of the stars give hope and point people to inncocence, home.
 The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
 
 <br>
