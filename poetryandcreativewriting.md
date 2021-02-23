@@ -58,7 +58,7 @@ W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interv
 Through my grandmother, and my intuition underly someone's country music on "Going South", I discovered surprises about my ancestor, Dr. Thomas Walker, who discovered the Cumberland Gap. He surveyed the land, led the country West, and explored Kentucky before Daniel Boone. With the Indians as guides, they passed through the native land and discovered the birth of America.
 
 ## Are there any lines that you simply will not cross? ##
-Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil of threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
+Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
 
 ## What would you like to be forgiven for? ##
 When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loved that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
@@ -75,7 +75,7 @@ There is a child within you first. She is innocent, free, light-hearted, and joy
 For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
 
 ## Write about the last time you felt guilty. ##
-Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mea because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awfu. I move on to new, and healthier relationships.
+Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mea because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awful. I move on to new, and healthier relationships.
 
 ## What is something you have dreamed about? ##
 This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
@@ -1102,6 +1102,7 @@ They support their kids.  [Seeing Integration, Reconstruction's Effects]
 They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
 They lead teams at work. [Seeing Integration, Reconstruction's Effects]
 They built our country. [Seeing Integration, Reconstruction's Effects]
+They have beautiful names. [Seeing Integration, Reconstrution's Effects]
 They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
 They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
 
