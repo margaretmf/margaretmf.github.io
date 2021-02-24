@@ -97,7 +97,7 @@
 
 * Science of being - reveals man as perfect
 
-"The Science of being reveals man as perfect, even as the Father is perfect, because the Soul, or Mind, of the spiritual man is God, the divine Principle of all being, and because this real man is governed by SOul instead of sense, by the law of Spirit, not by the so-called laws of matter."
+"The Science of being reveals man as perfect, even as the Father is perfect, because the Soul, or Mind, of the spiritual man is God, the divine Principle of all being, and because this real man is governed by Soul instead of sense, by the law of Spirit, not by the so-called laws of matter."
 
 * False estimates of soul
 
