@@ -194,7 +194,7 @@ the misery, the waters, passing away
 
 * Temporary, Infinite
 
-"The material body and mind are temporal, but the real man is spiritual and eternal. The identity of the real man is not lost, but found through this explanaiton; for the consciousness infinitude of existence and of all identity is thereby discerned and remains unchanged. It is impossible that man should lose aught that is real, when God is all and eternally his."
+"The material body and mind are temporal, but the realman is spiritual and eternal. The identity of the real man is not lost, but found through this explanaiton; for the consciousness infinitude of existence and of all identity is thereby discerned and remains unchanged. It is impossible that man should lsoe aught that is real, when God is all and eternally his."
 
 * Soul, cast down
 
@@ -208,88 +208,63 @@ the misery, the waters, passing away
 
 "synagogues, being glorified of all"
 
-* recognize Soul as substnatial
+* Soul, substantial, able to control the body
 
-"Do you say the time has not yet come in which to recognize Soul as substantial and able to control the body?"
-Jesus "demonstrated the power of Spirit"
-"'He that believeth on me, the works that I do shall he do also,' and who also said, 'But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth.'"
+"recognize Soul as substantial and able to control the body"
 
-* Truth, God's remedy
+* Jesus, the power of Spirit
+
+"He that believeth on me, the works that I do shall he do also"
+"But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth"
+
+* Truth, God's remedy for error
 
 "Truth is God's remedy for error of every kind, and Truth destorys only what is untrue."
 "Christ casts out evils."
 
-* the sick, the sinning receptive of Divine Science
+* sick, sinning, "receptive of divine Science"
 
-"elevates even mortal mind to the contemplation of something better than disease or sin. The true idea of God gives the true understanding of Life and Love, robs the grave of victory, takes away all sin and the delusion that there are other minds, and destroys mortality."
+"material sense", "mortal mind"
 
-* Mind, the master
+* Contemplation
 
-Divine Mind "the master of the corporeal senses"
-"conquers sickness, sin, and death"
-"Exercise this God-given authority. Take possession of your body, and govern its feeling and action."
-"Rise in the strength of Spirit to resist all that is unlike good. God has made man capable of this, and nothing can vitiate the ability and power divinely bestowed on man."
+"the contemplation of something better than disease or sin"
+"The true idea of God gives the true understanding of Life and Love, robs the grave of vicory, takes away all sin and the delusion that there are other minds, and destroys mortality."
 
-* The laws of spiritual existence
+* Mind, the master, God-given authority
 
-"Divine Mind governs"
-"man is harmonious"
+"Mind is the master of the corporeal senses, and can conquer sickness, sin, and death."
+"Take possession of your body, and govern its feelign and action."
+"Rise in the strength of Spirit to resist all that is unlike good."
+"God has made man capable of this, and nothing can vitiate the ability and power divinely bestowed on man."
 
-* Praise the Lord, and seek him
+* Firm in understanding
 
-"they shall praise the Lord that seek him: your heart shall live for ever. All the ends of the world shall remember and turn unto the Lord."
+"Be firm in your understanding that the divine Mind governs, and that in Science man reflects God's government. Have no fear that matter can ache, swell, and be inflamed as the result of a law of any kind, when it is self-evident that matter can have no pain nor inflammation."
 
-* God's servant
+* so-called laws, mortals, whole, harmonious, immortal
 
-"Behold my servant, whom I have chosen; my beloved, in whom my soul is well pleased: I will put my spirit upon him, and he shall shew judgment to the Gentiles."
+"Man is harmonious when governed by Soul."
+"the importance of understanding the truth of being, which reveals the laws of spiritual existence"
 
-* the Lord "had compassion on her"
+* praise the Lord 
 
-* the great Exemplar, the healer
+"they shall praise the Lord that seek him: your heart shall live for ever. All the ends of the world shall remember and turn unto the Lord:"
+
+* "my soul is well-pleased"
+
+* Jesus, disciples
+
+"Now when he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow: and much people of the city was with her. And when the Lord saw her, he had compassion on her, and said unto her, Weep not. And he came and touched the bier: and they that bare him stood still. And he said, Young man, I say unto thee, Arise. And he that was dead sat up, and began to speak. And he delivered him to his mother."
+
+* great Exemplar, the healer, authority over sickness
 
 "Like the great Exemplar, the healer should speak to disease as one having authority over it, leaving Soul to master the false evidences of the corporeal senses and to assert its claims over mortality and disease."
 
-* man lives, and can never change in Science
+* man lives, never changed in Science
 
-"Life is the law of SOul, even the law of the spirit of Truth, and Soul si never without its representative."
-"Man's individual being can no more die nor disappear in unconsciousness than can Soul, for both are immortal."
+"If it is true that man lives, this fact can never change in Science to the opposite belief that man dies. Life is the law of Soul, even the law of the spirit of Truth, and Soul is never without its representative. Man's individual being can no more die nor disappear in unconsciousness than can Soul, for both are immortal."
 
-* Imperfect mortals and the ultimate spiritual perfection
-
-"Imperfect mortals grasp the ultimate of spiritual perfection slowly; but to begin aright and to continue the strife of demonstrating the great problem of being, is doing much."
-
-* Knowledge of accomplishing the good
-
-"Knowledge that we can accomplish the good we hope for, stimulates the system to act in the direction which Mind points out."
-
-* Life is God, God is omnipotent
-
-"Remember the former things of old: for I am God, and there is none else"
-
-* my soul delighteth
-
-"I the Lord have called thee in righteousness, and will hold thine hand, and will keep thee, and give thee for a covenant of the people, for a light of the Gentiles;" 
-
-* Gracious is the Lord
-
-"Gracious is the Lord, and righteous; yea, our God is merciful."
-"the Lord hath dealt bountifully with thee"
-"I will walk before the Lord in the land of the living."
-
-* stages of consciousness
-
-"As human thought changes from one stage to another of conscious pain and painlessness, sorrow, and jow, - from fear to hope and from faith to understanding, - the visible manifetation will at last be man governed by Soul, not by material sense."
-
-* man's perfection, real and unimpeachable
-
-"Remember that man's perfection is real and unimpeachable, whereas imperfection is blameworthy, unreal, and is not brought about by divine Love."
-
-* sinless joy, perfect harmony, immortality of Life
-
-"possessing unlimited divie beauty and goodness"
-"the only veritable, indestructible man, whose being is spiritual"
-
-* Man, the reflection of Soul
 
 ## Week of February 1, 2020 - 'Spirit' - Inspiring Passages ##
 * The Lord's People
