@@ -144,6 +144,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Think in shades of gray. Complexity. "It might mean this; it might mean that."
 * "While Fitzgerald associates Tom primarily with the color red to imply anger and defensiveness, Fitzgeral also employes white imagery to ironically imply Tom's corrupion due to his racism and hypocrisy."
 * One Body Paragraph, Three Strong Examples, the same color
+* Gray. White. Black. Red. BLue. Green. Yellow. Purple. Orange. Brown. Pink. [Cultural, Literary, and Psychological Tools]
 
 ## Parts of Speech ##
 * Compound sentence
