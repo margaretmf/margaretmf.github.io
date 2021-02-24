@@ -60,6 +60,9 @@ Through my grandmother, and my intuition underly someone's country music on "Goi
 ## What do you look forward to every week? ##
 Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
 
+## What musical instruments would you like to learn how to play, and why? ##
+With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
+
 ## Are there any lines that you simply will not cross? ##
 Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
 
