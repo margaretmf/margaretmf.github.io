@@ -440,6 +440,16 @@ This is not to say that men of colour never assault white women - they do - but 
 
 White people as a collective still fear sharing power and status. They fear no longer being the special race. The Enlightened race. The civilised and civilising race. This is obvious to anyone watching the rise of right-wing 'populism', the alt-right and the resurgence of neo-Nazis. Perhaps, as people of colour half-joke, white people fear being treated the way they have long treated the minorities they have subordinated. At the very least, there appears to be a complete denial that the only thing that has made white people 'superior' is their own insistence that they are."
 
+## [Black Southern Belle](https://blacksouthernbelle.com/50-black-southern-belles-in-lifestyle-african-american-tastemakers-of-the-south/) ##
+
+## [Essence: Black Perspectives](https://www.aaihs.org/essence-as-archive-on-the-occasion-of-its-golden-anniversary/?utm_source=rss) ##
+
+## [Creating Digital Space for Black Scholarship](https://www.aaihs.org/creating-digital-space-for-black-scholarship/) ## 
+
+## [The Brave Black Woman Who Were African American Spies](https://msmagazine.com/2011/02/28/the-brave-black-women-who-were-civil-war-spies/) ##
+
+## [Ladies' Pages: African American Women's Magazines and the Culture That Made Them](https://www.jstor.org/stable/j.ctt5hj55m) ## 
+
 ## [Gender, Power, and Whiteness in Rodeo: Breaking Away from the Ties of Sexism and Racism](https://books.google.com/books?id=xcjq7_dG1RYC&pg=PA7&lpg=PA7&dq=cowboys+west+damsels+in+distress+south&source=bl&ots=pYgLRHxQl4&sig=ACfU3U3Zx-kziU3AmBTgdPzgksPsmq6ZwA&hl=en&sa=X&ved=2ahUKEwj1_Lj8ooHvAhU2MlkFHaWmB0UQ6AEwEXoECBAQAw#v=onepage&q=cowboys%20west%20damsels%20in%20distress%20south&f=false) ##
 "When I was a little girl, in the mid-1950s, I wanted more than anything than to be a cowgirl."
 
