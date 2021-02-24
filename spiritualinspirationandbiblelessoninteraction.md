@@ -2,6 +2,140 @@
 
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
+* God's thoughts towards His people
+
+"...I know the thoughts that I think toward you, says the Lord, thoughts of peace and not of evil to give you a future and a hope"
+
+* the Covenant, the House of Israel
+
+"I will put my laws into their mind, and write them in their hearts: and I will be to them a God, and they shall be to me a people:"
+
+* everyone shall know God, and the heavens declare God's glory, his handiwork
+
+"Day unto day uttereth speech, and night unto night sheweth knowledge."
+
+* God's work through all the earth, to the end of the world
+
+* God's law, perfect, makes wise the simple
+
+"The statutes of the Lord are right, rejoicing the heart: the commandment of the Lord is pure, enlightening the eyes."
+
+* God is my strength and redeemer
+
+"Let the words of my mouth, and the meditation of my heart, be acceptable in thy sight, O Lord, my strength, and my redeemer."
+"The Lord will give strength unto his people; the Lord will bless his people with peace."
+
+* There is none else beside God
+
+"I am the Lord, and there is none else, there is no God beside me: I girded thee, though thou hast not known me: "
+
+* From the heavens to the Earth
+
+"Drop down ye heavens, from above, and let the skies pour down righteousness: let the earth open, and let them bring forth salvation, and let righteousness spring up together; I the Lord have created it."
+"all the ends of the earth: for I am one God, and there is none else."
+
+* I AM THAT I AM
+
+"I AM. God; incorporeal and eternal Mind; divine Principle; the only Ego"
+
+* God and the Scriptures
+
+"your faith should not stand in the wisdom of men, but in the power of God"
+
+* One Language
+
+"the whole earth was of one language, and of one speech"
+"Behold, the people is one, and they have all one language"
+"their languages"
+
+* Approve thyself unto God
+
+"Study to shew thyself approved unto God, a workman that needeth not to be ashamed, rightly dividing the word of truth. But shun profane and vain babblings: for they will increase unto more ungodliness."
+
+"follow righteousness, faith, charity, peace, with them that call ont he Lord out of a pure heart."
+
+* one Mind, infinite
+
+* Babel. self-destroying error; a kingdom divided against itself; material knowledge; the higher false knowledge
+
+"The world would collapse without Mind, without the intelligence which holds the winds in its graps. Neither philosophy nor skepticism can hinder the march of the Science, which reveals the supremacy of Mind. The immanent sense of Mind-power enhances the glory of Mind."
+
+* Mind, the grand creator, no power, derived from Mind
+
+"If Mind was first chronologically, is first potentially, and msut be first eternally, then give to Mind the glory, honor, dominion, and power everlastingly due its holy name."
+
+* Paul, Athens
+
+"God that made the world and all things therein, seeing that he is Lord of heaven and earth, dwelleth not in temples made with hands; Neither is worshipped with men's hands, as though he needed any thing, seeing he giveth to all life, and breath, and all things:"
+
+* living and moving and having being in God
+
+"For in him we live, and move, and have our being in God"
+
+* The Divine Nature, what we worship
+
+* Thoughts Unspoken
+
+"Thoughts unspoken are not unknown to the divine Mind. Desire is prayer; and no loss can occur from trusting God with our desires, that they may be moulded and exalted before they take form in words and in deeds."
+
+* Wisdom from above - peaceful, gentle, merciful, good, without partiality, without hypocrisy
+
+"the wisdom that is from above is first pure then peaceable, gentle, and easy to be entrated, full of emrcy and good fruits, without partiality, and without hypocrisy. And the fruit of righteousness is sown in peace of them that make peace."
+
+* spiritual mindedness
+
+"to be spiritually minded is life and peace."
+
+* the righteous, the wise, the hand of God
+
+"Wisdom is better than strength"
+
+* Mind, governing all
+
+"God is not separate from the wisdom He bestows."
+
+"Mind, supreme over all its formations and governing them all, is the central sun of its own systems of ideas, the ife and light of all its own vast creation; and man is tributary to divine Mind."
+
+* History of our Country, the Might of Mind
+
+"right thinking"
+
+"the universal welfare"
+
+"divinely inspired"
+
+"Such intuitions reveal whatever constitutes and perpetuates harmony, enabling one to do good, but not evil. You will reach the perfect Science of healing when you are able to read the human mind after this manner and discern the error you would destroy."
+
+* all is Mind, mental causation, truth of being
+
+* Eternal Harmony, Calm and Exalted
+
+"Throughs divine Science, Spirit, God, unites understanding to eternal harmony. The calm and exalted thought or spiritual apprehension is at peace."
+
+* God is there to help us, always, God is always there
+
+"For I the Lord thy God will hold thy right hand, saying unto thee, Fear not; I will help thee."
+
+* Strength
+
+"in quietness and in confidence shall be your strength"
+
+* the Real senses, emanating from Divine Mind
+
+"According to Christian Science, the only real senses of man are spiritual, emanating from divine Mind. Thought passes from God to man, but neither sensation nor report goes from material body to Mind. The intercommunication is always from God to His idea, man."
+
+* Disease, no intelligence 
+
+"Disease has no intelligence to declare itself something and announce its name. Mortal mind alone sentences itself. Therefore make your own terms with sickness, and be just to yourself and to others."
+
+* Filled with the Holy Ghost
+
+"this contradicts fear, and sickness"
+"Faith shall make thee whole"
+"it is the Holy Ghost that allows us to demonstrate"
+
+* Mind, the only I, Us
+
 ## Week of February 8, 2020 - 'Soul' - Inspiring Passages ##
 
 * Remember the Lord
