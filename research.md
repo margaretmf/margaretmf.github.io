@@ -353,7 +353,7 @@ Political elites, the legacy
 "If we can't rule the Republic, we will burn it down"
 Dred Scott - "a Southern dream come true" - underlying dynamic, appeasement, "treasonist kind of behavior"
 
-# [Why Some Hear 'The Night They Drove Old Dixie Down' As A Neo-Confederate Anthem](https://www.wnycstudios.org/podcasts/otm/segments/why-some-hear-night-they-drove-old-dixie-down-neo-confederate-anthem-on-the-media)
+* [Why Some Hear 'The Night They Drove Old Dixie Down' As A Neo-Confederate Anthem](https://www.wnycstudios.org/podcasts/otm/segments/why-some-hear-night-they-drove-old-dixie-down-neo-confederate-anthem-on-the-media) 
 Tracks, Old Dixie, Americana, "Richmond that fell"
 The night that took "Good ole Dixie down" in 1969
 Rock n' roll Canon, charged subject matter
@@ -537,7 +537,7 @@ White people as a collective still fear sharing power and status. They fear no l
 ## [The South between Two Frontiers: Confederate Cowboys and Savage Rednecks]((https://www.researchgate.net/publication/237018811_The_South_between_Two_Frontiers_Confederate_Cowboys_and_Savage_Rednecks)) ## 
 "The myth of the Frontier, which locates the birth of the American nation in its confrontation with a bordering savagery, was a national myth in western films until the 1960s. As a genre shaping the features of Americanness, the Western attracted many ex-confederates in search of political legitimacy and the western Frontier became a place of national rehabilitation for the South. When the narrative of the myth inverted in favor of the Indian in the late 1960s, freedmen replaced confederate heroes in their quest to integrate the national community on screen. The Frontier as America’s birthplace gave the South a second chance and revealed its cultural meaning for the nation. But the Frontier, in its confrontational version of the savage wars, also resonates with the myth of the Lost Cause, in which barbarous freedmen threaten white society. If Birth of a Nation was the first and last film in which Blacks were pictured as dangerous in Hollywood, this internal Frontier reappears with the cultural crisis of the 1960s, when the South becomes home to savages of a new kind, degenerate rednecks, who embody the failure of the national myth in the Western, and come to represent the endemic savagery of America revealed by My Lai and Charles Manson. The South in films wavers between two Frontiers: the Frontier of American regeneration in the Western, and the Frontier as a danger to America in the Southern."
 
-## [Exploring Land, Settling Frontiers] (http://www.virginiaplaces.org/settleland/) ## 
+## [Exploring Land, Settling Frontiers](http://www.virginiaplaces.org/settleland/) ## 
 "In the days before the Industrial Revolution created a middle class and wealth could be acquired through manufacturing, land for producing crops, wool, meat, and wood products was the basis of English wealth. Land was controlled by the hereditary aristocracy. Peasants had little opportunity to climb the social ladder and join the aristocracy, and little chance to become landowners with control over their own farms.
 
 Roughly half of the population in England owned no land. No matter how hard they worked, those who did not inherit land had little expectation of acquiring it.
@@ -678,7 +678,7 @@ The Confederate stars and bars is a symbol of pride to many in the South, to be 
 ----------
 
 
-## [150 Years Ago, The Homestead Act Transformed the West] ##
+## [150 Years Ago, The Homestead Act Transformed the West](https://www.hcn.org/wotr/how-150-years-ago-the-homestead-act-transformed-the-west) ##
 "All across forests of the West, 10-by-12-foot cabins stand forlorn and forgotten, many with tumbledown roofs and gaping doors. Yet these modest homesteads represent a revolution in public-land policy: They were the culmination of an American dream born of Thomas Jefferson’s belief that at our best, we would become a nation of independent farmers.
 
 This year marks the 150th anniversary of the fruit of Jefferson’s conviction -- the 1862 Homestead Act. The federal law changed the West forever by providing a new start for urban emigrants, immigrant families and single women.
@@ -870,7 +870,7 @@ Early setbacks for black artists are given a passing mention, before the series 
 
 Although 'Country Music' doesn’t delve much deeper to examine the everyday racism in the music and its greatest stars, the truth lies in the present day. The mingling of cultures brought about this new genre, and yet, it’s evolved to forget and exclude African Americans. Or perhaps black America has decided to leave country music behind."
 
-## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false)
+## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false) ##
 
 ## [How Mark Twain Invented the Wild West](https://themillions.com/2017/01/how-mark-twain-invented-the-wild-west.html) ##
 
@@ -882,7 +882,7 @@ Although 'Country Music' doesn’t delve much deeper to examine the everyday rac
 ----------
 
 
-## [Scandalous Saddle](https://truewestmagazine.com/the-scandalous-saddle/)
+## [Scandalous Saddle](https://truewestmagazine.com/the-scandalous-saddle/) ##
 "Women riding aside leads to dangerous (and ridiculous) saddle invention.
 
 Buffalo Bill’s Wild West sharpshooter Annie Oakley rode aside, as in this picture, performing '…horseback tricks from a sidesaddle, a contraption with a flat seat, on which the rider sat sideways, and a thick, leather-covered hook, which the rider used to anchor herself by her leg to the horse’s back,' wrote Glenda Riley, in The Life and Legacy of Annie Oakley. She also took advantage of the sidesaddle, Riley added. When Oakley dangled off the side of her horse to pick up a hat off the ground, she appeared as if “she floated on the horse’s back.
