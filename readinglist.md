@@ -7,6 +7,7 @@ layout: default
 ### Books
 #### Reading
 * [West Virginia: A History](https://www.amazon.com/WEST-VIRGINIA-HISTORY-John-Williams/dp/0937058564/ref=sr_1_2?dchild=1&keywords=west+virginia+a+history&qid=1614032265&sr=8-2) by John Alexander Williams
+* * [The Romantic Revolution](https://www.amazon.com/Romantic-Revolution-History-Library-Chronicles/dp/081298014X) by Tim Blanning
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
