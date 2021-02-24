@@ -57,10 +57,10 @@ The attitude of the writer or narrator toward the subejct, characters, conflict,
 * **Alliteration:** repetition of beginning sounds of words. **Anaphora:** repetition of beginning words or phrases. **Epiphora:** repeitition of last words or phrases. **Tricolon:** three clauses or groups of words in parallel series. **Tetracolon:** four groups of parallel words. **Polyptoton:** two or more variants from the same root word in the same sentence (e.g. leaf, leaves). **Antithesis:** the balance of two opposites in a two part parallelism. **Chiasmus:** the crossing pattern or repeating words in reverse order. **Klimax:** going from lesser to greater. **Diminutio:** going from greater to lesser. **Metaphor:** a trope that makes a comparison between two things which are basically dissimilar.
 
 ## To Compare ##
-Also. As. As well as. Both. In the same manner. In the same way. Like. Likewise. Most important. Same. Similar. Similarly. The same as. Too.
+* Also. As. As well as. Both. In the same manner. In the same way. Like. Likewise. Most important. Same. Similar. Similarly. The same as. Too.
 
 ## To Contrast ##
-Although. But Differ. Even though. However. In contrast. Instead. Nevertheless. On the contrary. On the other hand. Unless. Unlike. While. Yet.
+* Although. But Differ. Even though. However. In contrast. Instead. Nevertheless. On the contrary. On the other hand. Unless. Unlike. While. Yet.
 
 ## Sentence Structure ##
 * One Complex, One Compound, One Compound-Complex Sentence.
