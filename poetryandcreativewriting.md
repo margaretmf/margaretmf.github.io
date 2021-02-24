@@ -57,6 +57,9 @@ W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interv
 ## Have you done any research into your ancestors? What interesting surprises have you discovered? ##
 Through my grandmother, and my intuition underly someone's country music on "Going South", I discovered surprises about my ancestor, Dr. Thomas Walker, who discovered the Cumberland Gap. He surveyed the land, led the country West, and explored Kentucky before Daniel Boone. With the Indians as guides, they passed through the native land and discovered the birth of America.
 
+## What do you look forward to every week? ##
+Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
+
 ## Are there any lines that you simply will not cross? ##
 Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
 
