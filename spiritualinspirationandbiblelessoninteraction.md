@@ -45,6 +45,42 @@ they "shall have the light of life"
 
 "the divine idea of God"
 
+* no other gods, God is the only God
+
+"And God spake all these words, saying,
+Thou shalt have no other gods before me."
+
+"the glorious perception that God is the only author of man."
+
+"monotheism"
+"The Christian who believes in the First Commandment is a monothesit."
+
+* manifesting the love of God, through his only begotten Son
+
+"And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick."
+
+* Who is Jesus? relationship with Simon Peter
+
+"Thou art the Christ, the Son of the living God"
+"That thou art Peter, and upon this rock I will build m church; and the gates of hell shall not prevail against it."
+"the Son of God is come, and hath given us an understanding"
+
+* in him that is True
+
+"that we may know him that is true, and we are in him that is true, even in his Son Jesus Christ"
+
+* the Church founded on a spiritual foundation
+
+"Jesus established his church and maintained his mission on a spiritual foundation of Christ-healing"
+
+* the supremacy fo Spirit, the foundation, the era of Christianity
+
+"Jesus established in the Christian era the precedent for all Christianity, theology, and healing."
+"Jesus taught but one God, one Spirit, who makes man in the image and likeness of Himself, - of Spirit, not of matter."
+
+* Perfection shall come, in the unity of the faith
+
+"How shall we declare Him, till, in the language of the apostle, 'we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fullness of Christ'"
 
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
