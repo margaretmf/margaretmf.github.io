@@ -15,6 +15,27 @@ Sharing history helps people understand why the world is the way it is, and how 
 ----------
 
 
+## [Occupational Therapists: What Do They Do?](https://childmind.org/article/occupational-therapists-what-do-they-do/) ##
+"Occupational therapy, known as OT, is designed to help children and adults acquire (or regain) the skills needed to perform the activities—or 'occupations'—of daily life. 'It’s a huge field,' says Lindsey Biel, an OT specializing in pediatrics and coauthor with Nancy Peske of Raising a Sensory Smart Child. When a child shows delays in mastering typical activities, or displays unusual or disruptive behavior, the OT is often the first professional to work with her.
+
+OTs are found in many settings. Children up to age 3 may receive home-based therapy under EI. Some OTs, like Biel, are private service providers, visiting their young clients at home or in school. Others offer therapy in private sensory gyms. But, Biel says, the majority of OTs are found in schools, both pushing into classes to work with kids and pulling them out for one-on-one work on fine and gross motor skills, along with sensory gym time.
+
+These master’s level health-care professionals take a holistic approach to a client’s physical well-being, explains the American Occupational Therapy Association, by also considering psychological, social and environmental factors that may affect functioning.
+
+Biel explains that during an evaluation, the therapist uses a task analysis to figure out just what’s going on. Say a 5-year-old girl isn’t putting on her shoes. Is the issue sensory-based? Fine motor? Or maybe she just likes all the attention she gets from Mommy? What about a kindergartner who is still in pull-ups? 'Is it because the potty’s scary?' Biel asks. 'Do dangling feet make him feel like he’s falling, or is his tush uncomfortable? We also look at what muscle groups need to be recruited effectively to go to the bathroom.'
+
+Biel breaks down a litany of issues OTs address on her site Sensory Smarts: attention span and arousal level; sensory and processing skills; fine and gross motor skills; activities of daily living (ADLs), also known as self-help skills, such as brushing teeth, dressing and toilet training; visual-perceptual skills; handwriting; and assistive technology.
+
+What are sensory processing issues?
+When it comes to attention, arousal level, and sensory and processing skills, the work OTs do is based on theories presented by occupational therapist Dr. A. Jean Ayres back in the 1970s. She posited that children and adults with sensory processing issues can’t synthesize all the information streaming in from the traditional five senses—touch, hearing, taste, smell and sight—as well as two “internal” senses, body awareness (proprioception) and movement (vestibular). Proprioception allows for motor control and posture, while vestibular receptors tell the brain where the body is in space, which links directly to balance and coordination. (Peske has made a short, fun video that introduces these seven senses.)
+
+Children who have trouble modulating sensory input may experience over-sensitivity (hypersensitivity), under-sensitivity (hyposensitivity) or both to an impairing or overwhelming degree, at school, at home and in the world at large.
+
+An extremely hypersensitive child tends to be withdrawn; because she’s easily overwhelmed by auditory and visual stimuli, she may want to avoid gym, recess and lunch. The buzz of fluorescent lights and anxiety about the loud fire alarm going off may distract her, making it difficult to pay attention and participate in class.
+
+Controversy continues as to whether two widely used practices, joint compressions and a brushing of the skin, actually 'rewire' the brain so that kids can appropriately integrate and respond to sensory input, allowing them to feel more comfortable and secure as they negotiate their environment. Even Biel admits that she isn’t always sure these practices have merit but “just when I have my doubts, there’s this great intervention. I had a child making almost no eye contact who was constantly in motion. I put him on cushions and gave him a good brushing. I got eye contact through the whole session; his parents were gasping. Is he cured? No. Was it organizing? Yes.”
+
+
 ## [Occupational Therapy](https://www.slideshare.net/StephanvanBreenenCli/occupational-therapy-and-intellectual-disability) ##
 "Intelligence": cognitive functions, "learning, reasoning, manipulating information, and identifying patterns and relationships, solving problems, recall, planning"
 
@@ -298,6 +319,65 @@ He keeps a log book of fake hours in the glovebox and the real one hidden beneat
 ----------
 
 
+## [The Uncultured South](https://www.vqronline.org/essay/uncultured-south) ##
+"Has the South been buffaloing America for half a century into thinking it was a second Athens wrecked by a Northern barbarian democracy, when actually the second Athens drank mint juleps, ate batter-bread, and thought up moral defenses for the institution that made life comfortable? Is the culture of the Old South a myth?
+
+Or was the Pennsylvanian right who said: 'Why do I live in Virginia? Because Virginia once had a civilization. It hasn’t one any longer, of course. But it did have one once. And Pennsylvania never had a civilization.' Apparently, even Pennsylvanians have admitted the Old Southern culture.
+
+There is no use asking the South. The South has been on the defensive for so many decades that it has lost the art of self-examination. And since the World War, the South has been sold on progress, with the result that under the guidance of its Young Men’s Business Clubs it has deserted its glorious bloody past for a rosy and profitable future. Its traditions are turning into points of interest. It is capitalizing the Lost Cause.
+
+And yet, one would like to know who is right about this business of an Old Southern culture. What does intelligent America, outside the South, think? In pondering the matter, I am inclined to believe that the American attitude towards the Old South has passed through three distinct phases: the third phase, the batter-bread expos is a thing of recent years. The three phases are worth comparing.
+
+Before 1860 the Southern planters were the greedy plutocracy of slaveholders in a day when all other civilized countries had abolished slavery, grabbing for new territories into which they might extend their 'peculiar institution,' thus holding their balance of power in a “free” republic. To that republic they were by their very nature a menace, just as the republic was a menace to conservative Europe. 'Not by, aggression,' wrote Oliver Wendell Holmes, 'but by the naked fact of existence we are an eternal danger and an unsleeping threat to every government that founds itself on anything but the will of the governed.' Similarly in a land that promised the destruction of all privilege, the Southern slaveholder was a mockery to hopeful utopists and a pledge of possible reaction. Before the Civil War, therefore, the North dreaded and vilified the Southern system.
+
+After the Civil War the North offered cordiality in exchange for penitence. It even offered a queer kind of sentimentalized love. Now that the North had “licked” the South, it could afford to love it. Lo the poor planter, having been broken at Appomattox, had much to be said for his way of life. The South has been widely accused of slobbering about its destroyed system but actually the South has been more slobbered over than slobbering. I have never met a profounder or marshier sentimentality than the applause of certain Northern crowds when the band played 'Dixie.' All of which has been psychologically very bad for the South. She was undoubtedly sick, but an overdose of sympathy never helped sickness yet.
+
+Lee and Jackson were traitors while McClellan’s act was on. But with Appomattox a dim memory, Lee’s stock went up in the North and the North bought in by the block. They ended up by feeling a sort of pride in a national pageant that had a happy ending.
+
+For example: in a London theater I sat watching Drink-water’s 'Robert E. Lee.' Between acts I listened to the audience struggling with teacups and chocolates and fought to keep from crying. The lady next me was from Indiana but took me for an emotional Britisher.
+
+'I don’t suppose,' she began informatively, 'you know much about this. We study it in School. It’s History, for us. My grandfather fought in this war—of course on the winning side.' Of course. My contention is that as the winning side the North took a generous interest in the South and that, provided the South accepted the Northern social economy, the North luxuriated in approval for the fallen tyrants whose spacious lives they almost envied.
+
+Moreover the strings were there. The South was expected to be glad the right side won. Only last October, at Fredericksburg, Virginia, President Coolidge, in his campaign speech over the Confederate dead, congratulated the South on getting beaten and on being glad they were beaten. Assuming they really were glad, he praised Lee. I used to experiment by declaring to Northerners that I regretted the South had failed to win her independence. My remark always dried the springs of sympathy in a hurry: in short, my. experiment succeeded.
+
+However, after the war fewer and fewer Southerners made this experiment, and the North was free to indulge a safe sympathy. The North even took to romancing about it, as industrial England romanced about feudalism. For a thousand reasons the feudal barons of Norman England and the cotton barons of the British Empire could never have tolerated each other in the flesh. But in the grave the feudal barons shed a safe and glamorous luster. Hence romanticism.
+
+Similarly the slave system did not seem wholly bad in retrospect. Freed by Emancipation from the nightmare of Uncle Tom’s Cabin, the North took note of the Southern mammy, the pickaninnies, the leisurely life of the plantation, and wove a sweet dream about it. The plantation owner became in this dream a kindly, cultivated master, dividing his time between his acres, his library, and good conversation. Material for his portrait was drawn from three sources: the necessity to flatter, by a law of psychological compensation, what one had been compelled by morality to destroy; the inherited respect for upper-class privilege that a century’s war on privilege had not obliterated; and a vivid imagination, which read into the planter of the Old South those qualities the raw democracy was most ashamed of lacking and most wanted to acquire. The result was a very romantic portrait indeed.
+
+But now came the realistic analysts, known in the New Age of Reason as the 'de-bunkers.' They pounced on that faded splendor of honeysuckle and magnolia and they announced, and are announcing in a palpitation of discovery, that the honeysuckle and magnolia were there but the books were not, nor were the Shakespeares and Raphaels and Mozarts. And, of course, magnolias are not culture. Just because the Old South was tragic in its ruin, there is no use romancing about it. There is more culture, more creative art, in New York today, and indeed in living Southern novelists, than the Old South ever dreamed of.
+
+Why have these analysts only just appeared, and is there anything in what they say? There is rather obviously, in the New York sense. New York is measuring culture by creative art and comically but inevitably enough by the amount of creative art. New York wants better novelists but it also wants more of them. New York studies art output, and with growing pride. The publishers, critics, and art dealers are particularly impressed, and they cue the public. America hopes for an imminent Renaissance.
+
+An imminent Renaissance would have mystified the planters. In the first place theirs remained a distinctly colonial culture long after the American Revolution. They were in many respects an English squirarchy more inconveniently distant from the London Season than squires in Yorkshire or Devon. But they sat down to tables of Santo Domingo mahogany turned in London, before English plate, to drink the same wines Englishmen were drinking. They frequently sent their sons to English universities. They were economically, and to a far greater extent socially, colonials.
+
+For that reason their libraries were often astonishingly complete but ran to classics, not novelties. Anybody who has ever seen the ghost of one of those plantations knows that, living there, one would want Dryden and Pope, Fielding and the learned Doctor Samuel. And every time one of those libraries goes under the hammer I am struck afresh by the solidity of the planter’s literary digestion. They read what their class in England read.
+
+Their portraits are frequently from European hands. I imagine this struck them as natural. Europe was in every respect a more suitable environment for an artist than young America. And I do not believe the planter’s patriotic heart ached because there was so little home talent. The cultivated class of Southern planters were part of the same cultural complex as Europe, and their geographical position and isolated manner of living condemned them to be consumers rather than producers. Most cultivated persons at any time in any place are consumers; or ought to be. It is a fairly recent thing to have everybody about to write a novel. And the line between self-expression and exhibitionism wobbles only too readily.
+
+Culturally indeed the planters were in one line producers. They were rulers by instinct and training, and artists in war and politics. A glance at the roll call of planter statesmen from Jefferson on, and of the men who led the South’s last army, suffices to illustrate this. The South maintained what is so conspicuously absent from America today, a ruling class, bred for the purpose.
+
+Like every genuine ruling class the planters held to a code of manners. And manners can be a very definite art. To live gracefully, harmoniously, and freely may be as creative as Russian ballet and more truly creative than a book about one’s not always interesting friends, written in a seldom interesting manner.
+
+Or take hospitality. There has been a vast amount of twaddle talked about Southern hospitality. The fact remains that, where still practiced, it is an art as complex and as easily recognized as the weaving of real Persian rugs. By people, of course, who know good rugs. Twelve years ago a traveller told me Southern hospitality was a myth. He had visited every big town in the South and they were the most intolerably inhospitable places he knew. No theaters, no amusements, and a courtesy that nevertheless forbade intimacy. This confusion of hotelling and hospitality tells the whole story. My friend would fare better in the New South, where the Chambers of Commerce would care for him. They would make him pay for it, but he would expect that. His only trouble was wanting to buy what was not for sale. And if I had explained that he had no letters of introduction he would have snorted at Southern snobbery.
+
+Probably the planter’s least American trait was his exquisite sense of leisure. He enjoyed life enormously and his zest was not based on externals, on money, on success. He worked to make life possible but he never made a god of occupation. And this leisure permitted him to flower as a human personality. Since flowering is the last thing a democracy will ever understand, America asks the planter if his leisure was fruitful. That depends on what we consider fruit. Shall one measure life by output or beauty? Which would an artist do?
+
+His leisure brought the planter one of his most successful minor arts and one he most delighted in—good conversation. For in his virtues and in his vices alike he was a social animal. The best Southern conversation, even what is left of it today, has led me to believe that it may be the most delightful oral literature now alive in any civilized or semi-civilized country. And when the Southerner told a perfect anecdote and told it as perfectly as that anecdote could be told, he did not call for the printer and start figuring royalties. He told another. The truth is, an original mind that is not haunted by the awful fear of being uninformed, that is illumined by a playful humor not based on vaudeville wise-cracks or jaded slang, is as rare in America as a knowledge of good wines. Hence our very general and panicky boredom; hence the fact that we so often bore others. I am not fool enough to suppose that this good conversation and this quiet leisure would pass as cultural currency in the America that came of age. At best, they would have the value of Confederate money: they are antiques. They can be collected, but they are not the basis of America’s economy or of her culture. There is no Federal Reserve behind either one. And it is, of course, pure romanticism to think that leisure can stand up against Rusiness, or Confederate notes against greenbacks: this sort of competition is settled by “economic necessity,” which commonly plays havoc with culture. We Americans admit that leisure is good; we even subsidize research workers to study how to use it; but we will not let it interfere with Life. To the planter, leisure did not have to be studied: it was itself the basis of a life worth living.
+
+I have been guilty here of writing what many know as well as I, and of venturing many unproved generalizations, as indeed one must if one compares two social orders at all, in an effort to see whether a case could not be made out for an Old Southern culture, whether the planter’s way of life did not imply a culture even in the absence of a stream of printed matter, canvases, and sonatas. I can both cut short and clarify my discussion by stating that the essence of the Old South was a spirit of aristocracy.
+
+Aristocracy exists only where there is faith in the worth-whileness of some intangible values. And only where there is that faith can life have a more significant form than the form achieved in a pigsty. The Old Southerner believed in a whole list of musty-sounding intangibles that curl the lip of the democracy: courage in men, chastity in women, hatred of lying, scorn of greed, loyalty to one’s superiors, fidelity to one’s retainers, reticence in intimacy, grace in all things. He could not prove they were worthwhile; nor can the democracy prove they are not. But that is how he felt about life—which is the Law for aristocracy.
+
+To the average American today the Southern planter is as weirdly comic as Don Quixote. But nothing whatever is proved by that except that he is growing very rare. Sometimes he is laughed at. Mostly he is just overlooked. But now and then when democracy does see him or hears one of his funny abstract words again, it challenges his claim to culture. Well, he took his another wav. He took a frank pleasure in the good things of life, including a number of world literatures. But he could never have grasped the bourgeois-proletarian concept of self-improvement. The fact of aristocracy was to him one of the most obvious facts of life. Some of his land was better than the rest and therefore better for certain crops. He had draught horses for hauling, and thoroughbreds to race. He believed his negroes were better fitted to work than to rule. Some white men were “better bred” than others and therefore better fitted to lead and direct. These were facts. Land could of course be improved; so could horses; so could people, over stretches of time. Sometimes lower breeds threw out an extraordinary individual, but mostly breeds ran true to form—a fortunate fact for a planter. The American credo that holds college courses as universally desirable and looks to correspondence schools as a means of converting ill-bred people into the other sort would have struck him as a lamentable farce. A percheron need never be ridiculous except on the track.
+
+It is this profound cleavage between the democratic and the aristocratic sets of values that is responsible for the three successive attitudes America has adopted toward the 'South.' Before the Civil War the Southern oligarchy with all the strength of axiomatic tradition behind it threatened to wreck the American experiment. Appomattox broke that oligarchy on the wheel. It did not mean that never again should the South be powerful, but it did mean that its power must never take aristocratic form. America, at least the Eastern states, no longer afraid, wove romances around a social system still dormant in its own blood. But during the last decade the American democracy, bourgeois-proletarian in spirit, has so completely obliterated every other social form that the Old South is losing even its romance. Half amazed and half relieved, America realizes that she does not really want the things the Old South wanted, except power, which she has in increasing abundance. America wants to read more books, see more things, build more houses, acquire more culture. And the South never tried to acquire it. America doesn’t believe the South ever had a culture.
+
+The other day as I was leaving Woolworth’s in a small Southern town, an old gentleman of the planter breed, more than a generation my senior, started to enter. Unfortunately at that very moment a number of flappers started out. The old man stood back, holding the door open. I counted over twenty people, men and women, who rushed past him without a word. I shall always treasure the memory of his smile. The pigs were in the parlor, and he had the courage to smile! It would be more worthwhile for us Americans, Northerners and Southerners, to study that smile than to read the riddle of the Sphinx. Regardless of culture."
+
+
+----------
+
+
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
 
 
@@ -555,6 +635,8 @@ White people as a collective still fear sharing power and status. They fear no l
 ## [Robber Barons](https://en.wikipedia.org/wiki/Robber_baron) ##
 
 ## [US Railway Mail Service](https://www.archives.gov/publications/prologue/2005/fall/fast-mail-1.html) ##
+
+## [A Century of Railroad Building](https://www.legendsofamerica.com/rr-railroadbuilders/) ##
 
 
 ----------
@@ -933,9 +1015,150 @@ The gunfight might be Wister’s most important contribution to the cowboy. To t
 
 The cowboy is a complex individual who could warrant a whole book of analysis. These fundamentals are just the highlights of this American favorite. Tune in next time as we take a gander at the television and film cowboys who rode across the screen and into America’s hearts."
 
+## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false) ##
+
+## [How Mark Twain Invented the Wild West](https://themillions.com/2017/01/how-mark-twain-invented-the-wild-west.html) ##
+
+## [Roughing It](https://en.wikipedia.org/wiki/Roughing_It) ##
+
+## [Mark Twain](https://texastrailoffame.org/inductees/mark-twain/) ##
+
 
 ----------
 
+
+## [The Darker Side of Dixie: Southern Music and the Seamier Side of the Rural South](https://lib.dr.iastate.edu/cgi/viewcontent.cgi?article=11911&context=rtd) ##
+"This study investigates several issues in southern culture that have here to fore been largely ignored. Music has been, and still is, a major force in southern society, and for hundreds of years this mode of communication has reflected regional ideas as much as any social institution. In order for music to reflect southern culture, it must first speak the language of the region, exhibit regional cultural attributes, and accept thedistinctivecharacteristicsoftheSouth. By so doing, music becomes culturally accepted and, therefore, it reinforces the messages, the opinions,andtheideasofsouthernsociety. This study examines some of the rural cultural themes utilized in southern music. The principal cultural topics to be analyzed include racism, domestic violence, male control over women, drunkenness, brutality, murder, gun ownership, Confederate symbolism,folk justice, and family honor. Since these themes are evident in folk music, early blues tunes, post-World War II country lyrics, and southern rock and roll of the late twentieth century, music illustrates the continuity of southern culture."
+
+"This was especially true when a family member had been the victim. In the late twentieth century, for example, when Charlie Daniels called for lynchings, and 'an eye for an eye and a tooth for a tooth,' and when Hank Williams Or claimed that he was going to shoot the man who killed his family, both artists sounded similar to the rural mountain balladeers of the nineteenth century. Not much had changed. In the eyes of these performers, vigilantism worked, and it should be used. Moreover, this study will explore other topics, such as illegal drug use, which have not been major themes in southern music. By doing so, it will address the question whether those southern African Americans who migrated to northern urban areas prior to the World War II deserved to be labeled cocaine fiends, or whether this was a racial stereotype created by northern whites."
+
+"Musical lyrics are of value to historians because they are cultural artifacts of a community and a culture that allow scholars to examine the issues, problems, values, and ideas of the time period in which the lyrics were written. When dealing with gender issues, for example, song lyrics are excellent historical tools because they portray gender roles that illustrate how both males and females think and act, or are expected to act, within a given culture. The study of these kinds of lyrics are also important because the words demonstrate how southern men dealt with gender issues. Since musical lyrics reflect cultural attitudes, if the culture of the rural South approved of the domination of women by men, and if southern men physically abused women, these themes will appear in the region's
+music."
+
+"They should pick cotton instead of guitar strings."
+
+"Besides exploring domestic violence and gender control, this study will also examine how rural southerners responded to other important issues. During the Civil War and Reconstruction eras, for example, what were the major southern symbols, and how did southern songsters deal with losing this all-important war? Music allows scholars to determine if the common people were apologetic or unrepentant. Similarly, in the late nineteenth century how did folk balladeers deal with the increased rates of raciallynchings? Whodidtheyblamefortheseacts,thevictimsorthe victimizers? Howdidtheyexplainthebrutalmutilationsandexecutionsof African American males? By omitting certain realities, did these musicians promote racial hate? Furthermore, in this era of high murder rates, how did southerners view their murderous world? When someone was killed, who or what did they blame? Similarly, were the people shocked, or did they simply consider brutality a regrettable but indubitable fact of southern life? Moreover,how did African American and white women deal differently with domestic violence? Is it significant that in blues songs African American women often grabbed a firearm and fought back, but in folk music Caucasian women usually begged for mercy?"
+
+"Despite growing industrialization and urbanization, the myth of the rural South also survived in popular imagination."
+
+"In that regard, this work will examine the responsibility southern music had for the survival of the region's rural image that still haunts southerners today. Moreover, it will analyze how southern males historically compared themselves to northern males. In the late twentieth century,for example,did southern redneck rock groups, like their nineteenth-century predecessors, still push the archaic notions that not only could any southern man"
+
+"Finally, when modern country and rock musicians flaunted Confederate symbolism, were they only telling everyone that they were proud to be
+southerners? In the 1970s, for example, why did Georgia crowds go berserk when Lynyrd Skynyrd's lead singer, Ronnie Van Zant, waved a Confederate flag and screamed out, '01e' Neil Young should remember that a southern man don't need him around, anyhow?' Southern music gives scholars a unique insight into these, and many other, important social questions."
+
+"Moreover, video tapes of old southern musical shows enable historians to comprehend the excitement audiences exhibited for particular songs. A 1969 episode of 'Del Reeves' Country Carnival,' for example, illustrates this splendidly. When Reeves sang 'Are You From Dixie,' the audience, composed of males and females in their mid-forties, were energized. Similarly, southerners went wild when Johnny Cash yelled out, in his first hit tune 'Ha Porter,' that he had to 'get back' to the South, so that he could 'plant my feet on southern soil, and breath that southern air.' Similarly, modern concert performances by such southern groups as Lynyrd Skynyrd, Alabama, Black Oak Arkansas, and Hank Williams Jr. offer scholars valuable insight into the culture. A teach of their concerts Confederate symbolism emerged as a major theme.'"
+
+"Therefore, many southern groups, such as Confederate Railroad and Molly Hatchet, have used southern emblems, such as the Confederate Flag, on their jackets to increase sales."
+
+"These artists were not only popular, but they also either sang songs that reflected the culture or stressed their southerness. On most of its albums,tapes,videos,and compact disks,for example, Alabama usually included several numbers that either glorified or romanticized the South."
+
+"Unlike the earlier rockers, these southern males were not only belligerent, but they always emphasized their southern roots. These
+men, for example, continually claimed that a southerner could 'beat the hell' out of anybody. In fact, most pushed southerness to the extreme."
+
+"Many bands told young southerners to be proud of their history."
+
+"Unlike Elvis, these whiskey-soaked, macho-acting, southern males also gathered fans and sold millions of albums by reverting to old negative southern themes, such astheConfederacy,racism,whiskey,guns,andviolence, Afewofthemost prominent bands in this category included Lynyrd Skynyrd, Molly Hatchet, Black Oak Arkansas, The Charlie Daniels Band, .38 Special, The Marshall Tucker Band, The Ozark Mountain Daredevils, ZZ Top, The Allman Brothers, and The Outlaws."
+
+"a very dark side to southern rural music"
+
+"Instead of being only a happy and positive place, this music illustrates that for generations racism, sexism, vigilantism, hate, violence, crime, alcoholism, murder, and poverty have been significant aspects of southern society."
+
+"In retrospect, although not every person residing in the South would approve of all the themes outlined in this study (not every southerner, for example, hates homosexuals, holds firm to fundamentalism, believes in white supremacy, or thinks that a real man has to be a rugged fighter), music
+reflects that such ideas have been culturally significant."
+
+"It would be foolish to claim that men only killed or beat women in the South."
+
+"This is culturally significant, because it indicates that gender and control was deeply ingrained in southern culture."
+
+"Because few historical sources deal with the killing of southern women, particularly the rural poor of both races, music offers scholars a unique insight into this hidden problem. Pre-World War II femicide lyrics are of value to historians because they are cultural artifacts of a community and culture that allow scholars to have an unobtrusive look into the issues, values, and ideas of the time period in which the lyrics were written. When dealing with gender issues,such as femicide, song lyrics are excellent historical tools because they portray gender roles that illustrate how both males and females thought and acted, or were expected to behave, within a given culture. The study of southern femicide lyrics is also important because the words demonstrate how some southern men dealt with women when certain gender specific situations arose, such as adultery and pre-martial pregnancy. Of course,not every souther nmale killed or even sanctioned the slaying of women. In fact,it would be foolish and historically irresponsible to claim that every man who caught his wife in the act of adultery, murdered her. Music, however, is useful because it does indicate that such ideas were firmly established in the region's intellectual mind-set."
+
+"Even though females have been murdered throughout American society, on certain occasions southern culture sanctioned its use more than other areas of the country. Between 1882 and 1927, for example, ninety-two women were lynched in the UnitedStates."
+
+"In fact,historican Dickerson D. Bruce Jr., pointed out that in the nineteenth-century South, violence was viewed as 'an essential fact of human life some how built into human relationships." 
+
+"In addition to being lynched, burned at the stake, and killed in race riots, in the post-Civil War era African American females were simply 'just murdered.'" 
+
+In such an environment, music reflects that both black and white women were killed. Similarly, both black and white folk songs show the extent of lethal violence against southern women in the pre-World War II era. In fact, no matter how sensational these folk songs might appear to contemporary observers, in the past rural southerners did not find the stories inconceivable. When the songs dealt with vicious female homicides they discussed events that occurred. Most of the local folktunes were indeed factual."
+
+"The most violent act that can be committed is murder, and imported folk ballads that described the killing of women were often more popular in the South than in other sections of the United States. These tunes entered the region via a wide variety of non-North American locations, including England, Scotland, and Norway, as well as several non-southern North American sites. Although the songs originated from different locales, they were popular with both African American and white rural southerners from the Florida Everglades to the Ozark mountains"
+
+"According to scholars such as Michael E. Bush, female murder tunes were popularintheSouth. They were a major part of the oral tradition. In fact, imported murder ballads that depicted the murdering of women were found in every southern state."
+
+"Although not every imported femicide song was popular throughout the South, several such violent ballads and their numerous variations were prevalent in one or more southern states. These violent tunes were popular with rural southern audiences for several reasons. Chiefly, rural southerners identified with the message, because as many scholarly studies have shown, murder was an integral part of the culture. Since, according to several music scholars, only songs that mirrored some essential element of southern culture survived in the region's oral tradition, it is important to analyze which events remained unchanged in imported femicide tunes. What was the crucial element in these songs that enabled them to endure in the South, sometimes for generations after they ceased to be sung in Europe, while other tunes simply faded from the region's collective memory? First and foremost, although several southern versions of a particular
+female murder ballad might differ in tone or location, one thing always remained the same--a woman was killed. By examining the femicidal ballads Appalachian whites sang, it became apparent that material not essential to themurderdidnotsurvive. Similarly, in the Virginia version of the Scottish number 'Jellon Grame'," the central theme, the killing of the woman, stayed, but the Scottish dialect and uncommon words were changed or omitted. Because femicides occurred in the region, southern ballad singers did not change that aspect of the tune. Rural southern audiences under stood that when certain situations arose, males could and did kill females."
+
+Southern femicide tunes are excellent historical sources, because they enable scholars to cut beneath the facade of southern life and see how southern society treated and viewed women. They indicate, for example, that a paternalistic society existed in the South. In fact,they prove that southern culture even condoned the use of lethal violence to control women. This can best be seen in adultery songs. Not only are these tunes filled with deadly violence, but they also reflect that southern males sanctionedthisviolentbehavior. Several southern states have had, and some parts of the region still do have, unwritten laws that allow a man to kill his unfaithful wife."
+
+"Adultery songs are interesting because they show that southern males often believed that it was justifiable homicide to kill women that committed adultery."
+
+"In Lawrence County, Kentucky, during the late 1890s, a similar murder occurred when Lucy Adams was shot and killed by her husband. He found her with another man, Ande Kitchen. Not only was her husband, Jesse, acquitted in court, but an interesting song of the events was written. This particular tune again demonstrates that southern culture justified such behavior. First, the community where the killing occurred. Brushy Fork, maintained thatKitchen 'must die.'"
+
+"The brutal treatment of unfaithful women was not only a white southernattribute. In southern history African American females have been lynched and burned at the stake for no apparent reason, thus, it is not surprisingthattheywerealsokilledforadultery. Lyrically,when African American women ran away from their husbands but then begged to be reunited,they were frequently beaten."
+
+"In black and white tunes the message is clear: women were warned that adultery could lead to death. These songs indicate that both blacks and whites believed that female infidelity was a serious cultural taboo. These songs also reveal that when culturally unacceptable events provoked southern males to commit murder, the community forgave the male killer and chastised his female victim. Although each song had its own particular twist, one thing almost always remained the same: women who cheated on their husbands invariably died, or at the very least were savagely beaten."
+
+"Instead of only reflecting the cultural views southern society had towards women who committed adultery, these tunes are also meaningful because they show how the culture perceived males. While both black and white southern men who killed their adulterous lovers were glamorized in the music, men who did nothing about such relationships were depicted as culturaloutcasts,notheroes. In one folk song, 'May I Sleep In Your Barn Tonight, Mister?,' a man who did not punish his adulterous wife became a 'tramp' looking for pity and a place to stay on a stormy night."
+
+"In both African American and white southern songs murdering males were romanticized, while less aggressive men were scorned. These tunes demonstrate that southern culture had no sympathy for males who did not react violently when their female family members, who were supposed to be under male control, disregarded cultural norms."
+
+"It is blatant sexual exploitation when a man kills a woman simply because she refuses his marriage proposal."
+
+"These kinds of songs are important to understanding gender relations in the South, but to fully understand the topic of female control in southern murder songs historians must consider why men also died in these tunes. Scholars cannot contend, for example, that because adulterous black and white males were also killed, these types of murder songs only demonstrate that a powerful fundamentalist morality was in force throughout the rural South. Instead of portraying religious morality, feminist scholars maintain such murders demonstrate that males controlled females. It does not matter if the homicide was committed by a jealous husband, father, or brother because the 'same complex of control and male authority is involved when men kill men because of jealousy and possessiveness'"
+
+"Like oral history sources, these songs indicate that male family members were expected to kill white women and their lovers for being promiscuous. Second, these tunes portray men who did not kill such women as cowards and bums. As a result these tunes show that a patriarchal society, based on lethal force, existed in the South. These tunes indicate that above all else, southern males believed that women had to be controlled, even if that meant committing murder. In fact, the continual emergence of these themes shows that such ideas were thoroughly embedded in southern culture."
+
+"These sadistic songs help scholars understand gender relationships in southern culture. First and foremost,they show that when dealing with women, males could be brutal. Second, according to criminologists, the use of excessive violence indicates that the men consciously determined to kill their female victims. Third, and on a deeper psychological level, these songs mentioned excessive violence in order to intimidate women. According to Kate Millett, patriarchal societies use violence and the threat of it to keep control. This form of terror is attempted to keep women from gaining any control over their lives. This is evident when considering that the horrible deaths generally followed some sort of deed done by a woman, usually indications of premarital sex or adultery, which was considered culturally unacceptable for females. In 'Pearl Bryant,' for instance, the woman had an abortion before she was brutally killed. In case the threat of being murdered was not enough to deter southern women from breaking cultural norms, the songs stressed that torture, ghastly wounds, or mutilation of the corpse could occur."
+
+"In addition to those tunes, other southern ballads involve the killing of pregnant white women. In fact,some are only found in the South."
+
+"The tunes and the oral histories that surround this femicide are particularly interesting because they reveal that the 'good girl' versus 'bad girl' duality was thoroughly woven into southern culture. Several song versions, for example, imparted the message that bad things happened to 'good girls' when they turned into 'badgirls.' As late as the early twentieth century oral sources pointed out that Lewis 'ruin[ed]' Wise's 'fairname'  by getting her pregnant. She had been a decent, moral woman, until she had pre-marital sex. In their eyes, when she engaged in sex before marriage, she automatically 'disgrace[d]' herself. In fact, this attitudeemergedinmostversionsofthetune. Severalsongsters,for example, sang that Lewis promised to marry Wise so that there would be "no
+disgrace.' One balladeer even pointed out that Lewis had 'shame[d] and disgrace[d]' Wise. In fact, when the singer claimed that Wise begged for her life and said, don't kill me, 'Let me live, full of shame,' he made it clear that he thought that Wise had been immoral. In addition, moral lessons emerged in many versions of the tune. One songster even cautioned young women that they must not be fooled into having pre-marital sex, or 'you are sure to meet Naomi's fate.' Another songster warned 'young ladies' not to be 'ruined' by such men."
+
+"In the eyes of rural southern society, an unmarried woman's virginity was all important. Such songs also reflect that women, especially white women, were held to a higher sexual standard than men. Unlike a man, whose 'infidelity' was viewed by area residents as 'a natural sort of thing,' an unmarried white woman who lost her virginity was 'ruined.' Both Wise and Hattie Elliott had been 'good girls' before they met Lewis, but unlike Wise, the 'pure' Elliott 'baffled' Lewis when he tried to seduce her. In the end, however, Lewis chose to marry the virgin and kill the 'ruined' Wise. The moral message was clear; females, especially young white women, had to be 'good' or they had to be prepared to face the lethal consequences."
+
+"Finally, femicide tunes are also culturally significant because they reveal how white southern society expected white women to behave. Infact, there were major gender differences in how white men and white women lyrically met their deaths. While white men often brawled with their would-be killers, and were romanticized for doing so, white women rarely were shown physically fighting their murderers before they were killed. Instead of glorifying white women who fought their attackers, these songs did the opposite--they reinforced the belief that a white woman should not be aggressive under any circumstances."
+
+"These tunes also show that southern women were in a helpless position. Because the culture expected males to be aggressive and domineering, as the music indicates, women often felt helpless. Studies that deal with the abuse of women in male dominated societies show that when women are abused by males and do not fight back, they are expressing what society expects of them. These women feel helpless to protect themselves when 'confronted with a man who had been taught that the hands and feet may sometimes be used as weapons, and that dominance and aggression are justified expressions of his emotion or intent.' When southern music showed white women not responding aggressively to male violence, it reflected cultural realities. According to numerous studies, southern males were accustomed to fighting."
+
+"As these examples demonstrate,the South was a male dominated society where brute force prevailed, and music reflected that most females simply had no other satisfactory alternative but to take to the abuse."
+
+"In fact, if a woman killed her tormentor before he killed her, southern society over looked the male abuse and executed her. This is reflected in tunes such as 'Frankie Silver,' one of the few southern folk songs that depicted a white woman murde ringaman."
+
+
+"In fact, in 1824 the Supreme Court of Mississippi became the first state court to recognize a husband'srighttobeathiswife. Mississippi wanted husbands to enforce 'domestic discipline.' Moreover, although in the late nineteenth century some southern states adopted anti-wife beating laws, no real enforcement policies existed. These laws were on the books, but criminal sanctions were rarely assessed."
+
+"In 'TheDumbWife'..."
+
+"In 1931 this blues star released the hit "Southern Can Is Mine," and in 1933 he followed suit with 'SouthernCanMama.'"
+
+"These melodies also indicate that the rural South was a region where both African American and white women, especially wives, had limited power."
+
+"In fact, blues men often attributed their brutal deeds to outside forces. In his 1928 hit 'Nobody's Dirty Business,' Mississippi John Hurt warned his female lover that one 'of these mornings' he was going to wake up drunk, grab his gun, and kill her. Resembling many other folk and blues tunes, in this popular number alcohol conveniently became the scapegoat for a vicious man. This is an indication that, similar to today, in the pre-World War II era alcohol was a frequent excuse, used by both males and southern society in general, to justify the battering of women. As long as society continued to blame domestic violence on either liquor or on the female victims themselves, the abuse would not end.
+
+This indicates that the culture trivialized the abuse. In such cases,the domestic abuse was almost completely forgotten and glossed over. In fact, in the eyes of the singers, who reflected society's views, the female victims generally deserved whatever punishment they received.
+
+Although music exposes that southern society expected males to enforce domestic discipline in their own households, in order to clearly understand how southern culture viewed women, some non-physical abuse tunes mustalsobeexamined. When analyzing southern songs it becomes apparent
+that some men did not respect women.
+
+Significantly, in both African American and white music, women were also seen as in animate objects. This could take on many different forms. A woman's looks were seen as essential to her worth. There are many such songs, but a few will suffice.
+
+Other such songs also showed that unattractive women were left to their own protection, while young and beautiful women would be protected by males. Finally, many white songs discussed the 'lily white' hands, the delicate appearance and the child-like behavior of white women. This is not only blatant gender stereotyping, it also reinforced a common view that independent women were unattractive and manly.
+
+Instead of starting out trading a horse, this southern man trades ahuman being. The man first 'buys' a wife. He than attempts to carry her home in a wheel barrow, but it broke, so, he 'sold' his wife and 'bought' a cow.
+
+Moreover, in the most fundamental social structure of southern society, the family, folksongs demonstrate that it was culturally unacceptable for women to make decisions.
+
+The blues also illustrated that black singers considered wives and female lovers the property of men. 
+
+In the lyrics of these males, women were necessary for sex and procreation purposes, but that was about all. In fact, lyrically, females were often seen as disposable items that could be used and abused a male will tell a female that their children are solely her responsibility, and he will not allow her to work outside the home. Moreover, if a woman tries to leave her male lover, he will warn her that she will never see the children again. Similarly, these women are told that their children's friends or teachers will scorn them because of her actions.
+
+If a female did not follow cultural norms, she was told that her children would suffer. In addition,society threatened to take children away from bad mothers. These threats were powerful. In fact, in the nineteenth century society used such warnings to stop divorce."
+
+"In 'TheDumbWife,' for example, a doctor told a man that in order to 'make a scolding wife hold her tongue,' he should beat her with a hickory stick."
+
+## p. 59 ##
+
+## [The Darker Side of Dixie: Southern Music and the Seamier Side of the Rural South](https://www.semanticscholar.org/paper/The-darker-side-of-Dixie-%3A-southern-music-and-the-Hutson/79bf78a02849cb107ae7323c22ba420438320b20) ##
 
 ## [Country Music](https://www.indiewire.com/2019/09/country-music-pbs-ken-burns-rosanne-cash-marty-stuart-1202173799/) ##
 "The actual musicians who came onto the project were also able to help bridge the gap between these facts and the lore. Country music is rife with storytelling, and it’s just natural that some stories become more important that the actual way that events happen. Songwriter Harland Howard had once said, 'Country music is three chords and the truth. In the series, Texan singer-songwriter Rodney Crowell said, 'Country music at its best is truth-telling even when it’s a big fat lie.'"
@@ -955,14 +1178,6 @@ My own experience can’t help but color what I put out there. They were very ge
 Early setbacks for black artists are given a passing mention, before the series moves on. African-American musician DeFord Bailey was the first musician to be introduced on the Grand Ole Opry radio program and its first black performer when it became a stage show. When he went on tour, many of his fellow white performers had to stick by him when he was refused service because of his race. But in 1941, during the height of the licensing wars, he refused to learn non-ASCAP songs and was promptly fired. Judge George Hay, who had first hired Bailey, wrote off his longtime colleague, saying, 'Like many of his race, he was lazy.'
 
 Although 'Country Music' doesn’t delve much deeper to examine the everyday racism in the music and its greatest stars, the truth lies in the present day. The mingling of cultures brought about this new genre, and yet, it’s evolved to forget and exclude African Americans. Or perhaps black America has decided to leave country music behind."
-
-## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false) ##
-
-## [How Mark Twain Invented the Wild West](https://themillions.com/2017/01/how-mark-twain-invented-the-wild-west.html) ##
-
-## [Roughing It](https://en.wikipedia.org/wiki/Roughing_It) ##
-
-## [Mark Twain](https://texastrailoffame.org/inductees/mark-twain/) ##
 
 
 ----------
