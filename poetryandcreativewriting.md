@@ -128,12 +128,24 @@ Margaret
 
 # Poetry #
 ## Grandparents ##
-I remember all the stories my grandparents shared.
+I remember all the stories and lessons my grandparents shared.
 The stories they shared sing through me intuitively.
 I recall them like a piece of music breathing through me.
-I love the Good Lord first thing in the morning when the sun rises, the birds chirp, and there's time to eat blueberry muffins.
-I love the song of the South singing through the lumber industry and the railroads in Memphis.
 
+I love the Good Lord who "hears my prayers" first thing in the morning when the sun rises, the birds chirp, and there's time to eat blueberry muffins like my grandmother.
+I love the sound of "Hello, Gorgeous", saying it's a new day in the neighborhood to appreciate every detail in people's lives.
+I love the sound of "You stole my birthday", stated by my grandfather, and the love of books, history, symbolism, and psychology.
+I hear the sound of faith running deep through my grandfather's love of church and his family.
+
+I love the stories my other grandmother shares of ancestors discovering the country, family members in the shipping industry, and favorite literature like Faulkner and Shakespeare.
+I love the sound of the grandfather clock, the sound of the birds tweeting, and the sound of the bird clock with a glass of water and a dictionary nearby.
+I love the laughs shared with my other grandfather, and some good family music playing and family tales.
+I love the hugs and affection my grandfather gives.
+
+I love the song of the South singing through the lumber industry and the railroads in Memphis like my great grandfather.
+I love the beauty of Soul reflected through my great grandmother during the age of Jazz music in Memphis.
+I love the good luck rushing through my great grandfather McCardell's Irish blood.
+I love the songs of peace "like a river" sung through my great grandmother.
 
 ## Gratitude List ##
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
@@ -152,6 +164,8 @@ I love the song of the South singing through the lumber industry and the railroa
 * Gratitude for the world history teacher at Norfolk Academy
 * Grateful for the sound of the dishwasher
 * Grateful for a smile shared with someone in the car next to me
+* Grateful for American flags reflecting through glass doors
+* Grateful for positive memories of my grandmother
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
