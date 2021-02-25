@@ -175,6 +175,28 @@ popular culture. Handlin, an architect and teacher, begins with the Colonial per
 
 Thus it is crucial that the technical ingenuity and industrial heritage of the American lumber industry is preserved before all remains are relegated to a museum and replaced by new technology. While the production of modern engineered wood products has created a niche market within the industry, new modified and augmented lumber released each year slowly replace their predecessors that contain only wood. Historians, documentarians and preservationists must soon act to record this stalwart of American manufacturing before the lumber industry ceases to exist altogether."
 
+## [Growth of the Lumber Industry](http://mshistorynow.mdah.state.ms.us/articles/171/growth-of-the-lumber-industry-1840-to-%091930) ##
+"Mississippi’s abundant virgin forest had long been a natural resource for American Indians. And to the early 19th-century settlers from Europe and America’s east coast, the softwoods and hardwoods provided material for building homes, furniture, farm implements, and tools. Even so, settlers considered the millions of acres of forests as little more than obstacles to be removed in order to start developing farms.
+
+The few people who lived in South Mississippi’s pineland before 1840, for example, made their living by hunting and trapping, and later by raising cattle and hogs. By the 1840s, a few small mills for sawing logs had been built along the Mississippi Gulf Coast. The sawmills were located near the mouths of major rivers and streams at locations such as Pearlington and Logtown along the Pearl River, Moss Point on the Escatawpa and Pascagoula rivers, and Handsboro on the banks of Bayou Bernard near present-day Gulfport."
+
+"These early mills depended on water transportation to ship logs to the mills. Loggers cut trees along the banks of streams. They then tied the logs together to form rafts that were then floated downstream to sawmills at the mouths of coastal rivers."
+
+
+"But it was the building of railroads in Mississippi in the last quarter of the 19th-century that had the greatest impact on the timber industry. Railroads made it possible to build the large sawmills that dominated the industry by the early 1900s. The significance of railroads to loggers can be seen in the following statistics: In 1880, 295 sawmills had a total investment of less than one million dollars. Nearly twenty years later, in 1899, a capital investment of $10 million in 608 mills produced more than one billion board feet of lumber (a board foot is the equivalent of a board one foot by one foot by one inch).
+
+The thriving timber industry during the 1904 to 1915 period ranked Mississippi in third place of lumber-producing states in the United States, behind Washington and Louisiana. In 1910, capital investment reached more than $39 million and the value of production climbed to nearly $43 million. Much of the total production was long-leaf yellow pine from the southern half of the state. In addition, many hardwood mills operated in the Delta region, and the east-central area of the state produced short-leaf pine."
+
+"Sawmills depended on the railroads to ship finished lumber to growing markets in the north. Also, ports like Gulfport sprang up expanding the export lumber trade with foreign countries. Several railroads, such as the New Orleans and Northeastern Railroad, the Mobile, Jackson and Kansas City Railroad, and the Gulf and Ship Island Railroad, were built across South Mississippi.
+
+Not only did railroads provide an outlet for finished products, they also opened up great areas of previously inaccessible timberland to lumber companies. As timber near the navigable streams was rapidly depleted, railroads provided mills a way to bring in logs that were far from rivers and streams.
+
+Thus, many mills built their own rail lines into their timberlands. These rail lines, often called dummy lines, varied in length from mile-long railroads built with wooden rails to extensive railroads with steel rails that reached thirty or more miles into the virgin forests. By 1905, most sawmills cutting more than 25,000 board feet per day owned their own railroads.
+
+Many towns and cities in Mississippi owe their existence to the railroads and sawmills built during the lumber boom. Typically, after a railroad was built, land buyers purchased timberland in the area and built sawmills. Towns quickly grew up around the sawmills. Many towns seemed to appear magically out of nowhere. Some of the towns became cities that still exist today — Hattiesburg, Laurel, Picayune, and Wiggins. Other towns — Inda, Howison, Hillsdale, Orvisburg, Deemer, and Electric Mills — quickly died after the mills closed.
+
+Labor-saving equipment introduced soon after the turn of the century joined with railroads to spur growth. By 1905, the ancient caralog, a heavy ox-driven two-wheeled wagon, was replaced by the Lindsey Eight-Wheel Wagon invented by the Lindsey brothers of Laurel, Mississippi. In turn the skidder and steam log loader replaced the eight-wheel wagon. Skidders were huge winches with long cables. These cables were attached to logs, and the winches dragged them to the railhead. Such mechanizations cut logging costs and allowed for year-round operations."
+
 
 ----------
 
