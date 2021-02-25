@@ -63,6 +63,10 @@ Christianity
  
 ## RELEVANT WORK EXPERIENCE
 
+### INDEPENDENT EDUCATION
+Children's Book Analyst
+* Read children's books, analyze the books, and create outlines to guide how to critically think about them
+
 ### VIBRANT WORLD
 Trends and News Reviewer, Data Science Project Application Reviewer, Blog Writer, Media Manager, Researcher, Sketcher, & Ideator | January 2019 - Present
 * Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
