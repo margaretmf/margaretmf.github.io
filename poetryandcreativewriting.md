@@ -63,6 +63,9 @@ Every week, I look forward to Monday mornings. The time of the week to start all
 ## When was the last time you felt needed? ##
 Every time Nate calls me and asks me to give him a ride, I feel needed. I love hearing his voice, his faith, and his love for his family and the community. I have felt loved when he shared that his mom wanted to meet me, and he made me feel better when he said 'I would be a good mom'. I love feeling the motherly love for his precious daughters. I am grateful to know the Salvation Army and the Up Center, and feel needed there when I compassionately share items with them.
 
+## If you had to do it all overagain, how would you reinvent your life? ##
+I would not reinvent anything in life. yes, I have made mistakes. Yes, I have made people afraid of me. Yes, I have felt like i have failed and become angry. I know that if I choose to keep seeing the good in situations, trusting my higher self, and expanding on what I love, that all will reinvent itself for my future in the best way possible.
+
 ## What musical instruments would you like to learn how to play, and why? ##
 With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
 
