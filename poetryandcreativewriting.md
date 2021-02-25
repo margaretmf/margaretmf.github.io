@@ -60,6 +60,9 @@ Through my grandmother, and my intuition underly someone's country music on "Goi
 ## What do you look forward to every week? ##
 Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
 
+## When was the last time you felt needed? ##
+Every time Nate calls me and asks me to give him a ride, I feel needed. I love hearing his voice, his faith, and his love for his family and the community. I have felt loved when he shared that his mom wanted to meet me, and he made me feel better when he said 'I would be a good mom'. I love feeling the motherly love for his precious daughters. I am grateful to know the Salvation Army and the Up Center, and feel needed there when I compassionately share items with them.
+
 ## What musical instruments would you like to learn how to play, and why? ##
 With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
 
@@ -145,6 +148,7 @@ I love the song of the South singing through the lumber industry and the railroa
 * Gratitude for Muslim prayers 
 * Gratitude for the world history teacher at Norfolk Academy
 * Grateful for the sound of the dishwasher
+* Grateful for a smile shared with someone in the car next to me
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
