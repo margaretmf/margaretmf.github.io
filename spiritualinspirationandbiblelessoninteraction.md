@@ -1,5 +1,51 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## Week of February 24, 2020 - 'Christ Jesus' - Inspiring Passages ##
+
+* The yesterday, today, forever
+
+"Jesus Christ the same yesterday, and to-day, and for ever."
+
+* The light of the world
+
+"I am the light of the world"
+they "shall have the light of life"
+
+* Bear witness to the Father
+
+"I am one that bear witness of myself, and the Father that sent me beareth witness of me."
+
+* the Son of man
+
+"When y heave lifted up the Son of man, then shall ye know that I am he, and that I do nothing of myself; but as my Father hath taught me, I speak these things."
+
+* Continue in God's word, disciples
+
+* Comforted by God
+
+"Comfort ye, comfort ye my people, saith your God."
+
+* The Kingdom of Heaven is at hand
+
+"Jesus began to preach, and to say, 'Repent: for the kingdom of heaven is at hand.'"
+
+* Born of God
+
+"Jesus is the Christ is born of God."
+
+* Divinity of the Christ
+
+"The divinity of the Christ was made manifest in the humanity of Jesus."
+
+* Jesus, the God-crowned, the divinely royal man
+
+"Jesus the God-crowned or the divinely royal man"
+
+* The Holy Ghost, the Comforter
+
+"the divine idea of God"
+
+
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
 * God's thoughts towards His people
