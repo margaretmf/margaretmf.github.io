@@ -82,6 +82,66 @@ Thou shalt have no other gods before me."
 
 "How shall we declare Him, till, in the language of the apostle, 'we all come in the unity of the faith, and of the knowledge of the Son of God, unto a perfect man, unto the measure of the stature of the fullness of Christ'"
 
+* a Teacher from God
+
+"we know that thou art a teacher come from God: for no man can do these miracles  that thou doest, except God be with him."
+
+* God's doctrine
+
+" And the Jews marvelled, saying, How knoweth this man letters, having never learned? Jesus answered them, and said, My doctrine is not mine, but his that sent me. If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself. He that speaketh of himself seeketh his own glory: but he that seeketh his glory that sent him, the same is true, and no unrighteousness is in him."
+
+* Jesus patiently persisted
+
+"taught and demonstrated the truth of being"
+
+* Divine Love casts out error, demons, and heals the sick, in the name of Christ, Truth
+
+Jesus worked through the power of the Christ and Divine Love, a power outside of himself
+We live in God, this gives us power
+
+* living Truth that heals the sick, the Science of divine Mind, demonstrated by Christ Jesus
+
+"The only way to this living Truth, which heals the sick, is found in the Science of divine Mind as taught and demonstrated by Christ Jesus."
+
+* Truth, cassts out inharmony, harmony is the real
+
+* Jesus beheld the perfect man in Science, sinning mortal
+
+"Jesus beheld in Science the perfect man, who appeared to him where sinning mortal man appears to mortals. In this perfect man the Saviour saw God's own likeness, and this correct view of man healed the sick. Thus Jesus taught that the kingdom fo God is intact, universal, and that man is pure and holy."
+
+* the great Teacher
+
+"control over sin and disease"
+
+"guidance of divine Principle"
+
+* theology of CHristian Science, healing the sick
+
+"In divine Science, man is the true image of God. The divine nature was best expressed in Christ Jesus, who threw upon mortals the truer reflection of God and lifted their lives higher than their poor thought-models, - thoughts which presented man as fallen, sick, sinning, and dying. The Christlike understanding of scientific being an divine healing includes a perfect Principle and idea, - perfect God and perfect man, - as the basis of thought and demonstration."
+
+* Master, cast out devils, evil; Truth, casts out error
+
+* The only Intelligence, Substance - Life
+
+* Jesus, our Savior
+
+"the Father sent the Son to be the Saviour"
+
+* Performing miracles, healings in the presence of disciples
+
+* the Highest Human Concept of the Perfect Man
+
+"Jesus was the highest human concept of the perfect man. He was inseparable from the Christ, the Messiah, - the divine idea of God outside the flesh. This enabled Jesus to demonstrated his control over matter."
+
+* follow, Christ Truth
+
+"in the way of God's appointing"
+
+* forsake the foundation of material systems
+
+"Jesus marked out the way."
+"Christian Science says: I am determined not to know anything among you, save Jesus Christ, and him glorified."
+
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
 * God's thoughts towards His people
