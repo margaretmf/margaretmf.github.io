@@ -1,5 +1,42 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## Week of March 1, 2020 - 'Man' - Inspiring Passages ##
+
+* Trusting in God brings Blessings
+
+"Blessed is the man that trusteth in the Lord, and whose hope the Lord is."
+
+* Fruits, like a tree and a river
+
+"For he shall be as a tree planted by the waters, and that spreadeth out her roots by the river,a nd shall not see when heat cometh, but her leaf shall be grean; and shall not be careful in the year of drought, neither shall cease from yielding fruit."
+
+* Everlasting God, the Creator of the Ends of the Earth, he knows all
+
+"there is no searching of his understanding"
+God is omniscient
+God knows everything
+God knows what we need to know
+God knows where we need to be
+God knows how to correct, guide, and nudge us
+God knows how to show us what not to do
+God will give us intuition
+
+* God who gives us strength and makes us whole and able
+
+"He giveth power to the faint; and to them that have no might he increaseth strength."
+
+"As your days, so shall your strength be."
+
+"...they that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint."
+
+* God restores us to health
+
+"For I will restore health unto thee, and I will heal thee of thy wounds, said the Lord;"
+
+* We are God's people
+
+"And ye shall be my people, and I will be your God."
+
 ## Week of February 24, 2020 - 'Christ Jesus' - Inspiring Passages ##
 
 * The yesterday, today, forever
