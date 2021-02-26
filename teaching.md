@@ -1,6 +1,6 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", and "Mandy".
+The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", and "The Indian in the Cupboard". 
 
 
 # Critical Reading #
@@ -204,6 +204,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Little Bear, "fought in wars", "scalped people", "grown stuff to eat like marrows and stuff"
 * Egg-and-spoon race
 * The cowboy and the horse
+* He's alive
+* The sock drawer for cowboys
+* The cowboy, not after the land, has nothing to do with the Indian
+* Plastic figures in boxes
+* the Indian won't hurt you
+* Omri meeting his persecutor
+* The playground
+* Rough treatment
 
 ### Color ###
 * brown // paper and string
@@ -219,7 +227,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * white // feet
 * brown // horse
 * snow-white // horse
-
+* pale-blue // desert
+* red // dress
 
 ### Adjectives ###
 * large // parcel
@@ -249,6 +258,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * awe-struck // admiration
 * anxious // glance
 * ungratifying // stench
+* quick // movement
+* infinite // slowness
+* lifeless // plastic figures
+* grass // cuttings
 
 ## Vocabulary ##
 * Arrange
@@ -258,7 +271,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Bewilderment
 * Spiritous
 * Reluctant
-
+* Exclamations
+* Apprehension
+* Insulation
 
 ## Allusions ##
 * "On the Trail of the Iroquois"
@@ -291,6 +306,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Meanwhile he was scraping the dry beans off the plate with his nails. He took the fragment of firelighter and the twigs out of his pocket and arranged them in the center of the plate. He washed the bit of meat in his bedside water glass. He'd had a wonderful idea for a spit to cook it on. From a flat box in which his first Erector set had once been neatly laid out, but which was now in chaos, he took a rod, ready bent into a handle shape, and pushed this through the meat. Then, from small bits of the set, he quickly made a sort of stand for it to rest on, with legs each side of the fire so that the meat hung over the middle of it." (p 91) [Adventures]
 
 * "'You no Great Spirit! Only stupid boy! Fight, spoil good meal! You feel shame!'" (p. 94) [The Way the Indian Talks]
+
+* "'Peace of Great Spirits be with you'" (p. 111) [The Way the Indian Talks]
+
+* "The cowboy looked at it, looked up at. Omri, then, stood up and put the hat on. 'You shore ain't no reg'lar hallucy-nation,' he said. 'I'm obliged to ya.' Suddenly he laughed. 'Jest imagine, thankin' a piece o'yer dee-lirium tremens fer givin' you yer hat back! Ah jest cain't figger out what's goin' on around here. Say! Are you real, or was that Injun real? 'Cause in case you ain't noticed, you're a daned sight bigger'n he is. You cain't both be real.'" (p. 119) [The Way the Indian Talks]
+
+* "Omri ate his cereal in silence, grinning to himself, hugging his secret. He slipped a couple of cornflakes into his pockets." (p. 133) [Omri's innocence, childlike eating]
+
+* "Little Bear and Omri watched. From the microscopic point of Boone's pencil there developed a most amazing scene. It was a prairie landscape, with ills and cacti and a few tufts of sagebrush. Boone sketched in, with sure strokes, some wooden buildings such as Omri had often seen in cowboy films - a saloon with a swinging sign reading 'Golden Dollar Saloon' in twirly writing; a post office and general store, a lively stable, and a stone house with a barred window and a sing saying 'Jail.' Then, moving swiftly on his knees, as it were from one end of his 'street' to another, Boone drew in the foreground - figures of men and women, wagons, horses, dogs, and all the trappings of a little town." (p. 163) [Omri's engagement with Boone, Little Bear, drawing, Western]
 
 
 ## Mandy by Julie Andrews Edwards ##
@@ -396,6 +419,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * soft, rose-colored // silk
 * golden // sounds
 * white // flakes
+* black // hair
 
 ### Adjectives ###
 * soft // countryside
@@ -447,6 +471,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * virgin // snow
 * comforting // sounds
 * silvery // light
+* scrambling // sound
+* seed box
 
 ### Vocabulary ###
 * "excursion"
