@@ -133,6 +133,16 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Hey Friend, Let's Share a Good Laugh ##
+Hey old friend, it's you again.
+I love to see you.
+I remember all the things done wrong though.
+And sometimes I just have to have a good laugh after things go bang in the night.
+Hey friend, let's share some comic relief.
+After all that..
+It's going to be ok.
+It will be ok in the end.
+
 ## Grandparents ##
 I remember all the stories and lessons my grandparents shared.
 The stories they shared sing through me intuitively.
