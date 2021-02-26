@@ -161,7 +161,139 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
-## Mandy by by Julie Andrews Edwards ##
+## The Indian in the Cupboard by Lynne Reid Banks ##
+
+## Questions ##
+### Who? ###
+* Omri, Patrick
+* Omri - "a secondhand plastic Indian figure" - a birthday present from Patrick
+* Patrick - "puts the Indian in his pocket"
+* Action Man
+* "not a very tidy boy in general but he did like arranging things in cupboards and drawers and then opening them later and finding them jst as he'd left them"
+* "Omni carefully stood the Indian on the shelf."
+* The Indian - black, fierce, frightened yes; feather sticking out of his head
+* The Indian no longer on the shelf, but in the bottom of the cupboard - in the darkest corner of the cupboard, alive
+* the Indian behaving like a real, live Indian and a knife cut through his finger; clothes with intricate details; no paint on his face
+* the Indian's name - "Little Bear", "Iroquois brave. Son of chief"
+
+### What? ###
+* Getting the Indian out of his thought
+* Talking about the Indian
+* But all of his thoughts and dreams were aout the Indian and the endless possibilities opened up by a real, live plastic toy
+* the Indian is better than a skateboard
+* on the floor of the cupboard, the Indian became plastic again
+* Omri played secret, exciting games with the plastic Indian
+* War dance, eyes closed; knife not a part of him
+* Locking the Indian in the cupboard to not look at him or think about him
+* Television
+* Laying the knife down
+* Teepee, longhouse
+* the Indian - truly alive "firm and full of life" "he could feel his heart beat"
+* "bringing plastic things to life"
+* the Indian's clothes, feathers, knife
+* Outside the Teepee, measureless canyon he's shouting across
+* Relationship to a big mountain -- the sky, the sun
+* Idea of Indians coming from Western films // war paints, tepees
+* "Fighting in America", "killing each other" // guns and knives // Napoleonic wars // Englishmen and cavalry horses
+* Omri could begin seeing things from the Indian's point of view
+* Omri, not a great reader "he couldn't get into books", but he was deep in the books
+* Iroquois Indians // Five Nations 
+* Other plastic figures coming to life
+* "the chief in the cupboard"
+* the Indian is real to Omri; the cowboy is in Patrick's pocket
+* Little Bear, "fought in wars", "scalped people", "grown stuff to eat like marrows and stuff"
+* Egg-and-spoon race
+* The cowboy and the horse
+
+### Color ###
+* brown // paper and string
+* white // metal cupboard
+* red // satin ribbon
+* darkest // corner
+* black // eyes \\ and fierce and frightened
+* white // teeth
+* black // hair
+* bronze // shoulder
+* white // paint
+* blue-black // hair 
+* white // feet
+* brown // horse
+* snow-white // horse
+
+
+### Adjectives ###
+* large // parcel
+* twisty // key
+* dawn // light
+* fierce and frightened // eyes \\ and black
+* little // knife
+* thundering // heart
+* plastic // bows and arrows
+* early // sunlight
+* intricate // details
+* splendid // sight
+* dark // passage
+* ferocious and hidden // faces
+* bright // dyes
+* painted // symbols
+* beaten // earth
+* small // stones
+* riding // ground
+* huge // boulders
+* living // things
+* passing // bird
+* cotton // wool
+* magic // cupboard
+* trembling // hand
+* quick // temper
+* awe-struck // admiration
+* anxious // glance
+* ungratifying // stench
+
+## Vocabulary ##
+* Arrange
+* Astonishment
+* Ransacked
+* Magnifying
+* Bewilderment
+* Spiritous
+* Reluctant
+
+
+## Allusions ##
+* "On the Trail of the Iroquois"
+
+## Themes ##
+* Children's Play and Imagination
+* Friendship
+* Indians in America and Cowboys // Western
+* Indian, Iroquois, English, French relations // Culture
+* Fighting, Killing
+* Gratitude
+
+### Interesting Sentences or Paragraphs ###
+* "If the Indian *were* real, and not just - well, moving plastic, as Pinocchio had been moving wood, then he would need food and other things. And Omri had left him shut up in the dark all day with nothing. Perhaps - what if there were not enough air for him in that cupboard? The door fitted very tight. How much air would such a very small creature need? What if - what if the Indian were - what if he'd *died*, shut up there? What if Omri had killed him?" (pp. 18-19) [Interaction with the Indian, Imagination]
+
+* "Biscuits, jam, peanut butter, that sort of thing was no problem, but somehow Omri felt sure these were not Indian foods. Suddenly his searching eyes fell on an open tin of sweet corn. He found a paper plat in the drawer where the picnic stuff lived, and took a good teaspoonful of corn. Then he broke off a crusty corner of bread. Then he thought of some cheese. And what about a drink? Milk? Surely Indian braves did not drink milk? They usually drank something called 'firewater' in films, which was presumably a hot drink, and Omri dared not heat anything. Ordinary non-firewater would have to do, unless...What about some Coke? That was an American drink. Lucky there was a bit in a big bottle left over from his birthday, so he took that. He did wish there was some cold meat, but there just wasn't." (p. 23) [Foot, Descriptions]
+
+* "'Not want toy,' said the Indian" (p. 28) [The Way the Indian Talks]
+* "'Little Bear not lie. Great hunter. Great fighter.'" (p. 38) [The Way the Indian Talks]
+* "'Some. French. Not take English scalps. Englishmenf riends to Iroquois. Help Indian fight Algonquin enemy.'" (p. 37) [The Way the Indian Talks]
+
+* "Down in the kitchen he ransacked his mother's store cupboard for a tin of meat. He found some corned beef at last and opened it with the tin opener on the wall." (p. 39) [Ransacked]
+
+* "In a moment he had vaulted over the bottom edge of the cupboard and, as the horse reared in fright, jumped into the air under its flying hooves and grasped the leather reins. The horse fought to free its head, but Little Bear hung on with both hands. Even as the horse plunged and bucked, the Indian had moved from the front to the side. Grasping the high pommel of the saddle, he swung himself into it. He ignored teh swinging stirrups, holding on by gripping with his knees." (p 43) [Relationship with horse]
+
+* "The selection of plastic figures there was good. There was one whole box of mixed cowboys and Indians. Omri searched till he found a chief wearing a cloak and a full feather headdress, with a bow in his hand and a quiverful of arrows slung across his back. Omri brought it with part of his lunch money and rushed back to school before he could be missed." (p. 65) [Plastic Figures]
+
+* "'Little Bear isn't a toy. He's a real man. He really lived. Maybe he's still - I don't know - he's in the middle of his life - somewhere in America in seventeen-something-or-other. He's from the *past*,' Omri struggled to explain as Patrick looked blank." (p. 86) [Plastic Figures, Real, Live]
+
+* "Meanwhile he was scraping the dry beans off the plate with his nails. He took the fragment of firelighter and the twigs out of his pocket and arranged them in the center of the plate. He washed the bit of meat in his bedside water glass. He'd had a wonderful idea for a spit to cook it on. From a flat box in which his first Erector set had once been neatly laid out, but which was now in chaos, he took a rod, ready bent into a handle shape, and pushed this through the meat. Then, from small bits of the set, he quickly made a sort of stand for it to rest on, with legs each side of the fire so that the meat hung over the middle of it." (p 91) [Adventures]
+
+* "'You no Great Spirit! Only stupid boy! Fight, spoil good meal! You feel shame!'" (p. 94) [The Way the Indian Talks]
+
+
+## Mandy by Julie Andrews Edwards ##
 
 ## Questions ##
 ### When? ###
