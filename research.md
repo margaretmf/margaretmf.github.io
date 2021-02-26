@@ -218,6 +218,8 @@ Many towns and cities in Mississippi owe their existence to the railroads and sa
 
 Labor-saving equipment introduced soon after the turn of the century joined with railroads to spur growth. By 1905, the ancient caralog, a heavy ox-driven two-wheeled wagon, was replaced by the Lindsey Eight-Wheel Wagon invented by the Lindsey brothers of Laurel, Mississippi. In turn the skidder and steam log loader replaced the eight-wheel wagon. Skidders were huge winches with long cables. These cables were attached to logs, and the winches dragged them to the railhead. Such mechanizations cut logging costs and allowed for year-round operations."
 
+## [Hodge-Hunt Manufacturing & Hunt Lumber Co. Story (1938-1972)](http://huntfamilyhistory.com/wpd/?page_id=1151) ##
+
 
 ----------
 
@@ -308,6 +310,12 @@ Drivers gave their old trucks – many of which they owned outright – to their
 'If I don’t work,” Flores says, “my kids will starve.'
 
 He keeps a log book of fake hours in the glovebox and the real one hidden beneath his seat in case of a surprise inspection."
+
+
+----------
+
+
+## [Dissect](https://dissectpodcast.com) ##
 
 
 ----------
@@ -1017,6 +1025,8 @@ The cowboy is a complex individual who could warrant a whole book of analysis. T
 
 ## [American Cowboy](https://books.google.com/books?id=y-oCAAAAMBAJ&pg=PA22&lpg=PA22&dq=cowboys+western+romantic+southern+virgins&source=bl&ots=R8twtrv8WP&sig=ACfU3U23r3Vlw0CqQl0okOuMmrKnm6FQlg&hl=en&sa=X&ved=2ahUKEwjDx8qQsejuAhVqGVkFHbS9BcU4FBDoATADegQIBhAC#v=onepage&q&f=false) ##
 
+## [A Two Horse Race: An Explanation of the Virginian's Natural Equality Based on Man's Faculty of Reason and Sentiment of Pity](https://www.ashbrook.org/wp-content/uploads/2012/06/2007-Leibolt.pdf) ##
+
 ## [How Mark Twain Invented the Wild West](https://themillions.com/2017/01/how-mark-twain-invented-the-wild-west.html) ##
 
 ## [Roughing It](https://en.wikipedia.org/wiki/Roughing_It) ##
@@ -1156,7 +1166,92 @@ If a female did not follow cultural norms, she was told that her children would 
 
 "In 'TheDumbWife,' for example, a doctor told a man that in order to 'make a scolding wife hold her tongue,' he should beat her with a hickory stick."
 
-## p. 59 ##
+"Both the North and the South published hundreds of tunes during the Civil War, but there were major differences in how southern and northern singers and composers communicated the messages. Southern ditties, for example, were less humorous and more "ferocious and savage" than those of the North. Similarly, before and after the Civil War rural southern whites enjoyed singing savage English and Scottish murder ballads. In fact, homicide was one of the most popular song themes. "
+
+Music helped southerners understand, accept, and explain their violent world.
+
+"The prevalence of fighting and murdering tunes also reflects that in the late nineteenth century the rural South was rocked by "widespread and multifaceted crisis." In times of economic and social stress, southern mountaineers drank too much whiskey, behaved aggressively, and fought freely. This behavior eased their anxieties and emotions. It really did not matter that people died in the process, because that was how these males traditional reacted to their problems. Moreover, as the tunes indicated, a crime wave swept the region in the 1880s and 1890s, and southern homicides and prison populations both increased. In some areas of the rural South, the rowdiness actually grew worse in the years between the worldwars. In a small area on the Tennessee and Kentucky line, for example, approximately thirty people died violently between 1890-1919, thirty-three others followed suit from 1915-1940"
+
+"In fact, rural hooligans customarily disrupted religious services by loitering outside church building, shooting their guns, drinking moonshine, talking loud, and cursing at all who passed by.
+
+Since antebellum and postbellum folksongs were similar in how they portrayed social relations and human life, they reinforce studies that indicate the South has traditionally been a violent region. 
+
+hot-tempers, trusted no one, instantaneously turned ruthless at the
+slightest unfavorable remark, relied on brute force, and fought savagely. Instead of resembling the gallant gentleman of popular imagination, for example, music showed that southern brawlers would do anything in order to win. They stabbed people in the back, they clubbed defenseless individuals, they ambushed their human prey, and they used whatever weapon was available. Instead of formal duels, songs indicated that mountaineers were more apt to shoot someone from behind a tree or grab a stick of stove wood and bash in their unsuspecting victim's skull."
+
+"African American tunes also reflected cultural ideas. Williamson, and a host of other singers did not have to give a motive, because blacks also thought people were simply cruel. In this regard, music shows southern African Americans and whites had a lot in common. Moreover, these tunes mirrored reality. Although African American rousters, for example, were not to carry weapons on river boats, most did. There were so many stabbings and slashings on some boats that everyone would have to line up and throw their knives into the water. In fact, immediately before World War II when black singers sang about using knives, razors, or guns, they discussed real events. Performer Dickie Wells claimed that both black and white musicians carried weapons. Wells always toted a pistol in the South, because his band 'ran up against a lot of frightful people' who wanted to 'beat up the band or shoot somebody.' When Well spulled his revolver, however, 'the cat' generally 'cool[ed] down.'
+
+Many had abandoned the rural South because of the agricultural depression, only to find similar, or worse, conditions in the urban North. These songs demonstrated that African American males felt their manhood had been challenged. By bragging about killing or beating everyone that ever treated them wrong, these men were fighting back the only way they knew how. As their music indicated they equated manliness with brute force.
+
+Music also mirrors that southern whites terrorized blacks more than African Americans killed whites. Again, these lyrics reflect reality. Although blacks could be violent, they generally directed their brutality towards other African Americans. Both the blues and African American folk music demonstrates this situation prevailed before WorldWarII. 
+
+Such tunes also depicted that intense negative undercurrents existed between the two races.
+
+southern music shows that deep-down African Americans knew the truth and bitterly resented the treatment they received"
+
+The prevalence of violent tunes also reflects that in the nineteenth and early twentieth centuries brutality ruled on southern dance floors. Similar, they mirror the fact that musicians of both races had a rugged life in the South. White southern musicians of tenper formed in rough environments. When the seper formers sang about killing and fighting, they revealed their everyday existences. Fights routinely brokeout at white dances throughout the mountain region. Music illustrates that many square dances were not the stereotypical prim and proper events of popular imagination. In the Ozarks, for example, backwoods frolics were still wild occurrences in the 1920s. People drank too much whiskey, most of the young males carried weapons, and bloody fights commonly occurred. In fact, rival families or neighborhoods met and settled quarrels at Ozark dances. If a gang of Arkansas males felt that they were not 'treated with proper consideration,' dwellings would be destroyed, lamps broken, and roofs 'riddled withbullets.' The settlers of Newton County, Arkansas, enjoyed square dances, but when the liquor flowed freely a "free-for-all fight and the use ofalong,keen-edgedknife,orpistol,wasnothinguncommon." When such fights occurred, chaos ruled, and feuds developed. At these events the proprietors customarily built a special shack in which they stored the violentmales. The men were held there until they cooled off.
+
+"At Memphis taverns dead bodies were simply dumped outside so undertakers could collect them on their nightly runs. The Deep South was no better for black musicians."
+
+"Before World War II every location below the Mason Dixon line may not have experienced extreme violence, but music indicates that at least some key areas did
+
+Although songs cannot prove that the whole South was violent, they indicate that several culturally significant, and extremely large, areas were indeed brutal. Lyrics reflect that scholars were correct when they claimed violence was 'an essential fact of human life' in the South. In fact, the whole musical scene demonstrated that both black and white southerners had a predisposition to lethal violence.
+
+Moreover, violence continued to erupt in times of social stress.
+
+Finally, in the modern era the lack of murder tunes illustrated that rural southern culture and society had changed.
+
+Although various motives behind lyrical violence existed, a significant theme reemerged in the music of the modern South: some southerners still thought that brute force,instead of debate, solved problems.
+
+With sadistic events occurring throughout the region, some tunes, like the people themselves, began to display a very militant, often violent, attitude. In fact, at times southern music became as repulsive as it had been during Reconstruction. Prominent music historian Bill Malone calls this the 'ugliest chapter in country music's history.'"
+
+"It is an indication that many southerners not oly resented the prosperity of the rest of nation, but they also understood the South's weakpoints. Like the people themselves, southern singers put on a 'big front,' but music illustrates that they knew that most southern states habitually ranked last in every positive classification, or first in every negative category. This type of music demonstrates that for several generations many southerners have had a 'chip on their shoulder,' when it came to 'yankees' and northern prosperity.
+
+In the late twentieth century musicians not only lyrically associated the ideas of fighting and southern manliness, but in their public images and actions they also linked the two concepts. 
+
+Furthermore, when all these southern 'good ol' boys' continually sang about adult lives filled with hard work, heavy drinking, and brawling, they mirrored significant cultural traits. This type of music reflects that when many young southern males walked off the factory line or skipped 'study hall' on Friday afternoon, they looked forward to 'picking up' women, filling their tanks with gas, drinking whiskey, and having a fight or two, so they could brag about all of it to their buddies. In songs like 'Wildlife Sanctuary' Bandy and Stampley were proud of this kind of lifestyle. In this song the duo boasted that a 'wildlife sanctuary' should be established for the dying breed of 'good ol' boys' who liked to brawl, throw liquor bottles at the band, and drink until the last drop of alcohol was gone unlike the rest of the United States, a majority of southerners are intolerant of homosexuality. In fact, according to many oral sources, gays are routinely harassed in the modern South. In one major study three- fourths of the participants reported harassment. As this tune indicated, this group was still persecuted openly in the 1980s and 1990s. In the 1980s 'Philip,' a gay male from South Carolina, reported that southerners habitually called him 'faggot' and 'queer.'"
+
+"Another type of factual tunes, feud songs, demonstrates that southern males used guns to uphold family honor.
+
+All of the evidence also shows that southerners have traditionally viewed guns as more than simple hunting tools. In the music of the South firearms are generally used to kill humans, not animals. Instead of only being used for sport, in southern society guns have historically been viewed as protection devices for two of the most important elements in southern culture, family and honor. Feud songs were not the only songs that demonstrated this. 
+
+Although firearms played a significant role in many of the cowboy tunes popular in the South, in these songs women did not customarily posses theguns. 
+
+Theyrevealthat firearms have deep psychological and cultural roots in the South.
+
+By listening to sadistic songs many white southerners proved they did not consider brutality towards blacks morally wrong. Such music indicates that some white southerners felt beating or burning a black person was really no different than punishing a disobedient animal. Instead of being something to abhor, the screams of a member of this race being tortured was something to be danced to and enjoyed." 
+
+"Hundreds of farmers produced illegal whiskey before the Civil War, and back country southerners claimed, 'Where there's smoke, there's bound to
+a be whiskey.'
+
+After the Civil War liquor continued to be an important cultural element.
+
+"Although the abundance of liquor tunes reflect that Appalachian inhabitants produced a considerable amount of moonshine, songs also clearly indicate that southerners in other locations participated in the occupation. Northern Arkansas was notorious for ambushing moonshiners and its good, albeit, illegal whiskey. There, many people accepted the trade and sang moonshine tunes. Ozark melodies, for instance, criticized Benjamin Franklin Taylor, a late nineteenth century revenue. Musical numbers also illustrate that non-mountainous regions made whiskey." 
+
+"Besides reflecting that southern males continually bragged about their liquor consumption, such tunes illustrate deep-seated cultural assumptions. When southern singers boasted about their own, or other southern males, drinking habits, they revealed that for generations the macho male complex has been deeply ingrained in southern culture. This was never only a white or a black trait, because music indicates it influenced both races."
+
+"Committing suicide with drugs also emerged in blues tunes, including Sam Collins' 1927 hit 'The Jail House Blues' and Rosa May Moore's 1928 single 'Stranger Blues,' but these were not the only blues numbers that alluded to drugs. As in folk tunes, however, dope tunes never approached the popularity of blues liquor tunes. The use of morphine, needles, cocaine, reefers, and dope are discussed, but references to whiskey alone outnumbered drug terms in blues songs popular enough to be reissued in the 1920s, 1930s, and 1940s. As in earlier black folktunes cocaine was the most prevalent drug alluded to, but this drug made an appearance in fewer than ten songs"
+
+"Also a large majority of addicts were middle and upper class southerners, but folk music was generally the music of the rural poor. In addition, many addicts were Civil War veterans who had been prescribed opiates in the war. This group hid their addictions, because when exposed they lost their pensions. These men would not have jeopardized themselves lyrically"
+
+"Truck driving was one occupation especially affected by this drug. The pill popping habits of truck drivers were as much a part of their macho mystic as diesel fumes and eighteen wheelers. In reality these hard working individuals had to take speed in order to drive longer hours, stop less for food, and keep awake. The more miles they traveled, the more money they made. Southern truckers 'fulled on amphetamine goodwill' were common throughout the region, and they were audiences members in many backwater southern bars." 
+
+Johnny Cash was also addicted to this drug. It was not gangsters, however, but Grand 01e Opry employees who got Cash hooked on the pills that almost destroyed his career."
+
+"It was culturally acceptable for Cash to sing about truckers swallowing speed, because, unlike smoking reefer, the deeds reflected common situations, appeared macho, and were legal
+Not only would the police harass musicians, but they might not have a job"
+
+"Since the Civil War militant pro-South symbols have continuously emerged in southern music. During the Civil War, for instance, many melodies glorified the Confederate flag. After the war, flag and militant tunes remained in the oral tradition throughout the rural South. Although the patriotic zeal that accompanied America's entrance into World War II temporarily silenced southerners from glorifying the Confederacy, immediately after the war when the federal government began challenging the South's racial status quo. Confederate symbols reemerged. In fact, in the modern era Confederate symbolism routinely appeared in white tunes, concerts, and on album-cover art. Confederate memorabilia not only engulfed the whole southern rock and roll scene of the 1970s, but several southern performers also continued to utilize such items in the 1990s."
+
+"Civil War and Reconstruction songs about the flag are significant, because they indicate that southerners viewed the stars and bars as more than a piece of cloth: it symbolized their nation. The popularity of these tunes also indicates that although southerners lost the Civil War, from the beginning of Reconstruction many were not going to obey northern dictates. As early as 1866 the tune, 'I'm A Good Old Rebel,' made this clear."
+
+Although red-neck southern rockers stressed Confederate imagery the most, some country musicians also utilized the theme. In 1960, for example, a Hank Williams, Jr. publicity photograph showed the singer standing by his gun and sword collection, and its backdrop was a large Confederate flag."
+
+Confederate Railroad, songs of Dixiee
+
+"When Confederate symbolism continued to sell albums and promote southerness into the 1990s, it indicated that white southerners were still emotionally attached to the Civil War. In many ways they could not forget the past, nor could they completely cast off the idea that they were a unique group of people. Instead of being ashamed of their forefathers' actions, music illustrates that contemporary southerners continued to think and act like their Reconstruction ancestors."
+
+"lyrically proud to be rebels
 
 ## [The Darker Side of Dixie: Southern Music and the Seamier Side of the Rural South](https://www.semanticscholar.org/paper/The-darker-side-of-Dixie-%3A-southern-music-and-the-Hutson/79bf78a02849cb107ae7323c22ba420438320b20) ##
 
@@ -1278,5 +1373,15 @@ This issue is edited also because though the outward expansion through military 
 
 "The rise and development of two schools reflect and influenced the aforementioned two turns in Chinese frontier history: the New Qing History school (新清史) and the Southern China school (華南學派). One must note that these are not self-appellations, but rather names given by others. Although dissents existed within both schools, scholars tend to agree on certain key points or address common questions in similar ways. The New Qing History scholars question the hegemony of Chinese materials and classic Chinese historiography. On the contrary, they rely on non-Chinese sources to reconsider the structure of Qing imperial repertoire and revisit “China” as an analytical category. Highlighting the diversity and variety within the empire, the New Qing History scholars take frontier regions as the manifestation of the Qing empire’s heterogenous imperial nature. But is the Qing unique in this regard? As indicated in Lian Ruizhi and Zhao Shiyu’s articles, the Ming empire was quite flexible as well in creating an administrative structure that allows semiautonomous secular regimes and religious communities for indigenous practices. In that case, do we see any fundamental difference between the Ming and Qing empires’ multiethnic and hierarchical imperial order? Another contribution made by the authors of this special issue is to challenge the hegemony of ethnicity. As one significant keyword in early-stage New Qing History scholarship, ethnic identification was given extensive attention to check the domination of the Sinicization discourse. However, as Chen Boyi and Hu Xiaobai point out, ethnicity was not always the parameter of the Qing empire’s frontier policy. Chen claims that approaches to restructure grassroots communities in China proper may not differ much from those in non-Han regions; religion, as indicated in Hu’s work, oftentimes transcended ethnic and linguistic boundaries and functioned as a significant variable that formed and reformed frontier landscape. The four articles on Ming–Qing China’s southern frontier demonstrate great potential to dialog with the New Qing History scholarship that so far has shed more light on the empire’s Inner Asian frontiers."
 
+
+----------
+
+
+## [Thomas Jefferson](https://billofrightsinstitute.org/founders/thomas-jefferson) ##
+"Thomas Jefferson hoped that he would be remembered for three accomplishments: his founding of the University of Virginia, his crafting of the Virginia Statute for Religious Freedom, and his authorship of the Declaration of Independence. It is for the last that he has most endeared himself to succeeding generations as a champion of liberty and equality.
+
+Jefferson believed that these achievements were the high points of a life dedicated to the promotion of human freedom. Education, he held, freed the mind from ignorance, tolerance freed the will from coercion, and the assertion of human liberty and equality freed the body from the chains of tyranny. Securing religious liberty in the new republic was one of Thomas Jefferson’s most important goals. His papers, including the letter to the Danbury Baptists Association, as well as the Virginia Statute for Religious Freedom, reveal a statesman who recognized the civic utility of religion, but believed that government had no business regulating belief.
+
+However, Jefferson’s actions sometimes contradicted his words. An opponent of centralized power, as president he completed the Louisiana Purchase and unhesitatingly employed the resources of the federal government to enforce the harsh and unpopular Embargo Act. Although a proponent of individual rights, he excused the atrocities committed by the French Revolutionaries during the Reign of Terror. A critic of slavery who outlawed the slave trade as president, he was the owner of more than 200 African American slaves. Understanding Jefferson lies in the difficult task of reconciling these inconsistencies."
 
 
