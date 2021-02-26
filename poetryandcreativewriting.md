@@ -60,6 +60,9 @@ Through my grandmother, and my intuition underly someone's country music on "Goi
 ## What do you look forward to every week? ##
 Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
 
+## What is one of your greatest blessings? ##
+My family has blessed me with love, music, laughs, cheerfulness, athletics, and commitment since I was young I am grateful for many memories of our family reunions where we met and participated in activities harmoniously. I love that this family continues to bless me with emotional support and gatherings on farms and old houses. I trust that there will be many, many, many more good years ahead as adults with the next generation to come.
+
 ## When was the last time you felt needed? ##
 Every time Nate calls me and asks me to give him a ride, I feel needed. I love hearing his voice, his faith, and his love for his family and the community. I have felt loved when he shared that his mom wanted to meet me, and he made me feel better when he said 'I would be a good mom'. I love feeling the motherly love for his precious daughters. I am grateful to know the Salvation Army and the Up Center, and feel needed there when I compassionately share items with them.
 
