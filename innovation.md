@@ -574,6 +574,21 @@ is_contact: true
 (4) A gas tank being filled
 (5) The birds singing in the South
 
+## ** Day 37 ** ##
+### **Images** ###
+(1) A bike on a bus
+(2) A car blinker blinking
+(3) A school bus
+(4) A fire truck
+(5) The smile of a woman in another car
+
+### ** Sounds** ###
+(1) The tic toc of a car blinker blinking
+(2) A car speeding up
+(3) A car motor
+(4) The geese
+(5) Plastic bags crinkling
+
 <br>
 
 <br>
