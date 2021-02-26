@@ -169,7 +169,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Omri - "a secondhand plastic Indian figure" - a birthday present from Patrick
 * Patrick - "puts the Indian in his pocket"
 * Action Man
-* "not a very tidy boy in general but he did like arranging things in cupboards and drawers and then opening them later and finding them jst as he'd left them"
+* "not a very tidy boy in general but he did like arranging things in cupboards and drawers and then opening them later and finding them just as he'd left them"
 * "Omni carefully stood the Indian on the shelf."
 * The Indian - black, fierce, frightened yes; feather sticking out of his head
 * The Indian no longer on the shelf, but in the bottom of the cupboard - in the darkest corner of the cupboard, alive
