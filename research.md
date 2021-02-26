@@ -107,11 +107,11 @@ People with Intellectual Disability - Increased Risk of
 Risk Factors for Mental Illness Associated with Intellectual Disability
 * Low self-esteem
 * Lower autonomy and less freedom to make own decisions
-* Poorer communication skils
+* Poorer communication skills
 * Fewer coping and emotional regulation skills
 * Higher levels of frustration
-* Greater difficulty complying with treatemnts
-* Increased risk-taking bheavior
+* Greater difficulty complying with treatments
+* Increased risk-taking behavior
 * Higher levels of illness and other disabilities
 * Having fewer interpersonal and social relationships
 
