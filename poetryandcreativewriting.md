@@ -60,6 +60,9 @@ Through my grandmother, and my intuition underly someone's country music on "Goi
 ## What do you look forward to every week? ##
 Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
 
+## Were you ever bullied as a child? Tell a story of a time you were bullied, or a time you observed someone being bullied. ##
+Yes! People bullied me as a child. I work on letting go of the sense of being bullied, and love people and ofrgive people. I remember on the late bus I desired to communicate and connect with people, but they made me feel bad for listening in, and people did not let me sit with them at the lunch table. It was awful! But I open up to the Holy Spirit's new ways of blessing people.
+
 ## What is one of your greatest blessings? ##
 My family has blessed me with love, music, laughs, cheerfulness, athletics, and commitment since I was young I am grateful for many memories of our family reunions where we met and participated in activities harmoniously. I love that this family continues to bless me with emotional support and gatherings on farms and old houses. I trust that there will be many, many, many more good years ahead as adults with the next generation to come.
 
