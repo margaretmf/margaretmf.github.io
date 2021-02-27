@@ -742,36 +742,47 @@ Once in my twenties, people felt like I was tripping. Actually, I was tripping. 
 
 I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry; it's embarassing and awkward to look back on.
 
-After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room. I even felt like I saw a high school teacher riding his bike outside.
-Everything felt "stranger than fiction", as they say, but I could still feel God.
-My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong. But I was not fully sound mentally.
-It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack.
-I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
+After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room. I even felt like I saw a high school teacher riding his bike outside. Everything felt "stranger than fiction", as they say, but I could still feel God. My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong - but I was not fully sound mentally. It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack. I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
 
-After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter.
-I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
+After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter. I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
 
 I wrote emails madly to a professor, sounding like a lunatic or a mad woman. I met with him face-to-face, in person. I remember sharing how I felt like I could understand the primitive nature of the Alphabet purely through intuition.
 
-Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks. And then I remember going to the church nearby to see people dancing like children.
+Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks.. and then I remember going to the church nearby to see people dancing like children.
 
 I then heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
-I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, like Mary Poppins, who taught children to "find the fun in every job that must be done", and he called the police on me so I could be taken care of in the hospital.
+I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, like Mary Poppins, who taught children to "find the fun in every job that must be done", and Queen Elizabeth, who represents the ability for women too to govern and understand politics, and he called the police on me so I could be taken care of in the hospital.
 
 It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
 
 My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year. But coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
 
-There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. And I opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
+There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. I had opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
 
 At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
 
 I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too. But translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
 
+## It's a Southern Thing ##
+The rural south seems insular.
+Women seem less educated, less cultured, and dependent on men.
+People in the south seem racist.
+The society around them expects them to work strictly in education and nursing.
+The society around them expects them to become married and depend on men, and be less employed.
+Women with blonde hair and blue eyes seem like damsels-in-distress, always smiling, and heartbreaking cowgirls, complaining about failure, rejection, and harassment.
+
+Partly, I wanted to do a debut with an organization that waves a Confederate flag because I desired to belong, be accepted, and I desired the social status that my family had; but partly I felt like it was antiquated, and I was concerned for African Americans. The Confederate flag represents systematic racism, and I sought to understand political, cultural, and social nuances.
+
+Martin Luther King, Jr. did not like organizations that raised Southern Belles, and I cared about healing from racism since I was a first year student in college. I carry prejudices towards African Americans still, but I remember participating in groups at a university with self-segregation with African Americans. After experiencing rejection and communication breakdowns in humanities classes, I starved myself for a semester because rejection from traditionally Southern groups is painful, but I reformed and engaged with people from more diverse groups and asked an African American man to my sorority date function. I also reformed in becoming less prejudiced towards the Caucasian race in the South, and appreciating their joy, innocence, and light-heartedness, qualities which I express also.
+
+There are societal and cultural projections on African Americans. It seems unacceptable to ask an African American man to a formal, and I carry prejudices that African American men are less clean.
+
+At church, I feel like I was trying to break away from the pull to depend on men, become a career woman, always search for a boyfriend or a husband, and be free from the cowboy-damsel-in-distress stereotypes, but somehow the claims became more aggressive.
+
 ## Thinking Above Political Lines ##
 Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
 
-My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good." I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
+My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom share opinions and her perspective, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good." I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
 
 My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
 
@@ -791,28 +802,40 @@ Relieved that I can fly freely with love and peace in my heart, and still sing m
 No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
 
-## Fighting for Independence ##
-Let go of the gun.
-Let the reign of Truth and Love in.
-Fighting for Independence, where there is ground beneath my feet,
-trust, love, and joy in the depths of my soul,
-goodness that is greater than evil
-and a light that embraces everything through all the Earth.
+## Fighting for Her Independence ##
+She lets go of the gun, and she lets the reign of Truth, Life, and Love in.
+
+Through the fight for her independence, there is ground beneath her feet.
+Trust, love, and joy sings through the depths of her soul,
+and through her light, all the colors on the Earth feel embraced.
+
+People want to keep her passive, helpless, and dependent.
+People want to be violent towards her.
+People want to keep her held back in chains.
+People want to keep her silent, and ask why she doesn't speak up or use her voice.
+
+She lets go of these claims.
+She lets go of this ugliness. 
+She lets go of this uncultured and uneducated beast.
+
+She lets go of the envy towards people more educated, cultured, and fitting into the ideal mold.
+She lets go of the weakness.
+She has a true strength and light-hearted spirit within her that can overcome so much falsehood and darkness.
+With each new day under the Sun, she opens her heart to more independence, love, and innocence that can shine through the land that belongs to everyone.
 
 ## The Freerider ##
 She's a woman who can stand on her own two feet.
 She knows how to straddle a horse alone,
 block and tackle like a true innovator,
-and gain dominion over her heart.
-She may have made mistakes in the past
-but there's a golden light in her heart
-Freed from the chains of the opinions of people
-and the internalized oppressor.
+and pull her self up by the bootstraps like an entrepreneur.
+She may have made mistakes in the past,
+but there's a golden light in her heart freed from the chains of people's opinions and the internalized oppressor.
+She may feel held back from understanding herself and expressing herself, but she can gain dominion over her heart.
 So much freedom is there for her ahead.
 There's a gigantic frontier of possibilities and internal peace.
 She's a lover of knowledge, and true education with a home full of books.
 She has a heart for people that forgives and sings.
-A true woman she is, expressing ladylike qualities and poise.
+A true woman she is, expressing ladylike qualities and poise like a true Queen indeed.
 
 ## Our Country ##
 Everyone in our country are like stars shining on the American flag.
@@ -825,11 +848,11 @@ Everyone in the country, everyone on the Earth has a light like the star that bu
 God holds us all amazingly in tact, in one grand brotherhood, and sisterhood.
 
 ## The Union ##
-North, South, East, West
+North, South, East, West.
 We all stand in this union, 
 where everything is interconnected, 
-rising above the conflict, the chaos, the discordant beliefs, and the enslavement of man
-finding our common bond, and the bridge to the other side, and the joy to love a neighbor another day
+rising above the conflict, the chaos, the discordant beliefs, and the enslavement of man,
+finding our common bond, the bridge to the other side, and the joy to love a neighbor another day.
 
 ## The Rose Within ##
 There is a rose within everyone's heart.
