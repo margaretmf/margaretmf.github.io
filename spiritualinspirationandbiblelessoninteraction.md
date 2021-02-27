@@ -179,6 +179,31 @@ We live in God, this gives us power
 "Jesus marked out the way."
 "Christian Science says: I am determined not to know anything among you, save Jesus Christ, and him glorified."
 
+* Strength comes from God, God is a waymaker
+
+"God is my strength and power: And he maketh my way perfect."
+"be strong in the Lord, and in the power of his might."
+
+* Man in God's image and likeness
+
+"God said, Let us make man in our image, after our likeness."
+"Be fruitful, and multiply and replenish the earth, and subdue it, and have dominion over the fish of the sea, and over the fowl of the air,a nd over every living thing that moveth upon the earth"
+
+"Call the mirror divine Science, and call man the reflection."
+"The substance, Life, intelligence, Truth, and Love, which constitute Deity, are reflected by His creation; and when we subordinate the false testimony of the corporeal senses to the facts of Science, we shall see this true likeness and reflection everywhere."
+
+* An excellent name in the Lord
+
+"O Lord our Lord, how excellent is thy name in all the earth! who hast set thy glory above the heavens."
+
+* All in one accord, in the family of God
+
+"Man is the family name for all ideas, -the sons and daughters of God. All that God imparts moves in accord with Him, reflecting goodness and power."
+
+* Divine Love causes His ideas to multiply
+
+"Divine Love blesses its own ideas, and causes them to multiply, - to manifest His power."
+
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
 * God's thoughts towards His people
