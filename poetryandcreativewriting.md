@@ -1255,6 +1255,19 @@ There's a place for music and you all in my heart forever.
 Childlike memories of light, dancing, and merriment last forever.
 No hurt can reach the child within, we all express this sweet, childlike innocence.
 
+## Healing, It Starts at Home ##
+"'Twas Love Who Traced a Bow of Promise on the Cloud"
+The Full Promise Came
+
+Healing, it starts at home
+with life and love
+It expands out into the community that
+unfolds forever and ever
+in love, one remain
+Thank you for your structure, and overlapping spheres, oh Lord,
+You manitain our spheres as the stars that shine
+Thank you, God, for always being with us.
+
 ## The Sound of Silence ##
 The sound of silence is so grand, so great, so beautiful.
 In the silence, I can hear the greatest music, the greatest song of all.
