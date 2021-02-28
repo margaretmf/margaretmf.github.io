@@ -61,7 +61,7 @@ Through my grandmother, and my intuition underly someone's country music on "Goi
 Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
 
 ## Were you ever bullied as a child? Tell a story of a time you were bullied, or a time you observed someone being bullied. ##
-Yes! People bullied me as a child. I work on letting go of the sense of being bullied, and love people and ofrgive people. I remember on the late bus I desired to communicate and connect with people, but they made me feel bad for listening in, and people did not let me sit with them at the lunch table. It was awful! But I open up to the Holy Spirit's new ways of blessing people.
+Yes! People bullied me as a child. I work on letting go of the sense of being bullied, and love people and forgive people. I remember on the late bus I desired to communicate and connect with people, but they made me feel bad for listening in, and people did not let me sit with them at the lunch table. It was awful! But I open up to the Holy Spirit's new ways of blessing people.
 
 ## What is one of your greatest blessings? ##
 My family has blessed me with love, music, laughs, cheerfulness, athletics, and commitment since I was young I am grateful for many memories of our family reunions where we met and participated in activities harmoniously. I love that this family continues to bless me with emotional support and gatherings on farms and old houses. I trust that there will be many, many, many more good years ahead as adults with the next generation to come.
@@ -70,7 +70,7 @@ My family has blessed me with love, music, laughs, cheerfulness, athletics, and 
 Every time Nate calls me and asks me to give him a ride, I feel needed. I love hearing his voice, his faith, and his love for his family and the community. I have felt loved when he shared that his mom wanted to meet me, and he made me feel better when he said 'I would be a good mom'. I love feeling the motherly love for his precious daughters. I am grateful to know the Salvation Army and the Up Center, and feel needed there when I compassionately share items with them.
 
 ## If you had to do it all over again, how would you reinvent your life? ##
-I would not reinvent anything in life. yes, I have made mistakes. Yes, I have made people afraid of me. Yes, I have felt like i have failed and become angry. I know that if I choose to keep seeing the good in situations, trusting my higher self, and expanding on what I love, that all will reinvent itself for my future in the best way possible.
+I would not reinvent anything in life. Yes, I have made mistakes. Yes, I have made people afraid of me. Yes, I have felt like I have failed and become angry. I know that if I choose to keep seeing the good in situations, trusting my higher self, and expanding on what I love, that all will reinvent itself for my future in the best way possible.
 
 ## What musical instruments would you like to learn how to play, and why? ##
 With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
@@ -79,7 +79,7 @@ With music being the most romantic artistic expression, I would love to learn to
 Ruminating over the past, the things done wrong, and the misssed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of Love, God's provision.
 
 ## Are there any lines that you simply will not cross? ##
-Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. Th evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
+Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. The evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
 
 ## What would you like to be forgiven for? ##
 When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loved that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
@@ -87,7 +87,7 @@ When feeling provoked or made fun of, I have lashed out or lost control. The las
 ## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
 Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
 
-## Describe the most beautiufl sound you have ever heard. ##
+## Describe the most beautiful sound you have ever heard. ##
 The church bells ringing through my ears make me feel so good. I think them chiming are a beautiful sound. I love the sound of the trees moving with the breeze, and I find peace in the sound of the harmonious silence. There exists a power in silence. Beautiful sounds fill the Earth each and every day. Another one I love is the sound of children laughing from an apartment window.
 
 ## You have a child and you have written on piece of advice that will be carried in his/her pocket for life. What is that advice? ##
@@ -96,7 +96,7 @@ There is a child within you first. She is innocent, free, light-hearted, and joy
 For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
 
 ## Write about the last time you felt guilty. ##
-Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mea because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awful. I move on to new, and healthier relationships.
+Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mean because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awful. I move on to new, and healthier relationships.
 
 ## What is something you have dreamed about? ##
 This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
@@ -104,7 +104,7 @@ This morning, I dreamed of a roommate, a friend, who recently had a daughter. I 
 In the past, I have listened to music by Al Green and appreciated the African American music in Memphis. It turned from dream to reality, when I met the man whose father played music with Al Green in Memphis. I love the history of African Americans in the city.
 
 ## Do you prefer taking risks or having a safety net? ##
-Having a net to fall back on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, i drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
+Having a net to fall back on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, I drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
 
 ## What is the best thing you have ever been given? ##
 While roaming the streets of Wahington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
