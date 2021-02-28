@@ -88,7 +88,7 @@ Ruminating over the past, the things done wrong, and the misssed connections kee
 Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. The evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
 
 ## What would you like to be forgiven for? ##
-When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loved that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
+When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loud that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
 
 ## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
 Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
@@ -149,7 +149,8 @@ I left so many hateful comments.
 I could not believe in myself.
 I hated playing music.
 
-And then...my prayer I said for myself - "Yes, I can" worked.
+And then...something came to life inside me.
+My prayer I said for myself - "Yes, I can; Yes, We can" worked.
 I picked up my guitar, and I played a little tune.
 It felt so good to feel at home within my heart.
 It felt so good to feel able and free.
