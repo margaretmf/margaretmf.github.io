@@ -947,6 +947,16 @@ Our hearts burn.
 Everyone in the country, everyone on the Earth has a light like the star that burns, and shines.
 God holds us all amazingly in tact, in one grand brotherhood, and sisterhood.
 
+Our country is home to all, including the red, white, and blue,
+where we treat our enemies like brothers
+find the light in the darkness
+appreciate all the colors
+reach out to distant family members
+"lay low" after injuring a neighbor
+no on is superior, no one is inferior
+we are all individual, distinct
+contributing to the interdependence
+
 ## The Union ##
 North, South, East, West.
 We all stand in this union, 
