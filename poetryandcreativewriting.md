@@ -628,6 +628,36 @@ The holiness of God can cleanse what is wrong away.
 When I am feeling connected yet ostracized, I want to yell out, but I pause 
 and remember the values to live out with the connections, not the connections themselves.
 
+## Mothering ##
+Forming new memories, starting a fresh, new insights, new ways of seeing things, new ways of being come to me like a mom
+watching a newborn baby learning how to see the world each day freshly and naturally.
+
+## Pregnancy ##
+It feels weird to me that
+another human body can grow out of a woman's body
+...But really there's a science to this.
+Physicial connection grows out of love and trust, and a spiritual connection.
+Walking around with another being in your body looks weird to me.
+...But some people think it looks beautiful.
+...And doing that requires love and trust.
+
+In reality, people exist in Christ, in God, we find our strength,
+All the right ideas grow out of everyone.
+
+Beyond physical reproduction,
+there is spiritual renewal
+thorugh spiritualizign thought, letting go of falsehood.
+
+## Right Desire vs. Wrong Desire ##
+Like produces like.
+
+What is in desire will lead to an action.
+
+A right desire leads to love, better ethics, spirited growth in grace, new understanding, new ways of seeing the world.
+
+What is a wrong desire?
+A wrong desire leads to frustration, roadblocks, anger, and strife.
+
 ## I AM ##
 I’m a graduate of UVA. 
 I’m a breakthrough thinker.
@@ -1125,6 +1155,11 @@ Everyone interconnects online in the way the highway connected people in new way
 New connections can be made, and old connections can be revived.
 But be careful what you share. All the information moves so quickly. Some of it is advertisement, like the billboards on the side of the road, with an attention-seeking image, but no authentic response back.
 And there's a quick way to vent, compare, compete, or be exposed to things you may not want to be exposed to.
+
+## The CTO of Your Home ##
+Being the CTO of your house, your home.
+Controlling your searches, your emails, your time online, your social media usage.
+Being aware of the boundaries.
 
 ## Georgia ##
 Traditionally, there's racism in Georgia.
