@@ -623,6 +623,21 @@ is_contact: true
 (4) Laundy
 (5) A Blanket
 
+## ** Day 40 ** ##
+## **Images** ##
+(1) Sheep in West Virginia
+(2) Blue-purple mountains
+(3) Household objects, and photographs
+(4) Greenery in Ireland
+(5) American flags in front of houses
+
+## **Sounds** ##
+(1) The clickity clack of the dishes clanking in the Thursday morning dishwasher
+(2) The air blowing in the bathroom
+(3) The sound of an Irish-Scottish accent
+(4) A heart in the morning filled with love for all humanity
+(5) The pew touching the paper
+
 <br>
 
 <br>
