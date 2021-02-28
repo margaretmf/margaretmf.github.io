@@ -660,6 +660,7 @@ is_contact: true
 (5) Brown trees, natural pristine, in the dawn of winter, along American highway
 (6) An school bus
 (7) Run down gas stations
+(8) The fishermen
 
 <br>
 
