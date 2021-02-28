@@ -433,6 +433,30 @@ It's love be sure to gain
 Teach it in accents soft and mild.
 It may not long remain."
 
+## Silence the Waves ##
+Silence the waves, 
+oh my soul
+oh my soul
+you are my source of peace
+when the fear and the rage
+kick and scream
+God is always still there
+
+Thank you God for your Son
+the one who stilled all so well.
+
+## Ocean, Sand ##
+Ocean, sand. It fills the whole Earth.
+
+## Connectivity ##
+The ocean
+THe rivers
+The roots below the ground
+The interstate
+The stars
+
+Continuous. Circle. Rhythm. Structure. 
+
 ## Working with EVERFI ##
 I was grateful that through the doubt, God intuitively led me to a place just right for me and everyone, where I was integrated with family members and community members doing their life work in the world.
 I was grateful to deliberately choose to work for a leader who loved African American history and shared African American history.
