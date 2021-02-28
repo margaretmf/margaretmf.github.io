@@ -43,6 +43,12 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Write about a time you felt alone. ##
+Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
+
+## What makes you smile or laugh every time you think of it? ##
+Today, I randomly smiled at a stranger at Starbucks. She was so beautiful. She smiled right back. There was reciprocity. Our eyes met. We connected truly. I helped her. She helped me even more. I love how God puts a smile right on our faces even when we feel the need to cry, and break down. It's wonderful that God is always at work.
+
 ## What historical figure would you like to interview? What would you ask? ##
 W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interview. I would love to learn more about their experiences as African Americans in the old American country. 
 
