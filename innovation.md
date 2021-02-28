@@ -638,6 +638,18 @@ is_contact: true
 (4) A heart in the morning filled with love for all humanity
 (5) The pew touching the paper
 
+## ** Day 41 ** ##
+## **Images** ##
+(1) West 60 highway sign
+(2) Farmland and blue mountains in VA
+(3) Vision of Eastern Christianity and the nativity scene
+(4) Old Dominion freight line truck with supply chain logos
+
+## **Sounds** ##
+(1) Inner harmony
+(2) Land of the real
+(3) A police car speeding with silver cars meeting the ground with friction
+(4) Family meditation, and meditation voices
 <br>
 
 <br>
