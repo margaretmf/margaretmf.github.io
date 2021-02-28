@@ -662,6 +662,56 @@ is_contact: true
 (7) Run down gas stations
 (8) The fishermen
 
+## ** Day 43** ##
+## **Sounds** ##
+(1) The sound of the enws caster playing in the kitchen
+(2) An airplane flying in the sky
+(3) A vacuum zoming zmzmmzm zmmzmzmmmzm
+(4) Tweet tweet tweet of the birds
+(5) A guy calling me in the morning
+(6) A plate touching the kitchen counter
+
+## **Images** ##
+(1) Cars driving on the interstate, the highway
+(2) Cleaning rag in a woman's hand
+(3) Halloween decorations on houses
+(4) Innocence of where a woman from the South
+(5) Dignity of a Black woman from the South
+(6) City horizon on the interstate
+(7) Farmland, gate in VA county
+(8) Mountains in TN
+
+## ** Day 44** ##
+## **Sounds** ##
+(1) Water trickilng
+(2) the train at night in the neighborhood
+(3) Blues music on the radio
+(4) A grandmother's voice
+(5) A cell phone buzzing in the morning
+
+## **Images** ##
+(1) The mountains in Charlottesville
+(2) American flags on trucks
+(3) The sunlight shining down the interstate
+(4) Trucks of different colors
+(5) Framhouses in Charlottesville
+
+## **Day 45** ##
+## **Images** ##
+(1) The sun shining, and fading out near the country, near the port, near the trucks
+(2) The American flag in the yellow trucks
+(3) Piles of clothes to give away
+(4) The church in Norfolk
+(5) The vision of free Black people and full integration in Memphis
+(6) Stars inside every individual in the US
+
+## **Sounds** ##
+(1) Pre-dinner preparation
+(2) The fan blowing
+(3) Paper turning
+(4) Blank sound
+(5) The sound of an innocent heart
+
 <br>
 
 <br>
@@ -698,6 +748,7 @@ African music, African land, Cairo
 * Resilience | Getting Back up, Rising higher, Being independent
 * The Union - North, South, East, West - we all stand in this union, where everything is interconnected, rising above the conflict, the chaos, finding our common bond, the bridge to the other side
 * Sitting in Traffic - birds on a wire, car lights - red, yellow, green, blinkers
+* Mandalas, circles, universal, community
 
 
 <br>
