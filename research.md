@@ -327,6 +327,48 @@ He keeps a log book of fake hours in the glovebox and the real one hidden beneat
 ----------
 
 
+## [From Southern Ladies to She-Rebels](http://www.pbs.org/mercy-street/blogs/mercy-street-revealed/from-southern-ladies-to-she-rebels-young-women-in-the-confederate-south/) ##
+
+## [From Damsel in Distress to Active Agent: Female Agency in Children's and Young Adult Fiction](https://ir.library.louisville.edu/cgi/viewcontent.cgi?article=3716&context=etd) ##
+
+## [Portrayal of Women in the Media Propagates Sexism](https://www.jhunewsletter.com/article/2014/10/portrayal-of-women-in-the-media-propagates-sexism-85735/) ##
+"It may be 2014, but the silver screen has been stuck in a temporal loop since the 1950s. Sexism in media has been normalized over time, so much so that we don’t even realize it anymore. A study from the University of Southern California captures how women are still underrepresented in the media: To begin with, only 1.9 percent of directors are female and 25 percent of all speaking roles in animated films are filled by women. Lastly, of 25,000 speaking characters in 600 top-grossing films between 2007 and 2013, only about 20-27 percent were women — what?
+
+Why haven't the alarms been sounded? The authorities notified? Riots started in the streets? Even though this issue doesn't seem to be widely contested, we definitely are fighting battles on behalf of women in the media anyway. One of these battles has resulted in a total body image revolution. One of the primary focuses of women in the media has been to abolish the ideal of a 'perfect' body type — great news for the 99 percent of women in the world who don't look like models. I personally find it easier to face myself unashamed in the mirror nowadays. Yay. However, at the same time, how have we all failed to grasp that apparently only a third — less than a third even — of speaking roles are women? The best answer to that, my darlings, is the sad fact that this is just the status quo.
+
+'How is this normal?' you may go onto ask. Simple. The problem has just been building like a gas leak: subtle and unassuming until you can't help but notice that it's pretty loud and inflammatory. This genteel style of sexism is not the overt discrimination that led to the 19th Amendment and the women’s suffrage movement. This type of discrimination is one of the reasons why such unflattering stereotypes have emerged around feminists. Sexism is normalized in our culture from a very young age, and the process begins with every busy parent's best friend: television sets.
+
+To begin with, the  percentage of characters in family films wearing sexy attire by gender is 28.7 percent female and eight percent male. This fact makes you recall many characters such as Ariel from The Little Mermaid, Jasmine from Aladdin and Meg from Hercules. You pause and ask yourself why you didn’t ever question their apparel? Why are these outfits considered okay to include in a children's movie to begin with? What subliminal messages could they have planted in my brain when it was at its most pliable state? Women have been getting over their historical damsel-in-distress period, but it seems that women have traded one evil for another: Young women are being hyper sexualized, and the media has reinforced that it's normal.
+
+Now for an even bigger shocker: The  percentage of family films with a male narrator is 73.5 percent. I can't recall there being many big family movies or coming-of-age stories with female main characters when I was growing up. I remember amazing movies such as A Christmas Story, The Princess Bride, The Perks of Being a Wallflower and Little Manhattan, in which those little boys narrated their growth and small revelations in romance, family and coming of age. When I imagine the coming of age genre with a main female lead, I can remember 13 Going on 30, Princess Diaries and... that’s it. In both films, a major part of the “growth” of the female protagonist pertains to appearance, breast development, makeup and romantic awakening. That’s angering because we, females, are more than hormone-driven mirror addicts. So why don’t we see that in the media?
+
+Now let’s proceed to another aspect of this message: The media presentation of female leaders and women with higher education.
+
+Amy Farrah Fowler from The Big Bang Theory is a very obvious example of how we see the unattractive educated woman. She’s socially awkward, missing obvious social cues throughout the series, and she lusts for romance. This only fuels the stereotype that as a highly educated woman, she has traded date time for lab time. In contrast, Bernadette is the quintessential attractive educated woman. Bernadette is inherently humorous because she is dating Howard, who has been a sex-orientated character from the beginning. Subsequently, Bernadette is in a way simply a pretty accessory to Howard’s character. Now Penny — what does it say about women in general for Penny to be the 'normal' one? She’s a failed actress who doesn’t appear to have much motivation to quit her waitressing job. She also puts a lot of emphasis of dressing well and is sexualized very often due to her outfits. In fact, she’s almost portrayed as a nymph, so Sheldon can comedically misinterpret any of her 'romantic' cues.
+
+Then, when I think of female leaders in the media, I think of one particular movie: The Devil Wears Prada. Meryl Streep’s character, the 'devil,' is the boss, and there are immediate associations that come to mind when describing her character: cold, callous, stoic, yet somewhat sexy with a dominatrix twist. Female leaders, and heroines in general, always seem to take on cold, masculine attributes. Notably, Katniss Everdeen from The Hunger Games and Black Widow from The Avengers embody these attributes in order to seem "tough" enough to be believable in these action-packed stories. What does it say to young women if their strongest role models are like this? Do women have to suppress our femininity to be taken seriously?
+
+Here is my last spiel: To start, have you ever heard of the Bechdel Test? The Bechdel Test is a test used in movies to check for gender bias. There are three parts to this test: (1) there has to be at least two women in the movie,  (2) who talk to each other, (3) about something else besides a man. I'd say that's a pretty low bar. Although 57 percent of movies do indeed pass the test, 43 percent fail! What does this tell me? That a large portion of movies still utilize a woman as a prop for the male characters. Does this surprise me? Yes. But should it? No.
+
+It starts in the screenwriters’ room, where female writers accounted for only 15 percent of screenwriting in 2012. Women are not even fairly represented on the film set, so it shouldn’t surprise anyone that there is a theory called 'The Male Gaze Theory' where the camera is compared to being a man’s eyes. The best and one of the most notable examples I can give you is a scene involving Megan Fox in Transformers. In her introduction, the camera slides up her legs, pausing at her bottom and bosom before finally focusing on her face. No better than a prop. Now how does this all apply to Hopkins, you and me?
+
+Many of us are women, and our portrayal in the media affects us every day. The media invades our homes, our colleagues and even our minds. I fear that if we don’t say something, we will have to deny our femininity to be recognized as a leader, to be heard and respected. The media shouldn’t force us to take on traditionally masculine attributes in order to have a voice among them. The media should be changed and the stereotypes broken, and we all need to work towards this."
+
+## [16 things you do as a Southern Belle of Color](https://thetempest.co/2017/10/12/culture-taste/16-things-southern-belle-color/) ##
+"When people think of a Southern belle, they imagine a blonde-haired, blue-eyed damsel in distress. For us Southern WOC, we’re often left out from the Belle narrative. Yet, we’re still proud of our ethnic and religious identities and embrace the good aspects of our region. Southern WOC are a diverse group, but it’s nice to appreciate the things that unite us. Whether you hail from Texas or Tennessee, Alabama or West Virginia, here’s a few things that your Southern heart knows to be true."
+
+"You say things like 'ya’ll,' 'bless your heart,' and 'fixin’ to.'"
+
+"Tailgating is life, but you stay woke on the NFL’s issues on sexism, racism, and homophobia."
+
+"Argue with white people over Confederate monuments, race, slavery, etc."
+
+"Constantly being surrounded by guns."
+
+“I’ll pray on that.”
+
+“You’re not like other *insert minority group here* girls”
+
 ## [The Uncultured South](https://www.vqronline.org/essay/uncultured-south) ##
 "Has the South been buffaloing America for half a century into thinking it was a second Athens wrecked by a Northern barbarian democracy, when actually the second Athens drank mint juleps, ate batter-bread, and thought up moral defenses for the institution that made life comfortable? Is the culture of the Old South a myth?
 
@@ -381,6 +423,80 @@ To the average American today the Southern planter is as weirdly comic as Don Qu
 It is this profound cleavage between the democratic and the aristocratic sets of values that is responsible for the three successive attitudes America has adopted toward the 'South.' Before the Civil War the Southern oligarchy with all the strength of axiomatic tradition behind it threatened to wreck the American experiment. Appomattox broke that oligarchy on the wheel. It did not mean that never again should the South be powerful, but it did mean that its power must never take aristocratic form. America, at least the Eastern states, no longer afraid, wove romances around a social system still dormant in its own blood. But during the last decade the American democracy, bourgeois-proletarian in spirit, has so completely obliterated every other social form that the Old South is losing even its romance. Half amazed and half relieved, America realizes that she does not really want the things the Old South wanted, except power, which she has in increasing abundance. America wants to read more books, see more things, build more houses, acquire more culture. And the South never tried to acquire it. America doesn’t believe the South ever had a culture.
 
 The other day as I was leaving Woolworth’s in a small Southern town, an old gentleman of the planter breed, more than a generation my senior, started to enter. Unfortunately at that very moment a number of flappers started out. The old man stood back, holding the door open. I counted over twenty people, men and women, who rushed past him without a word. I shall always treasure the memory of his smile. The pigs were in the parlor, and he had the courage to smile! It would be more worthwhile for us Americans, Northerners and Southerners, to study that smile than to read the riddle of the Sphinx. Regardless of culture."
+
+## [Gender, Power, and Whiteness in Rodeo: Breaking Away from the Ties of Sexism and Racism](https://books.google.com/books?id=xcjq7_dG1RYC&pg=PA7&lpg=PA7&dq=cowboys+west+damsels+in+distress+south&source=bl&ots=pYgLRHxQl4&sig=ACfU3U3Zx-kziU3AmBTgdPzgksPsmq6ZwA&hl=en&sa=X&ved=2ahUKEwj1_Lj8ooHvAhU2MlkFHaWmB0UQ6AEwEXoECBAQAw#v=onepage&q=cowboys%20west%20damsels%20in%20distress%20south&f=false) ##
+"When I was a little girl, in the mid-1950s, I wanted more than anything than to be a cowgirl."
+
+"The lure of cowgirls and cowboys", "the American imagination"
+
+"a symbolic representation of the Western United States"
+
+"the late 1800s"
+
+"the idea of Manifest Destiny through taming the wild"
+
+"the popular culture story at the surface - the one that is retold, repacked, and visually revised as U. S. white and male"
+
+"the largely all-White all-Male rodeo myth"
+
+"the narrative of the West"
+
+"The cowgirls of today were born of the Eastern settlers from the period of the Western settlement, or Manifest Destiny. These women came from the East to settle and establish a new life with their husbands and families, with a focused goal to 'tame' the West. The pioneer women wore prairier dresses and bonnets, focused on education, and worked long hard hours to feed, clothe, and even protect their families from danger. These women were known as 'Prairie Madonnas' who 'made great pies, babies, and flour sack curtains...She kept immaculate house under impossible conditions - floors of raw dirt or unfinished woo' and she 'could handle a gun or help with the stock if her husband were away when the Indians attacked or if the cows broke down the fence." 
+
+"the oral histories", Teresa Jordan's book, "Cowgirls: Women of the American West"
+
+"A popular writer from this era was Laura Ingalls Wilder"
+
+"the Western frontier"
+
+"the cowboy image"
+"the frontier cowboys"
+
+"culture", "a way of life"
+
+"This book is about moving marginalized individuals in rodeo to the center; however, we cannot possibly tell the whole story. The ignorance of history, a belief in a White Western narrative that erased the contributions of Lation/as, American Indians, and African Americans, and the effects of racism and White privilege are why all those in rodeo are believed to be either White and/or White males. We are unable to resurrect those cowgirls likely that Wister saw and had knowledge of Latino, American Indian, and African American cowboys. Wister also knew that women were in the West, and yet their participation is erased, as well. In Wister's revisionist telling of the 'wild West' he recounts and admires only the hard, industrious work of White men. Through the creation of *The Virginian*, in 1902, Wister 'created the archetypal cowboy hero stamped with particular qualities that virtually all his successors would perpetuate. The creation of the archetypal cowboy and the use of the White man to be the hero to fight the villains of the West (normally seen as the 'Wild' Indian or Mexican 'Desperado'), and saving White women from the dangers of the West established rigid gender stereotypes. The establishment of these gender roles helped influence the positions that owmen and ethnic minorities have in modern rodeo, because they reifed the social norms and themes that were constructed in the United States for what was appropriate for each group of people. Wister's focus on admiration for the White race sat well with his contemporaries like Rudyard Kipling, as well as with other U.S. policy and laws of the time. For example, in 1896 the U.S. Supreme Court passed the Federal Plessy v. Ferguson law, which ushered in Jim Crow, or a 'separate but equal' policy, which segregated Black and White Americans. This Federal law remained in place through 1964. In addition, in 1900 White males in the U.S. elected William McKinley, who further popularized Kipling's 1899 poem 'The White Man's Burden,' a treatise on 'the white man's burden' belief, which focused on cultural and racial imperialism. In 1900, this policy impacted U.S. and Philippines relations and U.S. and China relations (the Boxer Rebellion in China), and in 1901 it affected U.S. and Cuban relations (the Platt Amendment). Not suprisingly, given this time perio and the aforementioned U.S. laws, the myth of the West and the myth of rodeo are tied to White westward expansion. There is a parallel etween the dangers the pioneers faced during their quest of Manifest Destiny - the hostile elements, raging rivers, outlaws, Indians - and the cowboys' dnagers faced in rodeo. Later, these same racist ideals were put on film when Thomas Dixon's book, *The Clansman* (1905), was turned into the move, *Birth of A Nation*, which was directed by D. W. Griffith in 1915. Dixon was a classmate of former President Woodrow Wilson, and Wilson had a special screening of the movie at the White House, where the Supreme Court was also in attendance. As media scholar Donald Bogle noted, the film 'would work audiences into a frenzy...[I]t will make you hate.' This movie heralded the KKK as the saviors of the White race and protectors of White womanhood and virginity from the Black male brute who was no longer controlled by the system of slavery, and increased White male membership in the terrorist organization."
+
+"legal scholar Margaret Russell"
+"through a carefully constructed fusion of unprecedented technical wizadry and degrading racial stereotypes, Griffith sought to convince his audience that his was the 'true' story of the old South and that white domination was necessary for their survival. To a great extent, he succeeded: The film's enormous popularity fueled the growing influence of the Klan, and *The Birth of a Nation* remains to this day one of the highest-grossing box office successes in Hollywood history." 
+
+"Wister's novel went through 'fifteen printings during the first eigh months after its publication; by 1911 it was in its thirty-eight printing. By 1938, it had sold mroe than one and one-half million copies.'"
+"While not everyone embraced Wister's East Coast take on the West, and while other novels later existed, *The Virginian* was considered a seminal work that cemented the myth of the White American West in the U.S. imagination, as well as of the iconic stoic, independent cowboy, who is always visually depicted as a White man."
+
+"The American cowboy is idealized in folklore as masculine, independent, and an explore. Curiosity as a foundational element of human existence led to the stereotype of the cowboy myth, which continues to be embraced. Early explorers liek Coronado in 1541, and later Lewis and Clark in the early 1800s, said the American West was a vast open plain, a desert where one could conquer man, land, and beast. The untamed elements of the Western frontier remain static in the narrative of the West. Ideally, the American cowboy and the narrative of the Western frontier were painted with heroic myths worthy of 'god-like' worship, whereby the embellishment of the narrative outshone the lived reality of the frontier."
+
+"The exclusionary dominance of the White cowboy as a representative of the West in rodeo depictions and as portrayed in dime novels, film, and folklore is that he is believed to be anyone: that person any White Anglo Saxon Protestant (WASP) male could become."
+
+"He is not complicated in his white/black binary vision of the world; you are either good or bad and the judgment coms from his 'correct' attitudes, beliefs, and values, which are ideals found within the cowboy culture and code - the Code of the West. He symbolizes the possibility of what can be achieved thorugh a hard work ethic and through traditional gender roles that reinforce Victorian ideals of White womanhood, e.g., a helpless virginal damsel in distress who needs the protection and direction of a strong man to react against any transgression committed against her. Our hero in this Western White myth is complete with his leathered face and Western drawl. He is armed with is trusty six-shooter, while keeping an eye out for American Indians. '[The] Anglo-Saxon cowboy and the Red Indian emerged as convenient action heroes. These simplified stick figures propagated a frontier mythology that hid both the systemic violence of conquest and the modern incorporation of land and labor. Cowboy hats and warrior headdresses obscured the complex racial politics of the United States and created instead a ronatic duel of white against red.' From this duel of reductionist cowboy ideals, race, and land emerged an American iconic myth (the cowboy) that is actually a conglomeration of 'White conquering West' rhetoric, media fascination, and myths - like the explorations of Daniel Boone - which loomed larger than life. The myths of man besting beast carried over into the rodeo cowboy arena."
+
+"The cowboy represents the taming of the forces of North American civliziation. In the arena, these great forces clash. The cowboy hero attempts to 'tame the wild...'"
+
+"Wister's novel went through 'fifteen printings during the first eight months after its publication; by 1911 it was in its thirty-eight printing. By 1938, it had sold more than one and one-half million copies.'"
+
+"the histories of the American West...[of] heroci tales: stories of adventure, exploration, and conflict."
+
+"overcome a conflict, seek adventure, and explore new territory"
+
+"The rodeo cowboy is only one of the numbers of modern occupational folk hero types, yet he is a fascinating one. He is, after all, a modern man - he lives in industrial America...sleeps at the Holiday Inn....[Y]et on the other hand he is a cowboy - representing facets of North America's past that evoke powerful rural and pre-industrial images. This makes for a fascinating paradox."
+
+"The rodeo cowboy embodies two different men. On one hand, he is modern and experiences all of the modern conveniences that are available, yet he is also a man whose job it is to recreate the Wild West for entertainment. He retells an age old story of good versus evil while attempting to tame the wild, even while making a career out of being a show performer. The rodeo road for our cowboy hero has been built from a diverse history, starting with the Wild West shows."
+
+"Amazon" - "cowgirls"
+
+"Free fromt he confines of the corset, cowgirls were seen as powerful, as talented, and with fewer restrictions placed upon them. The transition from a Victorian Ideal in the East to a free-spirited lifestyle in the West was embraced wholeheartedly by the cowgirls in the arean;a the media and the society, however, were less willing to give up on the feminine side of cowgirls. Media stories highlighted the cowgirls' achievements, but also made sure to mention their domesticity in order to appease women in the East and all men's notions of 'true' womanhood."
+
+"the flapper", "this new woman of the 1920s"
+
+"a true woman was a true woman"
+"the Cult of True Womanhood promoted in 'women's magazines, gift annuals, and religious literature made women hostages in their home'"
+"These cultural feminists promoted the belief that '[all] women occupied the private sphere and men occupied the public domain.'"
+"This belief prevailed in Western society for many years, because as 'values changed frequently...fortunes rose and fell with frightening rapidity...social and economic mobility provided instability as well as hope, one thing at least remained the same - a true woman was a true woman."
+"In 1976 Barbara Welter coined the term 'The Cult of True Womanhood' to encapsulate Victorian gender ideology for women. The four cardinal virtues of the cult were piety, domesticity, and submissiveness that all 'true' women were expected to manifest in the nineteenth century."
+
+"Annie Oakley was a 'true woman' who is credited with being the first performer to promote the 'All-American' cowgirl, which allowed her the freedom to compete athletically against men in her profession. Oakley was above criticism for her chosen profession by the 1890s. If one were to criticize her, it would be comparable to attacking a national icon, as she was able to take advantage of visual markers of White skin, long blonde hair, clothing, and a gender-conservative stance that made her a darling of White male notions of femininty. Oakley possessed monolithic cultural identity markers that contributed to White normative standards of beauty. These types of identity markers seem to belie the complexity of lived experiences for individuals. Having this nomrative standard of beauty coupled with her persona also protected her from being branded a 'floozy,' a derogatory term directed toward women in typical men's sports during this time period. She also differed from the 'New Woman' who was rallying for suffrage, education, and advancement. Although Annie Oakley was able to perform amazing feats inside the arena, she still preferred to act like a Victorian lady outside the arena." 
+
+"'The [White and ethnic minority] cowgirl did not exist. The young women [regardless of race] did not go cavorting over the prairies astride bucking bronhco [sic]....[I]t would have seemed exceedingly immodest for a young woman to get astride a horse wearing any sort of riding habit. Any woman doing so would have been classed as a bawdy house character, and every home on the plains would have been closed to her."
+
+"This is an interesting characterization, because being 'bawdy' typicallyr eferred to a woman's sexual nature. So a cowgirl was at risk fo being labeled as having a bawdy or sexual character for riding a horse incorrectly - not sidesaddle. Ironically, the safest way for a woman to ride a horse, astride the horse, was deemed bawdy. So, even if a cowgirl tossed the corset, she was still subject to patriarchal notions regarding her sexuality, depending upon how she sat on and rode the horse. If the White cowgirl was thought not to exist because her place was in the home, and had all of these patriarchal rules attached to her, then the erasure of the ethnic minority cowgirl was expected. Ethnic minority cowgirls had to be disenfranchised in order to make place for the 'non-existent' White cowgirl."
 
 
 ----------
@@ -559,6 +675,8 @@ White people as a collective still fear sharing power and status. They fear no l
 ## [The Brave Black Woman Who Were African American Spies](https://msmagazine.com/2011/02/28/the-brave-black-women-who-were-civil-war-spies/) ##
 
 ## [Ladies' Pages: African American Women's Magazines and the Culture That Made Them](https://www.jstor.org/stable/j.ctt5hj55m) ## 
+
+## [Retrieving the Black Rural Past]() ## 
 
 ## [Gender, Power, and Whiteness in Rodeo: Breaking Away from the Ties of Sexism and Racism](https://books.google.com/books?id=xcjq7_dG1RYC&pg=PA7&lpg=PA7&dq=cowboys+west+damsels+in+distress+south&source=bl&ots=pYgLRHxQl4&sig=ACfU3U3Zx-kziU3AmBTgdPzgksPsmq6ZwA&hl=en&sa=X&ved=2ahUKEwj1_Lj8ooHvAhU2MlkFHaWmB0UQ6AEwEXoECBAQAw#v=onepage&q=cowboys%20west%20damsels%20in%20distress%20south&f=false) ##
 "When I was a little girl, in the mid-1950s, I wanted more than anything than to be a cowgirl."
