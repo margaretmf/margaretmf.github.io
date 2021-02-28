@@ -9,6 +9,9 @@ is_contact: true
 
 ## There is some other writing at the bottom. ##
 
+# Favorite Songs #
+* "One Tribe"
+* "Where is the Love?"
 
 # Beliefs #
 ## Art ##
@@ -142,6 +145,14 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Angels Are Everywhere ##
+I felt some angel wings.
+I saw a feather.
+I saw an angel note on a poster on the side of the road.
+I heard a song on angels outside of a church.
+Angels are in songs waking us up to our reality.
+Angels are everywhere.
+
 ## Yes, WE Can ##
 I had been in a dark place for so long.
 I was expressing revenge.
@@ -169,7 +180,7 @@ There are reasons to stay alive, indeed.
 Anything can be healed.
 It's natural.
 Yes, we can build a new earth, a new heaven, and restore the land from the ground up, from the South to the North, from the States to the Sea, from the Sea to the Continents.
-Yes, we can. It's called Pangaea.
+Yes, we can. It's called Pangaea. It's called "the one tribe" we can believe in again after a severe backlash.
 
 ## God Reminded Me of a Prayer I Said in the Past ##
 God reminded me of a prayer I said in the past.
