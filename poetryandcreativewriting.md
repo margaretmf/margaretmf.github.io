@@ -142,6 +142,34 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Yes, WE Can ##
+I had been in a dark place for so long.
+I was expressing revenge.
+I left so many hateful comments.
+I could not believe in myself.
+I hated playing music.
+
+And then...my prayer I said for myself - "Yes, I can" worked.
+I picked up my guitar, and I played a little tune.
+It felt so good to feel at home within my heart.
+It felt so good to feel able and free.
+
+Someone once said "the amateur builds the ark."
+The professionals heal, but nothing can stop the amateur from trying it out too.
+
+It's never too late to try something new.
+It's never too late to be reborn.
+It's never too late to rediscover the depths of your home.
+It's never too late to reawaken to your ancestry.
+It's never too late to think a new thought.
+
+What a beautiful earth it is, and what a beautiful child of God you are down deep.
+There are reasons to stay alive, indeed.
+Anything can be healed.
+It's natural.
+Yes, we can build a new earth, a new heaven, and restore the land from the ground up, from the South to the North, from the States to the Sea, from the Sea to the Continents.
+Yes, we can. It's called Pangaea.
+
 ## God Reminded Me of a Prayer I Said in the Past ##
 God reminded me of a prayer I said in the past.
 He heard my prayer. He heard my plea.
@@ -215,6 +243,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for a smile shared with someone in the car next to me
 * Grateful for American flags reflecting through glass doors
 * Grateful for positive memories of my grandmother
+* Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -406,6 +435,11 @@ I was grateful to see the inspiration of Martin Luther King, Jr. shared in an en
 I was grateful to build solutions and be a part of the "Smart Things Should Build Things Movement".
 I didn't know everything there is to know about African American History, but I was grateful to start a lifelong journey of appreciating the country, learning about perception, learning about people, working in teams, learning about African American History, and preventing violence on the basis of sex and race.
 I was grateful to defend true womanhood, the "Princesses of Peace" who are able to lead, and appreciate true manhood.
+
+## The Reawakening ##
+I said "first I was the rose, and then I was the Queen".
+What does this mean?
+I am reincarnating, reawakening, being reborn into oneness with all the earth, into the clear day, into the light of Soul, into connectivity with all of nature, and most of all humanity.
 
 
 ----------
@@ -1183,6 +1217,7 @@ There is a constant story of being, evolution of thought, revolution of light, r
 They help the police force as police officers. [Seeing Integration, Reconstruction's Effects]
 They write good poetry. [Seeing Integration, Reconstruction's Effects] 
 They play fun music and create new, cool music. [Seeing Integration, Reconstruction's Effects]
+They are the Life to our parties. [Seeing Integration, Reconstruction's Effects]
 They dance in school and on the streets. [Seeing Integration, Reconstruction's Effects]
 They read in church.  [Seeing Integration, Reconstruction's Effects]
 They create amazing art. [Seeing Integration, Reconstruction's Effects]
