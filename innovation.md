@@ -589,6 +589,40 @@ is_contact: true
 (4) The geese
 (5) Plastic bags crinkling
 
+## ** Day 38 ** ##
+### **Images** ###
+(1) Red trucks
+(2) Christmas decorations in Kentucky on fences
+(3) Bank loan buildings
+(4) A yellow bridge besides other bridges
+(5) The river in Kentucky
+(6) Clouds in the sky, foaming through a childlike adventure in Life
+(7) The America Kentucky brother birds in the diner
+
+### **Sounds** ###
+(1) A motorcycle
+(2) People talking in the driver seat with a grough voice
+(3) Birds chirping
+(4) People praying for Brianna Taylor
+(6) Jesus songs and 
+(7) The voice of Nam saying "good morning"
+(8) Faf's Christmas music playing on the piano
+
+## ** Day 39 ** ##
+## **Images** ##
+(1) The fan blowing
+(2) Intuition telling me I'm secure
+(3) Peace within from God
+(4) Water running over
+(5) Floor noises
+
+## **Sounds** ##
+(1) Christmas lights
+(2) Stacks of clothes
+(3) A book on the bed
+(4) Laundy
+(5) A Blanket
+
 <br>
 
 <br>
