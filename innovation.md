@@ -650,6 +650,18 @@ is_contact: true
 (2) Land of the real
 (3) A police car speeding with silver cars meeting the ground with friction
 (4) Family meditation, and meditation voices
+
+## ** Day 42 ** ##
+## **Images** ##
+(1) Dollar General store, and truck
+(2) American industry
+(3) River flowing
+(4) Homes on Cumberland Plateau
+(5) Brown trees, natural pristine, in the dawn of winter, along American highway
+(6) An school bus
+(7) Run down gas stations
+
+## **Sounds** ##
 <br>
 
 <br>
@@ -660,8 +672,11 @@ is_contact: true
 * Traffic Signs, Roadmarks, Highway, Green, Yellow Maps - Interconnectedness
 * Farmland, Ports, Mountains
 * Oceans, Rivers, Bays
+* Logistics - Supply Chain Engineering
 * People can learn about history and the country through music
 & Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
+* Thornton Wilder, Thornton Burgess
+* Arts in Hotels, Hotel Indigo
 
 ## ** Plantation ** ##
 The definition of plantation
