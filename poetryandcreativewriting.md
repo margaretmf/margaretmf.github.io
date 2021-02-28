@@ -136,6 +136,30 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## God Reminded Me of a Prayer I Said in the Past ##
+God reminded me of a prayer I said in the past.
+He heard my prayer. He heard my plea.
+I knew I did a good job.
+He reminded me that "YES, I CAN", "SI, SE PUEDE", "TODAY IS A NEW DAY" "I CAN WALK FREELY WITH THE LORD."
+
+God whispers with the "still, small voice" in the darkest hours when you need a subtle reminder.
+"Yes, we can."
+"Yes, we can."
+"Yes, we can."
+He speaks to the prophets, the listeners of Martin Luther King, the voice of the "I AM US, YOU ARE ME, I AM YOU".
+
+## Damn Lord, You Did a Good Job ##
+It's a new day that has yet to begun, and I already want it to end.
+I feel like I have failed.
+I feel like trash.
+Everyone knows what I've done wrong.
+
+There are failure stories on my left.
+There are success stories on my right.
+I take up the failure stories, admit to the wrongs, and throw them in the trash. The failures are just that - "white trash" and "hillbilly elegy".
+I take up the success stories, and I throw them up in the air, and say, "PRAISE THE LORD FOR CREATING ME" with a WINNING SMILE on my FACE. The success stories are just that - "Christ the King living and moving and breathing right on through me".
+DAMN, LORD, YOU DID A GOOD JOB. YOU HELPED ME FORGIVE. YOU HELPED ME BOUNCE BACK UP. AND YOU HELPED ME REFORM. YOU HELPED ME SURVIVE.
+
 ## Hey Friend, Let's Share a Good Laugh ##
 Hey old friend, it's you again.
 I love to see you.
