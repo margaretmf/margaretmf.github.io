@@ -145,6 +145,15 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Start Each Day with a Question ##
+What are you thinking about today?
+How can I listen to God more clearly?
+How can I repent?
+How can I learn something new?
+What ideas am I or others thinking about?
+How am I letting go of something false?
+How can I understand a passage in the rear light?
+
 ## Angels Are Everywhere ##
 I felt some angel wings.
 I saw a feather.
