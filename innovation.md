@@ -661,7 +661,6 @@ is_contact: true
 (6) An school bus
 (7) Run down gas stations
 
-## **Sounds** ##
 <br>
 
 <br>
