@@ -37,6 +37,37 @@ God will give us intuition
 
 "And ye shall be my people, and I will be your God."
 
+* the Lord has searche me
+
+"O Lord, thou has searched me, and known me."
+"I will praise thee; for I am fearfully and wonderuflly made: marvellous are they works; and that my soul knoweth right well."
+
+* Strength in God
+
+* Heavenly house
+
+"For we know that if our earthly house of this tabernacle were dissolve, we have a building of God, an house not made with hands, eternal in the heavens."
+
+* Real man - spiritual, eternal
+
+"real man is spiritual and eternal"
+
+* harmonious and immortal man"
+
+"Continuing our definition of man, let us remember that harmonious and immortal man has existed forever, and is always beyond and above the mortal illusion of any life, substance, and intelligence as existent in matter."
+
+* True consciousness
+
+"Man's true consciousness is in the mental, not in any bodily or personal likeness to Spirit."
+
+* Man, the image and likeness of God
+
+* God, the builder and the maker
+
+* mental might, human misconception - the life which is spiritual 
+
+"We must realize the ability of mental might to offset human misconceptions and to replace them with the life which is spiritual, not material."
+
 ## Week of February 24, 2020 - 'Christ Jesus' - Inspiring Passages ##
 
 * The yesterday, today, forever
@@ -54,7 +85,7 @@ they "shall have the light of life"
 
 * the Son of man
 
-"When y heave lifted up the Son of man, then shall ye know that I am he, and that I do nothing of myself; but as my Father hath taught me, I speak these things."
+"When the heavens lifted up the Son of man, then shall ye know that I am he, and that I do nothing of myself; but as my Father hath taught me, I speak these things."
 
 * Continue in God's word, disciples
 
