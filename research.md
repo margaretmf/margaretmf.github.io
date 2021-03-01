@@ -636,6 +636,44 @@ Rebel stand
 ----------
 
 
+## [How to Rescue The Damsels in Data Science](https://medium.com/swlh/how-to-rescue-the-damsels-in-data-science-dece09dedf26) ##
+"Becoming a damsel in distress and not knowing how to send an S.O.S.
+
+One of the first things the instructor ever said was, 'Don’t suffer in silence.' He then showed a graph of the emotional undertaking Data Science boot campers endure in the months ahead. Here’s an annotated version of said graph below:
+
+I am a non-linear savvy enthusiast with strong soft-skills. In other words, I have worked extremely hard to alleviate my Asian parents’ concerns after I graduated with a B.A. in Comparative Literature. I’ve landed solid paying jobs since graduating. However, I recently reached a plateau which led me to sign up for a Data Science boot camp.
+
+The first weeks were humbling, to say the least. Days filled with technical challenges, sleep-deprived presentations, and incessant existential questions.
+
+And while I knew better than to internalize my frustrations or confusion over the course material, I chose to quietly flail for fear of being seen as incompetent or helpless. Or worst yet, hopeless.
+
+As a result, at the end of each day, I would make my way home feeling demoralized. I would have cried more if it weren’t for the readily available salty snacks provided on campus. Fortunately (or unfortunately), I was often too dehydrated to shed any tears.
+
+The class comprised of 5 male instructors, 11 male students and 7 female students. And as the weeks progressed, students dropped like rows with null values. Half of them being women. This broke my heart.
+
+As a modern woman, I am independent and fierce. Or so I’m told by blaring 'strong women' anthems and tagged inspirational quotes. Admittedly, while I believe in the 'strong women' movement, I fell into isolation because of it. I didn’t want to disappoint the women in my class so I withheld asking for help. I know, newb mistake. I also exhausted my energy attempting to uphold an 'independent' persona by trying to do the assignments on my own.
+
+It’s not like Rihanna bestowed upon me the responsibility of representing badass women in Data Science, but I felt a sense of duty. This sense of duty was further amplified after reading a recent TechRepublic report that stated,
+
+'…only 18% of Data Scientists are women.'
+
+Needless to say, I felt pressure to represent women in the best possible light. Of course, it gave me anxiety to not let on that I’m more of a 'black light' and 'fluorescent light' kind of woman, not so much 'best light'.
+
+Surprisingly, the remedy for the unyielding ache of self-doubt were simple kind acts done by both men and women. I’m grateful to them for saving me from the prison I made for myself.
+
+1. Check in with the women who aren’t asking questions.
+2. Setup a co-ed study group.
+3. Ask women for feedback.
+
+I thought I must have unknowingly signed my voice away to the infamous Disney villain, Ursula, because my initial attempts to contribute in group conversations were muted. I would have to physically wave my hands in front of people’s faces to be noticed. It made me question my value and my presence.
+It’s common for women to question their value as a Pew Research Center 2018 report states, '79% of women in STEM in majority-male workplaces feel the need to prove themselves most, if not all, of the time.'
+
+Every time someone did ask for my perspective, I felt like that person trusted and valued my input. After enough times, I was able to redirect energy towards exploring innovative projects and solutions. I no longer spent time focusing on ways to prove myself.
+
+Data Scientists uncover the stories behind the data. The more diverse the data, the greater the possibility of more stories being uncovered. More women does not necessarily mean better. More understanding and acknowledgement by both men and women does.
+
+It’s okay to not be okay. I can be a damsel in distress one day and the next day be a determined woman. My value is continuous and the kindness I have received from people- invaluable."
+
 ## [Southern White Patriarchy](https://www.researchgate.net/publication/335328771_Southern_White_Patriarchy) ##
 "The pedestal upon which southern white womanhood stands is buttressed by an equally sacred southern white masculinity characterized by a distorted notion of honor, a penchant for violence, and male righteousness and superiority. Thus, Second-Wave Feminism spurred not only a defiant anti-feminism with which many white southern men and women identified, but also a men’s rights campaign that portrayed men as victims of reverse discrimination and promoted a dominant and defensive masculinity that was very familiar to southern white audiences. This misogyny, along with a religious assertion of manhood that was popular in southern evangelical churches, provided Republicans with an opportunity to build their partisan brand among white southerners. Often masked by romanticized notions of chivalry, southern white masculinity depends upon a patriarchal system and the traditional gender roles inherent in that system. The GOP would appeal to both as it chased southern white voters throughout the Long Southern Strategy."
 
@@ -1008,7 +1046,7 @@ In the Reconstruction South during the 1870s, volatile racism pushed former blac
 Several exclusively black settlements began to emerge in Kansas after the Homestead Act. The most well-known was a town called Nicodermus, established in 1877. Founded by land prospector W.R. Hill and advertised by black minister W.R. Smith to black communities throughout the south, the town steadily increased in size, and by 1880 over 100 people had settled there. As African Americans slowly became disheartened and disillusioned by the difficulty of homesteading, migration numbers tapered off. However, between the years of 1869 and 1879, 27,000 blacks moved to Kansas, and though few found the success they had been hoping for, a considerable number stayed, finding it a better alternative to the South. 10 An 1879 issue of the Topeka Colored Citizen stated: “Our advice…to the people of the South, Come West, Come to Kansas…in order that you may be free from the persecution of the rebels. If blacks come here and starve, all well. It is better to starve to death in Kansas than to be shot and killed in the South.” (24:41) In the end, the challenges of African American homesteaders mirrored those of other settlers: some persevered and stayed, while others went into debt and left, discouraged by an Act that they had hoped would bring them prosperity or, at the very least, a small pocket of land and a home to call their own."
 
 
-## Lewis and Clark Expedition](https://www.history.com/topics/westward-expansion/lewis-and-clark) ##
+## [Lewis and Clark Expedition](https://www.history.com/topics/westward-expansion/lewis-and-clark) ##
 "The Lewis and Clark Expedition began in 1804, when President Thomas Jefferson tasked Meriwether Lewis with exploring lands west of the Mississippi River that comprised the Louisiana Purchase. Lewis chose William Clark as his co-leader for the mission. The excursion lasted over two years: Along the way they confronted harsh weather, unforgiving terrain, treacherous waters, injuries, starvation, disease and both friendly and hostile Native Americans. Nevertheless, the approximately 8,000-mile journey was deemed a huge success and provided new geographic, ecological and social information about previously uncharted areas of North America."
 
 "Most of the land Lewis and Clark surveyed was already occupied by Native Americans. In fact, the Corps encountered around 50 Native American tribes including the Shoshone, the Mandan, the Minitari, the Blackfeet, the Chinook and the Sioux.
@@ -1178,7 +1216,7 @@ The cowboy is a complex individual who could warrant a whole book of analysis. T
 ## [Roughing It](https://en.wikipedia.org/wiki/Roughing_It) ##
 
 ## [Mark Twain](https://texastrailoffame.org/inductees/mark-twain/) ##
-
+"Samuel Langhorn Clemens, better known by his pen name, Mark Twain, is an American icon whose razor-sharp wit and inimitable genius have entertained countless readers for more that a century. His many publications include such gallant childhood essentials as The Adventures of Tom Sawyer and Adventures of Huckleberry Finn along with many other works ranging from airy magazine columns to focused, biting, anti-imperialist satire."
 
 ----------
 
