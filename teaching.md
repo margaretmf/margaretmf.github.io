@@ -1,6 +1,7 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
 The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", and "The Indian in the Cupboard". 
+Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder.
 
 
 # Critical Reading #
@@ -142,7 +143,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ## Shades of Gray ##
 * Do not think of black and white.
 * Think in shades of gray. Complexity. "It might mean this; it might mean that."
-* "While Fitzgerald associates Tom primarily with the color red to imply anger and defensiveness, Fitzgeral also employes white imagery to ironically imply Tom's corrupion due to his racism and hypocrisy."
+* "While Fitzgerald associates Tom primarily with the color red to imply anger and defensiveness, Fitzgerald also employs white imagery to ironically imply Tom's corruption due to his racism and hypocrisy."
 * One Body Paragraph, Three Strong Examples, the same color
 * Gray. White. Black. Red. BLue. Green. Yellow. Purple. Orange. Brown. Pink. [Cultural, Literary, and Psychological Tools]
 
