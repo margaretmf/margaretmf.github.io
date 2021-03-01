@@ -162,6 +162,14 @@ I heard a song on angels outside of a church.
 Angels are in songs waking us up to our reality.
 Angels are everywhere.
 
+I hear angels in the whisper of the wind,
+the smile of a friend,
+the rustle of the leaves,
+the advice from a stranger,
+the sympathy of a colleague,
+the hugs from a practitioner,
+the sharing of accounts with a neighbor.
+
 ## Yes, WE Can ##
 I had been in a dark place for so long.
 I was expressing revenge.
@@ -224,6 +232,12 @@ Hey friend, let's share some comic relief.
 After all that..
 It's going to be ok.
 It will be ok in the end.
+
+## Lessons from Grandparents ##
+Granmama - wide smiles, dancing, greeting people for who they are, lover of color and flowers, lover of the Catholic church
+Dattee - deep listener, reader, the human psyche, lover of Church, historian
+Nam - lover of the English language, the joy of learning, Shakespeare's plays, Christian Science
+Faf - piano playing, hard work, and science
 
 ## Grandparents ##
 I remember all the stories and lessons my grandparents shared.
@@ -628,6 +642,10 @@ Cultivating a love for this small seed lets it grow into a greater reality.
 It grows and grows into its full self.
 The idea from within the home that's already there becomes a full garden, a full way of being.
 
+## What You Water Grows ##
+What you water grows.
+What you express gratitude for expands.
+
 ## The Ocean ##
 The ocean crashes every day upon the shore.
 The deep waters of God are where the sin is stirred out.
@@ -698,6 +716,24 @@ I worship the song of Love at the post office, and the Fed Ex office.
 I love that I am Southern. 
 
 This. Is. Who. I am. 
+
+
+## Song of the Night ##
+True Love is not cheap.
+True Love is happy for others.
+True Love apolgoizes and accepts repercussions for wrongdoing.
+True Love never fails.
+True Love treats enemies like brothers.
+True Love commits to a team over self.
+True Love rejoices in welcoming others.
+True Love trusts in the best for their neighbors.
+True Love listens to others' admonishments with care.
+True Love knows how to rest and get back up.
+True Love is always moving.
+True Love is never divorced from itself.
+True Love knows itself for eternity.
+True Love is loving all humanity ta once.
+True Love weathers the storm.
 
 ## Love ##
 Reaching far for and extending widely this love for you.
