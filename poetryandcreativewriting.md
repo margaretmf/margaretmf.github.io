@@ -156,6 +156,13 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Insight ##
+Healing is different from Coping. 
+Healing is God restoring every cell in your brain and body.
+Coping is compensating, covering up, worrying about everything wrong, and overcoming.
+Healing is remembering one's childlike self, and true self.
+Healing is being honest with oneself.
+
 ## Start Each Day with a Question ##
 What are you thinking about today?
 How can I listen to God more clearly?
