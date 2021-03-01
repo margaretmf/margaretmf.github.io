@@ -235,6 +235,49 @@ We live in God, this gives us power
 
 "Divine Love blesses its own ideas, and causes them to multiply, - to manifest His power."
 
+* the grace of God
+
+"the grace of God that bringeth salvation"
+
+* Live soberly, righteously, and godly
+
+* Tempted
+
+"Let no man say when he is tempted, I am tempted of God: for God cannot be tempted with evil, neither tempteht he any man: But every man is tempted, when he is drawn away of his own lust, and enticed."
+
+* the will of the Lord
+
+"be filled with the Spirit"
+
+* Peace be unto thee
+
+"The divine Mind is the Soul of man, and gives man dominion over all things."
+
+* Obedience to Truth
+
+"gives man power and strength"
+"Submission to error superinduces loss of power."
+
+* Moral courage
+
+"Moral courage is requisite to meet the wrong and to proclaim the right. But how shall we reform the man who has more animal than moral courage, and who has not the true idea of good? Through human consciousness, convince the mortal of his mistake in seeking material means for gaining happiness. Reason is the most active human faculty."
+
+* Resist eveil - error of every sort
+
+"It will flee from you"
+
+* Inharmony "of any kind"
+
+"involves weakness and suffering, - a loss of control over the body"
+
+* Man's enslavement
+
+"Man's enslavement to the msot relentless masters - passion, selfishness, envy, hatred, and revenge - is conquered only by a might struggle. Every hour of delay makes the struggle more severe. If man is not victorious over the passions, they crush out happiness, health, and manhood. Here Christian Science is the sovereign panacea, giving strength to the weakness of mortal mind, - strength fromt he immortal and omnipotent Mind, -and lifting humanity above itself into purer desires, even into spiritual power and good-will to man."
+
+* Being - holiness, harmony, immortality
+
+"uplift the physical and moral standard of mortals, will increase longevity, will purify and elevate character"
+
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
 * God's thoughts towards His people
