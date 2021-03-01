@@ -1,4 +1,4 @@
-### Vocabulary ###
+# Vocabulary #
 
 ## Remember: ##
 * To have in or be able to bring to one's mind in awareness
@@ -13,4 +13,3 @@ Something exists in consciousness. The image in mind has not been consciously co
 
 ## Satire: ##
 * The use of humor, irony, exaggeration, or ridicule to expose and criticize people's stupidity or vices, particularly in the context of contemporary politics and other topical issues.
-
