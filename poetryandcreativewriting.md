@@ -49,6 +49,17 @@ Christian Science teaches that "we are all tributary to the same source", but th
 ## Write about a time you felt alone. ##
 Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
 
+## If you could do one thing every day for the rest of your life, what would it be, and why? ##
+For the rest of my life, if I could do something, I would take up the life of a naturalist.
+I would observe and truly listen to nature.
+I would take field notes.
+I would write down 5 images, and 5 sounds every day.
+I would talk to someone in person every day.
+I would love family members, including distant family members, every day.
+I would appreciate the study of history, a natural science.
+I would appreciate the stories told in families, and people's ancestors, lineage, and heritage.
+I would play music, take photography, and love more every day.
+
 ## What makes you smile or laugh every time you think of it? ##
 Today, I randomly smiled at a stranger at Starbucks. She was so beautiful. She smiled right back. There was reciprocity. Our eyes met. We connected truly. I helped her. She helped me even more. I love how God puts a smile right on our faces even when we feel the need to cry, and break down. It's wonderful that God is always at work.
 
@@ -3549,3 +3560,13 @@ My mom worked as a teacher like my grandmother did. And as a mom, she exuded so 
 
 ...
 
+
+----------
+
+
+# Writing from Grade School #
+## Popularity ##
+Popularity to me can be good or bad. It depends on who you are. If you were popular then I would say yes. If you weren't so popular I would say no because then those people sort of have to suffer. No matter whether you are popular or not you should always be nice to others. The dangers of popularity is that people get left out. Also, sometimes peopel who are very, very nice are unpopular when you think that they could be popular for how nice they are. I really, truly could go either way though.
+
+## Competitiveness ##
+I think competitiveness is away to see whether you have improved. You can compete with yourself or against others. I like to compete. I use both ways. I feel that competitivenes is important. An example of me competing is in swimming. During swim practice, I compete against myself in seeing if my strokes are less than before and if the way I swim looks better.
