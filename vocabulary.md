@@ -11,3 +11,6 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The capacity to view things in their true relations or relative importance
 * The appearance to the eye of objects in respect to their relative distance and positions
 
+## Satire: ##
+* The use of humor, irony, exaggeration, or ridicule to expose and criticize people's stupidity or vices, particularly in the context of contemporary politics and other topical issues.
+
