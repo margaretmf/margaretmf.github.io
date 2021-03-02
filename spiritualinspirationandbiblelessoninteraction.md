@@ -278,6 +278,55 @@ We live in God, this gives us power
 
 "uplift the physical and moral standard of mortals, will increase longevity, will purify and elevate character"
 
+* Lift up my soul unto God
+
+"Unto thee, O Lord, do I lift up my soul. The troubles of my heart are enlarged. O bring thou me out of my distresses."
+
+* God is my strength
+
+"My flesh and my heart faileth: but God is the strength of my heart, and my portion forever."
+
+* draw near to God, trust in the Lord, be of good Courage
+
+"he shall strengthen your heart, all ye that hope in the Lord"
+
+* Jesus, the power of Spirit, Galilee
+
+* Healing on the sabbath
+
+"It is lawful to heal on the sabbath"
+
+* Jesus' way of healing, Life is God
+
+"Jesus never asked if disease were acute or chronic, and he never recommended attention to laws of health, never gave drugs, never prayed to know if God were willing that a man should live. He understood man, whose Life is God, to be immortal, and knew that man has not two lives, one to be destroyed and the other to be made indestructible."
+
+* Life in God is indestructible
+
+"Christ presents the indestructible man, whom Spirit creates, constitutes, and governs. Christ illustrates that blending with God, his divine Principle, which gives man dominion over all the earth."
+
+* Governed by divine Mind
+
+"Every function of the real man is governed the divine Mind."
+
+* Claims
+
+"That mortal mind claims to govern every organ of the mortal body, we have overwhelming proof. But this so-called mind is a myth, and must by its own consent yield to Truth. It would wield the sceptre of a monarch, but it is powerless. The immortal divine Mind takes away all its supposed sovereignty, and saves mortal mind from itself."
+
+* The enactments of mortal mind, moral right
+
+"Think less of the enactments of mortal mind, and you will sooner grasp man's God-given dominion."
+
+"It is man's moral right to annul an unjust sentence, a sentence never inflicted by divine authority."
+
+* Rise in the conscious strength
+
+"Rise in the conscious strength of the spirit of Truth to overthrow the plea of mortal mind, alias matter, arrayed against the supremacy of Spirit."
+
+* Blot out error
+
+"Blot out the images of mortal thought and its beliefs in sickness and sin. Then, when thou art delivered to the judgment of Truth, Christ, the judge will say, 'Thou art whole!'"
+
+
 ## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
 
 * God's thoughts towards His people
