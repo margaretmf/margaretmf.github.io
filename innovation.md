@@ -760,6 +760,36 @@ is_contact: true
 (4) The piano playing
 (5) A hymn coming out of my mouth 'come cast your burdens on the Lord'
 
+## **Day 49** ##
+## **Images** ##
+(1) The light shining on the motel, the same sun we're all waking up to
+(2) The playground for children
+(3) McDonald's fast food across the street
+(4) Memories of being in New Orleans
+(5) The brown trees in winter in the Southern farmland
+
+## **Sounds** ##
+(1) The air blowing in the hotel room
+(2) Buses driving in the early morning with children filled with peace and joy
+(3) Heart filled with gratitude for family vacation in the park
+(4) The sound of innocent childhood friend's heart
+(5) People saying 'good morning' at the bottom of the house
+
+## **Day 50** ##
+## **Images** ##
+(1) Crossing the Bridge to West Memphis, Arkansas, the Arch
+(2) The sun shining through the trees
+(3) Christmas decorations on houses
+(4) Red buildings
+(5) The beauty of freedom in the USPS
+
+## **Sounds** ##
+(1) The vacuum
+(2) Christian music about God turning around situations
+(3) Toilet flushing
+(4) Birds singing
+(5) The sound of a man calling on the phone with good cheer
+
 <br>
 
 <br>
