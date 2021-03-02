@@ -324,6 +324,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
 * Grateful for Medieval organ music
 * Grateful for global cultures
+* Grateful for sketches
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
