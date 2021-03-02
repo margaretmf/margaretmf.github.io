@@ -46,6 +46,18 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to?
+I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we are a lot alike. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words like my grandmother. 
+
+I also share the same name as Margaret Thatcher, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret, and sometimes I would enjoy going by 'Meg'. 
+
+'Margaret' means 'daisy' in French, and flowers turn to the sun. Margaret in Sanskrit means 'pearl'. Pearls grow in oysters. Sometimes irritants come up, but the irritants grind against the 'pearl of great price' within.
+
+My name is a Western-European name, and I love that people from other cultures share similar experiences with names being tied to meanings and ancestry.
+
+## Write about a real or imagined train ride you have taken. ##
+I have taken real train rides to Pennsylvania and back, and to Boston and back. I love looking out the windows, and seeing the scenery. People from different walks of life come on and come off. I appreciate the hustle and the bustle in the train station. It's beautiful to imagine the dance of life in the situation, and on the train. What a wonderful experience it is to share affection with family members on and off the train.
+
 ## Write about a time you felt alone. ##
 Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
 
@@ -200,6 +212,7 @@ My prayer I said for myself - "Yes, I can; Yes, We can" worked.
 I picked up my guitar, and I played a little tune.
 It felt so good to feel at home within my heart.
 It felt so good to feel able and free.
+We live in America Reborn.
 
 Someone once said "the amateur builds the ark."
 The professionals heal, but nothing can stop the amateur from trying it out too.
@@ -214,8 +227,8 @@ What a beautiful earth it is, and what a beautiful child of God you are down dee
 There are reasons to stay alive, indeed.
 Anything can be healed.
 It's natural.
-Yes, we can build a new earth, a new heaven, and restore the land from the ground up, from the South to the North, from the States to the Sea, from the Sea to the Continents.
-Yes, we can. It's called Pangaea. It's called "the one tribe" we can believe in again after a severe backlash.
+Yes, we can build a new earth, a new heaven, and restore the land from the ground up, from the South to the North, from the East to the West, from the States to the Sea, from the Sea to the Continents.
+Yes, we can. It's called Pangaea. It's called "the one tribe" that we can believe in again and again again after a severe backlash, and a severe breakdown.
 
 ## God Reminded Me of a Prayer I Said in the Past ##
 God reminded me of a prayer I said in the past.
@@ -337,14 +350,14 @@ Thank you for provoking me.
 I see all the selfies online.
 I watch all the Celebrities.
 
-...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people.
+...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people. I learned from Malcolm X.
 
 ...But Child, seriously... The correct approach is to stop the bullying, Let people speak up for themselves, Be more patient, observant, and considerate.
 
 ## Americana ##
 I'm sure you, 
 someone with far HIGHER IQ,
-just watched from your high-standing pedestal 
+just watched from a high-standing pedestal 
 the joke
 on a woman 
 supposed to be a blonde-haired Southern Virgin
@@ -366,7 +379,8 @@ Before the quarantine, I became a prisoner in my own home.
 I felt like I was quarantined before the quarantine.
 I felt like I was imprisoned before being imprisoned.
 I felt like I was ostracized, yet connected before feeling close to losing it all.
-I am compassionate, but I became something that does not represent my true self.
+I am compassionate, but I became something that I am not.
+I became something that does not represent my true self.
 I am genuine and real, but I became fake, a fraud, and spiteful.
 I was afraid, I felt hurt from opening up.
 I hated my sexuality.
@@ -450,12 +464,19 @@ There's a system of ideas, constantly moving, constantly inspiring, constantly r
 Being so one with God that one can be happy for all of those around you.
 Being able express help to someone who seems to be struggling and being confident in his or her abilities.
 Feeling at ease in the body.
-Being able to admit to to mistakes nd accept rebueks with joy for how to become better.
+Being able to admit to to mistakes and accept rebukes with joy for how to become better.
 Being so rooted in God that there's a knowledge that God's idea is fit somewhere.
 Being free from the pull to compare or judge or feel judged.
 
 ## The Harmony of True Business ##
 "Union in its highest meaning is the universal union of God and man, divine Principle and idea. True management, since God is infinite must be God's absolute government of His perfect, spiritual universe, including man. Mary Baker Eddy unites in Science and Health with Key to the Scriptures (p. 209), 'Mind supreme over all with its formations and governing them all, is the central sun of His own systems of ideas, the Life"
+
+"I stand in union with you.
+I am in union with everyone I meet.
+We meet in the spirit of compassion, the letting go of evil beliefs, and the desire to grow together to become more loving, more whole, and more unified.
+I have made similar mistakes as you.
+I have succeeded in ways similar to you.
+We move in union with all of humanity at once."
 
 ## Speak Gently ##
 "Speak gently!
@@ -512,11 +533,6 @@ I was grateful to see the inspiration of Martin Luther King, Jr. shared in an en
 I was grateful to build solutions and be a part of the "Smart Things Should Build Things Movement".
 I didn't know everything there is to know about African American History, but I was grateful to start a lifelong journey of appreciating the country, learning about perception, learning about people, working in teams, learning about African American History, and preventing violence on the basis of sex and race.
 I was grateful to defend true womanhood, the "Princesses of Peace" who are able to lead, and appreciate true manhood.
-
-## The Reawakening ##
-I said "first I was the rose, and then I was the Queen".
-What does this mean?
-I am reincarnating, reawakening, being reborn into oneness with all the earth, into the clear day, into the light of Soul, into connectivity with all of nature, and most of all humanity.
 
 
 ----------
