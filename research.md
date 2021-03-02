@@ -15,6 +15,35 @@ Sharing history helps people understand why the world is the way it is, and how 
 ----------
 
 
+## [Autism's Hidden Gifts](https://www.theatlantic.com/health/archive/2015/09/autism-hidden-advantages/406180/) ##
+"Those accounts have contributed to a popular misconception: that when autistic people are unusually skilled, those skills are impractical and not connected to 'real' intellect.
+
+Laurent Mottron, a psychiatrist at the University of Montreal who has studied autism for decades, led an analysis last year which suggested that the autistic brain seeks out the kinds of information it 'prefers' to process while ignoring materials—like verbal and social cues, for example—that it doesn’t like. Just as many blind people have heightened hearing, Mottron says, the brains of autistic people might be better able to understand numbers or patterns.
+
+One of The Onion’s parody news videos is about an “autistic reporter” sent to cover a train accident that killed a man. “Luckily there was not structural damage caused to the train,” the actor says, before rattling off the train’s fascinating (to him) particulars, like its “Westinghouse E-CAM XCA448F propulsion.” That’s the cliche, of course: that an autistic person would memorize a locomotive-traction system but overlook the real, human story behind it.
+
+Unlike when Mottron was first starting his research, it’s now more widely accepted that autistic people can be precocious at technical and visual tasks. But it’s not like they’d be great poets or artists... right?
+
+In fact, newer studies suggest that the autism advantage might extend even to domains that are thought to be the stronghold of neurotypical people, like creativity. A paper published last month in the Journal of Autism and Developmental Disorders sought to measure the output of creative ideas in a sample of autistic and neurotypical people.
+
+The participants were asked to think of as many non-obvious uses for a brick and a paper clip as possible. Highly autistic people in the experiment didn’t produce very many responses, but the answers they did give were highly unusual—a strong sign of creative thinking.
+
+Neurotypical participants would think of all the easy answers—like using the paperclip to reset their iPhones—and only then move on to more innovative uses. But the autistic people jumped straight to the ingenious responses, saying they would use the paperclip as a weight for the front of a paper airplane, for example, or for heating up in order to suture a wound.
+
+'Most people focus on one property of the object and do associations with that,' Catherine Best, health researcher at the University of Stirling and a co-author of the study, told me. 'They might say, ‘Oh, it's like a piece of wire. What else can you do with wire?’ People with autistic traits skip to the more difficult stuff.'
+
+The idea that autistic brains are intrinsically deficient is one of the many myths Steve Silberman debunks in his recent book, Neurotribes. Think of the brain as an operating system, he writes: 'Just because a computer is not running Windows doesn’t mean that it’s broken. Not all the features of atypical human operating systems are bugs.'
+
+Silberman said he avoids using terms like 'high-functioning' and 'low-functioning.' 'People who are classified as high-functioning are often struggling in ways that are not obvious,' he told NPR’s Terry Gross recently, 'whereas science has shown that people who are classified as low-functioning often have talents and skills that are not obvious.'
+
+Or to borrow another famous operating-system slogan, many autistic people simply 'think different,' not worse.
+
+This isn’t to suggest that the parents of severely autistic children—some of whom are prone to tantrums and violence—don’t face real challenges. There’s only so far someone who can’t speak can go with pattern recognition, creativity, and detail orientation.
+
+But this and other research might signal that it’s time to rethink the way educators help young autistic children prepare for the broader world. Early childhood interventions should focus on harnessing strengths, Mottron says, rather than erasing the differences between autistic children and neurotypical kids.
+
+'I no longer believe that intellectual disability is intrinsic to autism,' Mottron has said. And because of that, he believes, 'The limits of autistics should constantly be pushed and their educational materials should never be simplified.'"
+
 ## [Genius May Be an Abnormality: Educating Students with Asperger's Syndrome, or High Functioning Autism](https://www.iidc.indiana.edu/irca/articles/genius-may-be-an-abnormality-educating-students-with-aspergers-syndrome-or-high-functioning-autism.html) ## 
 "I am becoming increasingly concerned that intellectually gifted children are being denied opportunities because they are being labeled either Asperger's or high functioning autism. Within the last year I have talked to several parents, and I was disturbed by what they said. One mother called me and was very upset that her six-year-old son had Asperger's. She then went on to tell me that his IQ was 150. I replied that before people knew about Asperger's Syndrome, their child would have received a very positive label of intellectually gifted.
 
