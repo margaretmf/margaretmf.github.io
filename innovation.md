@@ -712,6 +712,22 @@ is_contact: true
 (4) Blank sound
 (5) The sound of an innocent heart
 
+## **Day 46** ##
+## **Images** ##
+(1) Paints, colors in the hotel
+(2) The snow outside with the civil engineering work
+(3) School buses
+(4) Red lights on the back of a line of trucks in order
+(5) CHristmas trees in the hotel lobby
+
+## **Sounds** ##
+(1) Popular music playing in the background
+(2) Silence
+(3) The trucks
+(4) The train whistling
+(5) A telephone ringing
+(6) A refrigerator 
+
 <br>
 
 <br>
