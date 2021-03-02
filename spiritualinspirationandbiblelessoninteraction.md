@@ -158,6 +158,56 @@ Thou shalt have no other gods before me."
 
 " And the Jews marvelled, saying, How knoweth this man letters, having never learned? Jesus answered them, and said, My doctrine is not mine, but his that sent me. If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself. He that speaketh of himself seeketh his own glory: but he that seeketh his glory that sent him, the same is true, and no unrighteousness is in him."
 
+* the mind in Christ
+
+"The Apostle Paul bade men have the Mind that was in the Christ. Jesus did his own work by the one Spirit. He said: 'My Father worketh hitherto, and I work.'"
+
+* Giving does not impoverish
+
+"Mind-science teaches that mortals need 'not be weary in well doing.' It dissipates in doing good. Giving does not impoverish us in the service of our Maker, neither does withholding enrich us. We have strength in proportion to our apprehension of the truth, and our strenght is not lessened by giving utterance to truth."
+
+* "consciousness of Truth"
+
+"When we reach our limits of mental endurance, we conclude that intellectual labor has been carried sufficiently far; but when we realize that immortal Mind is ever active"
+
+* Spiritual energies
+
+"so-called material law trespass upon God-given powers and resources, we are able to rest in Truth, refreshed by the assurances of immortality, opposed to mortality."
+
+* "the most good"
+
+* "The explanation lies in the support which they derived from the divine law, rising above the human. The spiritual demand, quelling the material, supplies energy and endurance surpassing all other aids, and forestalls the penalty which our beliefs would attach to our best deeds."
+
+* "the divine power", "unselfed love"
+
+* "all for the glory of God"
+
+"whatsoever ye do, do all to the glory of God."
+
+* "for the joy of the Lord is your strength"
+
+* Right motives
+
+"Right motives give pinions to thought, and strenght, and freedom to speech and action."
+
+* "run with patience', divine Principle, and Science of healing
+
+* Science, the glorious possibilities, immortal man, forever unlimited by the mortal senses
+
+* The Eternal Truth
+
+"The eternal Truth destroys what mortals seem to have learned from error, and man's real existence as a child of God comes to light."
+
+* Man in Science 
+
+* feel the divine energy
+
+"Let us feel the divine energy of Spirit, bringing us into newnes of life and recognizing no mrotal nor material power as able to destroy. Let us rejoice that we are subject to the divine 'powers that be.'"
+
+* sinless joy, perfect harmony, immortality of Life
+
+"The sinless joy, - the perfect harmony, and immortality of Life possessing unlimited divine beauty and goodness without a single bodily pleasure or pain, - constitutes the only veritable, indestructible man, whose being is spiritual."
+
 * Jesus patiently persisted
 
 "taught and demonstrated the truth of being"
