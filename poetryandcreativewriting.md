@@ -49,7 +49,7 @@ Christian Science teaches that "we are all tributary to the same source", but th
 ## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to?
 I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we are a lot alike. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words like my grandmother. 
 
-I also share the same name as Margaret Thatcher, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret, and sometimes I would enjoy going by 'Meg'. 
+I also share the same name as Margaret Thatcher, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret.
 
 'Margaret' means 'daisy' in French, and flowers turn to the sun. Margaret in Sanskrit means 'pearl'. Pearls grow in oysters. Sometimes irritants come up, but the irritants grind against the 'pearl of great price' within.
 
