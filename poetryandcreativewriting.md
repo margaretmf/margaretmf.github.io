@@ -440,7 +440,7 @@ I can drop this, and walk freely with the Lord, and the Love within.
 
 ## Attitude on Life ##
 I have sounded and attacked like President Donald Trump in some ways.
-Donald Trump supports people with valid points. Concerns over infrastructure, agriculture, and preserving what's best in the Republic are valid.
+Donald Trump supports people with valid points. Concerns over infrastructure, technology, agriculture, and preserving what's best in the Republic are valid.
 I have met President Barack Obama. The purpose of life is to transform. All of humanity is transforming at once.
 I aspire to sound, and be thoughtful, and secure like Present Barack Obama, who I have met.
 I am interested in party switching, and the progress in The United States of America.
@@ -984,9 +984,9 @@ Partly, I wanted to do a debut with an organization that waves a Confederate fla
 
 Martin Luther King, Jr. did not like organizations that raised Southern Belles, and I cared about healing from racism since I was a first year student in college. I carry prejudices towards African Americans still, but I remember participating in groups at a university with self-segregation with African Americans. After experiencing rejection and communication breakdowns in humanities classes, I starved myself for a semester because rejection from traditionally Southern groups is painful, but I reformed and engaged with people from more diverse groups and asked an African American man to my sorority date function. I also reformed in becoming less prejudiced towards the Caucasian race in the South, and appreciating their joy, innocence, and light-heartedness, qualities which I express also.
 
-There are societal and cultural projections on African Americans. It seems unacceptable to ask an African American man to a formal, and I carry prejudices that African American men are less clean.
+There are societal and cultural projections on African Americans. These societal projections can feel very loud, but black men are so intelligent, and free, and innocent, life-giving, and have good sense of humor.
 
-At church, I feel like I was trying to break away from the pull to depend on men, become a career woman, always search for a boyfriend or a husband, and be free from the cowboy-damsel-in-distress stereotypes, but somehow the claims became more aggressive.
+At church, I feel like I was trying to break away from the pull to depend on men and the pull to fear the male-dominated workplace, I feel like I was trying to break away from the continuous search for a boyfriend or a husband, and be free from the cowboy-damsel-in-distress stereotypes, but somehow the claims became more aggressive.
 
 ## Thinking Above Political Lines ##
 Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
