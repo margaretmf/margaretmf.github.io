@@ -790,6 +790,164 @@ is_contact: true
 (4) Birds singing
 (5) The sound of a man calling on the phone with good cheer
 
+## **Day 51** ##
+## **Images** ##
+(1) An American fag waving out of the hotel
+(2) A sign in the hotel 'we'll leave the light on for you'
+(3) A truck outside the window
+(4) The sun shining in the morning
+(5) Red berries outside of a home
+
+## **Sounds** ##
+(1) European accent of young girls on a TV show on the farm and the innocence of the girls
+(2) Animals cricketing, tweeting outside the hotel in the land
+(3) The sigh of a young girl
+(4) Kid's show on the TV
+(5) Trucks driving by 
+
+## **Day 52** ##
+## **Images** ##
+(1) Red, yellow cadillacs
+(2) Bus in front of a Nashville school with a playground
+(3) The sun shining through the traffic in Nashville
+(4) Red, blue, yellow, brown townhouses in Nashville
+(5) Sun shining through the banks like Sun Trust and PNC
+(6) Gas stations and freedom at them
+
+## **Day 53** ##
+## **Images** ##
+(1) Red barn
+(2) Snow on the ground, the trees
+(3) Beautiful homes united with Trump signs in the front in Bristol, VA/TN
+(4) Red/White trucks driving with the traffic in Nashville
+(5) Waffle House near a hotel
+
+(1) A cheerful Southern voice on the phone 
+(2) Cheerful Southern women's voices on the radio
+(3) News about baby enjoying the snow
+(4) Roaring 1920s music 
+(5) Country families appreciating dinners on Sundays, and church
+
+## **Day 54** ##
+## **Images** ##
+(1) Visual memory of rowing in Scotland
+(2) The bike carwash
+(3) Loving, honest men at the carwash
+(4) Interracial harmony at Starbucks
+(5) People enjoying a Thanksgiving meal
+(6) Innocent young girls
+(7) White truck with a blinker
+
+## **Sounds** ##
+(1) The sound of silence
+(2) Rain
+(3) Wind
+(4) Cars driving
+(5) Christmas music
+
+## **Sounds** ##
+(1) "Thank you for the music playing"
+(2) Tweep, tweep of the birds outside
+(3) Water flowing
+(4) The fan blowing
+(5) The sound of innocence in the books "Little House on the Prairie"
+
+## **Day 55** ##
+## **Images** ##
+(1) The bird flying solo
+(2) Community artwork on the wall in Starbucks
+(3) RVs outside peoples' homes
+(4) White houses, homes in the country of America
+(5) God's son driving a Uhaul to help someone at home
+
+## **Sounds** ##
+(1) Community voices talkking about family challenges in Starbucks
+(2) Aunt Jeannie's voice
+(3) Toilet flushing
+(4) Watter dripping
+(5) The rain pitter, patter
+
+## **Day 56** ##
+## **Images** ##
+(1) Couples singing, holding hands
+(2) The clipping in the kitchen - clip, clip, clip
+(3) Lawn mower, zoom zoom
+(4) Water running into a glass
+(5) Innocent, childlike smiles
+
+## **Sounds** ##
+(1) Black men outside the Salvation Army
+(2) Red, white building
+(3) The dignity of the police men
+(4) Structured, harmonized logstics in the trucks
+(5) American Renaissance
+
+## **Day 57** ##
+## **Images** ##
+(1) Horses on the side of the highway
+(2) Used cars on the side of the highway
+(3) Cable lines in the sky in the country
+(4) Farm house with an American flag
+(5) White car stopped on the right of the road and black car stopped on the left
+(6) Black lives on the country highway
+
+## **Sounds** ##
+(1) Mississippi Accent
+(2) Radio Station on healing Black Lives thorugh churches in their neighborhoods
+(3) Black mailbox
+
+## **Day 58** ##
+## **Sounds** ##
+(1) Pool of grey, silver water in the Red dirt
+(2) Blue and silver Amgrak train on a Monday morning
+(3) Gates opening and closing with workers
+(4) Crossroads with trucks driving above
+(5) Line of cars driving to school
+(6) The sun reflects through puddles of water on the Black road
+
+## **Images** ##
+(1) R&B music playing on the Road
+(2) Praise to Allah
+(3) A man, a friend correcting me while driving
+(4) The telephone ringing asking me to pick him up
+(5) The sound of a man's voice
+
+## **Day 59** ##
+## **Sounds** ##
+(1) Rusted trucks and cars in farmland
+(2) Gas stations
+(3) Birds flying in the sky
+(4) Green leaves on trees
+(5) Tuesday afternoon dry
+(6) Southern restaurant
+
+## **Day 60** ##
+## **Sounds** ##
+(1) Old fashioned cars - black, brown
+(2) Red painted truck
+(3) Blue car crossing the train tracks
+(4) The sound of a man's voice 
+(5) The day before Thanksgiving
+
+## **Images** ##
+(1) Early morning dew
+(2) Order on the road
+(3) A beautiful family and beautiful name
+(4) Red flowers in front of someone's home
+(5) Peace in the morning at the airpot
+
+## **Day 61** ##
+## **Sounds** ##
+(1) Gold powder on the side of the road
+(2) Trailer in the right lane
+(3) Marhshland
+(4) Rain washing the sun and pain, and sin away, the rain clearing out
+(5) Cleansing rain
+
+## **Images** ##
+(1) Christmas peace
+(2) Glittery brown gray tree branches with colored leaves falling off
+
 <br>
 
 <br>
