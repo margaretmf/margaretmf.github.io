@@ -46,7 +46,13 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
-## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to?
+## What is a personality trait you admire in other people? ##
+I admire the quality of integrity the most in people. I think this menas that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
+
+## Is our world today a better or worse place than it was when you were a kid? ##
+I think our world is in a better place today. I think a lot has shifted, many lessons have been learned, and people are more mature, active, and expressive than when I was a kid. I think family relationship ties have grown deeper, harmony has increased, but everyone, mostly myself, has to watch for regressions.
+
+## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to? ##
 I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we are a lot alike. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words like my grandmother. 
 
 I also share the same name as Margaret Thatcher, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret.
