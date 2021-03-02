@@ -7,9 +7,11 @@ It's great to appreciate the best parts of our nation, our families, and our ind
 
 It's also great to learn from the past's dark aspects.
 
-Romanticizing the past stems from feeling like people have lost something from years ago. Romanticizing the past also stems from glorifying a past that was not as pretty in reality. Aspects of the past still remain present today in new forms. Through stories, people can take up dark aspects of the past and learn from them. Also through stories, people can take up hidden realities not fully covered.
+Romanticizing the past stems from feeling like people have lost something from years ago. Romanticizing the past also stems from glorifying a past that was not as pretty in reality. Aspects of the past still remain present today in new forms. Through stories, people can take up dark aspects of the past and learn from them. Also through stories, people can take up hidden realities not fully exposed to the light.
 
 Sharing history helps people understand why the world is the way it is, and how our ancestors made decisions. Sharing stories from the past differs from believing that the past is better than the present in an imagined way, however. 
+
+Learn from the past. There's no need to re-enact it. Live, and sing a song today within through everything with childlike innocence and simplicity. 
 
 
 ----------
