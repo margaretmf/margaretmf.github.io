@@ -15,6 +15,12 @@ Sharing history helps people understand why the world is the way it is, and how 
 ----------
 
 
+## [The Onion](https://www.theonion.com) ##
+
+
+----------
+
+
 ## [Jefferson Letter to Madison: A Little Rebellion Now and Then Is A Good Thing - A Letter From Thomas Jefferson To James Madison](https://www.varsitytutors.com/earlyamerica/early-america-review/volume-1/jefferson-letter-madison) ##
 "Shays' Rebellion — a sometimes-violent uprising of farmers angry over conditions in Massachusetts in 1786 — prompted Thomas Jefferson to express the view that 'a little rebellion now and then is a good thing' for America. Unlike other leaders of The Republic, Jefferson felt that the people had a right to express their grievances against the government, even if those grievances might take the form of violent action. Jefferson airs his sentiments in a letter to James Madison on January 30, 1787, expressing justification for the series of protests led by Daniel Shay and a group of 1,200 farmers. Jefferson also writes of his concern over John Jay's impending negotiations with Spain. Under consideration would be proposals to extend privileges in Spanish ports to American ships, while providing navigation rights on the Mississippi River to Spain. In his letter to Madison, Jefferson expresses his belief that the agreement might be interpreted as opening up the Mississippi to Spanish rule, thus provoking a war between settlers in the west and Spain, and eventually, dividing the nation.
 
