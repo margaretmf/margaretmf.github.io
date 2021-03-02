@@ -948,6 +948,38 @@ is_contact: true
 (1) Christmas peace
 (2) Glittery brown gray tree branches with colored leaves falling off
 
+## **Day 62** ##
+## **Images** ##
+(1) The reds and whites on Country music street
+(2) Red truck, guitars, lights
+(3) Innocence and freedom for all race in Nashville - it's 2020
+(4) Brick buildings that look like Ireland
+(5) Bridge with the sun shining
+(6) Green leaves near the water
+(7) The construction workers working
+
+## **Sounds** ##
+(1) Blues, jazz music staying the night in Bristol
+(2) A bus honking a horn
+(3) The sounds of cars moving sounding like a ocean wave
+(4) Peace, be still; sin no more after acknowledging sinful acts
+
+## **Day 63** ##
+## **Images** #
+(1) Christmas decorations on white picket fences
+(2) A man on an orange ladder putting Christmas lights up
+(3) Red trucks in driveways, and on streets
+(4) City lights
+(5) Cones on the highway
+
+## **Sounds** ##
+(1) Children yelling
+(2) The sound of doing laundry and household chores in a hotel
+(3) The motor of a car
+(4) Big House Christian music playing in the car
+(5) Rock music playing in the car
+(6) Silence
+
 <br>
 
 <br>
