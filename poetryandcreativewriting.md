@@ -52,6 +52,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 "Sandy Koufax was a **remarkable sports hero** because of his **work ethic**, **amazing athletic ability**, and **teamwork**."
 "Because of his **determination**, **Martin Luther King Jr.** was able to overcome **educational barriers**, **prejudice**, and **violence** to become a **politicla leader** who changed America.
 
+## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
+It's not a dangerous thing to do,b ut with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
+
 ## What is a personality trait you admire in other people? ##
 I admire the quality of integrity the most in people. I think this menas that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
 
