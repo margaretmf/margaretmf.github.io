@@ -980,6 +980,37 @@ is_contact: true
 (5) Rock music playing in the car
 (6) Silence
 
+## **Day 64** ##
+## **Images** ##
+(1) Woman looking after Children in a playground
+(2) The beauty of all races in Chicago
+(3) Women pushing strollers
+(4) Women walking with a young girl
+(5) Homes united in India from a blue house to a white house with the sunlight shining through
+
+## **Sounds** ##
+(1) Church bells ringing on a Sunday
+(2) A boy yelling while on a bike
+(3) Boys yelling 'warm water, warm water'
+(4) A man on the radio share the Bible
+(5) Blues and jazz music
+
+## **Day 65** ##
+## **Images** ##
+(1) Early morning dew
+(2) Order on the road
+(3) A beautiful family and beautiful name
+(4) Crossroads ont he street
+(5) Red flowers in front of someone's home
+(6) Peace in the morning at the airport
+
+## **Sounds** ##
+(1) Old fashioned cars
+(2) Red painted truck
+(3) Blue car crossing the train tracks
+(4) The day before Thanksgiving
+(5) Birds tweeting
+
 <br>
 
 <br>
