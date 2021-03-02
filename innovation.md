@@ -728,6 +728,38 @@ is_contact: true
 (5) A telephone ringing
 (6) A refrigerator 
 
+## **Day 47** ##
+## **Images** ##
+(1) RV Parks
+(2) RVs outside peoples' homes
+(3) Forest green trees on the side of the highway
+(4) Wind farms
+(5) Center for Housing and Healing building
+(6) Salvation Army building
+
+## **Sounds** ##
+(1) Christian music on the radio
+(2) Cars driving by
+(3) A honk of a car
+(4) Car motors as cars
+(5) The wind
+(6) The motorcyle drive through the city
+
+## **Day 48** ##
+## **Images** ##
+(1) Butter on the table
+(2) Piano in the living room
+(3) Clothes on the floor
+(4) Clothes hanging
+(5) Spirited books on the desk
+
+## **Sounds** ##
+(1) The sound of an innocent heart
+(2) Water running
+(3) Lawn mower
+(4) The piano playing
+(5) A hymn coming out of my mouth 'come cast your burdens on the Lord'
+
 <br>
 
 <br>
