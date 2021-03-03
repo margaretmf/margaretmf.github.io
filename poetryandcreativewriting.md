@@ -52,6 +52,12 @@ Christian Science teaches that "we are all tributary to the same source", but th
 "Sandy Koufax was a **remarkable sports hero** because of his **work ethic**, **amazing athletic ability**, and **teamwork**."
 "Because of his **determination**, **Martin Luther King Jr.** was able to overcome **educational barriers**, **prejudice**, and **violence** to become a **politicla leader** who changed America.
 
+## For people who have made awful, horrible mistakes -- what questions would you ask them? ##
+(1) How have you changed over the past 1 year - 5 years - 10 years?
+(2) What have you learned in relationships?
+(3) What challenges have you overcome?
+(4) How have you rediscovered aspects of your true self?
+
 ## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
 It's not a dangerous thing to do,b ut with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
 
