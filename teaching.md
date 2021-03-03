@@ -162,6 +162,23 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## Hatchet by Gary Paulsen ##
+
+## Quetions ##
+### Who? ###
+* Brian Robeston - 13
+* The only passenger onthe plane, a pilot
+* Jim or Jake - mid-forties, had been silent
+
+### What? ###
+* "stared out the window of the small plane at the endless green northern wilderness"
+* "small plane, a Cessna 406 - a bushplane - and the engine was so loud, so roaring and consuming and loud"
+
+### Color ###
+
+### Adjectives ###
+
+
 ## The Indian in the Cupboard by Lynne Reid Banks ##
 
 ## Questions ##
