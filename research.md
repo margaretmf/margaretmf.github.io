@@ -1,3 +1,30 @@
+## [Religious Freedom and Architecture](https://www.backstoryradio.org/blog/a-chapel-on-mr-jeffersons-grounds/) ##
+"Unlike all other nineteenth century institutions of higher education—like Harvard, William & Mary, and Yale—the University of Virginia was founded without a designated religious affiliation. Although Thomas Jefferson envisioned an academic village in which students enjoyed religious freedom, UVA was not a truly secular institution. According to UVA professor, Alan Taylor, 'He [Thomas Jefferson] did not want any one denomination to obtain ascendency or even for several to contest for primacy.' Rather, UVA was truly trans-denominational, not non-religious, and the establishment of the University chapel exemplified Jefferson’s vision of free worship on campus. From the words of Jefferson himself:
+
+In conformity with the principles of our constitution which places all sects of religion on an equal footing – with the jealousies of the different sects in guarding that equality from encroachment and surprise, and with the sentiments of the legislature in favor of freedom of religion manifested on former occasions [as in the Virginia Statute for Religious Freedom] – we have proposed no Professor of Divinity.'
+
+Despite the absence of a Professor of Divinity, religious services were held every Sunday. Alexander G. 'Sandy' Gilliam Jr, University Protocol and History Officer, claims 'Jefferson decreed that religious services be held on Sundays, the difference in UVA was that attendance wasn’t required.' The very epicenter of Jefferson’s academic village—The Rotunda—could accommodate religious worship. According to UVA’s meeting minutes of Oct. 4, 1824, 'One of it’s [the Rotunda] large elliptical rooms on it’s middle floor shall be used for annual examinations, for lectures to such schools as are too numerous for their ordinary schoolrooms, and for religious worship, under the regulations allowed to be prescribed by law.' Jefferson served as UVA’s rector during this period of time. 
+
+When the wave of the Second Great Awakening—a religious revival of the 1840s—rippled through Virginia, attention was drawn to the lack of a chapel at UVA. Astounded and outraged by this unfortunate deficiency, an organization comprised of faculty wives initiated the process by raising funds and drawing plans for UVA’s chapel. According to Gilliam, the original plans 'stuck' the chapel '…in the middle of the lawn about half way down.' Obviously, these plans changed.
+
+Though the Civil War prolonged construction and jeopardized the funds, Gilliam said the cornerstone of UVA’s Chapel was laid in 1885 under the supervision of Chaplin Otis Glazebrook. Construction was slow, but the Chapel was completed approximately ten years later.
+
+The architectural style of the Chapel stands out against the Jeffersonian style seen throughout Grounds.  According to Gilliam, the Chapel’s gothic style is indicative of the architectural tastes of the mid-1800s. While the Greek Revivalist architecture was considered vaguely Pagan, Gothic architecture was the preferred style for churches.
+
+Gilliam noted that the last University Chaplin died in 1895, the same year the UVA Chapel started withdrawing from religious affiliation. The many outside preachers who commuted to hold services in the structure eventually stopped as well.
+
+Today, the Chapel is regularly used for a variety of things including weddings, funerals and student organization events. High in demand, the University of Virginia Chapel continues to uphold Jefferson’s vision of a unique academic village. When asked whether the chapel coincides with Jefferson’s beliefs regarding religious freedom, Jamal Millner, CLAS ‘93 alumnus responded, 'From my understanding of Jefferson as an individual, no. But as a statesmen, yes, the chapel was an interdenominational space that supported ideals of religious freedom.'
+
+Some may deem the chapel a divergence from Jefferson’s ideals and intentions for the academic village of UVA, pointing to its past limitation to Protestant religions and even its gothic architecture. University of Virginia Professor, Emeritus, and Historical scholar, Peter Onuf points out in a Coursera lecture 'the architecture, the sensibility, the taste itself would be revolting to Jefferson.” Considering the location of the chapel, positioned beside the Rotunda, Onuf goes on, 'Jefferson would say, as he turns over in his grave, ‘Oh my God.’”
+
+Despite opposing positions, this hallmark of University Grounds sustains the Jeffersonian model and advances our capacity for religious freedoms."
+
+"'The relations which exist between man and his Maker – and the duties resulting from those relations – are the most interesting and important to every human being and the most incumbent on his study and investigation.'" ~ Thomas Jefferson
+
+
+----------
+
+
 ## How is History Shared? How Do We Appreciate and Share the Past? ##
 English teachers define "romance" as "somewhere between the real world and fairy-land, where the actual and imaginary may meet, and each imbue itself with the nature of the other."
 
@@ -10,8 +37,6 @@ It's also great to learn from the past's dark aspects.
 Romanticizing the past stems from feeling like people have lost something from years ago. Romanticizing the past also stems from glorifying a past that was not as pretty in reality. Aspects of the past still remain present today in new forms. Through stories, people can take up dark aspects of the past and learn from them. Also through stories, people can take up hidden realities not fully exposed to the light.
 
 Sharing history helps people understand why the world is the way it is, and how our ancestors made decisions. Sharing stories from the past differs from believing that the past is better than the present in an imagined way, however. 
-
-Learn from the past. There's no need to re-enact it. Live, and sing a song today within through everything with childlike innocence and simplicity. 
 
 
 ----------
