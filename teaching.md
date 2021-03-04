@@ -162,6 +162,20 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## My Side of the Mountain by Jean Craighead George ##
+### Who? ###
+
+### Where? ###
+
+### What? ###
+
+### Color ###
+
+### Adjectives ###
+
+----------
+
+
 ## Hatchet by Gary Paulsen ##
 
 ## Quetions ##
