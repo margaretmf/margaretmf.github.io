@@ -189,6 +189,16 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## God Never Fails ##
+Just when you feel like you/I have failed, God moves in a miraculous way through a vision, a song, an insight, a friendly neighbor, a job, an act of forgiveness.
+God is always bringing us closer to our family, first individually, and then collectively.
+
+## These Feelings Are Univeral ##
+These feelings are universal.
+The feeling captured in the song are ones everyone has.
+Thank you for the musician who put the feelings in words.
+I am glad to realize I am not the only one.
+
 ## Insight ##
 Healing is different from Coping. 
 Healing is God restoring every cell in your brain and body.
