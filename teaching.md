@@ -196,7 +196,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Self-pity, waves of self-pity, crying, sadness
 * The hatchet - "the hatchet was the key to it all" "the hatchet was the answer"
 * Experience with Fire
-* Turtles, eggs, animals, cooking in nature, camp area, working in nature, wood
+* Turtles, eggs, (eating raw turtle eggs) animals, cooking in nature, camp area, working in nature, wood (make fire with a hatchet)
 * Memories of the crash, moments of fear
 * Rafting, logs, the hatchet
 * Peace finally coming to him
