@@ -255,7 +255,7 @@ It's never too late to rediscover the depths of your home.
 It's never too late to reawaken to your ancestry.
 It's never too late to think a new thought.
 
-What a beautiful earth it is, and what a beautiful child of God I am down deep.
+What a beautiful earth it is, and what a beautiful child of God there is down deep.
 There are reasons to stay alive, indeed.
 Anything can be healed.
 It's natural.
@@ -359,6 +359,12 @@ overcoming, unyielding, conquering,
 bright, energetic,
 Hope
 
+## Taking Back the Night ##
+Flying into the night sky, I take back the night, where in reality it is a silent night.
+I sing with the stars above, where everyone has a place.
+In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
+I know I am held so tightly because of how brightly the light shines.
+
 ## Bullying ##
 Hello, Mr. Bully
 Remember me?
@@ -389,26 +395,6 @@ I watch all the Celebrities.
 ...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people. I learned from Malcolm X.
 
 ...But Child, seriously... The correct approach is to stop the bullying, Let people speak up for themselves, Be more patient, observant, and considerate.
-
-## Americana ##
-I'm sure you, 
-someone with far HIGHER IQ,
-just watched from a high-standing pedestal 
-the joke
-on a woman 
-supposed to be a blonde-haired Southern Virgin
-understand 
-the social, cultural, and political nuances 
-of 
-Confederate flags, Cowboy boots, and Americana Music like Grateful Dead that my dad listens to far too late
-I am sure it is really funny for onlookers to be known as a heartbreaking cowgirl, a damsel in distress to people who reminded me of my great grandfather who worked in the lumber industry
-I think I grew up with aspergers, process things slowly, and catch on to things way too late
-
-## Taking Back the Night ##
-Flying into the night sky, I take back the night, where in reality it is a silent night.
-I sing with the stars above, where everyone has a place.
-In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
-I know I am held so tightly because of how brightly the light shines.
 
 ## Prison in My Own Home ##
 Before the quarantine, I became a prisoner in my own home.
@@ -631,6 +617,22 @@ I made mistakes, reacted out of anger yesterday, yet again.
 But the sun is dawning on a new day, and I can choose to reform, and let go.
 The sun is shining on the Earth from a new angle, shedding new perspectives on things.
 
+## It's A New Day ##
+It's a new day for the sun to shine
+for the birds to chirp
+for me to meet a new friend
+I love to sing out loud
+and let go all of the doubt
+and feel love in my heart
+for everyone
+It's a new day for the flowers to bloom
+for the rain to fall
+for the neighbors to wave
+I love to skip out side
+and run to the park
+and feel joy in my heart
+with everyone
+
 ## Mortal Mind and Divine Mind ##
 Mortal mind wants to assert itself through fear, through judgment, through offense, through threat.
 Divine Mind asserts itself through peace, through compassion, through empathy, through understanding, through patience, through prayer.
@@ -816,7 +818,7 @@ And dances with the stars after you are dead.
 It picks you up when you fall.
 And forgives you when you've failed.
 It remembers everything true at heart about you.
-And synchronizes all of your work.
+And synchronizes with you.
 It knows you with all your full glory and colors.
 It knows how to guide and protect you.
 It nudges you always to the right intuitions and ideas.
