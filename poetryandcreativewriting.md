@@ -9,10 +9,6 @@ is_contact: true
 
 ## There is some other writing at the bottom. ##
 
-# Favorite Songs #
-* "One Tribe"
-* "Where is the Love?"
-
 # Beliefs #
 ## Art ##
 *I believe* participation in the fine arts brings joy [in 2009, 2010]
