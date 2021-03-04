@@ -166,17 +166,172 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## Quetions ##
 ### Who? ###
-* Brian Robeston - 13
-* The only passenger onthe plane, a pilot
+* Brian Robeson - 13
+* The only passenger on the plane, a pilot
 * Jim or Jake - mid-forties, had been silent
+* Divorce in his home, secrets
+* The pilot - plane, drone, engine
+* Brian, tearing up
+
+### Where? ###
+* Canadian Wilderness, 54 days
 
 ### What? ###
 * "stared out the window of the small plane at the endless green northern wilderness"
 * "small plane, a Cessna 406 - a bushplane - and the engine was so loud, so roaring and consuming and loud"
+* the scenery of the plane
+* mechanical engineering - oil drilling, self-cleaning, self-sharpening - oil fields; survival pack, emergency supplies, landing
+* the car - a drive in silence - country, farm trucks
+* hatchet on his belt
+* bushplane, the roaring plane, northern wilderness // turbulence
+* crashing plane
+* panic, terror, crying, sobs, the mike, microphone
+* birds singing
+* beaver house/beaver lodge
+* balancing on the log, adventures in the water, swimming
+* the landing
+* food in the wilderness, television, air force pilots and survival
+* the sun going down
+* Nature, berries, bear, birds, trees, greenery
+* Self-pity, waves of self-pity, crying, sadness
+* The hatchet - "the hatchet was the key to it all" "the hatchet was the answer"
+* Experience with Fire
+* Turtles, eggs, animals, cooking in nature, camp area, working in nature, wood
+* Memories of the crash, moments of fear
+* Rafting, logs, the hatchet
+* Peace finally coming to him
 
 ### Color ###
+* green // trees
+* blue-sky // day
+* green // death trees
+* light // gray // sky
+* blue // water
+* green-blue blur
+* reddish, orange / birds
+* glistening // red
+* red // berries
+* cinnamon-colored
+* gray // dim light
+* chalky // granite
+* red // glow
+* forest, green // carpet
+* golden, brown
+* green // willows
+* reddish // fur
+* large, gray // ones // rabbits
 
 ### Adjectives ###
+* comfortable // smiles
+* breaking // word
+* wandering // streams and rivers
+* sudden // silence
+* crashing // sound
+* thick // "darkness of night"
+* small // tree
+* direct // sunlight
+* thick // grass
+* small // brush
+* rocky // ridge
+* birds // singing
+* murky // water
+* great // gulps
+* buzzing // insect
+* sloshing // oil
+* deep // woods
+* thick // beaks
+* slender // branches
+* light // breeze
+* full and ripe // berries
+* damp // sand
+* deeper // water
+* feathered // bomb
+* secret // key
+* flying // pear
+* thick // evergreen
+* broken // sap
+* top // branches
+* healing // sleep
+* fishing // gear
+
+## Vocabulary ##
+* Viciously
+* Raged
+* Abated
+* Self-pity
+
+## Allusions ##
+
+## Themes ##
+* Divorce, Family
+* Crashing, Nightmares
+* Engineering
+* Nature, The Sun, Food in Nature
+* Reality vs. Imagination/Dream
+* Adventure
+* The Hatchet
+* City vs. Nature
+* Mistakes, Disasters, Learning from Them
+* Patience, Impatience
+
+### Interesting Sentences or Paragraphs ###
+* "Divorce. It was an ugly word, he thought. A tearing, ugly word that means fights and yelling, lawyers - God, he thought, how he hated lawyers who sat with their comfortable smiles and tried to explain to him in legal terms how all that he lived in was coming apart - and the breaking and shattering of all the solid things. His home, his life - all the solid things. Divorce. A breaking word, an ugly breaking word. Divorce. Secrets." [Divorce] (pp. 2-3)
+
+* "Divorce. The Secret. Fights. Split. The big split." [Divorce] (pp. 5, 7)
+
+
+* "'Please state your difficulty and location. And say over to signal end of transmission.'" [Signal, Transmission, Engineering] (p. 19)
+
+
+* "The memory was like a knife cutting into him. Slicing deep into him with hate. The Secret." [Painful Memory] (p. 29)
+
+* "Into the trees and out onto the lake. The plane had crashed and sunk in the lake and he had somehow pulled free." [Crash] (p. 31)
+
+* "Going to die, Brian thought. Going to die, gonna die, gonna die - his whole brain screamed it in the sudden silence." [Turbulence, Worried about Death] (p. 25)
+
+
+* "To see, he thought. To see is everything. And he could not see." [Seeing] (p. 32)
+
+
+* "I'm alive, he thought. I'm alive. It could have been different. There could have been death. I could have been done." [Alive, Waking up]
+* "He could not think, could not make thought patterns work right. Things seemed to go back and forth between reality and imagination - except that it was all reality." [Alive, Waking up, Reality vs. Imagination, Dream] (p. 33)
+* "pain come and go in waves" [Description of Pain] (p. 34)
+
+
+* "Everything was green, so green it went into him. The forest was largely made up of pines and spruce, with stands of some low brush smeared here and there and thick grass and some other kind of very small brush all over. He couldn't identify most of it - except the evergreens - and some leafy trees he thought might be aspen. He'd seen pictures of aspens in the mountains on tele-vision. The country around the lake was moderately hilly, but the hills were small - almost hummocks - and there were very few rocks except to his left. There lay a rocky ridge that stuck out overlooking the lake, about twenty feet high." [Nature] (p. 37)
+* "bird sounds of the forest" [Nature] (p. 37)
+* "The trees were full of birds singing ahead of him in the sun." [Nature, Trees]
+
+
+* "The birds landed in some taller willow type of undergrowth with wide leaves and started jumping and making noise. At first he was too far away to see what they were doing, but their color drew him and he moved toward them, keeping the lake in sight on his right, and when he got closer he saw they were eating the berries." [Description of the Birds, Nature] (p. 59)
+
+
+* "And he was, at that moment, almost overcome with self-pity. He was dirty and starving and bitten and hurt and lonely and ugly and afraid and so completely miserable that it was like being in a pit, a dark, deep pit with no way out." [Self-Pity Description] (p. 65)
+
+
+* "The sun caught the ends of the hairs along his back. Shining black and silky the bear stood on its hind legs, half up, and studied Brian, just studied him, then lowered itself and moved slowly to the left, eating berries as it rolled along, wuffling and delicately using its mouth to lift each berry from the stem, and in seconds it was gone. Gone, and Brian still had not moved. His tongue was stuck to the top of his mouth, the tip half out, his eyes were wide and his hands were reaching for a berry." [Experience with Nature] (p. 70)
+* "Then he made a sound, a low: 'Nnnnnnggg.' It made no sense, was just a sound of fear, of disbelief" [Sound] (p. 70)
+
+
+* "He swung harder, held the hatchet so it would hit a longer, sliding blow, and the black rock exploded in fire. Sparkes flew so heavily that several of them skittered and jumped on the sand beneath the rock and he smiled and struck again and again." [The Hatchet] (p. 81)
+
+
+* "He smiled. City boy, he thought. Oh, you city boy with your city ways - he made a mirror in his mind, a mirror of himself, and saw how he must look. City boy with your city ways sitting in the sand trying to read the tracks and not knowing, not understanding. Why would anything wild come up from the water to play in the sand? Not that way, animals weren't that way. They didn't waste time that way." [City Boy] (p. 93)
+
+
+* "Mistakes. Small mistakes could turn into disasters, funny little mistakes could snowball so that while you were still smiling at the humor you could find yourself looking at death. In the city if he made a mistake usually there was a way to rectify it, make it all right. If he fell on his bike and sprained a leg he could wait for it to heal; if he forgot something at the store he could find other food in the refrigerator." [Mistakes, Disasters] (p. 121)
+* "Mistakes. He tried to learn from the mistakes. He couldn't bury food again, couldn't leave it in the shelter, because something like a bear could get at it right away. It had to be high, somehow, high and safe." [Mistakes, Learning] (pp. 125-126)
+
+
+* "The days ahd folded one into another and mixed so that after two or three weeks he only knew time had passed ind ays because he made a mark for each day in stone near the door to his shelter. Real time he measured in events. A day was nothing, not a thing to remember - it was just sun coming up, sun going down, some light in the middle." [Days Folding Into One Another] (p. 129)
+
+* "the birds could fly amazingly fast, get up fast" [Birds Flying] (p. 134)
+
+
+* "Pushing the raft, he figured, was about like trying to push an aircraft carrier. All the branches that stuck down into the water dragged and pulled and the logs themselves fought any forward motion and he hadn't gone twenty feet when he realized that it was going to be much harder than he thought to get the raft to the plane. It barely moved and if he kept going this way he would just about reach the plane at dark. He decided to turn back again, spend the night and start early in the morning, and pulled the raft once more onto the sand and wide-scraped it dry with his hand." [The Raft, Experience] (p. 157)
+
+
+----------
 
 
 ## The Indian in the Cupboard by Lynne Reid Banks ##
@@ -332,6 +487,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Omri ate his cereal in silence, grinning to himself, hugging his secret. He slipped a couple of cornflakes into his pockets." (p. 133) [Omri's innocence, childlike eating]
 
 * "Little Bear and Omri watched. From the microscopic point of Boone's pencil there developed a most amazing scene. It was a prairie landscape, with ills and cacti and a few tufts of sagebrush. Boone sketched in, with sure strokes, some wooden buildings such as Omri had often seen in cowboy films - a saloon with a swinging sign reading 'Golden Dollar Saloon' in twirly writing; a post office and general store, a lively stable, and a stone house with a barred window and a sing saying 'Jail.' Then, moving swiftly on his knees, as it were from one end of his 'street' to another, Boone drew in the foreground - figures of men and women, wagons, horses, dogs, and all the trappings of a little town." (p. 163) [Omri's engagement with Boone, Little Bear, drawing, Western]
+
+
+----------
 
 
 ## Mandy by Julie Andrews Edwards ##
