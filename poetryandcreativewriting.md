@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## What do you think is the most important thing for today's kids to learn in school? ##
+I think that hte most important thing for today's kids to identify emotions, and develop healthy relationships with people that are different from them. I also think it is improtant for kids to learn how to manage money but not worship money. I believe in the next generation! :) :)
+
 **Name** became a **type of career/success** because he was **trait**, **trait**, and **trait**.
 "Colin Powel became an **inspiring leader** because he is **brave**, **intelligent**, and **ambitious**."
 "Sandy Koufax was a **remarkable sports hero** because of his **work ethic**, **amazing athletic ability**, and **teamwork**."
@@ -64,13 +67,15 @@ I admire the quality of integrity the most in people. I think this menas that on
 I think our world is in a better place today. I think a lot has shifted, many lessons have been learned, and people are more mature, active, and expressive than when I was a kid. I think family relationship ties have grown deeper, harmony has increased, but everyone, mostly myself, has to watch for regressions.
 
 ## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to? ##
-I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we are a lot alike. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words like my grandmother. 
+I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we express similar qualities. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words, puzzles, and math like my grandmother also. 
 
-I also share the same name as Margaret Thatcher, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret.
+I share the same name as Margaret Thatcher as well, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret.
 
 'Margaret' means 'daisy' in French, and flowers turn to the sun. Margaret in Sanskrit means 'pearl'. Pearls grow in oysters. Sometimes irritants come up, but the irritants grind against the 'pearl of great price' within.
 
 My name is a Western-European name, and I love that people from other cultures share similar experiences with names being tied to meanings and ancestry.
+
+If I were to go by another name, I would go by "Meg", but "Margaret" is amazing as well :)
 
 ## Write about a real or imagined train ride you have taken. ##
 I have taken real train rides to Pennsylvania and back, and to Boston and back. I love looking out the windows, and seeing the scenery. People from different walks of life come on and come off. I appreciate the hustle and the bustle in the train station. It's beautiful to imagine the dance of life in the situation, and on the train. What a wonderful experience it is to share affection with family members on and off the train.
@@ -250,7 +255,7 @@ It's never too late to rediscover the depths of your home.
 It's never too late to reawaken to your ancestry.
 It's never too late to think a new thought.
 
-What a beautiful earth it is, and what a beautiful child of God you are down deep.
+What a beautiful earth it is, and what a beautiful child of God I am down deep.
 There are reasons to stay alive, indeed.
 Anything can be healed.
 It's natural.
@@ -277,7 +282,7 @@ Everyone knows what I've done wrong.
 
 There are failure stories on my left.
 There are success stories on my right.
-I take up the failure stories, admit to the wrongs, and throw them in the trash. The failures are just that - "white trash" and "hillbilly elegy".
+I take up the failure stories, admit to the wrongs, and throw them in the trash. The failures are just that - "white trash".
 I take up the success stories, and I throw them up in the air, and say, "PRAISE THE LORD FOR CREATING ME" with a WINNING SMILE on my FACE. The success stories are just that - "Christ the King living and moving and breathing right on through me".
 DAMN, LORD, YOU DID A GOOD JOB. YOU HELPED ME FORGIVE. YOU HELPED ME BOUNCE BACK UP. AND YOU HELPED ME REFORM. YOU HELPED ME SURVIVE.
 
@@ -340,6 +345,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for Medieval organ music
 * Grateful for global cultures
 * Grateful for sketches
+* Grateful for the workers in the post office
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
