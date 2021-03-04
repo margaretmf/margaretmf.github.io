@@ -144,7 +144,7 @@ Some individuals at EVERFI acted as signficant mentors to me. The lead systems a
 ## Describe the most beautiful sound you have ever heard. ##
 The church bells ringing through my ears make me feel so good. I think them chiming are a beautiful sound. I love the sound of the trees moving with the breeze, and I find peace in the sound of the harmonious silence. There exists a power in silence. Beautiful sounds fill the Earth each and every day. Another one I love is the sound of children laughing from an apartment window.
 
-## You have a child and you have written on piece of advice that will be carried in his/her pocket for life. What is that advice? ##
+## You have a child and you have written one piece of advice that will be carried in his/her pocket for life. What is that advice? ##
 There is a child within you first. She is innocent, free, light-hearted, and joyful. She has a good sense of humor, and she's quick to get back up and try new things. She loves to sing, and play music, and play with little ones. she also loves the sound of children playing.
 
 For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
