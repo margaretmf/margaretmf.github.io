@@ -162,6 +162,13 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## Types of Sources
+* Primary Source - the record of an event as it is first described, without any interpretation or commentary (includes data, census statistics, poems, diaries, court records, and interviews; experiments, surveys, polls, lab notes, psychiatrist's notes, authobiography, speeches, video/audio recording, finger prints, art work, music)
+* Secondary Source - analysis or restatement of primary sources
+
+----------
+
+
 ## My Side of the Mountain by Jean Craighead George ##
 ### Who? ###
 
