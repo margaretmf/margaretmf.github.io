@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Which is stronger, love or hate? ##
+Hate seems to be strong. It seems to tear one's heart up and throw one's life into shambles. Unconditional love is the most powerful force in the world, however. It overcomes the strongest, most monstrous waves of hate. Unconditional love overcomes all through to the ends of the world.
+
 ## What do you think is the most important thing for today's kids to learn in school? ##
 I think that hte most important thing for today's kids to identify emotions, and develop healthy relationships with people that are different from them. I also think it is improtant for kids to learn how to manage money but not worship money. I believe in the next generation! :) :)
 
