@@ -1563,6 +1563,24 @@ And the unaccepted of yoru land.
 These homeless people shall be sent to me,
 For I use my lamp to guide them through!'"
 
+## Chaucer, History of the English Language ##
+"Experience, though noon auctoritee
+Were int his world, is right ynogh for me
+To speke of wo that is in mariage;
+For, lordynges, sith I twelve yeer was of age,
+Thonked be God that is eterne on lyve,
+Housbondes at chirche dore I have had fyve,--
+If I so ofte myghte have ywedded bee,--
+And alle were worthy men in hir degree.
+But me was toold, certeyn, nat longe agoon is,
+That sith that Crist ne wente nevere but onis
+To weddyng, in the Cane of Galilee,
+That by the same ensample taughte he me
+That I ne sholde wedded be but ones."
+
+## Georg Puttenham, The Arte of English Poetie ##
+"But after a speach is fully fashioned to the common understanding, & accepted by consent of a whole countrey & natio, it is called a language, & receaueth none allowed alteration, but by extraordinary occasions by little & little, as it were insensibly bringing in of many corruptios that creepe along with the time: of all which matters, we haue more largely spoken in our bookes of the originals and pedigree of the English tong. Then when I lay language, I meane the speach wherein the Poet or maker writeth be it Greek or Latine or as our case is the vulgar English, & when it is peculiar unto a countrey it is called the moter speach of that people: the Greekes terme it Idioma; for is ours at this day the Norman English. Before the Conquest of the Normans it was the ANglesaxon and before that the British, which as some will, is at this day, the Walsh, or as others affirme the Cornish: I for my part thinke neither of both, as they be now spoken and p<r>onounced. This part in our maker or Poet must be heedyly looked unto that it be naturall, pure, and the most usuall of all his countrey: and for the same purpose rather that which is spoken in the kings Court, or in teh good townes and Cities within the land, then in the marches and frontiers, or in port townes, where straungers haunt for traffike fake, or yet in Universities where Schollers use much peeuish affectation of words out of the primatiue languages, or finally, in any uplandish village or corner of a Realme, where is no resort but of poore rusticall or unciuill people: neither shall he follow the speach of a craftes man or carter, or other of the inferiour ofrt, though he be inhabitant or bred in the best towne and Citie in this Realme, for such persons doe abuse good speaches by strange accents or ill shapen foundes, and false ortographie. But he shall follow generally the better brough up fort, such as the Greeks call [charientes] men ciuill and graciously behauored and bred. Our maker therefore at these days shalll not follow..."
+
 <br>
 
 
