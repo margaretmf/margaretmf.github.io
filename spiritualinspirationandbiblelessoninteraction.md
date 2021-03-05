@@ -1,6 +1,59 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
-## Week of March 1, 2020 - 'Man' - Inspiring Passages ##
+## Week of March 8, 2021 - 'Substance' - Inspiring Passages ##
+
+* The Lord has done great things for us - praise the Lord for this
+
+"The Lord has done great thigns for us, And we are glad."
+
+"his wonderful works"
+
+* He satisfies the longing soul
+
+"For he satisfieth the longing soul, and filleth the hungry soul with goodness"
+
+* Our Shepherd will bind that which is broken
+
+"As a shepherd seeketh out his flock int he day that he is among his sheep that are scattered; so will I seek out my sheep, and will deliver them out of all palces where they have been scattered in the cloudy and dark day."
+
+"I will feed them in a good pasture, and upon the high mountains of Israel shall their fold be: there shall they lie in a good fold, and in a fat pasture shall they feed upon the mountains of Israel."
+
+"I will feed my flock, and I will cause them to lie down, saith the Lord God."
+
+"I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick:"
+
+"And ye my flock, the flock of my pasture, are mn, and I am your God, saith the Lord God."
+
+* O Lord, how manifold are thy works!
+
+* Sing a new song unto God, let go of the complaining
+
+"that there be no complaining in our streets. Happy is that people, that is in such a case: yea, happy is that people, whose God is the Lord."
+
+* Treasures in heaven, your reward is in heaven
+
+"Lay not up for yourselves treatsures upon earth, where moth and rust doth corrupt, and wehre thieves break through and steal: But aly up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal: For where your treasure is, there will your heart be also."
+
+* The Lord is my strength
+
+I am strong because of the Lord 
+"my heart trusted in him, and I am helped"
+
+* Everything belongs to God
+
+"All substance, intelligence, wisdom, being, immortality, cause, and effect belong to God. These are His attributes, the eternal manifestations of the infintie divine Principle, Love. No wisdom is wise but His wisdom; no truth is true, no love is lovely, no life is Life but the divine; no good is, but the good God bestows."
+
+"Spirit is the only substance and consciousness recognized by divine Science."
+
+* Substantial
+
+"that which is eternal"
+
+"The objects cognized by the physical senses have not the reality of substance. They are only what mortal belief calls them. Matter, sin, and mortality lose all supposed consciousness, or claim to life or existence, as mortals lay off a false sense of life, substance, and intelligence. But the spiritual, eternal man is not touched by these phases of mortality."
+
+* heart, hopes, affections - spiritual
+
+## Week of March 1, 2021 - 'Man' - Inspiring Passages ##
 
 * Trusting in God brings Blessings
 
@@ -68,7 +121,8 @@ God will give us intuition
 
 "We must realize the ability of mental might to offset human misconceptions and to replace them with the life which is spiritual, not material."
 
-## Week of February 24, 2020 - 'Christ Jesus' - Inspiring Passages ##
+
+## Week of February 24, 2021 - 'Christ Jesus' - Inspiring Passages ##
 
 * The yesterday, today, forever
 
@@ -377,7 +431,7 @@ We live in God, this gives us power
 "Blot out the images of mortal thought and its beliefs in sickness and sin. Then, when thou art delivered to the judgment of Truth, Christ, the judge will say, 'Thou art whole!'"
 
 
-## Week of February 15, 2020 - 'Mind' - Inspiring Passages ##
+## Week of February 15, 2021 - 'Mind' - Inspiring Passages ##
 
 * God's thoughts towards His people
 
@@ -513,7 +567,8 @@ We live in God, this gives us power
 
 * Mind, the only I, Us
 
-## Week of February 8, 2020 - 'Soul' - Inspiring Passages ##
+
+## Week of February 8, 2021 - 'Soul' - Inspiring Passages ##
 
 * Remember the Lord
 
@@ -777,7 +832,7 @@ the misery, the waters, passing away
 "If it is true that man lives, this fact can never change in Science to the opposite belief that man dies. Life is the law of Soul, even the law of the spirit of Truth, and Soul is never without its representative. Man's individual being can no more die nor disappear in unconsciousness than can Soul, for both are immortal."
 
 
-## Week of February 1, 2020 - 'Spirit' - Inspiring Passages ##
+## Week of February 1, 2021 - 'Spirit' - Inspiring Passages ##
 * The Lord's People
 
 "The Lord says: 'My people, I promise to give you my Spirit and my message"
@@ -975,7 +1030,8 @@ marvel
 
 "If Spirit or the power of divine Love bear witness to the truth, this is the ultimatum, the scientific way, and the healing is instantaneous."
 
-## Week of January 25, 2020 - 'Love' - Inspiring Passages ##
+
+## Week of January 25, 2021 - 'Love' - Inspiring Passages ##
 
 * God is love
 
@@ -1160,7 +1216,8 @@ marvel
 
 "What therefore God hath joined together, let not man put asunder."
 
-## Week of January 18, 2020 - 'Truth' - Inspiring Passages ##
+
+## Week of January 18, 2021 - 'Truth' - Inspiring Passages ##
 
 * know the Truth
 
@@ -1250,7 +1307,8 @@ marvel
 
 "now are ye light in the Lord: walk as children of light:"
 
-## Week of January 11, 2020 - 'Life' - Inspiring Passages ##
+
+## Week of January 11, 2021 - 'Life' - Inspiring Passages ##
  
 * Sing a song to God, and wake up out of bed freshly
 
@@ -1569,7 +1627,7 @@ simple, profound
 "Ask yourself: Am I living the life that approaches the supreme good? Am I demonstrating the healing power of Truth and Love? If so, then the way will grow brighter 'unto the perfect day.' Your fruits will prove what the understanding of God brings to man. Hold perpetually this thought, - that it is the spiritual idea, the Holy Ghost and Christ, which enables you to demonstrate, with scientific certainty, the rule of healing, based upon its divine Principle, Love, underlying, overlying, and encompassing all true being."
 
 
-## Week of January 4, 2020 - 'Sacrament' - Inspiring Passages ##
+## Week of January 4, 2021 - 'Sacrament' - Inspiring Passages ##
 
 * Being encouraged by others' faith - mutually encouraged
 
@@ -1733,7 +1791,7 @@ always fed, and nourished, and supplied
 "A Christian Scientist's medicine is Mind, the divine Truth that makes man free."
 
 
-## Week of December 28, 2020 - 'God' - Inspiring Passages ##
+## Week of December 28, 2021 - 'God' - Inspiring Passages ##
 
 * I am free to be joyful in the name of the Lord, God, the consciousness of good throughout the day in all my works.
 
