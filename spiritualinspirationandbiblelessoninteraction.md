@@ -53,6 +53,90 @@ I am strong because of the Lord
 
 * heart, hopes, affections - spiritual
 
+* Man walks in the direction in which he looks
+
+* The way of righteousness
+
+* the Red Sea, the wilderness
+
+"the great desert of human hopes, the promised joy"
+"the spiritual idea guides al right desires in their passage from sense to Soul"
+
+* God, the only intelligence or substance of a thought
+
+God is the creator
+
+"The only intelligence or substance of a thought, a seed, or a flower is God, the creator of it."
+
+"Spirit, God, is infinite, all. Spirit can have no opposite."
+
+* Spirit, substantial and eternal
+
+"the unerring, immutable, and immortal"
+
+* Holding thought to the true
+
+"Hold thought steadfastly to the enduring, the good, and the true, and you will bring these into your experience proportionably to their occupancy of your thoughts."
+
+* The Spirit of God that made me 
+
+"The spirit of God hath made me, and the breath of the Almighty hath given me life."
+
+* The Great Architect
+
+* Leaning on the sustaining infinite
+
+"Today is big with blessings"
+
+* Blessedness
+
+"Blessed are they which do hunger and thirst after righteousness: for they shall be filled"
+
+God promises to fill us
+
+* Rightful nutriment, Father's loving-kindness
+
+* The Divine Possibilities hid
+
+"A false sense of life, substance, and mind hides the divine possibilities, and conceals scientific demonstration."
+
+*Infinite resources coming from God
+
+"Soul has infinite resources with which to bless mankind, and happiness would be more readily attained and would be more secure in our keeping, if sought in Soul."
+
+* Spiritual existence understood
+
+"broader interpretations of being"
+"some sense of the infinite"
+"sin and mortality are put off"
+
+* True happiness, harmonize with his Principle
+
+* Gratitude expressed through action
+
+"Gratitude is much more than a verbal expression of thanks. Action expressed more gratitude than speech."
+
+* Infinite ability of Spirit
+
+* Music as a metaphor
+
+"The realization that all inharmony is unreal brings objects and thoughts into human view in their true light, and presents them as beautiful and immortal. Harmony in man is as real and immortal as in music. Discord is unreal and mortal."
+
+* Mind is substance
+
+* The true man
+
+"Remember tha man's perfection is real and unimpeachable, whereas imperfection is blameworthy, unreal, and is not brought about by divine Love."
+
+* Anything can inspire and bless the whole human family
+
+"Whatever inspires with wisdom, Truth, or Love - be it song, sermon or Science - blesses the human family with crumbs of comfort from Christ's table, feeding the hungry, and giving living waters to the thirsty."
+
+* All space is filled
+
+"The depth, breadth, height, might, majesty, and glory of infinite Love fill all space. That is enough!"
+
+
 ## Week of March 1, 2021 - 'Man' - Inspiring Passages ##
 
 * Trusting in God brings Blessings
