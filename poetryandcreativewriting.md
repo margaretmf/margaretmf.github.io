@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Have you ever lived in another country besides your country of birth? Would you want to? ##
+I have lived in Scotland, Ireland, and Argentina. I am grateful I rowed with the Scottish. I remember being alone in the dark and feeling lost when miraculously my Scottish rowing coach found me walking before practice. I love that I went to music concerts in Ireland. I am grateful for the readings and church services in Spanish in Argentina.
+
 ## Which is stronger, love or hate? ##
 Hate seems to be strong. It seems to tear one's heart up and throw one's life into shambles. Unconditional love is the most powerful force in the world, however. It overcomes the strongest, most monstrous waves of hate. Unconditional love overcomes all through to the ends of the world.
 
