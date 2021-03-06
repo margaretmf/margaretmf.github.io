@@ -14,7 +14,7 @@
 
 * Our Shepherd will bind that which is broken
 
-"As a shepherd seeketh out his flock int he day that he is among his sheep that are scattered; so will I seek out my sheep, and will deliver them out of all palces where they have been scattered in the cloudy and dark day."
+"As a shepherd seeketh out his flock in the day that he is among his sheep that are scattered; so will I seek out my sheep, and will deliver them out of all palces where they have been scattered in the cloudy and dark day."
 
 "I will feed them in a good pasture, and upon the high mountains of Israel shall their fold be: there shall they lie in a good fold, and in a fat pasture shall they feed upon the mountains of Israel."
 
@@ -22,7 +22,7 @@
 
 "I will seek that which was lost, and bring again that which was driven away, and will bind up that which was broken, and will strengthen that which was sick:"
 
-"And ye my flock, the flock of my pasture, are mn, and I am your God, saith the Lord God."
+"And ye my flock, the flock of my pasture, and I am your God, saith the Lord God."
 
 * O Lord, how manifold are thy works!
 
@@ -60,7 +60,7 @@ I am strong because of the Lord
 * the Red Sea, the wilderness
 
 "the great desert of human hopes, the promised joy"
-"the spiritual idea guides al right desires in their passage from sense to Soul"
+"the spiritual idea guides all right desires in their passage from sense to Soul"
 
 * God, the only intelligence or substance of a thought
 
@@ -100,7 +100,7 @@ God promises to fill us
 
 "A false sense of life, substance, and mind hides the divine possibilities, and conceals scientific demonstration."
 
-*Infinite resources coming from God
+* Infinite resources coming from God
 
 "Soul has infinite resources with which to bless mankind, and happiness would be more readily attained and would be more secure in our keeping, if sought in Soul."
 
