@@ -5,6 +5,56 @@ Jefferson believed that these achievements were the high points of a life dedica
 
 However, Jefferson’s actions sometimes contradicted his words. An opponent of centralized power, as president he completed the Louisiana Purchase and unhesitatingly employed the resources of the federal government to enforce the harsh and unpopular Embargo Act. Although a proponent of individual rights, he excused the atrocities committed by the French Revolutionaries during the Reign of Terror. A critic of slavery who outlawed the slave trade as president, he was the owner of more than 200 African American slaves. Understanding Jefferson lies in the difficult task of reconciling these inconsistencies."
 
+## [Native American Influences on American Government](https://edtechbooks.org/democracy/nativeinfluence) ##
+"1.INVESTIGATE: The Iroquois Confederacy and the Great Law of Peace
+
+The Iroquois Confederacy refers to a group of indigenous tribes living in northeastern North America that had a participatory democracy government with executive, legislative, and judicial branches. The Great Law of Peace was the constitution of the Iroquois Confederacy. Here is the text of The Constitution of the Iroquois Confederacy and its 117 articles."
+
+"The framework of government in the Iroquois Confederacy is said to have inspired Thomas Jefferson, George Washington, Benjamin Franklin and other founders as they wrote the Constitution. The founders adopted the Iroquois nation's symbol, the bald eagle, as the new nation's national symbol.  
+
+Some historians credit the Iroquois chief Canasatego with influencing Benjamin Franklin’s thinking about government (Franklin included references to the Iroquois Confederacy in his writing). Canasatego shared how the Great Law of Peace, the Iroquois Confederacy’s unwritten constitution, included rules of democratic self-government including the rights and responsibilities of each member tribe. He also stressed the importance of a unified, representative government.
+
+In 1988, the United States Senate passed a resolution acknowledging the contributions of the Iroquois Confederacy (Text of Senate Resolution on the Contributions of the Iroquois Confederacy). However, in none of the constitutions of the 13 colonies were First Americans’ rights included and Native Americans did not gain citizenship until 1924.
+
+Today, Native Americans still live with a legacy of inadequate resources and services and continuing social and economic discrimination. In its "Broken Promises" report, the U.S.Commission of Civil Rights (2018) recounted the history as follows:
+
+"In exchange for the surrender and reduction of tribal lands and removal and resettlement of approximately one-fifth of Native American tribes from their original lands, the United States signed 375 treaties, passed laws, and instituted policies that shape and define the special government-to-government relationship between federal and tribal governments. Yet the U.S. government forced many Native Americans to give up their culture and, throughout the history of this relationship, has not provided adequate assistance to support Native American interconnected infrastructure, self-governance, housing, education, health, and economic development needs" (para. 1)."
+
+## [The Native American Government That Inspired the US Constitution](https://www.history.com/news/iroquois-confederacy-influence-us-constitution) ##
+"When the delegates to the Constitutional Convention met in 1787 to debate what form of government the United States should have, there were no contemporary democracies in Europe from which they could draw inspiration. The most democratic forms of government that any of the convention members had personally encountered were those of Native American nations. Of particular interest was the Iroquois Confederacy, which historians have argued wielded a significant influence on the U.S. Constitution.
+
+What evidence exists that the delegates studied Native governments? Descriptions of them appear in the three-volume handbook John Adams wrote for the convention surveying different types of governments and ideas about government. It included European philosophers like John Locke and Montesquieu, whom U.S. history textbooks have long identified as constitutional influences; but it also included the Iroquois Confederacy and other Indigenous governments, which many of the delegates knew through personal experience.
+
+'You had the Cherokee chiefs having dinner with [Thomas] Jefferson’s father in Williamsburg, and then in the northern area of course you had this Philadelphia interaction with the Delaware and the Iroquois,' says Kirke Kickingbird, a lawyer, member of the Kiowa Tribe and coauthor with Lynn Kickingbird of Indians and the United States Constitution: A Forgotten Legacy.
+
+Since the U.S. had trade and diplomatic relationships with Native governments, Kickingbird says, thinking the constitutional framers weren’t familiar with them is like saying, 'Gosh, I didn’t know the Germans and the French knew each other.'"
+
+
+"Similarities and Differences Between the Iroquois Confederacy and the US Constitution
+
+The Iroquois Confederacy was in no way an exact model for the U.S. Constitution. However, it provided something that Locke and Montesquieu couldn’t: a real-life example of some of the political concepts the framers were interested in adopting in the U.S.
+
+The Iroquois Confederacy dates back several centuries, to when the Great Peacemaker founded it by uniting five nations: the Mohawks, the Onondaga, the Cayuga, the Oneida and the Seneca. In around 1722, the Tuscarora nation joined the Iroquois, also known as the Haudenosaunee. Together, these six nations formed a multi-state government while maintaining their own individual governance.
+
+This stacked-government model influenced constitutional framers’ thinking, says Donald A. Grinde, Jr., a professor of transnational studies at the University of Buffalo, member of the Yamasee nation and co-author with Bruce E. Johansen of Exemplar of Liberty: Native America and the Evolution of Democracy.
+
+The constitutional framers 'cite the Iroquois and other Native governments as examples of [federalism],” he says. 'Marriage and divorce is taken care of right in the village; it’s not a thing that the national government or the chiefs have to do with. Each tribe might have its own issues, but the Iroquois Confederacy is about…unification through mutual defense and it conducts foreign affairs.'
+
+The chiefs of the six nations were hereditary rulers, something the framers wanted to avoid, given their grievances with Britain’s King George III. Still, the framers 'did seek to borrow aspects of Iroquois government that enabled them to assert the people's sovereignty over vast geographic expanses since they found no governments in Europe with these characteristics,' Grinde and Johansen write in Exemplar of Liberty."
+
+
+"Congress Formally Recognizes Iroquois Influence
+
+The fact that many of the framers looked to Native governments for inspiration didn’t stop them from viewing Native people as inferior. This disconnect is evident in a 1751 letter from Benjamin Franklin describing the need for the 13 colonies to form a 'voluntary Union' similar to that of the Iroquois Confederacy:
+
+'It would be a very strange Thing, if six Nations of ignorant Savages should be capable of forming a Scheme for such an Union, and be able to execute it in such a Manner, as that it has subsisted Ages, and appears indissoluble; and yet that a like Union should be impracticable for ten or a Dozen English Colonies, to whom it is more necessary, and must be more advantageous; and who cannot be supposed to want an equal Understanding of their Interests.'
+
+The United States’ bias and violence against Native Americans may have helped obscure the framers’ interest in their governments. However, public awareness of this connection increased around the 1987 bicentennial marking the 200th anniversary of the Constitution.
+
+'Oren Lyons, who was a Faithkeeper for the Iroquois Confederacy, went to the Senate Select Committee on Indian Affairs and broached this subject,' Grinde says. 'And then I went down to Washington and testified before the Senate Select Committee on Indian Affairs.'
+
+This motivated the committee’s chair, Daniel Inoue of Hawaii, to help Congress pass a 1988 resolution formally acknowledging the influence of the Iroquois Confederacy on the U.S. Constitution. In addition to this recognition, the resolution reaffirmed 'the continuing government-to-government relationship between Indian tribes and the United States established in the Constitution'—an acknowledgement of the legitimacy and sovereignty of Native nations and their governments."
+
 ## [American Christian Science Architecture and its Influence](https://www.marybakereddylibrary.org/research/american-christian-science-architecture-and-its-influence/) ##
 "Building Respectability: Christian Science Architecture in the U. S. A. and its Influence in Europe
 
@@ -860,6 +910,18 @@ The other day as I was leaving Woolworth’s in a small Southern town, an old ge
 "'The [White and ethnic minority] cowgirl did not exist. The young women [regardless of race] did not go cavorting over the prairies astride bucking bronhco [sic]....[I]t would have seemed exceedingly immodest for a young woman to get astride a horse wearing any sort of riding habit. Any woman doing so would have been classed as a bawdy house character, and every home on the plains would have been closed to her."
 
 "This is an interesting characterization, because being 'bawdy' typicallyr eferred to a woman's sexual nature. So a cowgirl was at risk fo being labeled as having a bawdy or sexual character for riding a horse incorrectly - not sidesaddle. Ironically, the safest way for a woman to ride a horse, astride the horse, was deemed bawdy. So, even if a cowgirl tossed the corset, she was still subject to patriarchal notions regarding her sexuality, depending upon how she sat on and rode the horse. If the White cowgirl was thought not to exist because her place was in the home, and had all of these patriarchal rules attached to her, then the erasure of the ethnic minority cowgirl was expected. Ethnic minority cowgirls had to be disenfranchised in order to make place for the 'non-existent' White cowgirl."
+
+## ["Frustrated?" There's Probably Another Emotion Present Sometimes, Deeper Feelings Lie Under the Surface](https://www.psychologytoday.com/us/blog/friendship-20/201909/frustrated-theres-probably-another-emotion-present)
+"Frustration is likely to be the top layer of a feeling. It speaks to a sense of stagnation or helplessness, an inability to make things happen in the way that someone wants. Merriam-Webster defines being frustrated in part as 'feeling discouragement, anger, and annoyance because of unresolved problems or unfulfilled goals, desires, or needs.'
+
+But while this picture of frustration—the angry, sulking person who's annoyed at the futility of their efforts—is a common one, with a little emotional exploration, we can see that an additional array of possible emotions can underlie frustration. And the first step in getting through the experience in a healthy way is to figure out exactly what those deeper emotions are. Here are some common examples.
+
+Partners to Frustration:
+Anger
+Anger or Fear
+Sadness
+Guilt
+Shame"
 
 
 ----------
