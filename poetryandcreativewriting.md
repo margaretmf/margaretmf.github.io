@@ -210,7 +210,7 @@ Thank you for the musician who put the feelings in words.
 I am glad to realize I am not the only one.
 
 ## Insight ##
-Healing is different from Coping. 
+Healing is different from coping. 
 Healing is God restoring every cell in your brain and body.
 Coping is compensating, covering up, worrying about everything wrong, and overcoming.
 Healing is remembering one's childlike self, and true self.
@@ -355,6 +355,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for global cultures
 * Grateful for sketches
 * Grateful for the workers in the post office
+* Grateful for piano playing
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -1050,10 +1051,10 @@ More broadly, I love home on earth with all of humanity.
 The bird flies in solitude across the land.
 It lifts its wings alone so gracefully.
 I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by her quiet strength.
-Freely able to sail through the clouds and onto the wire alone
-Not heartbroken when he breaks my heart. // Fully loved when my heart breaks
-Not angry when he ignores my words. // At peace when my words are ignored
-Not startled when he has a new friend. // Loving when I see I am replaced
+Freely able to sail through the clouds and onto the wire alone.
+Fully loved when my heart breaks.
+At peace when my words are ignored.
+Loving when I see someone new.
 Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
 No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
@@ -1186,18 +1187,6 @@ I had already traveled to the West to visit the natives, but it called my attent
 I had already felt denied by Southern culture, but it woke me up to my Southern mom.
 I was already aware of the trucks at the Port and on the roads in Bristol, but it led me to love the truck drivers more everywhere.
 I had thought Country music was just for White People, but I realized I already listened to and played country music produced by African Americans.
-I denied that the music was for me, and prayed that there was another woman the song was for.
-I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
-I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
-He broke away, and I trusted he was led to something better. 
-When seeing more deeply, I realized he was a cowboy, a real cowboy, and saw more innocence in the cowboy hat.
-When listening more deeply, it reminded me of my high school friend, and woke me up to how he viewed the world in a clearer light.
-I saw the beauty of the Medieval English country, and true chivalry, where women and men are equal.
-I fell down hard to the ground, learned some life lessons, and the Black man from the South saved my life with good cheer, good faith, and a good conversation.
-I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
-You can let this go, darling, your good, Southern uncles and aunts already calls you darling.
-So do not worry child, heaven has got a plan for you, always.
-You are a true Southerner, indeed, who is admitting to your wrongs, and seeking to understand and be better.
 
 ## At the Root ##
 At the root is the same heart responding and reacting to the same culture. 
@@ -1362,8 +1351,7 @@ Some people chose liberty and traveled across the seas.
 They had no idea what they would discover, but they discovered some new land for the mark of freedom.
 Not everything was perfect when they discovered this new land.
 There were hypocrites, and there was violent behavior.
-But they launched the way for some pioneering people.
-But the sail launched the ground landing for some pioneering people.
+But they launched the way for some pioneering people. // But the sail launched the ground landing for some pioneering people.
 
 ## From Port to Port ##
 From port to port the sun shines in every place from different angles.
@@ -1534,12 +1522,12 @@ Three months ago, fellow Americans elected a new President of the United States.
 
 Now we have many great tasks at hand must have determination in order to create peace as a unified nation. THe importance of continuing the equality and liberty for all Americans still remains present. We are involved in a global struggle on terror and many wars. We also have both an energy crisis and an economic crisis rising. Obama, representing everyone, is in touch with all Americans; we cna take advantage of this strength of his to improve our country. As a unified nation, regardless to our religion, ethnic background, or gender, we can invest in these responsibilities with a loving heart and empathy to mankind.
 
-Now that PResident Barack Obama has stepped into the White House, we must continue to strive for a better America by showing determination in our lives and by supporting our new president. Because an African American has become President, it could cause Americans to forget our need for equality among all people. We cannot overlook the importance of this liberty that our fathers based the founding of the United States of America. We must strive for the change our president plans by working to our best potential on a daily basis. We cannot live with nice luxuries if our country as a whole is not committed to working hard. Finally, with the goal of creating peace, we must express helpfulness, empathy, and compassion to all. America can change for the better with President Barack Obama's help.
+Now that President Barack Obama has stepped into the White House, we must continue to strive for a better America by showing determination in our lives and by supporting our new president. Because an African American has become President, it could cause Americans to forget our need for equality among all people. We cannot overlook the importance of this liberty that our fathers based the founding of the United States of America. We must strive for the change our president plans by working to our best potential on a daily basis. We cannot live with nice luxuries if our country as a whole is not committed to working hard. Finally, with the goal of creating peace, we must express helpfulness, empathy, and compassion to all. America can change for the better with President Barack Obama's help.
 
 ## Whitman and Dickinson ##
-BOth Whitman and DIckinson use their poetry as a device to explore themselves as an individual through a personal tone. They guide the reader into their personal piece of work by beginning i the 1st person. To open his poem, WHitman writes 'I celebrate myself', a phrase that contains two words that signify the self. DIckinson continues to write about himself as he uses the word 'I' seven times throughout his poem. Similarly, Dickinson writes 'I'm Nobody!' and uses the contraction of 'I am' to inform the reader that hse is going to explore herself. Whitman and Dickinson both compare themselves to others explaining either the difference or similarity of how other people in society view their selves. Whitman uses the line 'what I shall assume you shall assume' which emphasizes 'I' and 'you' to represent equlaity amongst humanity. He then continues 'every atom belonging to me as good belongs to you' which not only again emphasizes 'me' and 'you', but also emphasizes the word 'good'; Whitman portrays his realization that he is a unique and 'good' individual, and he reassures others that they are unique and good individuals as well. Dickinson relates herself to others as well by devoting her first paragraph to how she feels as a 'nobody' and her second paragraph to explain how others are 'somebodys'. Whitman and DIckinson both describe how they feel about themselves through literary devices; both poets use the device, connotation. Whitman portrays himself as calm and free when he writes that he is at ease watching 'summer grass'; the imagery of 'summer grass' suggests grass moving with the wind on a relaxing summer day. Dickinson also uses connotation when she explains herself as a 'nobody' and others as 'somebodys'. In the way she utilizes 'somebody', she gives the connotation of an important and popular person, and in the way she utilizes 'nobody', she gives the connotation of unimportant and unrecognized person.
+Both Whitman and DIckinson use their poetry as a device to explore themselves as an individual through a personal tone. They guide the reader into their personal piece of work by beginning i the 1st person. To open his poem, WHitman writes 'I celebrate myself', a phrase that contains two words that signify the self. DIckinson continues to write about himself as he uses the word 'I' seven times throughout his poem. Similarly, Dickinson writes 'I'm Nobody!' and uses the contraction of 'I am' to inform the reader that hse is going to explore herself. Whitman and Dickinson both compare themselves to others explaining either the difference or similarity of how other people in society view their selves. Whitman uses the line 'what I shall assume you shall assume' which emphasizes 'I' and 'you' to represent equlaity amongst humanity. He then continues 'every atom belonging to me as good belongs to you' which not only again emphasizes 'me' and 'you', but also emphasizes the word 'good'; Whitman portrays his realization that he is a unique and 'good' individual, and he reassures others that they are unique and good individuals as well. Dickinson relates herself to others as well by devoting her first paragraph to how she feels as a 'nobody' and her second paragraph to explain how others are 'somebodys'. Whitman and DIckinson both describe how they feel about themselves through literary devices; both poets use the device, connotation. Whitman portrays himself as calm and free when he writes that he is at ease watching 'summer grass'; the imagery of 'summer grass' suggests grass moving with the wind on a relaxing summer day. Dickinson also uses connotation when she explains herself as a 'nobody' and others as 'somebodys'. In the way she utilizes 'somebody', she gives the connotation of an important and popular person, and in the way she utilizes 'nobody', she gives the connotation of unimportant and unrecognized person.
 
-While both poets exploer themsleves in their poems, Whitman's view on himself differs from Dickinson's view of herself. This is not only shown through their word choice, but also through their syntax, meter, and tone. By giving a celebratory tone in his opening, 'I celebrate myself, and sing myself', he shows that reader his content with himself. He continues to give a sense of pride and freedom when he writes, 'I loafe and invite my soul'; he feels confident with letting his soul free. Dickinson, on the other hand, represents a negative tone when she exclaims that she is a 'Nobody!'; she does not yet feel content with herself as a unique individual. Unlike Whitman's expressing a friendly tone when he reassures the reader that 'every atom belonging to me as good belongs to [him]', Dickinson gives a critical tone exclaiming 'how dreary - to be Somebody!' DIckinson also expresses jealousy when she uses this critical tone; often one is jealous of the quality he is critical of. Through their differing styles, they also show their view of their self. Whitman's poetry has no meter but forms rhythm through his lists and wording; by doing this, he uses a free and extensive style, representing his confident self. DIckinson on the other hand, protrays dissatisfaction with the self by using a restrictive style with iambic meter and a more restrained pattern in the number of syllables. The syntax of each poet shows how he veiws the self as well. Whitman utilizes an idiom and a longer, more detailed phrase, 'Born here of parents born here from parents the same, and their parents the same'. By writing long, detailed phrases like this one, he portraying an extensive and free self. Unlike Whitman, Dickinson writes simpler sentence and shorter lines. In one of ehr longest lines of eight syllables, she writes a two word sentence and a four word sentence, 'Don't tell! they'd advertise-you know!' Dickinson shows a restrictive self."
+While both poets explorer themsleves in their poems, Whitman's view on himself differs from Dickinson's view of herself. This is not only shown through their word choice, but also through their syntax, meter, and tone. By giving a celebratory tone in his opening, 'I celebrate myself, and sing myself', he shows that reader his content with himself. He continues to give a sense of pride and freedom when he writes, 'I loafe and invite my soul'; he feels confident with letting his soul free. Dickinson, on the other hand, represents a negative tone when she exclaims that she is a 'Nobody!'; she does not yet feel content with herself as a unique individual. Unlike Whitman's expressing a friendly tone when he reassures the reader that 'every atom belonging to me as good belongs to [him]', Dickinson gives a critical tone exclaiming 'how dreary - to be Somebody!' DIckinson also expresses jealousy when she uses this critical tone; often one is jealous of the quality he is critical of. Through their differing styles, they also show their view of their self. Whitman's poetry has no meter but forms rhythm through his lists and wording; by doing this, he uses a free and extensive style, representing his confident self. DIckinson on the other hand, protrays dissatisfaction with the self by using a restrictive style with iambic meter and a more restrained pattern in the number of syllables. The syntax of each poet shows how he veiws the self as well. Whitman utilizes an idiom and a longer, more detailed phrase, 'Born here of parents born here from parents the same, and their parents the same'. By writing long, detailed phrases like this one, he portraying an extensive and free self. Unlike Whitman, Dickinson writes simpler sentence and shorter lines. In one of ehr longest lines of eight syllables, she writes a two word sentence and a four word sentence, 'Don't tell! they'd advertise-you know!' Dickinson shows a restrictive self."
 
 ## Whitman and Dickinson ##
 Walt Whitman, a poet who wrote in a unique style without boundaries, first published *Leaves of Grass* in 1855. It did not become 'Song of Myself' until 1881, and an 1892 edition was later published. Between the publications of *Leaves of Grass* in 1855. It did not become 'Song of Myself' until 1881, and an 1892 edition was later published. Between the publications of *Leaves of Grass* and 'Song of Myself', Whitman made many revisions to his poetry. Emily Dickinson, another poet from the nineteenth century, wrote works that served as a change in the literature in her time period. She first began writing poetry seriously in 1858, and seh continued her writing until death. She did not title her poetry, but her poem beginning, 'I'm Nobody!' dates to the approximate year, 1861. Like Whitman's 'Canto 1' which explores 'the self', Dickinson's 'I'm Nobody!' also explores 'the self'. Whitman and Dickinson are similar in that they use the first person to present a personal tone, but these poets differ in their styles of syntax, meter, and tone in order to force us to contemplate their views on the self.
@@ -3647,6 +3635,20 @@ We all dwell in the Shadow of the Almighty at all times whether we knot it or no
 My mom worked as a teacher like my grandmother did. And as a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men teaching, and I remember feeling a constant mortal sene that I was dependent on men or desperate to be in a relationship with a guy.
 
 ...
+
+## A Draft That I Don't Like...Something to Toss Out ##
+"I denied that the music was for me, and prayed that there was another woman the song was for.
+I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
+I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
+He broke away, and I trusted he was led to something better. 
+When seeing more deeply, I realized he was a cowboy, a real cowboy, and saw more innocence in the cowboy hat.
+When listening more deeply, it reminded me of my high school friend, and woke me up to how he viewed the world in a clearer light.
+I saw the beauty of the Medieval English country, and true chivalry, where women and men are equal.
+I fell down hard to the ground, learned some life lessons, and the Black man from the South saved my life with good cheer, good faith, and a good conversation.
+I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
+You can let this go, darling, your good, Southern uncles and aunts already calls you darling.
+So do not worry child, heaven has got a plan for you, always.
+You are a true Southerner, indeed, who is admitting to your wrongs, and seeking to understand and be better."
 
 
 ----------
