@@ -83,7 +83,7 @@ My name is a Western-European name, and I love that people from other cultures s
 
 If I were to go by another name, I would go by "Meg", but "Margaret" is amazing as well :)
 
-## What is the last thing (or one of the last thigns) you searched for on the Internet? ##
+## What is the last thing (or one of the last things you searched for on the Internet? ##
 One of the last things I searched for on the Internet is the medieval music. I drew the connection between the cowboy culture and the knight culture. Love songs come into being from both cultures. People used to use the medieval organ to play love songs, "country" music, as well as church music. During the late medieval period, and the Scientific Revolution, people understood music through science.
 
 ## Write about a real or imagined train ride you have taken. ##
