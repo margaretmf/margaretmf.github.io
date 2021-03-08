@@ -43,6 +43,21 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## In what way are you selfish? ##
+I can be a selfish person. Whe I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
+
+## Write about a good discovery you have made (big or small). ##
+THe biggest discovery I have made over the past year and int his life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
+
+## What modern technolgoical deice takes up most of your time? ##
+Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. SHe looks liek the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
+
+## What would you like to apolgoize to you, and for what? ##
+I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apolgoize. THere was never a response. All I felt was pulled to face my loudest triggers and insecurities.
+
+## Write about something nice a stranger did for you. ##
+Once, I lost my temper at Starbucks. I threw the coffee cup on the ground. I looked pathetic. I was a horrible person. One stranger pardoned me and prayed for me from her car. Another straner prayed with me near a tree to help me stay grounded in reality.
+
 ## Have you ever lived in another country besides your country of birth? Would you want to? ##
 I have lived in Scotland, Ireland, and Argentina. I am grateful I rowed with the Scottish. I remember being alone in the dark and feeling lost when miraculously my Scottish rowing coach found me walking before practice. I love that I went to music concerts in Ireland. I am grateful for the readings and church services in Spanish in Argentina.
 
