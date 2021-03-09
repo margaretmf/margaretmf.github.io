@@ -66,7 +66,7 @@ THe biggest discovery I have made over the past year and int his life is that Af
 Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. SHe looks liek the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
 
 ## What would you like to apolgoize to you, and for what? ##
-I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apolgoize. THere was never a response. All I felt was pulled to face my loudest triggers and insecurities.
+I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apologize. There was never a response. All I felt was pulled to face my loudest triggers and insecurities.
 
 ## Write about something nice a stranger did for you. ##
 Once, I lost my temper at Starbucks. I threw the coffee cup on the ground. I looked pathetic. I was a horrible person. One stranger pardoned me and prayed for me from her car. Another straner prayed with me near a tree to help me stay grounded in reality.
