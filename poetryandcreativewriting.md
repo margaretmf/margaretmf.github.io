@@ -43,7 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
-## Complete this thought: 'Today I hope...'
+## I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively. ##
+
+## Complete this thought: 'Today I hope...' ##
 Today I hope to clean my room, do business work, go to Nate's house.
 Today I hope to live with love.
 Today I hope not to use social media.
