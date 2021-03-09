@@ -43,6 +43,16 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Complete this thought: 'Today I hope...'
+Today I hope to clean my room, do business work, go to Nate's house.
+Today I hope to live with love.
+Today I hope not to use social media.
+Today I hope to take a shower.
+Today I hope to uplift my thought for humanity.
+Today I hope to live in peace.
+Today I hope to pray the prayers we prayed in school for all schools nationwide.
+Today I hope someone feels free of a claim that holds them in hostage and in bondage.
+
 ## What is a memory you would like to erase? ##
 As a free agent, I would like to erase the memory of being 'a heartbroken cowgirl', a criminal, and a damsel in distress within. I am a free agent, I am able, I am intelligent, I have a good sense of humor, and I am quick to forgive.
 
