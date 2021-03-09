@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## What is a memory you would like to erase? ##
+As a free agent, I would like to erase the memory of being 'a heartbroken cowgirl', a criminal, and a damsel in distress within. I am a free agent, I am able, I am intelligent, I have a good sense of humor, and I am quick to forgive.
+
 ## In what way are you selfish? ##
 I can be a selfish person. Whe I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
 
