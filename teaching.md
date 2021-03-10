@@ -344,7 +344,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Mistakes. He tried to learn from the mistakes. He couldn't bury food again, couldn't leave it in the shelter, because something like a bear could get at it right away. It had to be high, somehow, high and safe." [Mistakes, Learning] (pp. 125-126)
 
 
-* "The days ahd folded one into another and mixed so that after two or three weeks he only knew time had passed ind ays because he made a mark for each day in stone near the door to his shelter. Real time he measured in events. A day was nothing, not a thing to remember - it was just sun coming up, sun going down, some light in the middle." [Days Folding Into One Another] (p. 129)
+* "The days ahd folded one into another and mixed so that after two or three weeks he only knew time had passed in days because he made a mark for each day in stone near the door to his shelter. Real time he measured in events. A day was nothing, not a thing to remember - it was just sun coming up, sun going down, some light in the middle." [Days Folding Into One Another] (p. 129)
 
 * "the birds could fly amazingly fast, get up fast" [Birds Flying] (p. 134)
 
