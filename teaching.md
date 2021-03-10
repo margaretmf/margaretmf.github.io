@@ -171,10 +171,13 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## My Side of the Mountain by Jean Craighead George ##
 ### Who? ###
+* 
 
 ### Where? ###
 
 ### What? ###
+* "Run away from home"
+* Naturalist, nature - "the wildflowers and trees, listen to the birds, read the weather report in the clouds, and the wind, and stride down mountainsides independent and free"
 
 ### Color ###
 
