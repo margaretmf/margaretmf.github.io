@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Do you have any dreams that recur? Why do you think you continue to have that dream? ##
+A recurring dream I have is the one o f the imagery of The Mother Church coming to thought before Association. I am grateful for the purity of the Church Architecture, and the light shining through all the churches. I am grateful for healing across the land, and respect for all cultures besides my own.
+
 ## List 25 things you will never do. ##
 (1) I will never carry a gun.
 (2) I will never shoot a gun.
