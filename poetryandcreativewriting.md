@@ -43,8 +43,17 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Write about a memory you associate with the color blue. ##
+Associated with the color blue, I have memories of my cousin playing soccer at the ocean front, and being my friend at the beach cottage. I remember blue pipes on the ceiling at the beach cottage, and I remember hanging on them with my cousins Mary, and Kim, as well as Mary's friends.
+
+## What, in your opinion, is strength? ##
+Strength is the courage within to do what's right. Strength is the peace within to forbive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
+
 ## Do you have any dreams that recur? Why do you think you continue to have that dream? ##
-A recurring dream I have is the one o f the imagery of The Mother Church coming to thought before Association. I am grateful for the purity of the Church Architecture, and the light shining through all the churches. I am grateful for healing across the land, and respect for all cultures besides my own.
+A recurring dream I have is the one of the imagery of The Mother Church coming to thought before Association. I am grateful for the purity of the Church Architecture, and the light shining through all the churches. I am grateful for healing across the land, and respect for all cultures besides my own.
+
+## What crime or faux pas would you commit if you knew you would get away with it? ##
+Don't worry. I have already committed a crime. I have committed a crime on social media that in the 21st century leads to divorce, cheating, and trouble. I have created fake, faux accounts, stalked people, and called people out. I have spread people's names, and hurt people with words. I must stop. THe social media companies are doing with my account what they are doing with President Trump's. If I get away with it, great - it's mortal mind. I must stop the crime.
 
 ## List 25 things you will never do. ##
 (1) I will never carry a gun.
@@ -60,7 +69,8 @@ A recurring dream I have is the one o f the imagery of The Mother Church coming 
 (11) I will never mention someone else in an email again.
 I can't think of 25, so this is the list of 10.
 
-## I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively. ##
+## You are on the cover of a magazine. What are you famous for? ##
+I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively.
 
 ## Complete this thought: 'Today I hope...' ##
 Today I hope to clean my room, do business work, go to Nate's house.
