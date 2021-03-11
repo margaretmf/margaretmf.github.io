@@ -79,9 +79,9 @@ As a free agent, I would like to erase the memory of being 'a heartbroken cowgir
 I can be a selfish person. Whe I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
 
 ## Write about a good discovery you have made (big or small). ##
-THe biggest discovery I have made over the past year and int his life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
+The biggest discovery I have made over the past year and int his life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
 
-## What modern technolgoical deice takes up most of your time? ##
+## What modern technological device takes up most of your time? ##
 Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. She looks liek the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
 
 ## What would you like to apolgoize to you, and for what? ##
@@ -114,7 +114,7 @@ I think that hte most important thing for today's kids to identify emotions, and
 I have experienced heartbreak, and I had been listening to popular music in the music industry targeting heartbreaking females with blond hair. It felt comforting on the one hand to listen to the music, but on the other hand I didn't know how the music owuld fully heal heartbreak. As soon as the musician posted photos of his girlfriend, with a guitar, looking like a strong woman to make it worse, in NOLA, where my grandmother was from, so much tension came to the surface. I didn't want to cry. I kicked a door, and threw my cowboy boots in the trash can, and I became a criminal online. I yelled out, and ultimately I learned to give my tears to God.
 
 ## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
-It's not a dangerous thing to do,b ut with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
+It's not a dangerous thing to do, but with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
 
 ## What is a personality trait you admire in other people? ##
 I admire the quality of integrity the most in people. I think this means that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
