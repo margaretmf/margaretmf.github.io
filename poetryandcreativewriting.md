@@ -111,7 +111,7 @@ I think that hte most important thing for today's kids to identify emotions, and
 It's not a dangerous thing to do,b ut with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
 
 ## What is a personality trait you admire in other people? ##
-I admire the quality of integrity the most in people. I think this menas that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
+I admire the quality of integrity the most in people. I think this means that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
 
 ## Is our world today a better or worse place than it was when you were a kid? ##
 I think our world is in a better place today. I think a lot has shifted, many lessons have been learned, and people are more mature, active, and expressive than when I was a kid. I think family relationship ties have grown deeper, harmony has increased, but everyone, mostly myself, has to watch for regressions.
