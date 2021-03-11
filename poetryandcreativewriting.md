@@ -43,6 +43,18 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## List 25 things you will never do. ##
+(1) I will never carry a gun.
+(2) I will never shoot a gun.
+(3) I will never engage in a sexual relationship before marriage.
+(4) I will never intrude on someone's home in another state.
+(5) I will never aim to be a celebrity.
+(6) I will never attempt to commit suicide again.
+(7) I will never sell anything to my uncles.
+(8) I will never criticize an interracial marriage.
+(9) I will never do a PhD...I don't think I will...but never say never...because I might actually do it...
+I can't think of 25, so this is the list of 9.
+
 ## I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively. ##
 
 ## Complete this thought: 'Today I hope...' ##
@@ -65,7 +77,7 @@ I can be a selfish person. Whe I dwell in self-pity, and complain about rejectio
 THe biggest discovery I have made over the past year and int his life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
 
 ## What modern technolgoical deice takes up most of your time? ##
-Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. SHe looks liek the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
+Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. She looks liek the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
 
 ## What would you like to apolgoize to you, and for what? ##
 I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apologize. There was never a response. All I felt was pulled to face my loudest triggers and insecurities.
@@ -1044,13 +1056,13 @@ I had felt forgiveness for him, saw the light in him, but the voices became so l
 
 It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
 
-My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year. But coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
+My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year, but when coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
 
 There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. I had opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
 
 At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
 
-I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too. But translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
+I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too; but translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
 
 ## It's a Southern Thing ##
 The rural south seems insular.
