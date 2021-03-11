@@ -107,6 +107,9 @@ I think that hte most important thing for today's kids to identify emotions, and
 (3) What challenges have you overcome?
 (4) How have you rediscovered aspects of your true self?
 
+### Periodically we have tension build up in our lives that requires a release of some kind. Some people cry, others punch, and some find a creative outlet. What is your release? ##
+I have experienced heartbreak, and I had been listening to popular music in the music industry targeting heartbreaking females with blond hair. It felt comforting on the one hand to listen to the music, but on the other hand I didn't know how the music owuld fully heal heartbreak. As soon as the musician posted photos of his girlfriend, with a guitar, looking like a strong woman to make it worse, in NOLA, where my grandmother was from, so much tension came to the surface. I didn't want to cry. I kicked a door, and threw my cowboy boots in the trash can, and I became a criminal online. I yelled out, and ultimately I learned to give my tears to God.
+
 ## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
 It's not a dangerous thing to do,b ut with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
 
@@ -1218,9 +1221,8 @@ Are ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) jus
 Traditionally, ["ladies"](https://publicseminar.org/2017/10/why-do-you-call-us-ladies/) are just upper-class, rich, white women, but I see members of all races being ["ladies" and "gentlemen"](https://empoweringwomennow.com/23-characteristics-of-a-classy-lady/) in the true sense of being able to take care of a home and do fulfilling work in life.
 And I love that homes can include African American art and culture.
 
-## The Country Music and the Rejection ##
-Did it heal my relationship to the Country or the country?
-It healed my relationship to the Country and the country.
+## The Country Music and the Healing ##
+It healed my relationship to the Country.
 I was already from the South, but negative memories of the South and race that infiltrated my thought were chased away.
 I already loved the sound of the trains, but it brought me closer to the nation-wide railways.
 I was already aware of the lumber industry and my great grandfather's work in it, but it brought me one step closer to it. I learned to love those presently working in the lumber industry.
@@ -1254,18 +1256,21 @@ and knows her story
 and leaves room for all to grow in their own way.
 
 ## Stars Twinkling At Each Other ##
-I see you winking at me.
-I wonder what good you have to share with me.
-I wink back and wish you the best.
+In the darkness of the night, all the stars twinkle and shine.
+They are all loving each other like bright lights glowing, and flickering.
 
-This love is like a star twinkling at another star,
-sharing the light in the middle of the night,
-dancing with one another in the symphony of the night sky.
+--I see you winking at me.
+--I wonder what good you have to share with me.
+--I wink back and wish you the best.
 
-Everyone can see you winking at me.
-They can see the start of a new friendship.
-It's like all the other stars in the sky sharing the light and love
-In a universal dance of peace, love, and joy.
+--This love is like a star twinkling at another star,
+--sharing the light in the middle of the night,
+--dancing with one another in the symphony of the night sky.
+
+--Everyone can see you winking at me.
+--They can see the start of a new friendship.
+--It's like all the other stars in the sky sharing the light and love
+--In a universal dance of peace, love, and joy.
 
 ## Healing from Weird Words ##
 Oh my gosh!
@@ -1362,7 +1367,7 @@ I find the place where everyone, everything is interconnected
 where bad memories are replaced, new pictures captured
 
 ## Letting It Go and Moving On ##
-When he let me go, I got in the car.
+I let it all go, and I got in the car.
 I drove through Bristol, Nashville, Memphis, and across the Arkansas Bridge to West Memphis.
 Then I drove through Arkansas, Mississippi, Missouri, Illinois, and the Rust Belt, across another bridge over the Ohio River.
 I met some new friends, stayed in some hotels, heard some new stories, read some new books, saw new artwork,
@@ -1373,17 +1378,10 @@ I remembered my family, and the deep, deep roots that run through the ground.
 I saw why people want to #MakeAmericaGreatAgain, but it has always been great and will always be great.
 
 ## Letting It Go ##
-I never wanted to let him, her go 
-He/she was so close to home
+I never wanted to let this situation go
+Everything felt so close to home
 I had prayed for so long
-I prayed for the wrong thing
-I learned to pray to love her and him
-And I let it go
-
-In finding the beauty all around
-I let it go
-I entered a new day and opened my heart again
-No one can steal my heart
+But I let it go and moved on
 
 ## It Starts At the Port ##
 It starts at the port.
@@ -1590,7 +1588,7 @@ As the two poets, Whitman and Dickinson went through life writing poetry and exp
 "It is not like the impudent and bold giant of Greek fame
 Who conquers many lands with strength;
 On our newly found and open gates shall stand 
-A mighty and bravew oman holding a torch
+A mighty and brave woman holding a torch
 With confined flames, and her name is
 The Mother of Exiles. From her guiding and fixed hand
 She gives a world-wide welcome; her gentle eyes direct
@@ -1987,9 +1985,9 @@ Yearning for the love for all mankind and the smiles on all of mankind's fate is
 Deceit, it's like flirtation.
 It's trickery.
 The evil in our hearts and thoughts masquerading for what's real.
-It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lives.
+It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lies.
 Evil sits with pretense wanting to be undiscovered, and not unmasked.
-Do you really believe in the duplicity? the lies?
+Do you really believe in the duplicity and the lies?
 All of this goes into the dumpster, all pretense is let go of.
 
 <br>
