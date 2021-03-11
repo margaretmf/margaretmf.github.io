@@ -53,7 +53,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 (7) I will never sell anything to my uncles.
 (8) I will never criticize an interracial marriage.
 (9) I will never do a PhD...I don't think I will...but never say never...because I might actually do it...
-I can't think of 25, so this is the list of 9.
+(10) I will never step in front of someone else in line.
+(11) I will never mention someone else in an email again.
+I can't think of 25, so this is the list of 10.
 
 ## I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively. ##
 
@@ -97,7 +99,7 @@ I think that hte most important thing for today's kids to identify emotions, and
 **Name** became a **type of career/success** because he was **trait**, **trait**, and **trait**.
 "Colin Powel became an **inspiring leader** because he is **brave**, **intelligent**, and **ambitious**."
 "Sandy Koufax was a **remarkable sports hero** because of his **work ethic**, **amazing athletic ability**, and **teamwork**."
-"Because of his **determination**, **Martin Luther King Jr.** was able to overcome **educational barriers**, **prejudice**, and **violence** to become a **politicla leader** who changed America.
+"Because of his **determination**, **Martin Luther King Jr.** was able to overcome **educational barriers**, **prejudice**, and **violence** to become a **political leader** who changed America.
 
 ## For people who have made awful, horrible mistakes -- what questions would you ask them? ##
 (1) How have you changed over the past 1 year - 5 years - 10 years?
@@ -400,6 +402,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for piano playing
 * Grateful for two women on the street
 * Grateful for a phone call with someone from high school and meeting new friends
+* Grateful to play music on the piano intuitively - I have 3 drafts of songs
+* Grateful for the light in the Christian Science Mother Church
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -1094,9 +1098,9 @@ More broadly, I love home on earth with all of humanity.
 ## The Lone Bird ##
 The bird flies in solitude across the land.
 It lifts its wings alone so gracefully.
-I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by her quiet strength.
+I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by quiet strength.
 Freely able to sail through the clouds and onto the wire alone.
-Fully loved when my heart breaks.
+Fully loved when my heart is aching.
 At peace when my words are ignored.
 Loving when I see someone new.
 Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
