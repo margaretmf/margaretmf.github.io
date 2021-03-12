@@ -123,7 +123,7 @@ I think that hte most important thing for today's kids to identify emotions, and
 (3) What challenges have you overcome?
 (4) How have you rediscovered aspects of your true self?
 
-### Periodically we have tension build up in our lives that requires a release of some kind. Some people cry, others punch, and some find a creative outlet. What is your release? ##
+## Periodically we have tension build up in our lives that requires a release of some kind. Some people cry, others punch, and some find a creative outlet. What is your release? ##
 I have experienced heartbreak, and I had been listening to popular music in the music industry targeting heartbreaking females with blond hair. It felt comforting on the one hand to listen to the music, but on the other hand I didn't know how the music owuld fully heal heartbreak. As soon as the musician posted photos of his girlfriend, with a guitar, looking like a strong woman to make it worse, in NOLA, where my grandmother was from, so much tension came to the surface. I didn't want to cry. I kicked a door, and threw my cowboy boots in the trash can, and I became a criminal online. I yelled out, and ultimately I learned to give my tears to God.
 
 ## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
