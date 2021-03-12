@@ -3239,8 +3239,6 @@ Pluck out all the negativity.
 
 **Word Associations:** live, pluck, seize, dare, boldness, endeavor, audacity, nerve
 
-## Character ##
-
 ## Colors ##
 The true colors within someone, waiting to shine through like an inner rainbow coming out of the storm.
 In all its brilliance, all the colors are there, reflecting all the many hues displayed through the world.
@@ -3261,8 +3259,6 @@ A fray of ideas unraveling in agitation.
 <br>
 
 **Word Associations:** fray, breach, clash, rival, contest, embroil, protagonist, strife
-
-## Creation ##
 
 ## Forgiveness ##
 The return to one's self.
@@ -3513,7 +3509,7 @@ Taking the alternative road rather than do what's popular and choosing to be con
 
 ## Jealousy ##
 The strife from wanting what someone else has and feeling the need to compete.
-Envying them because they express something fully that seems incompeltely expressed in me.
+Envying them because they express something fully that seems incompletely expressed in me.
 Feeling antagonism beceause they are perfect, and I seem to lack.
 I have it within already, but it seems like I am just a copy, and animosity drives anger and a grudge.
 They have the authority, and the power.
@@ -3692,7 +3688,7 @@ Song on Pangea, President Obama Election, I Believe
 
 The time finally came for me to choose, like a nation does, whether I turn to the light or to the shadow. Can I put downt he civil war sword of my grandfather's monstrous rage And the gun images I had sent?
 
-We all dwell in the Shadow of the Almighty at all times whether we knot it or not. But do I choose to make my bed in fear, envy, a sense of inferioirty, physical pain, discouragement, anger, rage, self-justification, gun violence, self-mutilation, and hell? Or do I choose to make my bed in heaven? God will always be there behind the clouds of mortal sense like the Sun does, moving our receptive hearts and minsd always in the right direction, but moment by moment, I have the ability to choose where I make my bed. Psalm 23:4 'Yea, though I walk through the darkest valley, I will fear no evil, for you are with me' represents this spiritual concept.
+We all dwell in the Shadow of the Almighty at all times whether we know it or not. But do I choose to make my bed in fear, envy, a sense of inferiority, physical pain, discouragement, anger, rage, self-justification, gun violence, self-mutilation, and hell? Or do I choose to make my bed in heaven? God will always be there behind the clouds of mortal sense like the Sun does, moving our receptive hearts and minsd always in the right direction, but moment by moment, I have the ability to choose where I make my bed. Psalm 23:4 'Yea, though I walk through the darkest valley, I will fear no evil, for you are with me' represents this spiritual concept.
 
 My mom worked as a teacher like my grandmother did. And as a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men teaching, and I remember feeling a constant mortal sene that I was dependent on men or desperate to be in a relationship with a guy.
 
