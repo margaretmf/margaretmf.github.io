@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## When was the last time you pulled an all-nighter? Why did you do it? How did you feel afterwards? ##
+The last time I remember pulling an all-nighter was seven years ago. I worked through the night in the bottom of the library. Other students I could see studying in there. Doing the work was the last thing I wanted to do, but I pushed myself with eyes feeling heavy, and me becoming a zombie. Then I remember walking back to the dorm really early in the morning with the dark sky.
+
 ## Write about a memory you associate with the color blue. ##
 Associated with the color blue, I have memories of my cousin playing soccer at the ocean front, and being my friend at the beach cottage. I remember blue pipes on the ceiling at the beach cottage, and I remember hanging on them with my cousins Mary, and Kim, as well as Mary's friends.
 
