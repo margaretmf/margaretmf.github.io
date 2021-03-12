@@ -10,4 +10,24 @@
 "In his 1963 'Letter from Birmingham Jail,' Martin Luther King echoed Harper's commitment to promoting a common community of interests when he wrote, 'I am cognizant of the interrelatedness of all communities and states . . . . Injustice anywhere is a threat to justice everywhere. We are caught in an inescapable network of mutuality, tied in a single garment of destiny.' These words recall Harper's statement to the women at the 1866 Eleventh National Women's Rights Convention: 'We are all bound up together in one great bundle of humanity, and society cannot trample on the weakest and feeblest of its members without receiving the curse in its own soul.' Harper argued for cooperative effort among women to protect civil rights and alleviate corruption. King argued for cooperative effort among the Alabama clergymen, concerned about his disruptive presence in the city, to work against racial injustice and protect civil rights."
 
 ## [Frances Harper Bends the Arc](https://www.uua.org/re/tapestry/youth/call/workshop2/arc) ##
+"Sometimes, freedom is a long time coming.
+
+It may take generations upon generations for justice to be won. Our Unitarian ancestor Reverend Theodore Parker said, 'I do not pretend to understand the moral universe: the arc is a long one... from what I see I am sure it bends towards justice.'
+
+The Reverend Martin Luther King, Jr, often used this quote. Barack Obama, 44th and first African American president of the United States added,'... but here is the thing: it does not bend on its own. It bends because each of us in our own ways put our hand on that arc and we bend it in the direction of justice....'
+
+The hands of Unitarian Universalist have been bending the arc for many years. You may have heard of John Adams, Susan B. Anthony, Christopher Reeve, or Rachel Carson. Have you heard of Frances Ellen Watkins Harper? Her hand was on the arc, too.
+
+Harper was born a free black woman in Baltimore, Maryland in 1825. She was raised in the household of her uncle, an educator and African Methodist Episcopal (AME) minister. He was also an abolitionist—a person who objected to the enslavement of blacks. Harper followed in her uncle's footsteps to become an educator and abolitionist. She also became a writer, publishing her first book of poetry at twenty and publishing the first short story by an African American woman later in life. Her writing often urged blacks, women, and people in oppressed groups to take a firm stand for equality.
+
+In 1850, the Fugitive Slave Act was passed. It became dangerous to be a free black in Maryland because slave owners could claim black people were runaway slaves and force them into slavery. So, Harper moved farther north to Ohio and then to Philadelphia. She taught, ran part of the Underground Railroad, and lectured around the country to bend the arc toward justice for African Americans. In 1863, abolitionists celebrated success with the passage of the Emancipation Proclamation. It did not immediately create a world where African Americans were treated equally and fairly, but it did make slavery illegal.
+
+Harper saw that there was still work to be done. She put her hand toward women's civil rights, in particular the rights of black women and the right of all women to vote. She co-founded the National Association of Colored Women. Again, she toured and lectured on the topic of freedom. Her lectures and writings spoke to the need for women to be free to be more than wives and mothers. She understood what she was talking about: a mother herself, after her husband died Frances Harper took her daughter with her on her lecture tours.
+
+During her justice work, Harper met many Unitarians also working to bend the arc. She felt at home with our liberal religious beliefs and knew that her work could strengthen the justice work of the Unitarians. She joined hands with them by joining the First Unitarian Church in Philadelphia in 1870. She frequently read her poetry from the pulpit at this church, yet she kept her membership and taught Sunday school at an AME church, too.
+
+Harper died in 1911, before the 19th Amendment gave women the right to vote in 1919. This was a cause she worked hard to bring about. Yet, Harper understood that her labors might bring about freedoms she would never enjoy. She said, 'Apparent failure may hold in its rough shell the germs of a success that will blossom in time, and bear fruit throughout eternity.' Some of the fruits of Harper's labor—and the labor of other Unitarian Universalists—are enjoyed by us today. Yet, we are not done. Oppression still exists in our world. Harper's hands—and Parker's, Adam's, Anthony's, Reeve's and Carson's—are no longer on the arc. Our hands are needed to take their place."
+
+
+
 
