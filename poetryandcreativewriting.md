@@ -43,6 +43,13 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Struggling vs. Suffering ##
+Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right
+
+Suffering - pain silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts
+
+Pain - empathizing with the needs with someone else, feeling the inflicted harm of someone, feeling the negative energy from another's heart
+
 ## When was the last time you pulled an all-nighter? Why did you do it? How did you feel afterwards? ##
 The last time I remember pulling an all-nighter was seven years ago. I worked through the night in the bottom of the library. Other students I could see studying in there. Doing the work was the last thing I wanted to do, but I pushed myself with eyes feeling heavy, and me becoming a zombie. Then I remember walking back to the dorm really early in the morning with the dark sky.
 
