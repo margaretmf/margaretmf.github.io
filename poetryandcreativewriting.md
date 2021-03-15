@@ -92,17 +92,31 @@ Today I hope to live in peace.
 Today I hope to pray the prayers we prayed in school for all schools nationwide.
 Today I hope someone feels free of a claim that holds them in hostage and in bondage.
 
+## Memories ##
+I remember the crowd of people wearing red, white, and blue clothes.
+I remember the women working on grassroots projects in the Stadium.
+I remember the reformation, and the repentance, and the shift of view.
+I remember the people working in the post office, and the Fed Ex Office, and the Government buildings, and the Salvation Army.
+I remember listening to "One Tribe" and "I Believe".
+I remember taking a photo.
+I remember feeling concerned about healing from racial prejudices in college.
+I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
+I remember praying for an African American's daughters.
+I remember serving in the Diversity and Inclusion Club and God giving me an interest in Islam in high school. I remember feeling "white privilege" and "white guilt" in the Diversity and Inclusion Club.
+I remember asking an African American man to my sorority formal.
+I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
+
 ## What is a memory you would like to erase? ##
 As a free agent, I would like to erase the memory of being 'a heartbroken cowgirl', a criminal, and a damsel in distress within. I am a free agent, I am able, I am intelligent, I have a good sense of humor, and I am quick to forgive.
 
 ## In what way are you selfish? ##
-I can be a selfish person. Whe I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
+I can be a selfish person. When I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
 
 ## Write about a good discovery you have made (big or small). ##
-The biggest discovery I have made over the past year and int his life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
+The biggest discovery I have made over the past year and in this life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
 
 ## What modern technological device takes up most of your time? ##
-Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. She looks liek the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
+Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. She looks like the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
 
 ## What would you like to apolgoize to you, and for what? ##
 I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apologize. There was never a response. All I felt was pulled to face my loudest triggers and insecurities.
@@ -117,7 +131,7 @@ I have lived in Scotland, Ireland, and Argentina. I am grateful I rowed with the
 Hate seems to be strong. It seems to tear one's heart up and throw one's life into shambles. Unconditional love is the most powerful force in the world, however. It overcomes the strongest, most monstrous waves of hate. Unconditional love overcomes all through to the ends of the world.
 
 ## What do you think is the most important thing for today's kids to learn in school? ##
-I think that hte most important thing for today's kids to identify emotions, and develop healthy relationships with people that are different from them. I also think it is improtant for kids to learn how to manage money but not worship money. I believe in the next generation! :) :)
+I think that the most important thing for today's kids to identify emotions, and develop healthy relationships with people that are different from them. I also think it is improtant for kids to learn how to manage money but not worship money. I believe in the next generation! :) :)
 
 **Name** became a **type of career/success** because he was **trait**, **trait**, and **trait**.
 "Colin Powel became an **inspiring leader** because he is **brave**, **intelligent**, and **ambitious**."
@@ -987,9 +1001,9 @@ Standing in union with one another through loving what's in another's heart and 
 
 ## The Study of History ##
 God's story is forever unfolding.
-The Bible is a history book that shares the chronicles of man, and life lessons.
+The Bible is a history book that shares the chronicles of people, and life lessons.
 Every individual who is born on Earth is born into an existing story of the collective mankind.
-And every individual who is born on Earth has a story being created by God and him or herself.
+Every individual who is born on Earth has a story being created by God and him or herself.
 We are all part of a grand story that is ever-evolving and ever-progressing.
 And everyone has a story of his or her own singing through the earth by God to overcome evil with good.
 
