@@ -57,13 +57,13 @@ The last time I remember pulling an all-nighter was seven years ago. I worked th
 Associated with the color blue, I have memories of my cousin playing soccer at the ocean front, and being my friend at the beach cottage. I remember blue pipes on the ceiling at the beach cottage, and I remember hanging on them with my cousins Mary, and Kim, as well as Mary's friends.
 
 ## What, in your opinion, is strength? ##
-Strength is the courage within to do what's right. Strength is the peace within to forbive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
+Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
 
 ## Do you have any dreams that recur? Why do you think you continue to have that dream? ##
 A recurring dream I have is the one of the imagery of The Mother Church coming to thought before Association. I am grateful for the purity of the Church Architecture, and the light shining through all the churches. I am grateful for healing across the land, and respect for all cultures besides my own.
 
 ## What crime or faux pas would you commit if you knew you would get away with it? ##
-Don't worry. I have already committed a crime. I have committed a crime on social media that in the 21st century leads to divorce, cheating, and trouble. I have created fake, faux accounts, stalked people, and called people out. I have spread people's names, and hurt people with words. I must stop. THe social media companies are doing with my account what they are doing with President Trump's. If I get away with it, great - it's mortal mind. I must stop the crime.
+Don't worry. I have already committed a crime. I have committed a crime on social media that in the 21st century leads to divorce, cheating, and trouble. I have created fake, faux accounts, stalked people, and called people out. I have spread people's names, and hurt people with words. I must stop. The social media companies are doing with my account what they are doing with President Trump's. If I get away with it, great - it's mortal mind. I must stop the crime.
 
 ## List 25 things you will never do. ##
 (1) I will never carry a gun.
@@ -96,14 +96,14 @@ Today I hope someone feels free of a claim that holds them in hostage and in bon
 I remember the crowd of people wearing red, white, and blue clothes.
 I remember the women working on grassroots projects in the Stadium.
 I remember the reformation, and the repentance, and the shift of view.
+I remember the size of the crowd.
+I remember my friend's passion.
 I remember the people working in the post office, and the Fed Ex Office, and the Government buildings, and the Salvation Army.
 I remember listening to "One Tribe" and "I Believe".
-I remember taking a photo.
-I remember feeling concerned about healing from racial prejudices in college.
-I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
-I remember praying for an African American's daughters.
 I remember serving in the Diversity and Inclusion Club and God giving me an interest in Islam in high school. I remember feeling "white privilege" and "white guilt" in the Diversity and Inclusion Club.
-I remember asking an African American man to my sorority formal.
+I remember taking a photo.
+I remember feeling concerned about healing from racial prejudices.
+I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
 I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
 
 ## What is a memory you would like to erase? ##
@@ -186,9 +186,10 @@ I would love family members, including distant family members, every day.
 I would appreciate the study of history, a natural science.
 I would appreciate the stories told in families, and people's ancestors, lineage, and heritage.
 I would play music, take photography, and love more every day.
+[The Concept of Scientific History](https://www.jstor.org/stable/2504255?seq=1)
 
 ## What makes you smile or laugh every time you think of it? ##
-Today, I randomly smiled at a stranger at Starbucks. She was so beautiful. She smiled right back. There was reciprocity. Our eyes met. We connected truly. I helped her. She helped me even more. I love how God puts a smile right on our faces even when we feel the need to cry, and break down. It's wonderful that God is always at work.
+Today, I randomly smiled at a stranger at Starbucks. She was so beautiful. She smiled right back. We recriprocated our love for one another. Our eyes met. We connected truly. I helped her. She helped me even more. I love how God puts a smile right on our faces even when we feel the need to cry, and break down. It's wonderful that God is always at work.
 
 ## What historical figure would you like to interview? What would you ask? ##
 W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interview. I would love to learn more about their experiences as African Americans in the old American country. 
@@ -269,7 +270,7 @@ Do not feel self-conscious all the time; you look beautiful, you make good grade
 
 I know you often feel unhappy because of how some of your friends have treated you. Stop dwelling on this though; reach out and meet new friends. Have confidence that by expressing happiness, your right friends will come at the right time.
 
-I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the ward of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
+I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
 
 I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of secnes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
 
@@ -314,6 +315,7 @@ I felt some angel wings.
 I saw a feather.
 I saw an angel note on a poster on the side of the road.
 I heard a song on angels outside of a church.
+I heard the birds chirping when I returned home.
 Angels are in songs waking us up to our reality.
 Angels are everywhere.
 
@@ -365,7 +367,7 @@ God whispers with the "still, small voice" in the darkest hours when you need a 
 "Yes, we can."
 "Yes, we can."
 "Yes, we can."
-He speaks to the prophets, the listeners of Martin Luther King, the voice of the "I AM US, YOU ARE ME, I AM YOU".
+He speaks to the prophets, the listeners of Martin Luther King, Jr. the voice of the "I AM US, YOU ARE ME, I AM YOU".
 
 ## Damn Lord, You Did a Good Job ##
 It's a new day that has yet to begun, and I already want it to end.
@@ -375,9 +377,10 @@ Everyone knows what I've done wrong.
 
 There are failure stories on my left.
 There are success stories on my right.
-I take up the failure stories, admit to the wrongs, and throw them in the trash. The failures are just that - "white trash".
-I take up the success stories, and I throw them up in the air, and say, "PRAISE THE LORD FOR CREATING ME" with a WINNING SMILE on my FACE. The success stories are just that - "Christ the King living and moving and breathing right on through me".
-DAMN, LORD, YOU DID A GOOD JOB. YOU HELPED ME FORGIVE. YOU HELPED ME BOUNCE BACK UP. AND YOU HELPED ME REFORM. YOU HELPED ME SURVIVE.
+I take up the failure stories, and admit to the wrongs.
+I take up the success stories, and thank God for creating me and helping me to overcome.
+"Praise the Lord for creating me", I say, with a winning smile on my face. The success stories are just that - "Christ the King living and moving and breathing right on through me".
+Damn, Lord. You did a good job. You helped me to forgive. You helped me to bounce back up. And you helped me to reform. You helped me to survive.
 
 ## Hey Friend, Let's Share a Good Laugh ##
 Hey old friend, it's you again.
@@ -444,6 +447,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for a phone call with someone from high school and meeting new friends
 * Grateful to play music on the piano intuitively - I have 3 drafts of songs
 * Grateful for the light in the Christian Science Mother Church
+* Grateful for the first responders
+* Grateful for the man working with the USPS in the postal service
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -664,7 +669,7 @@ People may come from different perspectives, different sides, different points o
 A flag is a sign, and a symbol.
 I can understand how people feel like the Confederate flag represents good things about Southern culture, Southern heritage, and the birth of the American Country.
 The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve.
-But the Civil War was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
+The Civil War, however, was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
 The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations.
 Land and economy are part of the South, but land and economy expand to the North and the West.
 
@@ -679,7 +684,7 @@ The love from God shields man so that no form of human hatred can reach, and the
 
 ## Spiritual Lessons From Every Relationship ##
 A lesson on reading and speaking up.
-A lesson on singing, playing music, and music history in the South.
+A lesson on singing, playing music, and music history in the South, especially in Norfolk.
 A lesson on how Black Lives are Amazing in Norfolk.
 A lesson on the Spanish roots of African Americans.
 A lesson on the Jamaican roots of African Americans.
