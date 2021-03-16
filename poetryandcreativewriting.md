@@ -43,6 +43,30 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Write about someone you aspire to be like. ##
+President Barack Obama is a figure I look up to. When facing adversity, he exudes great qualities. He does not seek fame. He did not seek to live and work in the noble office. He does not bicker and complain when facing criticism, attacks, and name-calling. He does not seek to be a prima donna. I aspire to be like him. I seek to express humility, patience, confidence, love, meekness, and graciousness. I hope to treat everyone in the nation as he treats people, and appreciate the interdependencies in human relationships throughout the land. Everyone has a voice, a right to sing, a right to express, a right to love nature, and a right to truly live and learn and heal. I seemed abusive and monstrous when sending images of guns? Would someone in a celebrity photo with the President send guns? Would someone in a celebrity photo with the President gossip, attack, complain, and cry? No, and no.
+
+## How do you soothe yourself when you are upset? ##
+When upset, I soothe myself through telling myself that it's ok to cry. I feel pain when I make mistakes. People make mistakes. It is ok. I will see beauty another day. I will survive another day. It's ok to not want to live. I will progress and expand and live life more to the fullest, however. I love the joy that comes from looking someone in the eye, giving them full attention and appreciation, and listening to understand.
+
+## Does writing change you? How does writing make you a better person? ##
+Writing changes me. Writing, a tool for expressing thoughts, feelings, experiences in words, helps to articulate and process the inner and outer worlds. Using the right words, forming the right sentence structure exercises the process of sharing what goes on within and around through speech. Writing transforms my thinking and helps me better connect to people.
+
+## What bad habit would you like to change? ##
+I would love to *stop* looking people up on Instagram and Google. I would love to stop sending hostile emails. Through loving the glory of a new day, the beauty in a smile, and the lessons taught in computer class, I will break the habit. Through writing down thoughts on Github, and in journals, and working with my hands, I will break the pattern, and the habit.
+
+## What keeps you from getting a good night's sleep? ##
+Ruminating over the past, the things done wrong, and the missed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of God's provisions.
+
+## Write about a time you broke something. ##
+Once, I was fighting within so much that I broke everything in my house. It was a continuation of what it was like as a child when kicking doors and windows. There's a loud fight within, and it leads me to break things. I am building back up now.
+
+## What, in your opinion, is strength? ##
+Strength is the courage withint o do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
+
+## What has made you angry this week? ##
+All of the emphasis on self, comparing, and competing made me feel angry. Feeling rejected, teased, and mocked made me feel inferior. It feels like none of my work never measures up. Other people look like opera divas whle people tell me I have seemed high maintenance, like an opera diva when I can't fully express myself, and like I have a fragile ego underneath.
+
 ## Struggling vs. Suffering ##
 Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
 
