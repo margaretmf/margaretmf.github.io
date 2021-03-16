@@ -750,6 +750,19 @@ These canals were carefully engineered to efficiently water the fields but, most
 ----------
 
 
+## [The True Nature of Love](https://codependentrecoveryexpert.wordpress.com) ##
+"Starting to discern the difference between a codependent relationship and a healthy relationship helped me to start seeing the concepts of romance and love with more clarity – helped me start to understand the difference between a healthy interdependent relationship and a dysfunctional, codependent relationship.
+
+“Codependence and interdependence are two very different dynamics.
+
+Codependence is about giving away power over our self-esteem. Taking our self-definition and self-worth from outside or external sources is dysfunctional because it causes us to give power over how we feel about ourselves to people and forces which we cannot control. Any time that we give power over our self-esteem to something outside of ourselves we are making that person or thing our higher power. We are worshiping false gods.
+
+. . . . . . . . Interdependence is about making allies, forming partnerships. It is about forming connections with other beings. Interdependence means that we give someone else some power over our welfare and our feelings.” – Codependence vs Interdependence – healthy relationship vs dysfunctional
+
+One of the core components of Codependency is black and white thinking.  For this reason it is possible to quit drinking and using without being in recovery from codependency – because to drinking and/or using is an “either or” “black or white” issue.  Life is not black and white.  Issues with food, spending, relationships, etc. are not black and white.  These issues exist in the gray area of life.  What we are seeking is balance – and in order to find balance we need to learn to practice discernment."
+
+"One of the core components of Codependency is black and white thinking.  For this reason it is possible to quit drinking and using without being in recovery from codependency – because to drinking and/or using is an “either or” “black or white” issue.  Life is not black and white.  Issues with food, spending, relationships, etc. are not black and white.  These issues exist in the gray area of life.  What we are seeking is balance – and in order to find balance we need to learn to practice discernment."
+
 ## [“Chivalry” Then and Now](https://medieval.sunygeneseoenglish.org/2015/03/10/chivalry-then-and-now/) ##
 "In the Middle Ages, Richard Abels explains in his NY Times article, chivalry was a code of conduct followed by the military nobility which called for them to have “skill in combat, courage and loyalty to one’s lord… [as well as] courtliness and medieval Christian values.” In modern times, “chivalry” has come to mean “‘gentlemanly’ behavior, manifested through courtesy toward the ‘fair sex’, honor, courage, loyalty, athletic prowess and fighting ‘fair'”; a definition Abels says stems from 18th century Romantics’ ideas of the Middle Ages. There is debate today over the concept’s appropriateness in a society that is striving to eliminate the idea of the “fairer sex” in order for women to achieve social, economic, and political equality. Some argue that chivalry only perpetuates the attitude that women are weak and inferior; while others say chivalry is synonymous with common courtesy, and that we need more of it in our increasingly self-centered world. The NY Times’ “Room For Debate” section online includes an introduction to this debate and a short post from each of the 6 debaters, including Abels. The main page can be found here: http://www.nytimes.com/roomfordebate/2013/07/30/can-chivalry-be-brought-back-to-life
 
@@ -1196,9 +1209,11 @@ Jade Carter is freelance graphic designer and art director. The Atlanta- based c
 
 Florida native Cecil Hayes is the owner and founder of Cecila's Designers Unlimited. One of the world's most iconic interior designers, Hayes was one of the first African-American interior designers to manufacture her own furniture and upholstery. She was also first African American designer featured in Architectural Digest magazine. In 2004, Architectural Digest featured her on its list of 100 Top Interior Designers. Her projects include the design of Chicago's South Loop Hotel Lobby. Hayes has worked with a long list of celebrity clients including Samuel L. Jackson, who called the veteran designer to help decorate his Tudor-style home. Cecil Hayes is also the author of two interior design books: 9 Steps to Beautiful Living and The Art of Decorative Details.
 
-Michelle Colligan Johnson is a Louisiana-based fine art photographer, best known for capturing the aesthetics of Creole culture. A member of the Professional Photographers of America, her work has received recognition from the Professional Photographers of Louisiana. New-Orleans based brand agency The Wildlife Reserve featured photos from Johnson's a Women in the Woods series in their 2016 campaign, 'But Not Brokena'.
+Michelle Colligan Johnson is a Louisiana-based fine art photographer, best known for capturing the aesthetics of Creole culture. A member of the Professional Photographers of America, her work has received recognition from the Professional Photographers of Louisiana. New-Orleans based brand agency The Wildlife Reserve featured photos from Johnson's a Women in the Woods series in their 2016 campaign, 'But Not Broken'.
 
 Candace Mitchell and Chanel Martin are the duo behind the beauty technology company, Myavana. Based in Atlanta, Georgia, the company analyzes hair textures to research and recommend hair products. Mitchell and Martin met at Georgia Tech while completing their engineering degrees. Chanel Martin is also a brand strategist where she teaches entrepreneurs how to launch small businesses. In 2016, Forbes featured Candace Mitchell in its annual 30 under 30 list. Myavana has been featured in a number of publications including EBONY, Essence, and Black Enterprise. Martin and Mitchell have also appeared on The Real and at Essence Fest"
+
+## [Black Lives Matter - Racial Politics](https://www.hf.uio.no/ilos/english/research/news-and-events/news/2020/black-lives-matter) ##
 
 ## [Essence: Black Perspectives](https://www.aaihs.org/essence-as-archive-on-the-occasion-of-its-golden-anniversary/?utm_source=rss) ##
 
