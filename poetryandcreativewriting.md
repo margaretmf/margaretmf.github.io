@@ -42,6 +42,9 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## What traffic sign best refelcts your life right now? ##
+The sign guiding people to 'slow down' with children playing and running best reflects my life. I love this sign because of the childlike innocence expressed in it. In life, I am slowing down, and seeking ways to paay attention to the light, the joy, and the love of children more.
+
 ## Describe your most recent dream you can remember. ##
 I had a vision come to thought before going to sleep of an African American woman with beautiful eyes and a lovely smile. It was a wonderful dream, peaceful and inspirational. In life, every day, I wake up to the amazing beauty and life of African Americans.
 
