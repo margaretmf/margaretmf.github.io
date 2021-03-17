@@ -42,6 +42,12 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Describe your most recent dream you can remember. ##
+I had a vision come to thought before going to sleep of an African American woman with beautiful eyes and a lovely smile. It was a wonderful dream, peaceful and inspirational. In life, every day, I wake up to the amazing beauty and life of African Americans.
+
+## What do you want more out of life: happiness or success? ##
+Out of life, I seek joy and freedom. Success flows from doing work joyfully. I don't always feel free, but I seek freedom. It would feel wonderful in life to express love, compassion, intellect, creativity, adaptability, originality, vibrancy, independence, and interdependence.
+
 ## What is the best piece of advice you have ever been given? ##
 The best piece of advice people have given me is to forgive myself and others, and wipe the tears, the sin, and the anger away. God has always moved me with a strong conscience and a strong heart. People react, but it's ok to forgive. People bully people, but God wants people to belong.
 
