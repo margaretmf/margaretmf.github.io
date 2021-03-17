@@ -43,6 +43,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Journey Writing ##
+## Do you have a tattoo? What is it and why did you get it? If not, would you ever get one? What would the tattoo be, and what would it symbolize to you? ##
+No. I think that tattoos look good on people and that people with tattoos break cultural traditions. I do not want to get a tattoo just to buy into a trend that others are buying into. If I were to get a tattoo to break free from traditional value systems, I would not get a tattoo.
+
 ## Write about someone you aspire to be like. ##
 President Barack Obama is a figure I look up to. When facing adversity, he exudes great qualities. He does not seek fame. He did not seek to live and work in the noble office. He does not bicker and complain when facing criticism, attacks, and name-calling. He does not seek to be a prima donna. I aspire to be like him. I seek to express humility, patience, confidence, love, meekness, and graciousness. I hope to treat everyone in the nation as he treats people, and appreciate the interdependencies in human relationships throughout the land. Everyone has a voice, a right to sing, a right to express, a right to love nature, and a right to truly live and learn and heal. I seemed abusive and monstrous when sending images of guns? Would someone in a celebrity photo with the President send guns? Would someone in a celebrity photo with the President gossip, attack, complain, and cry? No, and no.
 
