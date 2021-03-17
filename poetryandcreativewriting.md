@@ -42,6 +42,9 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## What is the best piece of advice you have ever been given? ##
+The best piece of advice people have given me is to forgive myself and others, and wipe the tears, the sin, and the anger away. God has always moved me with a strong conscience and a strong heart. People react, but it's ok to forgive. People bully people, but God wants people to belong.
+
 ## Why do you think some people are successful in life and others are not? ##
 I think people succeed in life when they express patience in the process of doing the work and love for humanity in the day-to-day moments. Sometimes people do things and get lost in the wrong beliefs, chains, reactions, idols, and situations, but it's never too late to turn around a life and become better and succeed.
 
