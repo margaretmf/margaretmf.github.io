@@ -171,17 +171,79 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## My Side of the Mountain by Jean Craighead George ##
 ### Who? ###
-* 
+* Jean Craighead George, the author of the book
+* daughter, Twig
 
 ### Where? ###
+* "wishing to run to the woods and live on our own"
+* the Adirondack Mountains
+* the northeast side of the mountain
 
 ### What? ###
 * "Run away from home"
 * Naturalist, nature - "the wildflowers and trees, listen to the birds, read the weather report in the clouds, and the wind, and stride down mountainsides independent and free"
+* He "told [his] mother [he] was going to run away from home" and "live by a waterfall in the woods"
+* Naturalist, nature - "the wildflowers and trees, listen to the birds, read the weather report in the clouds, and the wind, and stride down mountainsides independent and free"
+* "pack my suitcase", "backpack for her toothbrush"
+* "live off the land, make a home"
 
 ### Color ###
 
 ### Adjectives ###
+* edible // fruits
+* basswood // tree
+* huge // tree
+* sentinel // crow
+* tree // home
+* turtle // soup
+* blue, blue, blue // sky
+* smooth, white // meadow
+* blackened // sky
+* sleeping // stages
+* old // logs
+* undercut // banks
+* overhanging // bushes
+* calm // water
+* deep undercut // bank
+* overhanging // bushes
+* internal // organs
+* main // highway
+* cold // winds
+* warm and cozy // house
+* old // map
+* old, gray // stones
+* steep // mountain
+* big, old // catfish
+* dry // grass
+
+### Vocabulary ###
+* Edible
+
+## Allusions ##
+
+## Themes ##
+* Childlike dreaming
+* Nature, the land
+* Adventure
+* Relationship to Father
+
+### Interesting Sentences or Paragraphs ###
+* "I would walk among the wildflowers and trees, listen to the birds, read the weather report in the clouds and the wind, and stride down mountainsides independent and free." (p. xi)
+
+"Almost everyone I know has dreamed at some time of running away to a distant mountain or island, castle or sailing ship, to live there in beauty and peace." (p. xii)
+
+"My father, who was a naturalist and scientist, taught me the plants and animals of eastern forests and showed me where the wild edible fruits and tubers grew." (p. xii)
+
+"His adventures are the fulfillment of that day long ago when I told my mother I was going to run away, got as far as the edge of the woods, and came back. Perhaps Sam will fulfill your dreams, too. Be you writer or reader, it is very pleasant to run away in a book." (p. xiv)
+
+"gathering nuts and berries" (p. 3)
+
+"the wind really blows, the whole tree moans right down to the roots" (p. 4)
+
+"According to a book on how to survive on the land that I read in the New York Public Library, this was the way to make your own hooks. I then dug for worms. I had hardly chopped the moss away with my ax before I hit frost. It had not occurred to me that there would be frost in the ground in May, but then, I had not been on a mountain before." (p. 12)
+
+"Fortunately, the sun has a wonderfully glorious habit of rising every morning. When the sky lightened, when the birds awoke. I knew I would never again see anything so splendid as the round red sun coming up over the earth." (pp. 18-19)
+
 
 ----------
 
