@@ -173,6 +173,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Who? ###
 * Jean Craighead George, the author of the book
 * daughter, Twig
+* Thoreau, Bando
 
 ### Where? ###
 * "wishing to run to the woods and live on our own"
@@ -188,6 +189,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "live off the land, make a home"
 
 ### Color ###
+* blue, blue, blue // sky
+* black // clouds
+* old gray // stones
+* black // rocks
+* golden // summer
+* blue // beak
+* silky, black // eyes
+* blue // summer
 
 ### Adjectives ###
 * edible // fruits
@@ -196,9 +205,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * sentinel // crow
 * tree // home
 * turtle // soup
-* blue, blue, blue // sky
 * smooth, white // meadow
-* blackened // sky
 * sleeping // stages
 * old // logs
 * undercut // banks
@@ -211,21 +218,51 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * cold // winds
 * warm and cozy // house
 * old // map
-* old, gray // stones
 * steep // mountain
 * big, old // catfish
 * dry // grass
+* big // creek
+* apple // tree
+* spring // beauty
+* strawberry // patch
+* fancy // gear
+* deeer // trap
+* poplar // tree
+* inner // bark
+* tedious // work
+* gay // gathering
+* scrub // mussels
+* spring // water
+* best-spelling // tree
+* sad // tunes
+* willow // whistles
+* deep // pools
+* air // warm
+* big // boulder
+* silent // trees
+* perfect // feathers
+* teaberry // leaves
+* beautiful // details
 
 ### Vocabulary ###
 * Edible
+* Dangled 
+* Acreage
+* Marksmanship
+* Peaceful
+* Moral
 
 ## Allusions ##
+* Catskill Mountains
 
 ## Themes ##
 * Childlike dreaming
 * Nature, the land
 * Adventure
-* Relationship to Father
+* Relationship to Father and Great-grandfather
+* Trail-blazing
+* the American wilderness, conservationists
+* Winter
 
 ### Interesting Sentences or Paragraphs ###
 * "I would walk among the wildflowers and trees, listen to the birds, read the weather report in the clouds and the wind, and stride down mountainsides independent and free." (p. xi)
@@ -243,6 +280,33 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 "According to a book on how to survive on the land that I read in the New York Public Library, this was the way to make your own hooks. I then dug for worms. I had hardly chopped the moss away with my ax before I hit frost. It had not occurred to me that there would be frost in the ground in May, but then, I had not been on a mountain before." (p. 12)
 
 "Fortunately, the sun has a wonderfully glorious habit of rising every morning. When the sky lightened, when the birds awoke. I knew I would never again see anything so splendid as the round red sun coming up over the earth." (pp. 18-19)
+
+"Birds were dripping from the trees, little birds, singing and flying and pouring over the limbs." (p. 25)
+
+"The summer was wonderful. There was food in abudance and I gathered it most of the morning, and stored it away in the afternoon. I could now see that my niches were not going to be big enough for the amount of food i owuld need for the winter, so I began burning out another tree. When the hickory nuts, walnuts, and acorns appeared, I was going to need a bin. You'd be surprised what a pile of nuts it takes to make one turtle shell full of nut meants - and not a snapping-turtle shell either, just a box-turtle shell!" (p. 63)
+
+"This was tedius work, too, but now that I had a home and smoked venison and did not have to hunt food every minute, I could do things like make flour. I would simply add spring water to the flour and bake this on a piece of tin. When done, I had the best pancakes ever. They were flat and hard, like I imagined Indian bread to be. I liked them, and would carry the leftovers in my pcokets for lunch." (p. 67)
+
+"The sparrow flew across the meadow. Out of the sky came a black streak - I've never seen anything drop so fast. With a great backwatering of wings, Frightful broke her fall, and at the same time seized the sparrow. I took it away from her and gave her the lure." (p. 68)
+
+"'We played music until the moon came up. Bando could even play jazz on the willo whistles. They are wonderful instruments, ...'" (p. 83)
+
+"Then she gathered the birds together in flocks, and the mountaintop was full of songs and twitterings and flashing wings. The birds were ready to move to the south." (p. 86)
+
+"the raft", "the stream"
+
+"lonely and on the verge of tears"
+
+"'Well, you called me Daniel Boone.' 'Daniel Boone, eh?'"
+"'playing cowboys and Indians?'"
+
+"I watched the sky. It was as blue as summer, but ice was building up along the waterfall at the gorge. I knew winter was coming, although each day the sun would rise in a bright sky and the days would follow cloudless. I piled more wood. This is when I realized that I was scared. I kept cutting wood and piling it like a nervous child biting his nails." (p. 113)
+
+"We drank sassafras tea, sweetened with some of the sugar Bando had brought me, rubbed our turtle shells clean in the snow,and went out into the forest." (p. 129)
+
+"'Let's face it, Thoreau, you can't live in America today and be quietly different. If youa re going to be different, you are going to stand out, and people are going to hear about you;" (p. 168)
+
+"I could cross to Asia in a canoe via the Bering Strait" (p. 168)
 
 
 ----------
