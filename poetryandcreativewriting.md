@@ -42,6 +42,15 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Write about someone, living or dead, who you would you like to have back in your life. ##
+I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, amke decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibracny in the world. Every voice is vital in the light, and every life is vital in the light.
+
+## What makes you feel humble? ##
+Feeling rejected makes me feel humble. At a low moment of feeling rejected and humiliated, one must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me umble and helps me to grow in other ways.
+
+## If you had the opportunity to write as a career, what would youw write? ##
+In a career, I would love to write a book about unity and oneness, and the power of the people. I would also love to write music. In a writing career, I would love to take the emphasis off of self and put the emphasis on Soul. I love the work she is showing on social media.
+
 ## What traffic sign best refelcts your life right now? ##
 The sign guiding people to 'slow down' with children playing and running best reflects my life. I love this sign because of the childlike innocence expressed in it. In life, I am slowing down, and seeking ways to paay attention to the light, the joy, and the love of children more.
 
@@ -83,7 +92,7 @@ Ruminating over the past, the things done wrong, and the missed connections keep
 Once, I was fighting within so much that I broke everything in my house. It was a continuation of what it was like as a child when kicking doors and windows. There's a loud fight within, and it leads me to break things. I am building back up now.
 
 ## What, in your opinion, is strength? ##
-Strength is the courage withint o do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
+Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
 
 ## What has made you angry this week? ##
 All of the emphasis on self, comparing, and competing made me feel angry. Feeling rejected, teased, and mocked made me feel inferior. It feels like none of my work never measures up. Other people look like opera divas whle people tell me I have seemed high maintenance, like an opera diva when I can't fully express myself, and like I have a fragile ego underneath.
@@ -91,7 +100,7 @@ All of the emphasis on self, comparing, and competing made me feel angry. Feelin
 ## Struggling vs. Suffering ##
 Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
 
-Suffering - pain silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts, feeling guilt and shame and guilt and shame, and endless ties to people who do not care.
+Suffering - pain in silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts, feeling guilt and shame and guilt and shame, and endless ties to people who do not care.
 
 Pain - empathizing with the needs with someone else, feeling the inflicted harm of someone, feeling the negative energy from another's heart.
 
@@ -494,6 +503,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the light in the Christian Science Mother Church
 * Grateful for the first responders
 * Grateful for the man working with the USPS in the postal service
+* Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
