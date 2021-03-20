@@ -42,13 +42,34 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## There is a strong current trend among kids to read comic books or graphic novels instead of regular books. What do you think about that? ##
+Regular books promote children's intelelct and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
+
+## What do you look for when deciding whether or not to date someone? ##
+Genueine compsasion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
+
+## What makes you feel humble? ##
+Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purifeid, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
+
+## If you had the opportunity to write as a career, what would you write? ##
+In a career, I would love to write a book about unity and oneness, and the power of the people. I would also lvoe to write music. In a writing career, I would love to take the emphasis off self and put the emphasis on Soul. I lvoe the work she is showing on social media.
+
+## As a kid, what job did you dream you would have as an adult? What job do you have now/ ##
+Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
+
+## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Woudl you live on the coast if you could, or is it better just for a visit? ##
+My family ventured out to the beach for the 4th of July. Young girls played in the sand with castles, shells, and waters. They loved the holiday, and their moms were ok with me waving at them. I lvoe the foaminess of the ocean. I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+
+## Where do you like to do your journaling? At a desk, in your bed, at the coffee shop? ##
+In bed, I love to journal, and do my best thinking. In bed, I find the comfort of the squishy mattress, and the soft sheets. I love the feel of my head on the pillow in the dark, while writing in the journal. While writing, the sun shines through the window, and I can hear the geese calls.
+
 ## Write about someone, living or dead, who you would you like to have back in your life. ##
 I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, amke decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibracny in the world. Every voice is vital in the light, and every life is vital in the light.
 
 ## What makes you feel humble? ##
 Feeling rejected makes me feel humble. At a low moment of feeling rejected and humiliated, one must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me umble and helps me to grow in other ways.
 
-## If you had the opportunity to write as a career, what would youw write? ##
+## If you had the opportunity to write as a career, what would you write? ##
 In a career, I would love to write a book about unity and oneness, and the power of the people. I would also love to write music. In a writing career, I would love to take the emphasis off of self and put the emphasis on Soul. I love the work she is showing on social media.
 
 ## What traffic sign best refelcts your life right now? ##
