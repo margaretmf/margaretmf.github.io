@@ -1218,6 +1218,79 @@ Michelle Colligan Johnson is a Louisiana-based fine art photographer, best known
 Candace Mitchell and Chanel Martin are the duo behind the beauty technology company, Myavana. Based in Atlanta, Georgia, the company analyzes hair textures to research and recommend hair products. Mitchell and Martin met at Georgia Tech while completing their engineering degrees. Chanel Martin is also a brand strategist where she teaches entrepreneurs how to launch small businesses. In 2016, Forbes featured Candace Mitchell in its annual 30 under 30 list. Myavana has been featured in a number of publications including EBONY, Essence, and Black Enterprise. Martin and Mitchell have also appeared on The Real and at Essence Fest"
 
 ## [Black Lives Matter - Racial Politics](https://www.hf.uio.no/ilos/english/research/news-and-events/news/2020/black-lives-matter) ##
+"Through their work, African American writers tell the story of how power and whiteness are connected in American politics, says Professor Rebecca Scherr.
+
+'Racial politics are at the center of the ongoing election campaign,' says Rebecca Scherr, professor of American Literature at the University of Oslo.  
+
+However, this is nothing new, she points out. 
+
+'You can't really talk about American history and politics without understanding the history of race and racism in America. It is not possible to separate the history of slavery and racism and the taking over of native peoples’ lands from how America has developed as a country, or from its own ideas of itself and its own myths.'
+
+Professor Scherr researches and teaches multicultural American literature and studies how writers of minority background, whether African American, Native American, migrants or queer, comment on American society and culture. She believes that literature contributes to a better understanding of the current tensions in the US. 
+
+'In literature, there is a way of seeing the past, the present and the future that is in tune with reality and not a mythologizing of the nation.'
+
+Following the murder of George Floyd on May 25th, protests against police brutality spread all over the US and to the rest of the world. The Black Lives Matter movement experienced a surge in scope and importance. Many allies of the movement seized the opportunity to promote literature as a source of knowledge about black lives.  
+
+'This is something that has happened many times before. The history of black people and the police goes back to the founding of the United States. And literature can actually help you map that long history and to see this as not just what's happening in this moment.'
+
+A significant contemporary black intellectual, and a writer Scherr comes back to again and again, is Ta-Nehisi Coates. He had his international breakthrough with the non-fictional book Between the world and me in 2015. In it, he addresses police violence in the aftermath of the killing of 18-year old Michael Brown in 2014. 
+
+'Coates writes to his son, a young black American male whose life could be taken by the police at any moment just because of the color of his skin. He shows how police brutality and police killing of African American people especially affects men, and that class status doesn’t matter' 
+
+Scherr thinks Coates hit a nerve in the American public.  
+
+'He is able to communicate in such a beautiful way the psychological depths that create this American system of inequality that has been going on for a very long time.' 
+
+When Ta-Nehisi Coates was invited to be the guest editor of the September issue of the magazine Vanity Fair, he dedicated the entire edition to texts on Black Lives Matter. The cover features Breonna Taylor, the 26-year old African American woman who was killed by the police in March 2020.
+
+'A lot of areas are now being critiqued for making black lives invisible, from the fashion industry to school curricula. This is bringing up dozens of discussions about representation. The connection between representation and politics is super interesting, because of how power intersects with who gets represented, and in what way.'
+
+Coates’ title Between the world and me is a quote from James Baldwin, a writer central to the civil rights movement. Black Lives Matter has spurred a renewed interest in Baldwin. According to Scherr, he holds a special place in American literature. 
+
+'First of all, he is an astonishing writer. No one can write like him, in terms of skill. He speaks to the heart of the matter and uses rhetoric, sentences, words, imagery in the most powerful way. He is also incredibly quotable, and you don't forget what he has to say,' she says. 
+
+In his novels Another Country and Go tell it on the mountain, but even more vividly in essay collections such as The fire next time, Baldwin, like Coates, conveys the visceral experience of racism. As a black gay man, he can address oppression along several lines. However, according to Scherr, his most important project is to identify a racist societal structure. 
+
+'He was really one of the first to beautifully turn the logic around and show white people that racism is about their fear and their hatred. That it is really about them and their power and that black people suffer because of that.'  
+
+Scherr believes that Baldwin’s public persona still inspires today.  
+
+'He embodied fearlessness in what he chose to talk and write about: not just about race, but about sexuality. I think that kind of fearlessness represents something that people want to emulate today.'
+
+In turning the mirror on white Americans, Baldwin showed the power of whiteness. This is central in critical race studies, a tradition Rebecca Scherr applies in her research and teaching. Within this field, especially within the sub-field Whiteness studies, she finds tools to explain how racism works.  
+
+'Oftentimes, when we think about racism, especially here in Norway, we think of individual acts of racism. So, I say something to you that's really stupid and racist. There is not necessarily a discussion about why what I'm saying is racist, where it comes from and how it comes from a larger system.' 
+
+Scherr believes that tools from critical race theory can be used to reflect on these structures, in order to see the bigger picture. She highlights Peggy McIntosh’ famous essay 'White Privilege: Unpacking the invisible knapsack' from 1989. 
+
+'What McIntosh shows, is that the entire system is predicated on sometimes a very visible whiteness and sometimes a very invisible whiteness. It is created in ways that are made to privilege people of a certain color up against others. If whiteness becomes the norm against which other things are measured, the thing that's not remarked upon - that's how power perpetuates itself.'
+
+When teaching about race and critical race theory, Scherr often sees a lot of uncomfortable emotions and guilt welling up.  
+
+'I think that speaking about whiteness as part of a system is also a way of removing guilt. It is important to be aware of privilege and to see how it functions in a multicultural society. Once you know about it, you can address it and do something about it.' 
+
+In the US, ideas of individual freedom and the ideal of the self-made man are strong. Anyone can reach the top as long as he or she works hard enough. Critical race theory can help crush what McIntosh calls the myth of meritocracy, Scherr argues. 
+
+'A lot of people have criticized the idea of meritocracy and pointed out that it helps to be white. You will have more barriers to moving into certain spaces and places based on your skin color, your gender, your country of origin and so forth.'
+
+When Barack Obama was elected president in 2008, he both confirmed and challenged this myth.  
+
+'He had to be four times as good to be able to get to where he got. If Obama had done even the tiniest sliver of a fraction of anything that Trump has done, I cannot imagine he would have had a chance.' 
+
+She refers to Ta-Nehisi Coates’ essay 'The first white president', where he comments that what Trump can get away with and still be president, emphasizes the connection between whiteness and power.  
+
+'It is so obvious now that Trump is a representative of white supremacy. He is not even subtle about it any longer. From saying that there are good people on both sides after Charlottesville, to how he is now calling protesters violent extremists and Antifa-people, and sending federal troops into local areas, basically to put down black people.' 
+
+Trumps opponent, Joe Biden, also represents white America, but according to Professor Scherr he is a completely different candidate.  
+
+'He is clearly not the best or most representative candidate for African Americans. However, he has eight years’ experience of working close to Obama, and at least he did choose Kamala Harris as his running mate. He is also trying, in his way, to show that he is aware of the conversation on race that is happening now.'
+
+Rebecca Scherr believes Black Lives Matter has been instrumental in putting race at the center of the election campaign. Today’s movement is supported by a majority of the voters, unlike the civil rights movement in the 1960s.  
+
+'In 68, white people were against the movement. Today, there are black people, other people of color, as well as white people, who are participating in unprecedented numbers and across the world, not just in America. Hopefully, that can translate to an increased awareness of the systemic racism in America and in other parts of the world.'
+
+'If enough people will step up and get out to vote, I think that something can happen. With this kind of momentum, I hope Black Lives Matter can contribute to voting Trump out of office.'" 
 
 ## [Essence: Black Perspectives](https://www.aaihs.org/essence-as-archive-on-the-occasion-of-its-golden-anniversary/?utm_source=rss) ##
 
@@ -1249,7 +1322,6 @@ Valerie Grim's essay similarly demonstrates the importance of black culture and 
 
 
 "Where Coclanis and Simon highlight the individual rationality of rural African Americans' decisions to stay on the land, the essays by William P. Browne and Jeannie Whayne demonstrate the constraints placed on their ability to remain in agriculture. In both cases, the focus is on the importance of state actors in imposing these constraints. Whayne's detailed essay on the work of black Extension Service agents sheds important light on the impulse to modernize southern agriculture. Drawing on the model of subaltern studies developed by historians of South Asia and Latin America, Whayne argues that black agents were subalterns who served as intermediaries between the state and black farmers. Unlike the subalterns of colonial India, who often used their position to negotiate the demands of colonial authority, black farm agents found themselves increasingly in line with the state's designs for rationalized, modernized agriculture and out of touch with the demands of black agriculturalists. By rejecting calls from groups like the STFU for reform and pushing black farmers to modernize--a goal they believed would allow them to maintain a living in a modern agricultural world--agents actually set them up to fail in a world of agricultural production that demanded they get bigger or get out."
-
 
 "All told, these essays provide a helpful starting point for understanding African-American life in the rural South. Those teaching undergraduate or graduate courses in southern, rural, or African-American history will find that they are useful not only for providing an understanding of rural life, but also for spurring research. For, while the essays are strong, each contains enough lacunae to warrant further, localized studies."
 
@@ -1304,9 +1376,9 @@ Although certain symbols, marks, and letters customarily represent quantities an
 
 "The exclusionary dominance of the White cowboy as a representative of the West in rodeo depictions and as portrayed in dime novels, film, and folklore is that he is believed to be anyone: that person any White Anglo Saxon Protestant (WASP) male could become."
 
-"He is not complicated in his white/black binary vision of the world; you are either good or bad and the judgment coms from his 'correct' attitudes, beliefs, and values, which are ideals found within the cowboy culture and code - the Code of the West. He symbolizes the possibility of what can be achieved thorugh a hard work ethic and through traditional gender roles that reinforce Victorian ideals of White womanhood, e.g., a helpless virginal damsel in distress who needs the protection and direction of a strong man to react against any transgression committed against her. Our hero in this Western White myth is complete with his leathered face and Western drawl. He is armed with is trusty six-shooter, while keeping an eye out for American Indians. '[The] Anglo-Saxon cowboy and the Red Indian emerged as convenient action heroes. These simplified stick figures propagated a frontier mythology that hid both the systemic violence of conquest and the modern incorporation of land and labor. Cowboy hats and warrior headdresses obscured the complex racial politics of the United States and created instead a ronatic duel of white against red.' From this duel of reductionist cowboy ideals, race, and land emerged an American iconic myth (the cowboy) that is actually a conglomeration of 'White conquering West' rhetoric, media fascination, and myths - like the explorations of Daniel Boone - which loomed larger than life. The myths of man besting beast carried over into the rodeo cowboy arena."
+"He is not complicated in his white/black binary vision of the world; you are either good or bad and the judgment comes from his 'correct' attitudes, beliefs, and values, which are ideals found within the cowboy culture and code - the Code of the West. He symbolizes the possibility of what can be achieved through a hard work ethic and through traditional gender roles that reinforce Victorian ideals of White womanhood, e.g., a helpless virginal damsel in distress who needs the protection and direction of a strong man to react against any transgression committed against her. Our hero in this Western White myth is complete with his leathered face and Western drawl. He is armed with is trusty six-shooter, while keeping an eye out for American Indians. '[The] Anglo-Saxon cowboy and the Red Indian emerged as convenient action heroes. These simplified stick figures propagated a frontier mythology that hid both the systemic violence of conquest and the modern incorporation of land and labor. Cowboy hats and warrior headdresses obscured the complex racial politics of the United States and created instead a ronatic duel of white against red.' From this duel of reductionist cowboy ideals, race, and land emerged an American iconic myth (the cowboy) that is actually a conglomeration of 'White conquering West' rhetoric, media fascination, and myths - like the explorations of Daniel Boone - which loomed larger than life. The myths of man besting beast carried over into the rodeo cowboy arena."
 
-"The cowboy represents the taming of the forces of North American civliziation. In the arena, these great forces clash. The cowboy hero attempts to 'tame the wild...'"
+"The cowboy represents the taming of the forces of North American civlization. In the arena, these great forces clash. The cowboy hero attempts to 'tame the wild...'"
 
 "Wister's novel went through 'fifteen printings during the first eight months after its publication; by 1911 it was in its thirty-eight printing. By 1938, it had sold more than one and one-half million copies.'"
 
@@ -1320,7 +1392,7 @@ Although certain symbols, marks, and letters customarily represent quantities an
 
 "Amazon" - "cowgirls"
 
-"Free fromt he confines of the corset, cowgirls were seen as powerful, as talented, and with fewer restrictions placed upon them. The transition from a Victorian Ideal in the East to a free-spirited lifestyle in the West was embraced wholeheartedly by the cowgirls in the arean;a the media and the society, however, were less willing to give up on the feminine side of cowgirls. Media stories highlighted the cowgirls' achievements, but also made sure to mention their domesticity in order to appease women in the East and all men's notions of 'true' womanhood."
+"Free from the confines of the corset, cowgirls were seen as powerful, as talented, and with fewer restrictions placed upon them. The transition from a Victorian Ideal in the East to a free-spirited lifestyle in the West was embraced wholeheartedly by the cowgirls in the arean;a the media and the society, however, were less willing to give up on the feminine side of cowgirls. Media stories highlighted the cowgirls' achievements, but also made sure to mention their domesticity in order to appease women in the East and all men's notions of 'true' womanhood."
 
 "the flapper", "this new woman of the 1920s"
 
