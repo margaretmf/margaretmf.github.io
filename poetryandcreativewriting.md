@@ -65,10 +65,7 @@ Regular books promote children's intelelct and emotional capacity better. I thin
 Genueine compsasion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
 
 ## What makes you feel humble? ##
-Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purifeid, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
-
-## If you had the opportunity to write as a career, what would you write? ##
-In a career, I would love to write a book about unity and oneness, and the power of the people. I would also lvoe to write music. In a writing career, I would love to take the emphasis off self and put the emphasis on Soul. I lvoe the work she is showing on social media.
+Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
 
 ## As a kid, what job did you dream you would have as an adult? What job do you have now/ ##
 Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
@@ -81,9 +78,6 @@ In bed, I love to journal, and do my best thinking. In bed, I find the comfort o
 
 ## Write about someone, living or dead, who you would you like to have back in your life. ##
 I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, amke decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibracny in the world. Every voice is vital in the light, and every life is vital in the light.
-
-## What makes you feel humble? ##
-Feeling rejected makes me feel humble. At a low moment of feeling rejected and humiliated, one must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me umble and helps me to grow in other ways.
 
 ## If you had the opportunity to write as a career, what would you write? ##
 In a career, I would love to write a book about unity and oneness, and the power of the people. I would also love to write music. In a writing career, I would love to take the emphasis off of self and put the emphasis on Soul. I love the work she is showing on social media.
