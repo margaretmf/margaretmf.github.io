@@ -42,6 +42,9 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## What is a priority for you right now? ##
+Disciplining thought and speech on social media and in interaction with people seems to be a prioirty. Social media, a virtual place where temptations to compare, stalk, harass lurk. Social media, a virtual place with beautiful imagery and intellectual conversations. It's good to go outside, run, skip, and take a break from social media.
+
 ## If you had a 'do-over' button, what one event in your life would you like to have a second chance at? ##
 If I had a 'do-over' button, over a year ago, I would never have sent the letter with the guns and the gun emojis. Instead I would have continued to appreicate the African Americans and people in my life expressing love. I am grateful for freedom and trust expressed with African Americans, and spiritual guidance to understand Malcolm X's vision for racial harmony. I would not have sent the awful letter and awful notes, and I am grateul for an interracial society and freedom to feel connected with all of humanity at once.
 
@@ -126,7 +129,7 @@ Once, I was fighting within so much that I broke everything in my house. It was 
 Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
 
 ## What has made you angry this week? ##
-All of the emphasis on self, comparing, and competing made me feel angry. Feeling rejected, teased, and mocked made me feel inferior. It feels like none of my work never measures up. Other people look like opera divas whle people tell me I have seemed high maintenance, like an opera diva when I can't fully express myself, and like I have a fragile ego underneath.
+All of the emphasis on self, comparing, and competing made me feel angry. Feeling rejected, teased, and mocked made me feel inferior. It feels like none of my work never measures up. Other people look like opera divas while people tell me I have seemed high maintenance, like an opera diva when I can't fully express myself, and like I have a fragile ego underneath.
 
 ## Struggling vs. Suffering ##
 Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
@@ -369,6 +372,12 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Alone ##
+On the outside, looking in.
+Expect someone on the inside to reach their voice, their hand out and invite them in.
+The light refects through everyone.
+Everyone reflects, sees, knows, and shares the light.
+
 ## God Never Fails ##
 Just when you feel like you/I have failed, God moves in a miraculous way through a vision, a song, an insight, a friendly neighbor, a job, an act of forgiveness.
 God is always bringing us closer to our family, first individually, and then collectively.
@@ -947,10 +956,10 @@ What is a wrong desire?
 A wrong desire leads to frustration, roadblocks, anger, and strife.
 
 ## I AM ##
-I’m a graduate of UVA. 
-I’m a breakthrough thinker.
-I’m a community member. 
-I’m a musician. 
+I am a graduate of UVA. 
+I am a breakthrough thinker.
+I am a community member. 
+I am a musician. 
 I am a church member.
 I am studious. 
 I am organized. 
