@@ -42,6 +42,22 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## If you had a 'do-over' button, what one event in your life would you like to have a second chance at? ##
+If I had a 'do-over' button, over a year ago, I would never have sent the letter with the guns and the gun emojis. Instead I would have continued to appreicate the African Americans and people in my life expressing love. I am grateful for freedom and trust expressed with African Americans, and spiritual guidance to understand Malcolm X's vision for racial harmony. I would not have sent the awful letter and awful notes, and I am grateul for an interracial society and freedom to feel connected with all of humanity at once.
+
+## Write a letter to someone you see every day. ##
+I see myself every day, and I was severely bullied and excluded in school.
+
+Dear Margaret,
+
+It is not God's will for you to be in this much pain, and this isolated at school, on the bus, at lunch, and elsewhere. All of the people around you express the light, and God always leads to the right relationships.
+
+Love,
+Margaret
+
+## Write a one-minute 'Thank You' note to someone. ##
+"Thank you" Nate Jones for helping me grow spiritually and be free. Thank you for your spiritual maturity, awareness, ability to overcome challenges, and love of humanity. Thank you for the love of your daughers and the love of people. I am happy for your new opportunity in North Carolina. God is leading everyone at once.
+
 ## There is a strong current trend among kids to read comic books or graphic novels instead of regular books. What do you think about that? ##
 Regular books promote children's intelelct and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
 
