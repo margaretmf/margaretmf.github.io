@@ -7,7 +7,6 @@ layout: default
 ### Books
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
-* [Hatchet](https://www.amazon.com/Hatchet-Gary-Paulsen/dp/1416936475/ref=sr_1_1?dchild=1&keywords=hatchet&qid=1614349379&s=books&sr=1-1) by Gary Paulsen
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
@@ -16,6 +15,9 @@ layout: default
 * [The Indian in the Cupboard](https://www.amazon.com/Indian-Cupboard-Lynne-Reid-Banks/dp/0375847537) by Lynne Reid Banks
 * [Mandy](https://www.amazon.com/Mandy-Julie-Andrews-Collection-Edwards/dp/0061207071/ref=asc_df_0061207071/?tag=hyprod-20&linkCode=df0&hvadid=312105353883&hvpos=&hvnetw=g&hvrand=7978791921471299724&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-493103181784&psc=1) by Julie Andrews Edwards
 * [West Virginia: A History](https://www.amazon.com/WEST-VIRGINIA-HISTORY-John-Williams/dp/0937058564/ref=sr_1_2?dchild=1&keywords=west+virginia+a+history&qid=1614032265&sr=8-2) by John Alexander Williams
+* [Counterfeit Gods: The Empty Promises of Money, Sex, and Power, and the Only Hope that Matters](https://www.amazon.com/Counterfeit-Gods-Empty-Promises-Matters/dp/1594485496) by Timothy Keller
+* [Hatchet](https://www.amazon.com/Hatchet-Gary-Paulsen/dp/1416936475/ref=sr_1_1?dchild=1&keywords=hatchet&qid=1614349379&s=books&sr=1-1) by Gary Paulsen
+* [My Side of the Mountain](https://www.amazon.com/Side-Mountain-Puffin-Modern-Classics/dp/0142401110/ref=sr_1_1?dchild=1&keywords=my+side+of+the+mountain&qid=1616341423&s=books&sr=1-1) by Jean Craighead George
 
 
 ## 2020
