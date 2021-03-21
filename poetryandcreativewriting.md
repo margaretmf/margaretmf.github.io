@@ -42,6 +42,19 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## What compliments have people given you? ##
+(1) I have a good smile
+(2) I have a good laugh, and sense of humor
+(3) I am intellectual
+(4) I am friendly, like most Southerners
+(5) I seem focused on the high goal even when upset, working through adversity, and addressing challenges
+
+## Who was your favorite band or singer when you were young? ##
+My favorite bands were U2 and Coldplay. I lvoe U2's song, "It's a Beautiful Day". There's light refelcted in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
+
+## If you had a child who had done something very wrong, such as stealing, how would you punish them? ##
+If a child of mine had done something wrong, I would correct them and help them understand why committing that wrong is wrong. I would not make them feel ashamed of themselves; but rather, I would guide them to better ways of being and show them alternatives. I would punish them by showing another way of being, and ask them to reflect on the wrong, how they can be better, and why. I would trust that God is supplying all the childs needs through a righteous approach.
+
 ## What is a priority for you right now? ##
 Disciplining thought and speech on social media and in interaction with people seems to be a prioirty. Social media, a virtual place where temptations to compare, stalk, harass lurk. Social media, a virtual place with beautiful imagery and intellectual conversations. It's good to go outside, run, skip, and take a break from social media.
 
