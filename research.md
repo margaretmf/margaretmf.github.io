@@ -798,6 +798,8 @@ Small chivalrous acts like opening a door for a woman are symbolic ways for a ma
 
 In a gender-neutral modern world, chivalric acts are non-onerous rituals that faintly echo our relationship to each other when all the layers of civilization are stripped away; they serve to remind us that we need and should respect, appreciate and quite frankly enjoy each other."
 
+## [A Man's Gotta Do: Myth, Misogyny and Otherness in Post-9/11 America](https://etd.ohiolink.edu/apexprod/rws_etd/send_file/send?accession=bgsu1340022877&disposition=inline) ##
+
 ## [From Southern Ladies to She-Rebels](http://www.pbs.org/mercy-street/blogs/mercy-street-revealed/from-southern-ladies-to-she-rebels-young-women-in-the-confederate-south/) ##
 
 ## [From Damsel in Distress to Active Agent: Female Agency in Children's and Young Adult Fiction](https://ir.library.louisville.edu/cgi/viewcontent.cgi?article=3716&context=etd) ##
