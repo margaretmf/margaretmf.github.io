@@ -1311,6 +1311,61 @@ Rebecca Scherr believes Black Lives Matter has been instrumental in putting race
 
 'If enough people will step up and get out to vote, I think that something can happen. With this kind of momentum, I hope Black Lives Matter can contribute to voting Trump out of office.'" 
 
+## [African Americans, Arabs, and Algebra](https://www.bbc.com/future/article/20201204-lost-islamic-library-maths) ##
+"Centuries ago, a prestigious Islamic library brought Arabic numerals to the world. Though the library long since disappeared, its mathematical revolution changed our world.
+
+The House of Wisdom sounds a bit like make believe: no trace remains of this ancient library, destroyed in the 13th Century, so we cannot be sure exactly where it was located or what it looked like.
+
+But this prestigious academy was in fact a major intellectual powerhouse in Baghdad during the Islamic Golden Age, and the birthplace of mathematical concepts as transformative as the common zero and our modern-day 'Arabic' numerals.
+
+Founded as a private collection for caliph Harun Al-Rashid in the late 8th Century then converted to a public academy some 30 years later, the House of Wisdom appears to have pulled scientists from all over the world towards Baghdad, drawn as they were by the city’s vibrant intellectual curiosity and freedom of expression (Muslim, Jewish and Christian scholars were all allowed to study there).
+
+An archive as formidable in size as the present-day British Library in London or the Bibliothèque Nationale of Paris, the House of Wisdom eventually became an unrivalled centre for the study of humanities and sciences, including mathematics, astronomy, medicine, chemistry, geography, philosophy, literature and the arts – as well as some more dubious subjects such as alchemy and astrology.
+
+To conjure this great monument thus requires a leap of imagination (think the Citadel in Westeros, or the library at Hogwarts), but one thing is certain: the academy ushered in a cultural Renaissance that would entirely alter the course of mathematics.
+
+The House of Wisdom was destroyed in the Mongol Siege of Baghdad in 1258 (according to legend, so many manuscripts were tossed into the River Tigris that its waters turned black from ink), but the discoveries made there introduced a powerful, abstract mathematical language that would later be adopted by the Islamic empire, Europe, and ultimately, the entire world.
+
+'What should matter to us is not the precise details of where or when the House of Wisdom was created,' says Jim Al-Khalili, a professor of physics at the University of Surrey. 'Far more interesting is the history of the scientific ideas themselves, and how they developed as a result of it.'
+
+Tracing the House of Wisdom’s mathematical legacy involves a bit of time travel back to the future, as it were. For hundreds of years until the ebb of the Italian Renaissance, one name was synonymous with mathematics in Europe: Leonardo da Pisa, known posthumously as Fibonacci. Born in Pisa in 1170, the Italian mathematician received his primary instruction in Bugia, a trading enclave located on the Barbary coast of Africa (coastal North Africa). In his early 20s, Fibonacci traveled to the Middle East, captivated by ideas that had come west from India through Persia. When he returned to Italy, Fibonacci published Liber Abbaci, one of the first Western works to describe the Hindu-Arabic numeric system.
+
+When Liber Abbaci first appeared in 1202, Hindu-Arabic numerals were known to only a few intellectuals; European tradesmen and scholars were still clinging to Roman numerals, which made multiplication and division extremely cumbersome (try multiplying MXCI by LVII!). Fibonacci’s book demonstrated numerals’ use in arithmetic operations – techniques which could be applied to practical problems like profit margin, money changing, weight conversion, barter and interest. 
+
+'Those who wish to know the art of calculating, its subtleties and ingenuities, must know computing with hand figures,' Fibonacci wrote in the first chapter of his encyclopedic work, referring to the digits that children now learn in school. 'With these nine figures and the sign 0, called zephyr, any number whatsoever is written.' Suddenly, mathematics was available to all in a useable form.
+
+Fibonacci’s great genius was not just his creativity as a mathematician, however, but his keen understanding of the advantages known to Muslim scientists for centuries: their calculating formulas, their decimal place system, their algebra. In fact, Liber Abbaci relied almost exclusively on the algorithms of 9th-Century mathematician Al-Khwarizmi. His revolutionary treatise presented, for the first time, a systematic way of solving quadratic equations. Because of his discoveries in the field, Al-Khwarizmi is often referred to as the father of algebra – a word we owe to him, from the Arabic al-jabr, 'the restoring of broken parts'—and in 821 he was appointed astronomer and head librarian of the House of Wisdom.
+
+Scholars and translators at the library also took great pains to ensure that their work was accessible to the reading public
+Al-Khwarizmi’s treatise introduced the Muslim world to the decimal number system,' explains Al-Khalili. “Others, such as Leonardo da Pisa, helped transmit it across Europe.'
+
+Fibonacci’s transformative influence on modern maths was thus a legacy owed in great part to Al-Khwarizmi. And so two men separated by nearly four centuries were connected by an ancient library: the most celebrated mathematician of the Middle Ages stood on the shoulder of another pioneering thinker, one whose breakthroughs were made at an iconic institution of the Islamic Golden Age.
+
+Perhaps because so little is known about the House of Wisdom, historians are occasionally tempted to exaggerate its scope and purpose, giving it an mythic status somewhat at odds with the scant historical records left to us. 'Some argue that the House of Wisdom was nothing like as grand as it became in the eyes of many,' says Al-Khalili. 'But its association with men such as Al-Khwarizmi, with his work in mathematics, astronomy and geography, is for me strong evidence that the House of Wisdom was closer to a true academy, not just a repository of translated books.'
+
+Scholars and translators at the library also took great pains to ensure that their work was accessible to the reading public. 'The House of Wisdom is fundamentally important, as it’s through translations there – Arabic scholars who translated Greek ideas into the vernacular – that we formed the bedrock of our mathematical understanding' says June Barrow-Green, professor of history of mathematics at the Open University in the UK. The palace library was as much a window into numerical ideas from the past as it was a site of scientific innovation.
+
+Long before our current decimal system, the binary number system that programs our computers, before Roman numerals, before the system used by ancient Mesopotamians, humans were using early tally systems to record calculations. While we might find each of these imponderable or antiquated, differing numerical representations can actually teach us something valuable about structure, relationships, and the historical and cultural contexts from which they emerged.
+
+They reinforce the idea of place value and abstraction, helping us to better understand how numbers work. They show that 'the Western way wasn’t the only way', says Barrow-Green. 'There is a real value in understanding different numbers systems.'
+
+When an ancient trader wanted to write 'two sheep', for example, she could inscribe in clay a picture of two sheep. But this would be impractical if she wanted to write '20 sheep.' Sign-value notation is a system in which numeric symbols add together signify a value; in this case, drawing two sheep to represent the actual quantity.
+
+A global shift away from Roman numerals underscores a creeping innumeracy in other aspects of life
+A vestige of sign-value notation, Roman numerals somehow persisted despite the introduction of Al-Khwarizmi’s system, which relied on the position of digits to represent quantities. Like the towering monuments on which they were inscribed, Roman numerals outlived the empire that gave birth to them – whether by accident, sentiment or purpose, none can say for sure.
+
+This year marks the 850th anniversary of Fibonacci’s birth. It could also be the moment which threatens to undo the journeywork of Roman numerals. In the UK, traditional time-pieces have been replaced with easier-to-read digital clocks in school classrooms, for fear students can no longer tell analogue time properly. In some regions of the world, governments have dropped them from road signs and official documents, while Hollywood has moved away from using Roman numerals in sequel titles. The Superbowl famously ditched them for its 50th game, worried it was confusing fans.
+
+But a global shift away from Roman numerals underscores a creeping innumeracy in other aspects of life. Perhaps more important, the disappearance of Roman numerals reveals the politics that govern any wider discussion about mathematics.
+
+'The question of whose stories we tell, whose culture we privilege, and which forms of knowledge we immortalise into formal learning are inevitably influenced by our Western colonial heritage' says Lucy Rycroft-Smith, editor and developer at Cambridge Mathematics. A former maths teacher, Rycroft-Smith is now a leading voice in mathematics education, and studies differences across global curricula. While Wales, Scotland and Ireland do not include Roman numerals in their learning objectives, and the US has no standard requirements, England explicitly states that students must be able to read Roman numerals up to 100.
+
+Many of us will find nothing special about the figure MMXX (that’s 2020, if you’re unaware). We may dimly recognise Fibonacci for the famous pattern named after him: a recursive sequence that starts with 1 and is thereafter the sum of the two previous numbers.
+
+The Fibonacci sequence is certainly remarkable, showing up with astonishing frequency in the natural world – in seashells and plant tendrils, in the spirals of sunflower heads, in pine cones, animal horns and the arrangement of leaf buds on a stem, as well as the digital realm (in computer science and sequencing). His patterns often make their way into popular culture, too: in literature, film and visual arts; as a refrain in song lyrics or orchestral scores; even in architecture.  
+
+But Leonardo da Pisa’s most enduring mathematical contribution is something rarely taught in schools. That story begins in a palace library nearly a thousand years ago, at a time when most of Western Christendom lay in intellectual darkness. It is a tale that should dismantle our Eurocentric view of mathematics, shine a spotlight on the Islamic world’s scientific achievements and argue for the continued importance of numerical treasures from long ago." 
+
 ## [Essence: Black Perspectives](https://www.aaihs.org/essence-as-archive-on-the-occasion-of-its-golden-anniversary/?utm_source=rss) ##
 
 ## [Creating Digital Space for Black Scholarship](https://www.aaihs.org/creating-digital-space-for-black-scholarship/) ## 
