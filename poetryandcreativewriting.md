@@ -42,6 +42,17 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Write about a time you watched the sun rise. ##
+This morning, I wathced the sun rising in Norfolk, VA through the reflection shown in a car window. Watching the sun rise brings freshness to the day. The light causes people to want to rise up, learn something new, and contribute to humanity for another day. The sun will always rise in every corner of the Earth, for all people in all nations.
+
+## What do you think is the most important question in life? ##
+'How do I love someone?' and 'What am I learning?' are the two most important questions in life. Answers to these questions provide the motives for staying active, moving, and being. With love for someone, if not all of humanity throughout the day, there is vibrancy in and a cause for the day. With the desire to understand a topic or a concept, there is reason and a cause for each day. A life well-lived includes loving the people around, learnnig more about love and the reason for living, and creating something to support people.
+
+## What book do you wish you had written? What would you change in your version? ##
+A book I wish to write is one on the cultural influences on 'Made in America'. Many ideas, and engineering and mathematical concepts come from other countries - Scotland, Egypt, India, China, and Italy and Greece. It would be fun to write a book about the cultural influenes and 'Made in America'.
+## Write about a time you felt loved. ##
+Today, I have felt loved and fully forgiven inside. I feel so loved that it feels as if all the things wrong in my consciousness have been detached, and removed. I am grateful to feel the love from new friends and old friends. I am also grateful to feel the love for new friends and old. As the giving of love, so the receiving.
+
 ## What compliments have people given you? ##
 (1) I have a good smile
 (2) I have a good laugh, and sense of humor
