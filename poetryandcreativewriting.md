@@ -60,6 +60,9 @@ Today, I have felt loved and fully forgiven inside. I feel so loved that it feel
 (4) I am friendly, like most Southerners
 (5) I seem focused on the high goal even when upset, working through adversity, and addressing challenges
 
+## What do you have to do today that you really would rather not do? ##
+Looking for my passport feels like something I dread doing. It does not feel fun to search around for a passport; it feels like such a drag. Many items live on the to-do list, including this one, and this is the last I want to do. I drag my feet in doing it. Many items I'd rather do before it.
+
 ## Who was your favorite band or singer when you were young? ##
 My favorite bands were U2 and Coldplay. I lvoe U2's song, "It's a Beautiful Day". There's light refelcted in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
 
@@ -85,8 +88,17 @@ Margaret
 ## Write a one-minute 'Thank You' note to someone. ##
 "Thank you" Nate Jones for helping me grow spiritually and be free. Thank you for your spiritual maturity, awareness, ability to overcome challenges, and love of humanity. Thank you for the love of your daughers and the love of people. I am happy for your new opportunity in North Carolina. God is leading everyone at once.
 
+## Have you ever been significantly more or less physically fit than you are today? What was different about that? What was easier? Harder? Did others treat you any differently? ##
+In high school, I swam and rowed. As a member of the swimming and rowing teams, I became fit with six abs and a lean body. I felt significantly mroe fit then than I do now. It felt harder to maintain that fitness. I feel more confident about myself when rowing, and I was grateful for the experience. Now, I am not as fit, and it feels signfiicantly harder to return to the state I was in, but maybe I will someday return. I don't think others treated me differently, but I felt mroe confident with people.
+
+## What takes too long? ##
+Writing a paper takes too long. In college, it felt like what took some people to write a paper in 1 day took me 3-5 times as long. It was fun to write, but it felt like I never had time to enjoy socializing with people. Most work requires patience, time, and endurance, and persistence; however, ti felt painful when what took peers 1 day took me 3-5 days.
+
+## Do you prefer to read electronic books or paper books? Why? ##
+Paper books I lvoe to read. It feels like an amazing experience to go into a bookstore and look through all of the paper books. I love the physical experience of underlining key passages and taking notes.
+
 ## There is a strong current trend among kids to read comic books or graphic novels instead of regular books. What do you think about that? ##
-Regular books promote children's intelelct and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
+Regular books promote children's intellect and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
 
 ## What do you look for when deciding whether or not to date someone? ##
 Genueine compsasion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
