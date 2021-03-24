@@ -113,7 +113,7 @@ Feeling rejected makes me feel humble. At a low moment of feeling rejected and h
 Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
 
 ## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Woudl you live on the coast if you could, or is it better just for a visit? ##
-My family ventured out to the beach for the 4th of July. Young girls played in the sand with castles, shells, and waters. They loved the holiday, and their moms were ok with me waving at them. I lvoe the foaminess of the ocean. I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+My family ventured out to the beach for the 4th of July. Young girls played in the sand with castles, shells, and waters. They loved the holiday, and their moms were ok with me waving at them. I love the foaminess of the ocean. I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
 
 ## Where do you like to do your journaling? At a desk, in your bed, at the coffee shop? ##
 In bed, I love to journal, and do my best thinking. In bed, I find the comfort of the squishy mattress, and the soft sheets. I love the feel of my head on the pillow in the dark, while writing in the journal. While writing, the sun shines through the window, and I can hear the geese calls.
