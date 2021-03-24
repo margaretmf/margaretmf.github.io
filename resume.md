@@ -70,13 +70,15 @@ Children's Book Analyst
 * Read children's books, analyze the books, and create outlines to guide how to critically think about them
 
 ### VIBRANT WORLD
-Trends and News Reviewer, Data Science Project Application Reviewer, Blog Writer, Media Manager, Researcher, Sketcher, & Ideator | January 2019 - Present
+Trends and News Reviewer, Data Science Project Application Reviewer, Blog Writer, Media Manager, Researcher, Sketcher, Ideator, & Musician | January 2019 - Present
 * Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
 * Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
 * Manage over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
 * Research trends and organize design and systems research meetup groups to understand patterns, problems, and solutions
 * Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
-* Teaching myself to sketch in a notebook and see beauty in the world
+* Teach myself to sketch in a notebook and see beauty in the world
+* Record scraps from books in field notebooks for art ideas
+* Compose music on the piano
 
 ### EVERFI
 Data Analyst | April 2016 - January 2019
