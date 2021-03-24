@@ -18,6 +18,7 @@ layout: default
 * [Counterfeit Gods: The Empty Promises of Money, Sex, and Power, and the Only Hope that Matters](https://www.amazon.com/Counterfeit-Gods-Empty-Promises-Matters/dp/1594485496) by Timothy Keller
 * [Hatchet](https://www.amazon.com/Hatchet-Gary-Paulsen/dp/1416936475/ref=sr_1_1?dchild=1&keywords=hatchet&qid=1614349379&s=books&sr=1-1) by Gary Paulsen
 * [My Side of the Mountain](https://www.amazon.com/Side-Mountain-Puffin-Modern-Classics/dp/0142401110/ref=sr_1_1?dchild=1&keywords=my+side+of+the+mountain&qid=1616341423&s=books&sr=1-1) by Jean Craighead George
+* [Begin Again: Your Hope and Renewal Start Today](https://www.amazon.com/Begin-Again-Renewal-Start-Today/dp/1400226473) by Max Lucado
 
 
 ## 2020
