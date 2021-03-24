@@ -42,6 +42,9 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## In what way do you not fit in with the family you grew up with? ##
+Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
+
 ## Write about a time you watched the sun rise. ##
 This morning, I wathced the sun rising in Norfolk, VA through the reflection shown in a car window. Watching the sun rise brings freshness to the day. The light causes people to want to rise up, learn something new, and contribute to humanity for another day. The sun will always rise in every corner of the Earth, for all people in all nations.
 
