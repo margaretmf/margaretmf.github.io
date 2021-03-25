@@ -42,6 +42,21 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Think of a celebrity you would like to have dinner with. Write a note that just might catch that person's attention enough for him/ her to aggree to the dinner. ##
+It would be amazing to eat dinner with Taylor Swift. She's so in touch with the challenges in male-female relationships.
+
+Dear Taylor,
+
+You empower and inspire women so much. Thank you for your spunka nd expressiveness. I would love to eat with you, and learn about your creative process. Are you available?
+
+I appreciate your time.
+
+Love,
+Margaret
+
+## Where do you feel most like yourself? ##
+I feel most like myself while driving. I pray when I drive, lvoe all of my surroundings, and have good conversations with God. I lvoe the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
+
 ## In what way do you not fit in with the family you grew up with? ##
 Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
 
