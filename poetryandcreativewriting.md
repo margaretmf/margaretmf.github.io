@@ -42,6 +42,10 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
+## Come up with a mathematical formula to expres something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
+Music + Chai Tea = Love + Joy
+Rowing + Team Spirit = Oneness
+
 ## Think of a celebrity you would like to have dinner with. Write a note that just might catch that person's attention enough for him/ her to aggree to the dinner. ##
 It would be amazing to eat dinner with Taylor Swift. She's so in touch with the challenges in male-female relationships.
 
@@ -567,7 +571,7 @@ I love the good luck rushing through my great grandfather McCardell's Irish bloo
 I love the songs of peace "like a river" sung through my great grandmother.
 
 ## Gratitude List ##
-* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car.
+* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
 * Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
 * Grateful for the sound of the laundry machine.
 * Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
@@ -598,6 +602,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the first responders
 * Grateful for the man working with the USPS in the postal service
 * Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
+* Grateful for the construction sites
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -961,7 +966,7 @@ It's amazing, and beautiful how God led his people out of slavery. It's not God'
 
 ## Sprouting Up ##
 An idea from within sprouts up.
-It starts as a small seed of intuition reminding someone of something latent, a memory of the past, a tale in the family.
+It starts as a small seed of intuition reminding someone of something latent, a memory of the past, a story in the family.
 Cultivating a love for this small seed lets it grow into a greater reality.
 It grows and grows into its full self.
 The idea from within the home that's already there becomes a full garden, a full way of being.
@@ -1129,6 +1134,14 @@ In silence, there's space to stand aghast at and laugh at the ways people push p
 In silence, there's space to appreciate the mystery of it all, and enjoy the interconnectedness of Life.
 In silence, there's the opportunity to say no to the silent arguments masquerading through my thought.
 
+## Imagine ##
+Imagine a world where all 7.2 billion people look up to the same Sun smiling.
+Imagine a world where all 7.2 billion people are singing with their own tones.
+Imagine a world where all 7.2 billion people love one another.
+Imagine a world where all 7.2 people quickly forgive.
+The World would resound with light and sound.
+--All the coordinates, every localized place, people look up to the same Sun from different perspectives
+--People sing with their full hearts and sing their own tunes
 
 ----------
 
@@ -1301,6 +1314,11 @@ Relieved that I can fly freely with love and peace in my heart, and still sing m
 No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
 
+
+The lone bird flies high through the spring trees.
+The lone bird sits still on the electric write.
+The lone bird sits gracefully on the yellow driving sign.
+
 ## Fighting for Her Independence ##
 She lets go of the gun, and she lets the reign of Truth, Life, and Love in.
 
@@ -1350,11 +1368,13 @@ Our country is home to all, including the red, white, and blue,
 where we treat our enemies like brothers
 find the light in the darkness
 appreciate all the colors
-reach out to distant family members
-"lay low" after injuring a neighbor
-no on is superior, no one is inferior
 we are all individual, distinct
 contributing to the interdependence
+
+## The City We All Call Home ##
+This is the city we all call home.
+From the east to the west, from the north to the south we come here to sing.
+Each with our own song, our own story.
 
 ## The Union ##
 North, South, East, West.
@@ -1491,8 +1511,7 @@ I am glad to write with more order, grace, and punctuality.
 ## Opening Up, Anger, Strife ##
 Shoving the things down that I should not share.
 Feeling uncomfortable, embarassed, and over-exposed.
-But it's ok.
-I can rise up another day.
+It's ok... I can rise up another day.
 
 ## Industry 2.0 ##
 I am a highway girl.
@@ -3906,6 +3925,7 @@ Eisenhower's top military job was being a General. He was general during World W
 One other important quality helped Eisenhower's success. This was popularity. He was very popular throughout the country during his career. He was also popular as a child when Eisenhower was a young boy in school, he was really popular. He even had this popularity at school when his family was poor and couldn't pay for nice clothing. He was so popular that he became President of Abilene High School Athletic Association when he was in high school. People called Eisenhower 'Ike' there and everywhere else too. ANother example of popularity was that when he got back from Europe, he did so well that he was treated as though he killed Hitler himself. After he got back, he flew to England to go to a ceremony. The ceremony took place in London and he was invited by Winston Churchill. At the ceremony he received a key and he made a speech of acceptance, 'I am not a native of this land. I come from the very heart of America...' Another way that showed Eisenhower's populrarity is that he didn't really want to be president although he became president and served for two terms. He was forced into presidency because so many people wanted him to be president. He was successful as president. He helped the civil rights movement and helped blacks. One way is that he helped Ruby Bridges be able to safely be at an all white school. He made a difference in America by being president. He was forced into presidency because of his popularity and he was popular in numerous ways.
 
 Eisenhower was a fantastic leader. He wouldn't have become this great leader without being hard-working, creative, and popular. Eisenhower helped a lot in World War II. He helped end the war in victory for the Allies. As president, he was against discrimination. In Eisenhower's first inaugural address, he says 'The men who mine coal and fire furnaces and balance ledgers and turn lathes and pick cotton and heal the sick and plant corn- all serve proudly, and as profitably for America as the statemen who draft treaties and the legislator who enact laws.' Eisenhower was also a man who strived for world peace. He strived for world peace by two ways. One of the ways was by not wanting war. He tried to end the Korean War while president. He also wanted people to be equal and wanted people to help other people out. Eisenhower fulfilled many of his dreams and made a difference in the United States of America and in how our country is today."
+
 ## Popularity ##
 Popularity to me can be good or bad. It depends on who you are. If you were popular then I would say yes. If you weren't so popular I would say no because then those people sort of have to suffer. No matter whether you are popular or not you should always be nice to others. The dangers of popularity is that people get left out. Also, sometimes peopel who are very, very nice are unpopular when you think that they could be popular for how nice they are. I really, truly could go either way though.
 
