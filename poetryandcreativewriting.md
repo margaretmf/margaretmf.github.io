@@ -160,7 +160,7 @@ The best piece of advice people have given me is to forgive myself and others, a
 I think people succeed in life when they express patience in the process of doing the work and love for humanity in the day-to-day moments. Sometimes people do things and get lost in the wrong beliefs, chains, reactions, idols, and situations, but it's never too late to turn around a life and become better and succeed.
 
 ## What song is in your head right now, and why? ##
-A song in my head right now is one that i am producing on a new day. Through the song, I convey the light and nature in the world to wake up to. It feels light amidst all f the emotionally heavy things going on in the world, but I have been in situations helping people through the darkness. I have met people struggling to know how to live another day, and through the song running in my head and resounding in my heart, I desire to convey a sense of love and hope for the simple beauty going on beneath the suffering, and loss.
+A song in my head right now is one that I am producing on a new day. Through the song, I convey the light and nature in the world to wake up to. It feels light amidst all of the emotionally heavy things going on in the world, but I have been in situations helping people through the darkness. I have met people struggling to know how to live another day, and through the song running in my head and resounding in my heart, I desire to convey a sense of love and hope for the simple beauty going on beneath the suffering, and loss.
 
 ## Journey Writing ##
 ## Do you have a tattoo? What is it and why did you get it? If not, would you ever get one? What would the tattoo be, and what would it symbolize to you? ##
