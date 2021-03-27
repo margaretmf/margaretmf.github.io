@@ -59,7 +59,7 @@ Love,
 Margaret
 
 ## Where do you feel most like yourself? ##
-I feel most like myself while driving. I pray when I drive, lvoe all of my surroundings, and have good conversations with God. I lvoe the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
+I feel most like myself while driving. I pray when I drive, love all of my surroundings, and have good conversations with God. I love the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
 
 ## In what way do you not fit in with the family you grew up with? ##
 Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
@@ -71,7 +71,8 @@ This morning, I wathced the sun rising in Norfolk, VA through the reflection sho
 'How do I love someone?' and 'What am I learning?' are the two most important questions in life. Answers to these questions provide the motives for staying active, moving, and being. With love for someone, if not all of humanity throughout the day, there is vibrancy in and a cause for the day. With the desire to understand a topic or a concept, there is reason and a cause for each day. A life well-lived includes loving the people around, learnnig more about love and the reason for living, and creating something to support people.
 
 ## What book do you wish you had written? What would you change in your version? ##
-A book I wish to write is one on the cultural influences on 'Made in America'. Many ideas, and engineering and mathematical concepts come from other countries - Scotland, Egypt, India, China, and Italy and Greece. It would be fun to write a book about the cultural influenes and 'Made in America'.
+A book I wish to write is one on the cultural influences on 'Made in America'. Many ideas, and engineering and mathematical concepts come from other countries - Scotland, Egypt, India, China, and Italy and Greece. It would be fun to write a book about the cultural influences and 'Made in America'.
+
 ## Write about a time you felt loved. ##
 Today, I have felt loved and fully forgiven inside. I feel so loved that it feels as if all the things wrong in my consciousness have been detached, and removed. I am grateful to feel the love from new friends and old friends. I am also grateful to feel the love for new friends and old. As the giving of love, so the receiving.
 
@@ -86,7 +87,7 @@ Today, I have felt loved and fully forgiven inside. I feel so loved that it feel
 Looking for my passport feels like something I dread doing. It does not feel fun to search around for a passport; it feels like such a drag. Many items live on the to-do list, including this one, and this is the last I want to do. I drag my feet in doing it. Many items I'd rather do before it.
 
 ## Who was your favorite band or singer when you were young? ##
-My favorite bands were U2 and Coldplay. I lvoe U2's song, "It's a Beautiful Day". There's light refelcted in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
+My favorite bands were U2 and Coldplay. I lvoe U2's song, "It's a Beautiful Day". There's light reflected in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
 
 ## If you had a child who had done something very wrong, such as stealing, how would you punish them? ##
 If a child of mine had done something wrong, I would correct them and help them understand why committing that wrong is wrong. I would not make them feel ashamed of themselves; but rather, I would guide them to better ways of being and show them alternatives. I would punish them by showing another way of being, and ask them to reflect on the wrong, how they can be better, and why. I would trust that God is supplying all the childs needs through a righteous approach.
@@ -95,7 +96,7 @@ If a child of mine had done something wrong, I would correct them and help them 
 Disciplining thought and speech on social media and in interaction with people seems to be a prioirty. Social media, a virtual place where temptations to compare, stalk, harass lurk. Social media, a virtual place with beautiful imagery and intellectual conversations. It's good to go outside, run, skip, and take a break from social media.
 
 ## If you had a 'do-over' button, what one event in your life would you like to have a second chance at? ##
-If I had a 'do-over' button, over a year ago, I would never have sent the letter with the guns and the gun emojis. Instead I would have continued to appreicate the African Americans and people in my life expressing love. I am grateful for freedom and trust expressed with African Americans, and spiritual guidance to understand Malcolm X's vision for racial harmony. I would not have sent the awful letter and awful notes, and I am grateul for an interracial society and freedom to feel connected with all of humanity at once.
+If I had a 'do-over' button, over a year ago, I would never have sent the letter with the guns and the gun emojis. Instead I would have continued to appreciate the African Americans and people in my life expressing love. I am grateful for freedom and trust expressed with African Americans, and spiritual guidance to understand Malcolm X's vision for racial harmony. I would not have sent the awful letter and awful notes, and I am grateul for an interracial society and freedom to feel connected with all of humanity at once.
 
 ## Write a letter to someone you see every day. ##
 I see myself every day, and I was severely bullied and excluded in school.
@@ -117,7 +118,7 @@ In high school, I swam and rowed. As a member of the swimming and rowing teams, 
 Writing a paper takes too long. In college, it felt like what took some people to write a paper in 1 day took me 3-5 times as long. It was fun to write, but it felt like I never had time to enjoy socializing with people. Most work requires patience, time, and endurance, and persistence; however, ti felt painful when what took peers 1 day took me 3-5 days.
 
 ## Do you prefer to read electronic books or paper books? Why? ##
-Paper books I lvoe to read. It feels like an amazing experience to go into a bookstore and look through all of the paper books. I love the physical experience of underlining key passages and taking notes.
+Paper books I love to read. It feels like an amazing experience to go into a bookstore and look through all of the paper books. I love the physical experience of underlining key passages and taking notes.
 
 ## There is a strong current trend among kids to read comic books or graphic novels instead of regular books. What do you think about that? ##
 Regular books promote children's intellect and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
@@ -1142,6 +1143,7 @@ Imagine a world where all 7.2 people quickly forgive.
 The World would resound with light and sound.
 --All the coordinates, every localized place, people look up to the same Sun from different perspectives
 --People sing with their full hearts and sing their own tunes
+--I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
 
 ----------
 
@@ -1313,7 +1315,6 @@ Loving when I see someone new.
 Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
 No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
-
 
 The lone bird flies high through the spring trees.
 The lone bird sits still on the electric write.
