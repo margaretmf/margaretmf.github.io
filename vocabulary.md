@@ -20,3 +20,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Culture: ##
 * The arts and other manifestations of human intellectual achievement regarded collectively
 * The customs, arts, social institutions, and achievements of a particular nation, people, or other social group
+
+## Localize: ##
+* To make locally
+* To orient locally
+* To decentralize
