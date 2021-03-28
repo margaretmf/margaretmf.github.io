@@ -1279,7 +1279,7 @@ I got into trouble, I violated the boundary of the fraternity house that my dad 
 
 ## It's a Southern Thing ##
 The rural south seems insular.
-Women seem less educated, less cultured, and dependent on men.
+Women seem less educated, and dependent on men.
 People in the south seem racist.
 The society around them expects them to work strictly in education and nursing.
 The society around them expects them to become married and depend on men, and be less employed.
@@ -1317,7 +1317,7 @@ No song is too simple. No song is too advanced. All of humanity is singing a son
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
 
 The lone bird flies high through the spring trees.
-The lone bird sits still on the electric write.
+The lone bird sits still on the electric wire.
 The lone bird sits gracefully on the yellow driving sign.
 
 ## Fighting for Her Independence ##
@@ -1351,7 +1351,7 @@ but there's a golden light in her heart freed from the chains of people's opinio
 She may feel held back from understanding herself and expressing herself, but she can gain dominion over her heart.
 So much freedom is there for her ahead.
 There's a gigantic frontier of possibilities and internal peace.
-She's a lover of knowledge, and true education with a home full of books.
+She's a lover of knowledge, and true education with a home full of books and art.
 She has a heart for people that forgives and sings.
 A true woman she is, expressing ladylike qualities and poise like a true Queen indeed.
 
@@ -1381,7 +1381,7 @@ Each with our own song, our own story.
 North, South, East, West.
 We all stand in this union, 
 where everything is interconnected, 
-rising above the conflict, the chaos, the discordant beliefs, and the enslavement of man,
+rising above the conflict, the chaos, the discordant beliefs, and the enslavement and punishment of man,
 finding our common bond, the bridge to the other side, and the joy to love a neighbor another day.
 
 ## The Rose Within ##
@@ -1567,10 +1567,8 @@ Why is someone knowing everything about me when I have never met them?
 Why is someone using my information?
 
 ## Same Roads, New View ##
-I have driven down these roads before
-but I see them, the people, the homes in a new light.
-Everything grows richer, deeper, fuller, and more alive.
-I see the beauty, not the poverty.
+I have driven down these roads before, but I see them, the people, the homes in a new light.
+Everything grows richer, deeper, fuller, and more alive. I see the beauty, not the poverty.
 
 ## Looking Deeper, Looking Wider ##
 Looking deeper, looking wider, I find my home, and the truth within
@@ -1592,7 +1590,7 @@ I saw why people want to #MakeAmericaGreatAgain, but it has always been great an
 I never wanted to let this situation go
 Everything felt so close to home
 I had prayed for so long
-But I let it go and moved on
+I let it go and moved on
 
 ## It Starts At the Port ##
 It starts at the port.
@@ -1603,12 +1601,11 @@ There's a beautiful chain of freight traveling through the port cities and then 
 And some have American flags hanging in the windows.
 
 ## It All Started in Virginia ##
-It all started in Virginia.
+It all started in Virginia, the home of the virgin, native land.
 Some people chose liberty and traveled across the seas.
-They had no idea what they would discover, but they discovered some new land for the mark of freedom.
-Not everything was perfect when they discovered this new land.
-There were hypocrites, and there was violent behavior.
-But they launched the way for some pioneering people. // But the sail launched the ground landing for some pioneering people.
+They had no idea what they would discover, but they discovered some new land for freedom's mark.
+Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior.
+...But the sail and they launched the way for some pioneering people.
 
 ## From Port to Port ##
 From port to port the sun shines in every place from different angles.
@@ -1658,7 +1655,7 @@ No words are needed because the color and the youthfulness are in the sound boun
 ## The Agitation in America ##
 When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
 the American dream felt out of reach to people.
-The American dream is not lost. What is great about America remains in memory, waiting to be reborn. What is wrong baout America will be revisisted and retold.
+The American dream is not lost. What is great about America remains in memory, waiting to be reborn. What is wrong about America will be revisited and retold.
 America, founded on a rock, will always represent freedom to humanity.
 Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun.
 What's great about America remains great. 
@@ -1701,7 +1698,8 @@ They support their kids.  [Seeing Integration, Reconstruction's Effects]
 They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
 They lead teams at work. [Seeing Integration, Reconstruction's Effects]
 They built our country. [Seeing Integration, Reconstruction's Effects]
-They have beautiful names. [Seeing Integration, Reconstrution's Effects]
+They have beautiful names. [Seeing Integration, Reconstruction's Effects]
+They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
 They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
 They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
 
@@ -1716,7 +1714,7 @@ It's a place to express love, and appreciation, and meet people from a distance.
 It's a place to see the beauty, and childlike grace, and innocence expressed in everyone.
 People express joy in amazing ways and share that with everyone online.
 
-But why open up so much to strangers from a distance?
+...but why open up so much to strangers from a distance?
 Use wisdom, carefulness, and caution. Don't be someone from the outside looking in through the window you should not look through.
 
 Be someone on the inside, being safe, being a friend to those you know.
