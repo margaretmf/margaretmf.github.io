@@ -897,6 +897,8 @@ It is this profound cleavage between the democratic and the aristocratic sets of
 
 The other day as I was leaving Woolworth’s in a small Southern town, an old gentleman of the planter breed, more than a generation my senior, started to enter. Unfortunately at that very moment a number of flappers started out. The old man stood back, holding the door open. I counted over twenty people, men and women, who rushed past him without a word. I shall always treasure the memory of his smile. The pigs were in the parlor, and he had the courage to smile! It would be more worthwhile for us Americans, Northerners and Southerners, to study that smile than to read the riddle of the Sphinx. Regardless of culture."
 
+## [The Evolving Southern Gothic: Traditions of Racial, Gender, and Sexual Horror in the Imagined American South](https://oaktrust.library.tamu.edu/bitstream/handle/1969.1/155404/COTHREN-DISSERTATION-2015.pdf?isAllowed=y&sequence=1) ##
+
 ## [Gender, Power, and Whiteness in Rodeo: Breaking Away from the Ties of Sexism and Racism](https://books.google.com/books?id=xcjq7_dG1RYC&pg=PA7&lpg=PA7&dq=cowboys+west+damsels+in+distress+south&source=bl&ots=pYgLRHxQl4&sig=ACfU3U3Zx-kziU3AmBTgdPzgksPsmq6ZwA&hl=en&sa=X&ved=2ahUKEwj1_Lj8ooHvAhU2MlkFHaWmB0UQ6AEwEXoECBAQAw#v=onepage&q=cowboys%20west%20damsels%20in%20distress%20south&f=false) ##
 "When I was a little girl, in the mid-1950s, I wanted more than anything than to be a cowgirl."
 
