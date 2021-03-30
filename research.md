@@ -68,9 +68,9 @@ we have found a property in West Tennessee that could not be more perfect. down 
 our objectives ::
 
 - offer retreats and residencies to organizers, activists, and artists; a space to rest, heal, and create while living in right relationship with the Earth
-- provide healing and learning experiences to people in the Mississippi Delta/ West Tennessee region
+- provide healing and learning experiences to people in the Mississippi Delta / West Tennessee region
 - expand collective imagination through experiments in liberatory living"
-- 
+
 ## [The Concept of Scientific History](https://www.jstor.org/stable/2504255?seq=1) ##
 "History, according to Aristotle, is an account of what individual human beings have done and suffered. More widely still, history is what historians do. Is history, in this sense, a science, as, let us say, physics or biology or psychology are sciences? And if not, should it seek to be one? And if it fails to be one, what prevents it? Is this due to human weakness, or to the nature of the subject, or does the very problem rest on a confusion between the concept of history and that of natural science? These have been questions that have occupied the minds of both philosophers and philosophically minded historians at least since the beginning of the nineteenth century, when men became self-conscious about the purpose and logic of their intellectual activities. But two centuries before that, Descartes had already denied to history any claim to be a serioius study. Those who accepted the validity of the Cartesian criterion of what constitutes rational method could (and did) ask how they could find the clear and simple element could find the clear and simple elements of which historical judgments were composed, and into which they could be analysed; where were the definitions, the logical transformation rules, the rules of inference, the rigorously deduced conclusions?  While this confused amalgam of memories and travelers' tales, fables and  and chroniclers' stories, moral reflections and gossip, might be a harmless pastime, it was beneath the dignity of serious men seeking what alone is worth seeking - the discovery of the truth in accordance with the principles and rules which alone guarantee scientific validity. 
 
