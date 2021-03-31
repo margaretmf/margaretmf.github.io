@@ -25,3 +25,6 @@ Something exists in consciousness. The image in mind has not been consciously co
 * To make locally
 * To orient locally
 * To decentralize
+
+## Architect: ##
+* To design, configure, and construct
