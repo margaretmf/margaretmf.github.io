@@ -28,3 +28,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 
 ## Architect: ##
 * To design, configure, and construct
+
+## Rape: ##
+* To pillage, to carry off by force, to plunder or despoil, to violate
+
