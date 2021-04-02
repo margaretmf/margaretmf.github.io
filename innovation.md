@@ -1011,6 +1011,21 @@ is_contact: true
 (4) The day before Thanksgiving
 (5) Birds tweeting
 
+## **Day 66** ##
+## **Images** ##
+(1) A handful of coins
+(2) Brown leaves blowing
+(3) White petals on the ground
+(4) Green leaves outside
+(5) Books stacked
+
+## **Sounds** ##
+(1) Air conditioning
+(2) Joyful music in the car
+(3) The clock ticking
+(4) The laundry machine running
+(5) The clicks of the keyboard
+
 <br>
 
 <br>
