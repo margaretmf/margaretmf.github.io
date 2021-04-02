@@ -170,6 +170,43 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 
 ## Mr. Popper's Penguins ##
+### Who? ###
+* Mr. Popper
+
+### Where? ###
+* the pleasant little city of Stillwater
+* the house painter
+* "going home from work"
+
+## What? ##
+* Carrying buckets with ladders and boards
+* Tigers in India, climbing the peaks of the Himalayas, dived for pearls in the South Seas, the Poles
+
+## Color ##
+* Kitchen // green
+* Other side // yellow
+* Two-colored // kitchens
+* White // expanses of ice, snow
+
+## Adjectives ##
+* Great // shining
+* House // painter
+* Cold // regions
+* Little // globe
+* His pipe, his book, and his globe
+
+## Vocabulary ##
+* Spatttered, paint and calcimine, wallpaper
+
+## Allusions ##
+
+## Themes ##
+* Dreaming
+
+### Interesting Sentences or Paragraphs ###
+* "The children looked up from their play to smile" (p. 2)
+* "He was a dreamer" (p. 2)
+* "New apartment building on Elm Street"
 
 ## My Side of the Mountain by Jean Craighead George ##
 ### Who? ###
