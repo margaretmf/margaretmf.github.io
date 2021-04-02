@@ -648,8 +648,8 @@ Hope
 
 ## Taking Back the Night ##
 Flying into the night sky, I take back the night, where in reality it is a silent night.
-I sing with the stars above, where everyone has a place.
-In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, and light the path.
+I sing with the stars above, where everyone has a place, and the world around works like a symphony.
+In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, lighting the path.
 I know I am held so tightly because of how brightly the light shines.
 
 ## Bullying ##
