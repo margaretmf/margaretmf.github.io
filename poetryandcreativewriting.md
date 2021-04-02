@@ -431,6 +431,35 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Cowboys Singing ##
+People had warned of the trope before but the trope really came to to my ears
+It was wind sweeping and mind blowing
+He knew my heart so well
+He knew what needed to be healed
+He breathed right through me with a song that delved deep into my home
+He knew so much about me and just how to reach my heart
+It was like "kissing me softly with his love"
+
+## Backhanded Complements ##
+Those backhanded complements
+Those snarky, side comments
+Those notes in your journal
+Those rejection emails
+
+They really sting
+They hurt so much
+
+## Coins ##
+Today I found a handful of coins
+A handful of coins I found in the side of the car
+
+I picked them up and held them in my hand for you and me
+You and me
+We can go out and dance and run with them
+You and me
+We can go out and spend money on ice cream and games
+The world is open to you and me to spend our money and bless the world
+
 ## Alone ##
 On the outside, looking in.
 Expect someone on the inside to reach their voice, their hand out and invite them in.
