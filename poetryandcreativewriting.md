@@ -51,7 +51,7 @@ It would be amazing to eat dinner with Taylor Swift. She's so in touch with the 
 
 Dear Taylor,
 
-You empower and inspire women so much. Thank you for your spunka nd expressiveness. I would love to eat with you, and learn about your creative process. Are you available?
+You empower and inspire women so much. Thank you for your spunk and expressiveness. I would love to eat with you, and learn about your creative process. Are you available?
 
 I appreciate your time.
 
