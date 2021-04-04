@@ -32,3 +32,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Rape: ##
 * To pillage, to carry off by force, to plunder or despoil, to violate
 
+## Idyllic: ##
+* (especially of a time or place) like an idyll; extremely happy, peaceful, or picturesque
+*  pleasing or picturesque in natural simplicity
+
