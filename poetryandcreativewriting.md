@@ -431,6 +431,28 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+## Singing Cowboys ##
+It's mind-blowing, and wind-sweeping
+When thinking the msuic is all for you
+It's really not, the music is for everyone
+It reaches us all in slightly different ways
+It expands all of our hearts to understand one another better
+
+## The Same Metaphor, A Different Story ##
+It's the same metaphor, but a different story
+It's the same culture, but different perspectives
+It's the same truth, but different journeys
+We are all weaving in and ot and learning the same lessons in different colors
+
+Each one of us individual
+Each one of us a link in the chain
+Each one of us giving another something deeper to know about himself
+Each one of us expanding higher and wider
+
+## It's a Blue-Eyed, Blonde-Haired Thing ##
+It's a blue-eyed, blonde-haired thing
+But don't we love our brown-haired, blue-eyed sisters? They keep us going
+
 ## Cowboys Singing ##
 People had warned of the trope before but the trope really came to to my ears
 It was wind sweeping and mind blowing
@@ -459,6 +481,15 @@ We can go out and dance and run with them
 You and me
 We can go out and spend money on ice cream and games
 The world is open to you and me to spend our money and bless the world
+
+He found me a five dollar bill
+A five dollar bill he found on the ground
+
+He picked them up for me so I can have some fun
+I can go out and dance and skip
+Just me alone
+I can go out and spend money on books and cars
+The world is open for me to spend my money and bless the world
 
 ## Alone ##
 On the outside, looking in.
