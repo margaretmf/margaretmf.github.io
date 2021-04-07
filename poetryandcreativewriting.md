@@ -42,7 +42,7 @@ I also love learning about distinctions, distinct ideas, and how everyone is ind
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
 # Creative Writing #
-## Come up with a mathematical formula to expres something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
+## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
 Music + Chai Tea = Love + Joy
 Rowing + Team Spirit = Oneness
 
@@ -132,7 +132,7 @@ Feeling rejected makes me feel humble. At a low moment of feeling rejected and h
 ## As a kid, what job did you dream you would have as an adult? What job do you have now/ ##
 Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
 
-## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Woudl you live on the coast if you could, or is it better just for a visit? ##
+## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Would you live on the coast if you could, or is it better just for a visit? ##
 My family ventured out to the beach for the 4th of July. Young girls played in the sand with castles, shells, and waters. They loved the holiday, and their moms were ok with me waving at them. I love the foaminess of the ocean. I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
 
 ## Where do you like to do your journaling? At a desk, in your bed, at the coffee shop? ##
@@ -433,34 +433,17 @@ Margaret
 # Poetry #
 ## Singing Cowboys ##
 It's mind-blowing, and wind-sweeping
-When thinking the msuic is all for you
-It's really not, the music is for everyone
-It reaches us all in slightly different ways
-It expands all of our hearts to understand one another better
 
 ## The Same Metaphor, A Different Story ##
 It's the same metaphor, but a different story
 It's the same culture, but different perspectives
 It's the same truth, but different journeys
-We are all weaving in and ot and learning the same lessons in different colors
+We are all weaving in and out and learning the same lessons in different colors
 
 Each one of us individual
 Each one of us a link in the chain
 Each one of us giving another something deeper to know about himself
 Each one of us expanding higher and wider
-
-## It's a Blue-Eyed, Blonde-Haired Thing ##
-It's a blue-eyed, blonde-haired thing
-But don't we love our brown-haired, blue-eyed sisters? They keep us going
-
-## Cowboys Singing ##
-People had warned of the trope before but the trope really came to to my ears
-It was wind sweeping and mind blowing
-He knew my heart so well
-He knew what needed to be healed
-He breathed right through me with a song that delved deep into my home
-He knew so much about me and just how to reach my heart
-It was like "kissing me softly with his love"
 
 ## Backhanded Complements ##
 Those backhanded complements
