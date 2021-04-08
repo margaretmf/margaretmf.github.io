@@ -87,7 +87,7 @@ Today, I have felt loved and fully forgiven inside. I feel so loved that it feel
 Looking for my passport feels like something I dread doing. It does not feel fun to search around for a passport; it feels like such a drag. Many items live on the to-do list, including this one, and this is the last I want to do. I drag my feet in doing it. Many items I'd rather do before it.
 
 ## Who was your favorite band or singer when you were young? ##
-My favorite bands were U2 and Coldplay. I lvoe U2's song, "It's a Beautiful Day". There's light reflected in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
+My favorite bands were U2 and Coldplay. I love U2's song, "It's a Beautiful Day". There's light reflected in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
 
 ## If you had a child who had done something very wrong, such as stealing, how would you punish them? ##
 If a child of mine had done something wrong, I would correct them and help them understand why committing that wrong is wrong. I would not make them feel ashamed of themselves; but rather, I would guide them to better ways of being and show them alternatives. I would punish them by showing another way of being, and ask them to reflect on the wrong, how they can be better, and why. I would trust that God is supplying all the childs needs through a righteous approach.
@@ -335,7 +335,7 @@ Thank you for asking me to dance
 
 The love and the smile is in the silence
 The anger is in the lack of voice
-In the bitterness. I found a voice that you happened to save
+In the bitterness, I found a voice that you happened to save
 
 The freedom is in the independence
 The spirit is all around
@@ -347,6 +347,13 @@ There's nothing wrong with you
 You have it all within baby
 I believe in you
 I see the good in you
+I know who you are down deep
+
+A real woman would say go for it, do it, it's yours
+There's something great and insightful reflected in you
+You have it all within, my friend
+I care for you
+I see the light in you
 I know who you are down deep
 
 ## If you could do one thing every day for the rest of your life, what would it be, and why? ##
@@ -397,7 +404,7 @@ I would not reinvent anything in life. Yes, I have made mistakes. Yes, I have ma
 With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
 
 ## What keeps you from getting a good night's sleep? ##
-Ruminating over the past, the things done wrong, and the misssed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of Love, God's provision.
+Ruminating over the past, the things done wrong, and the missed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of Love, God's provision.
 
 ## Are there any lines that you simply will not cross? ##
 Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. The evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
@@ -510,11 +517,18 @@ I have nature to appreciate
 ## Backhanded Complements ##
 Those backhanded complements
 Those snarky, side comments
-Those notes in your journal
+Those spiteful poems
+Those hateful emails
+Those cuss words
+Those notes in the jouranl
 Those rejection emails
 
 They really sting
 They hurt so much
+They degrade
+They confuse
+They challenge thought to look at culture from different angles
+They encourage people to feel untouched and walk through the fire
 
 ## Coins ##
 Today I found a handful of coins
@@ -553,7 +567,7 @@ Thank you for the musician who put the feelings in words.
 I am glad to realize I am not the only one.
 
 ## The Music ##
-It reminded me of my grandmother's heart, my grandfather's music playing, my great grandfather's lumber business, my great grandmother's piano teaching, my aunts' and uncles' greetings, my neighbor's style, my uncle's sense of humor, my mom's Christmas Cards, my dad's radio station, my old music list, and my cousin's lifestyle
+It reminded me of my grandmother's heart, my grandfather's music playing, my great grandfather's lumber business, my great grandmother's piano teaching, my aunts' and uncles' greetings, my neighbor's style, my uncle's sense of humor, my mom's Christmas Cards, my dad's radio station, my old music list, and my cousins' lifestyles
 
 ## Insight ##
 Healing is different from coping. 
@@ -712,6 +726,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the man working with the USPS in the postal service
 * Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
 * Grateful for the construction sites
+* Grateful for the men working on the street
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -1507,6 +1522,14 @@ You may blossom differently or later, but sister, you spring from the same sourc
 So love your brother, and love your sister. Love must go before you, and you are not estranged.
 Sometimes the night must be taken back, the fight within must stop, and the time to be receptive must come.
 God does amazing work through the pain, and really opens us up to Her living reality.
+
+Hey sister, I have a lot in common with you
+There are moments when I am not graceful, and I want to feel jealous
+You seem so superior to me
+You look like you have it all
+I have a lot going also
+No one needs to be picture perfect
+Just one day at a time recognize the goodness within
 
 ## Healing from The Tendency to Fight ##
 I want to fight back, react, send an email, kick a door, hit, or write a negative comment.
