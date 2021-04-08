@@ -450,7 +450,8 @@ Margaret
 
 # Poetry #
 ## Singing Cowboys ##
-It's mind-blowing, and earth-sweeping
+It's mind-blowing that lyrics like those came to my thought before
+It's earth-sweeping that someone can capture the feelings I have yet to express through words
 There's a symmetry to life, and there's a resonance in the deep heart of hearts
 
 It's a blue-eyed, blonde-haired thing
