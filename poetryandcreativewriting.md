@@ -58,6 +58,14 @@ I appreciate your time.
 Love,
 Margaret
 
+## Words of Wisdom ##
+The older I grow the more I learn and the more I realize I did not create this world.
+The older I grow the humbler I become.
+Once in college before reaching a breaking point, I had read "Frankenstein" and reached an epiphany: "Am I my own god and creator?"
+No, something created me.
+This was the beginning of the destruction of the ego, the false self.
+I was humbled, humiliated, and through rising back up out of the ashes, I discovered more of who God is and how God lives and moves through me, and supports me.
+
 ## Where do you feel most like yourself? ##
 I feel most like myself while driving. I pray when I drive, love all of my surroundings, and have good conversations with God. I love the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
 
