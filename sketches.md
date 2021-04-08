@@ -1,2 +1,2 @@
 
-<img class="profile-picture" src="dark-pink-flower.jpg">
+<img class="profile-picture" src="Geometic2-Black&Blue&Orange.jpg">
