@@ -323,6 +323,17 @@ I have taken real train rides to Pennsylvania and back, and to Boston and back. 
 ## Write about a time you felt alone. ##
 Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
 
+## It's Ok ##
+It's ok to cry
+It's ok to feel
+Thank you for holding the door
+Thank you for touching my heart
+The love and the smile is in the silence
+The anger and bitterness is also in the lack of voice and the silence
+The freedom is in the independence
+The family is all around
+The healing is in the mystery of the whirlwind of it all
+
 ## If you could do one thing every day for the rest of your life, what would it be, and why? ##
 For the rest of my life, if I could do something, I would take up the life of a naturalist.
 I would observe and truly listen to nature.
@@ -402,7 +413,7 @@ In the past, I have listened to music by Al Green and appreciated the African Am
 Having a net to fall back on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, I drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
 
 ## What is the best thing you have ever been given? ##
-While roaming the streets of Wahington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
+While roaming the streets of Wahsington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
 
 ## Diary Entry - 10 Years in the Future ##
 Dear Margaret,
@@ -524,6 +535,9 @@ These feelings are universal.
 The feeling captured in the song are ones everyone has.
 Thank you for the musician who put the feelings in words.
 I am glad to realize I am not the only one.
+
+## The Music ##
+It reminded me of my grandmother's heart, my grandfather's music playing, my great grandfather's lumber business, my great grandmother's piano teaching, my aunts' and uncles' greetings, my neighbor's style, my uncle's sense of humor, my mom's Christmas Cards, my dad's radio station, my old music list, and my cousin's lifestyle
 
 ## Insight ##
 Healing is different from coping. 
