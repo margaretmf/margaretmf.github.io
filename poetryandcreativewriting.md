@@ -326,12 +326,19 @@ Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel i
 ## It's Ok ##
 It's ok to cry
 It's ok to feel
+It's good to sing
+
 Thank you for holding the door
 Thank you for touching my heart
+Thank you for the concern for my health
+Thank you for asking me to dance
+
 The love and the smile is in the silence
-The anger and bitterness is also in the lack of voice and the silence
+The anger is in the lack of voice
+In the bitterness. I found a voice that you happened to save
+
 The freedom is in the independence
-The family is all around
+The spirit is all around
 The healing is in the mystery of the whirlwind of it all
 
 ## If you could do one thing every day for the rest of your life, what would it be, and why? ##
@@ -443,8 +450,8 @@ Margaret
 
 # Poetry #
 ## Singing Cowboys ##
-It's mind-blowing, and wind-sweeping
-There's a symmetry to life, and there's a resonance to life
+It's mind-blowing, and earth-sweeping
+There's a symmetry to life, and there's a resonance in the deep heart of hearts
 
 It's a blue-eyed, blonde-haired thing
 But don't we love our brown-haired, brown-eyed sisters?
@@ -951,6 +958,7 @@ Love moves us to appreciate one another.
 Love moves us to smile at each other.
 Love moves us to forgive, and share a good laugh.
 Love moves us to pause, and stop reacting.
+Love moves us to apologize.
 Love moves us to understand someone who is different, and really listen.
 
 ## A New Day ##
