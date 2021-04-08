@@ -847,7 +847,7 @@ Many of us are women, and our portrayal in the media affects us every day. The m
 ## [16 things you do as a Southern Belle of Color](https://thetempest.co/2017/10/12/culture-taste/16-things-southern-belle-color/) ##
 "When people think of a Southern belle, they imagine a blonde-haired, blue-eyed damsel in distress. For us Southern WOC, we’re often left out from the Belle narrative. Yet, we’re still proud of our ethnic and religious identities and embrace the good aspects of our region. Southern WOC are a diverse group, but it’s nice to appreciate the things that unite us. Whether you hail from Texas or Tennessee, Alabama or West Virginia, here’s a few things that your Southern heart knows to be true."
 
-"You say things like 'ya’ll,' 'bless your heart,' and 'fixin’ to.'"
+"You say things like 'y’all,' 'bless your heart,' and 'fixin’ to.'"
 
 "Tailgating is life, but you stay woke on the NFL’s issues on sexism, racism, and homophobia."
 
@@ -1015,7 +1015,7 @@ The other day as I was leaving Woolworth’s in a small Southern town, an old ge
 
 "'The [White and ethnic minority] cowgirl did not exist. The young women [regardless of race] did not go cavorting over the prairies astride bucking bronhco [sic]....[I]t would have seemed exceedingly immodest for a young woman to get astride a horse wearing any sort of riding habit. Any woman doing so would have been classed as a bawdy house character, and every home on the plains would have been closed to her."
 
-"This is an interesting characterization, because being 'bawdy' typicallyr eferred to a woman's sexual nature. So a cowgirl was at risk fo being labeled as having a bawdy or sexual character for riding a horse incorrectly - not sidesaddle. Ironically, the safest way for a woman to ride a horse, astride the horse, was deemed bawdy. So, even if a cowgirl tossed the corset, she was still subject to patriarchal notions regarding her sexuality, depending upon how she sat on and rode the horse. If the White cowgirl was thought not to exist because her place was in the home, and had all of these patriarchal rules attached to her, then the erasure of the ethnic minority cowgirl was expected. Ethnic minority cowgirls had to be disenfranchised in order to make place for the 'non-existent' White cowgirl."
+"This is an interesting characterization, because being 'bawdy' typically referred to a woman's sexual nature. So a cowgirl was at risk fo being labeled as having a bawdy or sexual character for riding a horse incorrectly - not sidesaddle. Ironically, the safest way for a woman to ride a horse, astride the horse, was deemed bawdy. So, even if a cowgirl tossed the corset, she was still subject to patriarchal notions regarding her sexuality, depending upon how she sat on and rode the horse. If the White cowgirl was thought not to exist because her place was in the home, and had all of these patriarchal rules attached to her, then the erasure of the ethnic minority cowgirl was expected. Ethnic minority cowgirls had to be disenfranchised in order to make place for the 'non-existent' White cowgirl."
 
 ## ["Frustrated?" There's Probably Another Emotion Present Sometimes, Deeper Feelings Lie Under the Surface](https://www.psychologytoday.com/us/blog/friendship-20/201909/frustrated-theres-probably-another-emotion-present)
 "Frustration is likely to be the top layer of a feeling. It speaks to a sense of stagnation or helplessness, an inability to make things happen in the way that someone wants. Merriam-Webster defines being frustrated in part as 'feeling discouragement, anger, and annoyance because of unresolved problems or unfulfilled goals, desires, or needs.'
@@ -1357,6 +1357,19 @@ Rebecca Scherr believes Black Lives Matter has been instrumental in putting race
 
 'If enough people will step up and get out to vote, I think that something can happen. With this kind of momentum, I hope Black Lives Matter can contribute to voting Trump out of office.'" 
 
+## [Black Inventor Garrett Morgan Saved Countless Lives with Gas Mask and Improved Traffic Lights](https://www.scientificamerican.com/article/black-inventor-garrett-morgan-saved-countless-lives-with-gas-mask-and-improved-traffic-lights/) ##
+"In 1916 he strapped on his “safety hood” and dragged rescuers to safety, but racism prevented him from being hailed as a hero "
+
+"Two rescue parties entered the tunnel searching for survivors. But they lacked proper safety equipment for the smoke and fumes; 11 of the 18 rescuers died. Some 11 hours later, desperate to save anyone still alive, the Cleveland Police turned to Garrett A. Morgan—a local inventor who called himself “the Black Edison”—and the gas mask he had patented two years earlier."
+
+"But Morgan’s brilliant observation, and the simple but practical device that resulted from it, proved difficult to sell. His father was the son of Confederate General John Hunt Morgan and an enslaved Black woman, Sandra says, and Morgan’s mother was Black, which meant the inventor was fully subject to racism. He attended school through sixth grade and was largely self-taught. But his ingenuity eventually won out. After many failed attempts to sell what he called his “safety hood,” Morgan created a theatrical scheme to bypass potential buyers’ bigotry. In 1914, he hired a white actor to pose as the inventor. Morgan then disguised himself, filled a tent with noxious smoke, and cued the actor to entertain the crowd as Morgan strapped on his breathing device and entered the tent—where he waited for nearly half an hour before emerging safely to an aghast audience. Brisk sales followed, and newspapers reported the demonstration—and that’s how the Cleveland Police Department knew about Morgan’s device."
+
+"But Morgan’s brilliant observation, and the simple but practical device that resulted from it, proved difficult to sell. His father was the son of Confederate General John Hunt Morgan and an enslaved Black woman, Sandra says, and Morgan’s mother was Black, which meant the inventor was fully subject to racism. He attended school through sixth grade and was largely self-taught. But his ingenuity eventually won out. After many failed attempts to sell what he called his “safety hood,” Morgan created a theatrical scheme to bypass potential buyers’ bigotry. In 1914, he hired a white actor to pose as the inventor. Morgan then disguised himself, filled a tent with noxious smoke, and cued the actor to entertain the crowd as Morgan strapped on his breathing device and entered the tent—where he waited for nearly half an hour before emerging safely to an aghast audience. Brisk sales followed, and newspapers reported the demonstration—and that’s how the Cleveland Police Department knew about Morgan’s device."
+
+"Morgan was indignant. “He wrote a scorching letter to Cleveland Mayor Harry Davis,” Sandra says, quoting from a copy: “I am not a well-educated man; however, I have a Ph.D. from the school of hard knocks and cruel treatment.”
+
+## [Garrett Morgan](https://www.youtube.com/watch?v=b6kdVu69LMM) ##
+
 ## [African Americans, Arabs, and Algebra](https://www.bbc.com/future/article/20201204-lost-islamic-library-maths) ##
 "Centuries ago, a prestigious Islamic library brought Arabic numerals to the world. Though the library long since disappeared, its mathematical revolution changed our world.
 
@@ -1502,7 +1515,7 @@ Although certain symbols, marks, and letters customarily represent quantities an
 
 "Wister's novel went through 'fifteen printings during the first eight months after its publication; by 1911 it was in its thirty-eight printing. By 1938, it had sold more than one and one-half million copies.'"
 
-"the histories of the American West...[of] heroci tales: stories of adventure, exploration, and conflict."
+"the histories of the American West...[of] heroic tales: stories of adventure, exploration, and conflict."
 
 "overcome a conflict, seek adventure, and explore new territory"
 
