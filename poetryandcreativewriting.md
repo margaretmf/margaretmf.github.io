@@ -137,7 +137,7 @@ Genuine compsasion, intellect, joy, and understanding I look for in people I dat
 ## What makes you feel humble? ##
 Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
 
-## As a kid, what job did you dream you would have as an adult? What job do you have now/ ##
+## As a kid, what job did you dream you would have as an adult? What job do you have now? ##
 Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
 
 ## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Would you live on the coast if you could, or is it better just for a visit? ##
@@ -1996,6 +1996,8 @@ in a story to appreciate the true vision, the heroism, and the exciting goal for
 
 <br>
 
+<br>
+
 Word Associations: goal, future, adveneture, possibility, road, vision, purpose, obstacle, story, hero
 
 ## Secrets ##
@@ -2005,6 +2007,8 @@ Covered traumas, and painpoints and nightmares
 These lies and trusts within are there to be uncovered, and discovered, revealed, and unfolded
 In the mystery, all the secrets become vanished into a mortal dream of nothingness with nothing more to guard or protect but a true sense of Love and Truth
 
+<br>
+
 Word Associations: spy, death, reveal, guard, protect, discovery, mystery, hidden, trust, lies
 
 ## Message ##
@@ -2013,7 +2017,19 @@ Through a divine connection, people receive encrypted notes alerting people to m
 It's like a giant iSpy game with phones and bottles.
 Different conduits for voices and paper to share these secrets.
 
+<br>
+
 Word Associations: send, encrypt, alert, bottle, secret, spy, prophet, phone, deliver, signal
+
+## Lie ##
+Subliminal messages, and an image-saturated world.
+Detecting the sneaky, snakey deceiving suggestions that speak to us when half asleep.
+The falsehood, the fake bubbles up louder and louder ntil it finds the truth, and the arrogance of the mask of slights, doubts, attachments, and error using the tongue.
+Detect the sneakiness, remove it, and the Truth can find its proper place.
+
+<br>
+
+Word Associations: detect, sleep, place, mask, false, truth, deception, snake, sneak, fake
 
 ## The Ocean ##
 The ocean.
