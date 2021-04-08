@@ -727,6 +727,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
 * Grateful for the construction sites
 * Grateful for the men working on the street
+* Grateful for the memories of working as an aide at camp
+* Grateful for all of the ethnicities represented at camp
+* Grateful for the call of the geese in the morning
+* Grateful for the lessons learned in the shower
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
