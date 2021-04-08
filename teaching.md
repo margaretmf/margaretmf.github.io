@@ -1,6 +1,6 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", and "The Indian in the Cupboard". 
+The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins". 
 Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder.
 
 
