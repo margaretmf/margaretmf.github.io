@@ -163,7 +163,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 
 ## Types of Sources
-* Primary Source - the record of an event as it is first described, without any interpretation or commentary (includes data, census statistics, poems, diaries, court records, and interviews; experiments, surveys, polls, lab notes, psychiatrist's notes, authobiography, speeches, video/audio recording, finger prints, art work, music)
+* Primary Source - the record of an event as it is first described, without any interpretation or commentary (includes data, census statistics, poems, diaries, court records, and interviews; experiments, surveys, polls, lab notes, psychiatrist's notes, autobiography, speeches, video/audio recording, finger prints, art work, music)
 * Secondary Source - analysis or restatement of primary sources
 
 ----------
@@ -187,26 +187,85 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Other side // yellow
 * Two-colored // kitchens
 * White // expanses of ice, snow
+* Red // beak
+* Busy // bird
+* White-circled // eyes
+* White // tie
+* White // flannel
+* Bright // tan
+* Black // evening
+* Polar // snow 
+* Delicate // music
 
 ## Adjectives ##
 * Great // shining
 * House // painter
 * Cold // regions
 * Little // globe
-* His pipe, his book, and his globe
+* Exact // spot
+* Decorating // season
+* Whole // winter
+* Very // intelligent
+* Faint // voice
+* Strange, pompous little // strut
+* Living // room
+* Upholstered // chair
+* Fresh // air
+* Right // temperature
+* Flying // tools
+* Violent // slamming 
+* Service // man 
+* Usual // curiosity
+* Public // streets
+* New // voice
+* Splendid // bird
+* Busy // thoroughness
+* Subdued // cries
+* Prettie // birdie
+* Elegant // picture
+* Determined // bird
+* Large // cities
+* Great // reader
+* Railway // station 
+* Distant // countries
+* Riotous // success
+* Opening // performance
+* High, shrill // note
+* Bright // lights
+* Large // hotel
+* Brass // buttons
+* Sparkling // lights
+* Merry // games
+* Greatest // delight 
 
 ## Vocabulary ##
 * Spatttered, paint and calcimine, wallpaper
-
-## Allusions ##
+* Mysteriously
+* Ventilating
+* "Curiosity, surprise, and pleasure"
+* Vigorously
+* Rotogravure
+* Irritable
 
 ## Themes ##
 * Dreaming
+* Reading
+* Feeding pets
+* Punishment
+* Music, Performance
 
 ### Interesting Sentences or Paragraphs ###
 * "The children looked up from their play to smile" (p. 2)
 * "He was a dreamer" (p. 2)
 * "New apartment building on Elm Street"
+* "They are the funniest birds in the world. They don't fly like other birds. They walk like little men. When they get tired of walking they just lie down on their stomachs and slide. It would be very nice to have one for a pet." (p. 9)
+* "He sailed all over where no one had ever been before. He didn't actually get to the South Pole, of course, but he made a lot of important scientific discoveries about the Antarctic regions. He was a brave man and a kind leader. So I think Captain Cook would be a very suitable name for our penguin here." (p. 22)
+* "his words of agreement" (p. 32)
+* "Spying the camera" (p. 54)
+* "play the piano"
+* "there's music to it", "chorus girl", "ballet dancers"
+* "In every moving picture house in America little children would have the pleasure of seeing stories acted by the Popper Performing Penguins" (p. 139)
+
 
 ## My Side of the Mountain by Jean Craighead George ##
 ### Who? ###
@@ -265,7 +324,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * spring // beauty
 * strawberry // patch
 * fancy // gear
-* deeer // trap
+* deer // trap
 * poplar // tree
 * inner // bark
 * tedious // work
