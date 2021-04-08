@@ -433,6 +433,10 @@ Margaret
 # Poetry #
 ## Singing Cowboys ##
 It's mind-blowing, and wind-sweeping
+There's a symmetry to life, and there's a resonance to life
+
+It's a blue-eyed, blonde-haired thing
+But don't we love our brown-haired, brown-eyed sisters?
 
 ## The Same Metaphor, A Different Story ##
 It's the same metaphor, but a different story
@@ -444,6 +448,37 @@ Each one of us individual
 Each one of us a link in the chain
 Each one of us giving another something deeper to know about himself
 Each one of us expanding higher and wider
+
+
+It's the same metaphor, but a different story
+It's the same culture, but different perspectives
+It's the truth, but different journeys
+
+It's the same metaphor, but different characters
+It's the same pattern, but different stories
+It's the same culture, but different perspectives
+It's the same system, but different tracks
+It's the same truth, but different journeys
+It's the same smile, but different glimmers through the silence
+
+The road is widening, the road is growing deeper
+
+One encouraged me to speak up and read,
+another encouraged me to sing and write
+
+## You Know Too Much About Me, You Spoke for Me ##
+You know too much about who I am.
+I heard my thoughts, and feelings captured through your voice.
+
+I have a life to live
+A song to sing
+A book to write
+A heart filled with love and a laugh
+Some youth to teach
+Some people to meet
+I have churches to go to
+I have homes to architect
+I have nature to appreciate
 
 ## Backhanded Complements ##
 Those backhanded complements
