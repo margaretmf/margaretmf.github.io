@@ -1964,6 +1964,44 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Love ##
+Love - a sacrifice for a team, a family, a church
+healthy communication filled with joy, honesty, appreciation, openness, and validation
+the trust to be able to pick oneself back up and restore to wholeness, clarity, and even better dynamics falling into an attraction to a common purpose, a common rhythm, a common heart
+a kiss of a heart-to-heart connection echoing and resounding throughout the universe that rings like church bells forever and ever
+a compromise to put a stop to the envy
+romantic fun and sense of humor
+
+<br>
+
+Word Associations: kiss, sacrifice, romance, partner, trust, attraction, falling, communication, envy, compromise
+
+## Quest ##
+On a quest to discover the rhyme and reason to the universe,
+the purpose to life on an adventure to discover endless possibilities,
+and the road to a deepening, enlivening sense of life and love
+in a story to appreciate the true vision, the heroism, and the exciting goal for the future of youth
+
+<br>
+
+Word Associations: goal, future, adveneture, possibility, road, vision, purpose, obstacle, story, hero
+
+## Secrets ##
+Hidden lusts, and affections
+Latent talents, and memories
+Covered traumas, and painpoints and nightmares
+These lies and trusts within are there to be uncovered, and discovered, revealed, and unfolded
+In the mystery, all the secrets become vanished into a mortal dream of nothingness with nothing more to guard or protect but a true sense of Love and Truth
+
+Word Associations: spy, death, reveal, guard, protect, discovery, mystery, hidden, trust, lies
+
+## Message ##
+A secret message signaling to someone information, and knowledge that should be known.
+Through a divine connection, people receive encrypted notes alerting people to missing puzzle pieces.
+It's like a giant iSpy game with phones and bottles.
+Different conduits for voices and paper to share these secrets.
+
+Word Associations: send, encrypt, alert, bottle, secret, spy, prophet, phone, deliver, signal
 
 ## The Ocean ##
 The ocean.
