@@ -498,7 +498,7 @@ Intellectual Disability and Mental Illness
 * Depression, Agitation
 
 Aggressive Behavior
-* Someone's behavior can communicate an issue or need, and be a valuable source of information about their condition. The important thing is tot hink about what the behavior is telling you - how can you analyze the behavior and its possible causes or meanings?
+* Someone's behavior can communicate an issue or need, and be a valuable source of information about their condition. The important thing is to hink about what the behavior is telling you - how can you analyze the behavior and its possible causes or meanings?
 
 Aggressive, self-injurious behavior - a substitute for communication about psychological symptoms, emotions, or other troublesome situations, like a health problem or pain
 
@@ -1833,6 +1833,18 @@ Further, under the guise of adhering to the past, some worry, the true, underlyi
 
 
 ----------
+
+
+## [Yes, And](https://en.wikipedia.org/wiki/Yes,_and...) ##
+""Yes, and...", also referred to as "Yes, and..." thinking, is a rule-of-thumb in improvisational comedy that suggests that a participant should accept what another participant has stated ("yes") and then expand on that line of thinking ("and"). It is also used in business and other organizations as a principle that improves the effectiveness of the brainstorming process, fosters effective communication, and encourages the free sharing of ideas.
+
+Principles[edit]
+The "Yes" portion of the rule encourages the acceptance of the contributions added by others. Participants in an improvisation are encouraged to agree to proposition, fostering a sense of cooperation rather than shutting down the suggestion and effectively ending the line of communication.
+
+In an organizational setting, saying "Yes" in theory encourages people to listen and be receptive to the ideas of others. Rather than immediately judging the idea, as judgment has its place later on in the development process, one should initially accept the idea, which enables the discussion to expand on the idea without limitations. The next step in the process is to add new information into the narrative. The concept of "and" is to sway away from directly changing the suggested material, "and" rather building upon it."
+
+
+## [American Frontier](https://en.wikipedia.org/wiki/American_frontier) ##
 
 
 ## [150 Years Ago, The Homestead Act Transformed the West](https://www.hcn.org/wotr/how-150-years-ago-the-homestead-act-transformed-the-west) ##
