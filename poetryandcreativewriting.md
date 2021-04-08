@@ -341,6 +341,14 @@ The freedom is in the independence
 The spirit is all around
 The healing is in the mystery of the whirlwind of it all
 
+## A Real Man ##
+A real man would say go for it, do it
+There's nothing wrong with you
+You have it all within baby
+I believe in you
+I see the good in you
+I know who you are down deep
+
 ## If you could do one thing every day for the rest of your life, what would it be, and why? ##
 For the rest of my life, if I could do something, I would take up the life of a naturalist.
 I would observe and truly listen to nature.
