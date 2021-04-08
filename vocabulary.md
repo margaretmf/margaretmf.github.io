@@ -36,3 +36,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * (especially of a time or place) like an idyll; extremely happy, peaceful, or picturesque
 *  pleasing or picturesque in natural simplicity
 
+## Democratization: ##
+* To make (a country or organization) more democratic. formal : to make (something) available to all people : to make it possible for all people to understand (something)
+
+
