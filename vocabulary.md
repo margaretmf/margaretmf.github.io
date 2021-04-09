@@ -42,4 +42,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Antipode: ##
 * The direct opposite of something else
 
+## Objectification: ##
+* The action of degrading someone to the status of a mere object
+
 
