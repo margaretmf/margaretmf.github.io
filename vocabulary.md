@@ -39,4 +39,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Democratization: ##
 * To make (a country or organization) more democratic. formal : to make (something) available to all people : to make it possible for all people to understand (something)
 
+## Antipode: ##
+* The direct opposite of something else
+
 
