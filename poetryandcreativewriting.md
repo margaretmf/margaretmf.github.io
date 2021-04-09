@@ -1976,6 +1976,15 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Friendship ##
+Feeling safe, and validated by someone kindred to trust them with information.
+Building a bond on the basis of what seems kidnred, and natural, sharing the deepest longings within to support mutual growth within the friednship and the larger radius.
+Forming memories that last day in and day out, and growing in union with one another in constant companionship.
+
+<br>
+
+Word Associations: companion, bond, share, kindred, reciprocal, confide, trust, mutual, memories, secrets
+
 ## Love ##
 Love - a sacrifice for a team, a family, a church
 healthy communication filled with joy, honesty, appreciation, openness, and validation
