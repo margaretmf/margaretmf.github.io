@@ -7,6 +7,10 @@ layout: default
 ### Books
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
+* [She Come By It Natural: Dolly Parton and the Women who Lived Her Songs]() by Sarah Smarsh
+* [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
+* ["And Their Children After Them"]
+* ["What You Are Getting Wrong About Appalachia"]
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
