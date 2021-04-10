@@ -58,6 +58,15 @@ I appreciate your time.
 Love,
 Margaret
 
+## Song Lyrics ##
+Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
+
+When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile (the enigmatic smile?), the generity of the laugh, and the charm of the care speaks to the heart. From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required? Or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare is a prank, sinister, childish, aggressive, and insincere.
+
+I also remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
+
+It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the silent treatment, the mesmeric teasing, the silence and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
+
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
 The older I grow the humbler I become.
@@ -334,7 +343,7 @@ Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel i
 ## It's Ok ##
 It's ok to cry
 It's ok to feel
-It's good to sing
+It should feel good to sing
 
 Thank you for holding the door
 Thank you for touching my heart
@@ -472,6 +481,7 @@ Margaret
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
 # Poetry #
+
 ## Singing Cowboys ##
 It's mind-blowing that lyrics like those came to my thought before
 It's earth-sweeping that someone can capture the feelings I have yet to express through words
@@ -507,6 +517,11 @@ The road is widening, the road is growing deeper
 
 One encouraged me to speak up and read,
 another encouraged me to sing and write
+
+## It's One in the Same ##
+It's one in the same
+It's two sides of the same coin
+It's comes to the surface differently, and like produces like
 
 ## You Know Too Much About Me, You Spoke for Me ##
 You know too much about who I am.
