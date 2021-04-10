@@ -123,7 +123,7 @@ Margaret
 In high school, I swam and rowed. As a member of the swimming and rowing teams, I became fit with six abs and a lean body. I felt significantly mroe fit then than I do now. It felt harder to maintain that fitness. I feel more confident about myself when rowing, and I was grateful for the experience. Now, I am not as fit, and it feels signfiicantly harder to return to the state I was in, but maybe I will someday return. I don't think others treated me differently, but I felt mroe confident with people.
 
 ## What takes too long? ##
-Writing a paper takes too long. In college, it felt like what took some people to write a paper in 1 day took me 3-5 times as long. It was fun to write, but it felt like I never had time to enjoy socializing with people. Most work requires patience, time, and endurance, and persistence; however, ti felt painful when what took peers 1 day took me 3-5 days.
+Writing a paper takes too long. In college, it felt like what took some people to write a paper in 1 day took me 3-5 times as long. It was fun to write, but it felt like I never had time to enjoy socializing with people. Most work requires patience, time, and endurance, and persistence; however, it felt painful when what took peers 1 day took me 3-5 days.
 
 ## Do you prefer to read electronic books or paper books? Why? ##
 Paper books I love to read. It feels like an amazing experience to go into a bookstore and look through all of the paper books. I love the physical experience of underlining key passages and taking notes.
@@ -1975,6 +1975,19 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Scandal ##
+Oh my God!
+It's so scandalous...
+All those dirty secrets covered up in my hearts blew up in my face, exposed the lies of subliminal messaging, and defamed me.
+It's outraging, it's hushing, it's public!
+What a release that something so dark is brought to light through high-minded sensational art.
+It's good to keep things private, and not be afraid of the public.
+Everything private becomes public, everything public influences our private lives.
+
+<br>
+
+Word Associations: reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
 
 ## Friendship ##
 Feeling safe, and validated by someone kindred to trust them with information.
