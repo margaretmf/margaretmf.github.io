@@ -41,6 +41,20 @@ I love learning about interconnectedness, and how we are all connecting each oth
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
+## Questions ##
+* What is democracy?
+* What does it mean to democratize?
+* What is a republic?
+* What does it mean to localize?
+* Do you attend church?
+* What church do you attend?
+* Why do you like the church you attend?
+* Describe the theology?
+* How strong is your faith? What leads you to have doubt?
+* How do you describe your relationship to God?
+* Do you believe in a higher power?
+* How do you feel Church and Democracy are related?
+
 # Creative Writing #
 ## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
 Music + Chai Tea = Love + Joy
@@ -77,6 +91,11 @@ I was humbled, humiliated, and through rising back up out of the ashes, I discov
 
 ## Where do you feel most like yourself? ##
 I feel most like myself while driving. I pray when I drive, love all of my surroundings, and have good conversations with God. I love the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
+
+She prays when she drives
+She loves her surroundings
+She loves having good conversations
+She loves the sound of the highway and the trucks
 
 ## In what way do you not fit in with the family you grew up with? ##
 Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
@@ -1990,6 +2009,11 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Me ##
+In the alienation and the doubt, your true identity can become stronger
+Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress
+Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience
 
 ## Scandal ##
 Oh my God!
