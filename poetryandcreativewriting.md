@@ -773,6 +773,11 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for all of the ethnicities represented at camp
 * Grateful for the call of the geese in the morning
 * Grateful for the lessons learned in the shower
+* Grateful for the cooks at camp
+* Grateful for the signs on the road
+* Grateful for the construction workers
+* Grateful for my cousins in Suffolk, Whaleyville
+* Grateful to learn about Kentucky, Indiana, and the Rust Belt
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2010,10 +2015,28 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Ladder ##
+The beauty of the carpenter climbing up the ladder and standing on top of the roof.
+He works so humbly, and gracefully. He has a good heart.
+There's a goal for him ahead to build and construct, and move through the passageway humbly and support the top.
+Metaphysically climbing the stairs of being.
+
+<br>
+
+Word Associations: stair, ascend, snake, passage, top, capture, rung, scale, damsel, goal
+
+## News ##
+The good news is that you are free, you can choose to express joy today, and you can fly like a bird.
+The fake story, the one to ignore is such a teaser, leaked online in sketchy documents, and alerted to people through computer hacking, and private networks.
+
+<br>
+
+Word Associations: document, wire, anchor, air, leak, alert, hack, network, fake, story
+
 ## Me ##
-In the alienation and the doubt, your true identity can become stronger
-Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress
-Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience
+In the alienation and the doubt, your true identity can become stronger.
+Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress.
+Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience.
 
 ## Scandal ##
 Oh my God!
