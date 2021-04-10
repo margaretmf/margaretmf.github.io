@@ -45,4 +45,10 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Objectification: ##
 * The action of degrading someone to the status of a mere object
 
+## Validate: ##
+* To check or prove the validity or accuracy of (something)
+* To demonstrate or support the truth or value of
+* To grant official sanction to by marking
+* To support or corroborate on a sound or authoritative basis
+
 
