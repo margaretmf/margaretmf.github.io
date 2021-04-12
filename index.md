@@ -20,6 +20,9 @@ I have done and said dumb things, retaliated, and shifted from being a rule-foll
 I love little children, organizing things, and expressing good cheer in the Post Office and the Fed Ex Building.
 
 
+I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
+
+
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
 
