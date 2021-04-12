@@ -81,6 +81,22 @@ I also remember listening to the song "Memphis Soul Song". There's an angel on o
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the silent treatment, the mesmeric teasing, the silence and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
+## Truth or Dare ##
+So....
+once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics
+and then it came back full circle with a little Truth or Dare
+I went along, and played a little Truth or Dare
+the Truth is...
+that I had a crush on this guy
+the Truth I discovered is that people betray
+the Truth is... 
+that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau 
+I dared to kiss someone on the heart
+the Truth is...
+that I threatened to kill people over the South
+the Truth is...
+that I love democratization
+
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
 The older I grow the humbler I become.
