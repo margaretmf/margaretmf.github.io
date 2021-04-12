@@ -26,7 +26,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
  
 ### ACUMEN PLUS 
 Human-Centered Design | September - November 2019
-* Completing course on human-centered design process with Acumen Plus to master four steps of the human-cenetered design process to create innovative solutions to real-world challenges, build an effective interview guide to learn and document research, practice creative techniques for rapid prototyping builds, and effectively test prototypes
+* Completing course on human-centered design process with Acumen Plus to master four steps of the human-centered design process to create innovative solutions to real-world challenges, build an effective interview guide to learn and document research, practice creative techniques for rapid prototyping builds, and effectively test prototypes
 
 Systems Practice | January - May 2019
 * Completing course on systems practice with Acumen Plus and participating in group systems practice project for a social justice challenge in which we conduct qualitiatve research on a system, develop systems map and systems narratives, and identify leverage points within the system
@@ -60,6 +60,11 @@ Christianity
 100 Days of Peace
 * Engage with the pieces of artwork that are part of the 100 Days of Peace 
 
+## Inspiration ##
+* Nate Frederick's lecture inspired thinking more deeply about the Government being in the Footnotes of Church
+*I love Democratization, Democratic Republic, Religious Liberty and Religious Freedom*
+
+* Ryan Winslow's music drew out an understanding of political and cultural nuances around the Rust Belt, the South, the West, Tennessee being the West, Trucking, the Confederate Flag, Music healing Aspergers; it confirmed some of my observations, and the music along with prayer, and gratitude tuned me into more interconnections
 
 <br>
  
