@@ -1,8 +1,8 @@
 ## Research Studies ##
-* A study on Interracial Dating and Marriages ##
+* A study on Interracial Dating and Marriages 
 * A study on Democracy and Church
 * A study on Shays' Rebellion in relationship to the Trump Election
-* A study on Cultures that influence and shape Engineering
+* A study on Cultures that Influence and Shape Engineering
 * A study on the Dark Web
 
 ## [Thomas Jefferson](https://billofrightsinstitute.org/founders/thomas-jefferson) ##
