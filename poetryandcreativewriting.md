@@ -83,8 +83,9 @@ It came back up through another's song of the enigmatic smile, the victim and th
 
 ## First Impressiosn, and Expression ##
 First impressions, they don't capture the whole story.
-They say, "you can't understand the book by the cover of the book".
-The full expression is there, the intuition is given to draw out the entire expression.
+They say, "you can't judge a book by its cover."
+The full expression is there, and the intuition is given to draw out the entire expression.
+The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
 
 ## Truth or Dare ##
 So....
@@ -93,17 +94,6 @@ and then it came back full circle with a little Truth or Dare
 I went along, and played a little Truth or Dare
 Some people equate #TruthorDare as rape culture
 
-the Truth is...
-that I had a crush on this guy
-the Truth I discovered is that people betray
-the Truth is... 
-that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau 
-I dared to kiss someone on the heart
-the Truth is...
-that I threatened to kill people over the South
-the Truth is...
-that I love democratization
-
 Truth is...I dared to go along with the Truth or dare and tell this guy I had a crush on him
 he did not care
 #IWasJustAFan
@@ -111,9 +101,10 @@ he did not care
 #IWasJustAClient
 #IWasJustAnIntern
 then I discovered that the Truth is....people betray people
-and the Truth is....I threatened to kill people
-The Truth is...my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau
-I dared to kiss someone on the heart
+and the Truth is....I threatened to kill people...over Church Bullying, the South, and the Confederacy
+The Truth is...I discovered that my my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau
+and I dared to kiss someone on the heart when feeling teased
+the Truth is...that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home
 The Truth is...I love democratization
 
 ## Words of Wisdom ##
@@ -406,7 +397,7 @@ Thank you for asking me to dance
 
 The love and the smile is in the silence
 The anger is in the lack of voice
-In the bitterness, I found a voice that you happened to save
+In the bitterness and the loss, I found a voice that you happened to save
 
 The freedom is in the independence
 The spirit is all around
@@ -616,6 +607,7 @@ You and me
 We can go out and dance and run with them
 You and me
 We can go out and spend money on ice cream and games
+We can go out and share a "penny for our thoughts"
 The world is open to you and me to spend our money and bless the world
 
 He found me a five dollar bill
