@@ -51,4 +51,13 @@ Something exists in consciousness. The image in mind has not been consciously co
 * To grant official sanction to by marking
 * To support or corroborate on a sound or authoritative basis
 
+## Alleviate: ##
+* Make (suffering, deficiency, or a problem) less severe.
+
+## Incapacitate: ##
+* Prevent from functioning in a normal way 
+
+## Agency: ##
+* The relationship between a principal and that person's agent
+* The capacity, condition, or state of acting or of exerting power : operation
 
