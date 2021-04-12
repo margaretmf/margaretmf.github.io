@@ -97,6 +97,18 @@ that I threatened to kill people over the South
 the Truth is...
 that I love democratization
 
+Truth is...I dared to go along with the Truth or dare and tell this guy I had a crush on him
+he did not care
+#IWasJustAFan
+#IWasJustAListener
+#IWasJustAClient
+#IWasJustAnIntern
+then I discovered that the Truth is....people betray people
+and the Truth is....I threatened to kill people
+The Truth is...my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau
+I dared to kiss someone on the heart
+The Truth is...I love democratization
+
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
 The older I grow the humbler I become.
