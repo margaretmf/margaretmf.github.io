@@ -81,11 +81,18 @@ I also remember listening to the song "Memphis Soul Song". There's an angel on o
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the silent treatment, the mesmeric teasing, the silence and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
+## First Impressiosn, and Expression ##
+First impressions, they don't capture the whole story.
+They say, "you can't understand the book by the cover of the book".
+The full expression is there, the intuition is given to draw out the entire expression.
+
 ## Truth or Dare ##
 So....
 once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics
 and then it came back full circle with a little Truth or Dare
 I went along, and played a little Truth or Dare
+Some people equate #TruthorDare as rape culture
+
 the Truth is...
 that I had a crush on this guy
 the Truth I discovered is that people betray
