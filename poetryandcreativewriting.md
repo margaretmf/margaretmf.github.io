@@ -805,6 +805,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the construction workers
 * Grateful for my cousins in Suffolk, Whaleyville
 * Grateful to learn about Kentucky, Indiana, and the Rust Belt
+* Grateful for the Spanish language on the Screen in the CVS - "Cambiar El Idioma"
+* Grateful for the man working at CVS and his love for the work
+* Grateful for the African American engineer
+* Grateful for the architecture at The Mother Church
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
