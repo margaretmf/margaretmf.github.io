@@ -72,6 +72,14 @@ I appreciate your time.
 Love,
 Margaret
 
+## Top Songs ##
+* "When You Say Nothing at All"
+* "Memphis Soul Song"
+* "I'm So Tired of Being Alone"
+* "Be Thou My Vision"
+* "Lo, How a Rose Ere Blooming"
+* "My Life Goes On In Endless Song Above Earth's Lamentations"
+
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
 
@@ -809,6 +817,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the man working at CVS and his love for the work
 * Grateful for the African American engineer
 * Grateful for the architecture at The Mother Church
+* Grateful for the man in Memphis who loves Math and Music
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
