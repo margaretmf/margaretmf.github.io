@@ -96,24 +96,19 @@ The full expression is there, and the intuition is given to draw out the entire 
 The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
 
 ## Truth or Dare ##
-So....
-once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics
-and then it came back full circle with a little Truth or Dare
-I went along, and played a little Truth or Dare
-Some people equate #TruthorDare as rape culture
+So…. once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
 
-Truth is...I dared to go along with the Truth or dare and tell this guy I had a crush on him
-he did not care
-#IWasJustAFan
-#IWasJustAListener
-#IWasJustAClient
-#IWasJustAnIntern
-then I discovered that the Truth is....people betray people
-and the Truth is....I threatened to kill people...over Church Bullying, the South, and the Confederacy
-The Truth is...I discovered that my my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau
-and I dared to kiss someone on the heart when feeling teased
-the Truth is...that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home
-The Truth is...I love democratization
+Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
+#IWasJustAFan 
+#IWasJustAListener 
+#IWasJustAClient 
+#IWasJustAnIntern 
+then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
+The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
+the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
+Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
+
+I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
