@@ -355,6 +355,8 @@ The 14th and 15thc were seminal to the development of later organ cultures throu
 
 ## [Gregorian Chant Music - Monks of the Dark Abbey](https://www.youtube.com/watch?v=yBHg9T9j4qU) ##
 
+## [The Essentialism of Music in Human Life and Its Roots in Nature](https://digitalcommons.linfield.edu/cgi/viewcontent.cgi?referer=https://www.google.com/&httpsredir=1&article=1005&context=muscstud_theses) ##
+
 
 ----------
 
