@@ -7,7 +7,7 @@ layout: default
 ### Books
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
-* [She Come By It Natural: Dolly Parton and the Women who Lived Her Songs](https://www.amazon.com/She-Come-Natural-Dolly-Parton/dp/1982157283) by Sarah Smarsh
+* [Lake of the Ozarks: My Surreal Summers i.a Vanishing America](https://www.amazon.com/Lake-Ozarks-Surreal-Summers-Vanishing/dp/1538729806/ref=sr_1_1?dchild=1&keywords=lake+of+the+ozarks&qid=1618439902&sr=8-1) by Bill Geist
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
@@ -23,6 +23,7 @@ layout: default
 * [Hatchet](https://www.amazon.com/Hatchet-Gary-Paulsen/dp/1416936475/ref=sr_1_1?dchild=1&keywords=hatchet&qid=1614349379&s=books&sr=1-1) by Gary Paulsen
 * [My Side of the Mountain](https://www.amazon.com/Side-Mountain-Puffin-Modern-Classics/dp/0142401110/ref=sr_1_1?dchild=1&keywords=my+side+of+the+mountain&qid=1616341423&s=books&sr=1-1) by Jean Craighead George
 * [Begin Again: Your Hope and Renewal Start Today](https://www.amazon.com/Begin-Again-Renewal-Start-Today/dp/1400226473) by Max Lucado
+* [She Come By It Natural: Dolly Parton and the Women who Lived Her Songs](https://www.amazon.com/She-Come-Natural-Dolly-Parton/dp/1982157283) by Sarah Smarsh
 
 
 ## 2020
