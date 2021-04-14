@@ -61,3 +61,10 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The relationship between a principal and that person's agent
 * The capacity, condition, or state of acting or of exerting power : operation
 
+## Avatar: ##
+* An electronic image that represents and may be manipulated by a computer user
+
+## Ridicule: ##
+* The subjection of someone or something to contemptuous and dismissive language or behavior
+
+
