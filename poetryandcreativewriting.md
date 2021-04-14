@@ -813,6 +813,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the African American engineer
 * Grateful for the architecture at The Mother Church
 * Grateful for the man in Memphis who loves Math and Music
+* Grateful for the natural love of the little kids at the Preschoo
+* Grateful for the spontaneous trip to the softball game
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2049,6 +2051,27 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Art ##
+Art, a mirror to hold up to people to show them the dark corners of thought no one wants to be exposed, yet waiting to be exposed.
+Art, a reflection of the truth and light that has existed always.
+Art, a natural design and pattern to the universe that captures the full spectrum, all the colors, including the light, and the shadows.
+Art, a way to lead to a perspective shift, a way to advance civilization, a way to achieve healing in nebulous ways.
+It's abstract in its forms, its a creation that can lead to a revolution, or a 180 degree change in thought.
+
+<br>
+
+Word Associations: design, pattern, color, achieve, civilization, perspective, abstract, creation, form, revolution
+
+## Movement ##
+A step taken closer to the Truth that operates through a dance, both collective and individual through the universe that changes and moves forward, only through the lens of the illusioins of change
+A complete reversal, 180 revolution
+The graceful leadership from One True idea to another true idea
+The graceful shifting of perception from wrong to right
+
+<br>
+
+Word Associations: motion, revolution, resistance, forward, progress, grace, dance, trend, change, illusion
 
 ## Ladder ##
 The beauty of the carpenter climbing up the ladder and standing on top of the roof.
