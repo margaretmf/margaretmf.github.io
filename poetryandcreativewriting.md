@@ -834,6 +834,17 @@ I sing with the stars above, where everyone has a place, and the world around wo
 In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, lighting the path.
 I know I am held so tightly because of how brightly the light shines.
 
+## Babe ##
+It's all about perception, motive, and intent.
+"Babe" can be an innocent, endearing way to address someone.
+"Babe" can also be a teasing way to address someone if there is no intent to commit and settle down with one individual.
+"Babe" signals that the relationship is intimate, close, 1:1, so sound and innocent between partners, exclusive to people outside of the relationship, and questionable when used by someone who seems nebulous, not serious, or in relationships with multiple people.
+"Babe", it can be innocent when coming from another woman also, like "hey dear".
+It's all about perception, motive, and intent.
+"Babe" sounds more sexual than "lady" or "woman".
+People should hold themselves inwardly and outwardly like a "lady" or "woman", expressing "ladylike" and "womanly" qualities.
+"Babe" indicates something sexual, which can be good in a relationship, like "you are cute", but it can degrade a sense of "ladilikeness", "womanliness", mutual respect and graciousness".
+
 ## Bullying ##
 Hello, Mr. Bully
 Remember me?
