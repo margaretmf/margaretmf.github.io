@@ -2063,6 +2063,17 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Crisis ##
+Crisis of one's worth, one does not believe in oneself, one does not trust in oneself, others do not believe or trust.
+One is bankrup fo what seems natural to someone else,
+one is at a crucial moment of transition,
+one is not accepted, falling hostage and prey to popular culture.
+One is changing and falling out and impacted by the social norms that peope dictate and govern.
+
+<br>
+
+Word Associations: collapse, resolve, turn, change, hostage, bankrupt, danger, crucial, ultimatum, nuclear
+
 ## Folk ##
 Good folk live all around us.
 Tales are told, customs are shared, and revived.
