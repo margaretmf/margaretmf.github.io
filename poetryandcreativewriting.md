@@ -2063,6 +2063,17 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Folk ##
+Good folk live all around us.
+Tales are told, customs are shared, and revived.
+History is archived and excavated
+Traditions carry on and new ways of seeing and living are created in the common culture.
+The love of ordinary moments in the spirit, feeling the culture expressed.
+
+<br>
+
+Word Associations: common, culture, tradition, history, lore, tale, influence, ordinary, custom, spirit
+
 ## Art ##
 Art, a mirror to hold up to people to show them the dark corners of thought no one wants to be exposed, yet waiting to be exposed.
 Art, a reflection of the truth and light that has existed always.
