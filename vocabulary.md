@@ -67,4 +67,10 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Ridicule: ##
 * The subjection of someone or something to contemptuous and dismissive language or behavior
 
+## Archetype: ##
+* A very typical example of a certain person or thing
+* "The book is a perfect archetype of the genre"
+* "an original that has been imitated"
+
+
 
