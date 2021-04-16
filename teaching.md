@@ -171,14 +171,50 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## The Return of the Indian ##
 ### Who? ###
+* Omri 
+* "someone with a sense of humor and a black spray"
+* Little Bear
 
 ### Where? ###
+* Hove Road 
+* "a black spray can had recently added an L to the word 'Hove' on the street sign on the corner, making it 'Hovel Road'"
+* "by the sea"
+* "much nicer neighborhood", "the new house", "the other house", "True, the new house was larger, and so was the garden. But the area was a slum."
+* the station, the school
 
 ## What? ##
+* "emerged cautiously"
+* "felt scared"
 
 ## Color ##
+* practically // dark
+* black // trousers, gray // pullover
 
 ## Adjectives ##
+* gloomy // afternoon
+* mindless // antagonism
+* positively // lit
+* Books // scattered
+* well-lit // living room
+* familiar // furniture
+* astonishing // adventures
+* Vividly // real
+
+## Vocabulary ##
+* Gauntlet
+* Antagonism
+
+## Themes ##
+* Feelings - "felt scared"
+* Boyhood
+* Violence, Boone's Revolver
+* Cowboys / Indians
+
+### Interesting Sentences or Paragraphs ###
+"At moments like this, he would remember Little Bear. Little Bear had been only a fraction of Omi's size, and yet he had stood up to him. If he had felt scared, as Omri did now, he never showed it. Omri was not that much smaller than these boys. There were just so many of them, and only one of him. But imagine if they'd been giants, as he was to Little Bear. They were nothing but kids like himself, although several years older. Except that they weren't like 'Pigs. Toads. Mad dogs.' It would be shameful to let them see he was afraid of them. He gripped his schoolba tightly by both handles and came on." (p. 3)
+
+* "An experience lik that taught you something. He fled, hating himself but hating his enemies worse. They didn't pursue him. That would have been too much trouble. But their shouts and jeers followed him all the way to his gate." (p. 5) 
+
 
 ## Mr. Popper's Penguins ##
 ### Who? ###
