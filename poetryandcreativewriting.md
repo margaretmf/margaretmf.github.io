@@ -79,6 +79,10 @@ Margaret
 * "Be Thou My Vision"
 * "Lo, How a Rose Ere Blooming"
 * "My Life Goes On In Endless Song Above Earth's Lamentations"
+* "Love Story"
+* "What a Wonderful World"
+* "Jailhouse Rock"
+* 
 
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
@@ -559,6 +563,16 @@ Margaret
 
 # Poetry #
 
+## Through the Silence ##
+Through the silence
+You knew to call out my name
+I felt like I already knew you
+I knew just what you needed
+We shared a smile and a laugh
+We shared a headnod and a walk
+We shared a song that brough back the memeories
+We shared some messages through the word wide dark net
+
 ## Singing Cowboys ##
 It's mind-blowing that lyrics like those came to my thought before
 It's earth-sweeping that someone can capture the feelings I have yet to express through words
@@ -845,6 +859,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the natural love of the little kids at the Preschoo
 * Grateful for the spontaneous trip to the softball game
 * Grateful for the stoplights
+* Grateful for orange marker balls, they hang from power lines
+* Grateful for advertisements and billboards on highways
+* Grateful for the Post Office
+* Grateful for a society built on notes and letters, and the underground messaging
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2092,6 +2110,32 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Silence ##
+The silent truth echoes down the ages from heart to heart,
+from story to story,
+from experience to experience, from song to song,
+from coast to coast.
+It never stops its sound.
+It lives and loves the solitude, putting a stop to the chatter, the murmurs, the muffles.
+The silent secret within is a heart filled with golden light.
+It has great command over the serpent, and is able to tread on them.
+
+<br>
+
+Word Associations: sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
+
+## Women ##
+Gentle beams of living love
+The expressions of the calm, and peaceful life force
+People with a strong sense and connection to nature
+Anchors to life as sisters, mothers, and wives
+Protectors of the earth
+People who can help the women nearby adjust their crowns with a rejoicing heart
+
+<br>
+
+Word Associations: life, protection, attraction, sense, nature, sister, mother, wife, queen, anchor
 
 ## Temptation ##
 The lure to engage in something that's not right for oneself, that's wrong
