@@ -815,6 +815,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the man in Memphis who loves Math and Music
 * Grateful for the natural love of the little kids at the Preschoo
 * Grateful for the spontaneous trip to the softball game
+* Grateful for the stoplights
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2062,6 +2063,20 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Dreams ##
+Dreams of the pain, 
+concerns of the people around me,
+shadows of life coming to the surface,
+reaching a crossroad where there are nightmarish memories in relation to beliefs coming to the surface,
+anxiety for what I don't want to happen,
+but the terror becomes real, all the more real,
+the goals go to waste, and
+the victory is hard to attain.
+
+<br>
+
+Word Associations: shadows, goals, memories, nightmares, night, hopes, anxiety, fears, terror, victory
 
 ## Crisis ##
 Crisis of one's worth, one does not believe in oneself, one does not trust in oneself, others do not believe or trust.
