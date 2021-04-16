@@ -675,7 +675,7 @@ Everyone reflects, sees, knows, and shares the light.
 Just when you feel like you/I have failed, God moves in a miraculous way through a vision, a song, an insight, a friendly neighbor, a job, an act of forgiveness.
 God is always bringing us closer to our family, first individually, and then collectively.
 
-## These Feelings Are Univeral ##
+## These Feelings Are Universal ##
 These feelings are universal.
 The feeling captured in the song are ones everyone has.
 Thank you for the musician who put the feelings in words.
@@ -863,6 +863,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for advertisements and billboards on highways
 * Grateful for the Post Office
 * Grateful for a society built on notes and letters, and the underground messaging
+* Grateful for the Matthew Code and bringing challenges directly to people
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -1412,9 +1413,10 @@ Imagine a world where all 7.2 billion people are singing with their own tones.
 Imagine a world where all 7.2 billion people love one another.
 Imagine a world where all 7.2 people quickly forgive.
 The World would resound with light and sound.
---All the coordinates, every localized place, people look up to the same Sun from different perspectives
---People sing with their full hearts and sing their own tunes
---I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+--All the coordinates, every localized place, people look up to the same Sun from different perspectives.
+For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
+People sing with their full hearts and sing their own tunes.
+I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
 
 ----------
 
@@ -1460,7 +1462,7 @@ Is the act life-giving? Then it's morally right.
 Is the act loving? Then it's morally just.
 Is the act truthful, honest, factual, and just? Then it's morally correct.
 Is the act principled, ordered, and balanced? Then it's moral.
-The place within where there's moral freedom is where there's a consciousness so filled with love and light, and no room for fear. anger, false judgment, want, or disappointment.
+The place within where there's moral freedom is where there's a consciousness so filled with love and light, and no room for fear, anger, false judgment, want, or disappointment.
 
 ## "Love Chases the Storms Away"
 Love and life within chases the storms away.
