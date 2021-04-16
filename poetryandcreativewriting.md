@@ -2064,6 +2064,21 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Bottom ##
+It got to the bottom of it,
+the place where there's a hole,
+the most anger,
+the most insecurity,
+it got to the layer that needs to be healed, made whole,
+where there's a cultural and societal split over who man and woman and people are,
+where the erring senses manipulate, distort, judge, corrupt, fantasize, romanticize, sexualize life.
+It got to the point of the lowest low, the decomposing sne of who people are, the fall, the point of despair in the human heart that is ridiculed and satirized and made fun of and dramatized,
+the part of humanity that leads to immaturity and immorality, and a sinking ship within.
+
+<br>
+
+Word Associations: hole, layer, sense, fall, sink, cargo, low, despair, plug, decompose
+
 ## Dreams ##
 Dreams of the pain, 
 concerns of the people around me,
