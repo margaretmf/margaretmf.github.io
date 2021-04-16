@@ -171,9 +171,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## The Return of the Indian ##
 ### Who? ###
-* Omri 
+* Omri - private person, the wife
 * "someone with a sense of humor and a black spray"
-* Little Bear
+* Little Bear, Indian
+* Patrick
+* Boone - a cowboy
 
 ### Where? ###
 * Hove Road 
@@ -189,6 +191,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ## Color ##
 * practically // dark
 * black // trousers, gray // pullover
+* black and white // cat
 
 ## Adjectives ##
 * gloomy // afternoon
@@ -198,22 +201,78 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * well-lit // living room
 * familiar // furniture
 * astonishing // adventures
-* Vividly // real
+* vividly // real
+* strange // look
+* wide // open
+* goggle-eyed // expression
+* deep // glow
+* hot // coals
+* open // doorway
+* fairly // dragged
+* breathed // reverently
+* incredible // excitement
+* brass // plate
+* terrible // fright
+* shamingly // softhearted (for a cowboy)
 
 ## Vocabulary ##
 * Gauntlet
 * Antagonism
+* Bursting
+* Fright
+* Astonished
+* Brilliant
+* Beaming
+* Confessed
+* Mananimous
+* Generous
+* Sarcasm
+* Admiration
+* Relish
+* Acquisition
+* Coincidence
+* Superstitious
+* Torment
 
 ## Themes ##
 * Feelings - "felt scared"
 * Boyhood
 * Violence, Boone's Revolver
 * Cowboys / Indians
+* Parents, Divorce - Broken Ideal
+* A tease
+* Secrets, Loneliness
+* Homelife
+* Stories, Imagination, Invention, Writing and Spelling
+* Indain Tribes
+* Plastic Indian Objects, Toys
+* Natural Enemies, Little Bear and Boone, "they came close to killing each other several times"
+* American Soil
+* Magic
 
 ### Interesting Sentences or Paragraphs ###
-"At moments like this, he would remember Little Bear. Little Bear had been only a fraction of Omi's size, and yet he had stood up to him. If he had felt scared, as Omri did now, he never showed it. Omri was not that much smaller than these boys. There were just so many of them, and only one of him. But imagine if they'd been giants, as he was to Little Bear. They were nothing but kids like himself, although several years older. Except that they weren't like 'Pigs. Toads. Mad dogs.' It would be shameful to let them see he was afraid of them. He gripped his schoolba tightly by both handles and came on." (p. 3)
+"At moments like this, he would remember Little Bear. Little Bear had been only a fraction of Omi's size, and yet he had stood up to him. If he had felt scared, as Omri did now, he never showed it. Omri was not that much smaller than these boys. There were just so many of them, and only one of him. But imagine if they'd been giants, as he was to Little Bear. They were nothing but kids like himself, although several years older. Except that they weren't like 'Pigs. Toads. Mad dogs.' It would be shameful to let them see he was afraid of them. He gripped his schoolba tightly by both handles and came on." (p. 3, The Return of the Indian)
 
-* "An experience lik that taught you something. He fled, hating himself but hating his enemies worse. They didn't pursue him. That would have been too much trouble. But their shouts and jeers followed him all the way to his gate." (p. 5) 
+* "An experience lik that taught you something. He fled, hating himself but hating his enemies worse. They didn't pursue him. That would have been too much trouble. But their shouts and jeers followed him all the way to his gate." (p. 5, The Return of the Indian)
+
+* "They chatted on rather awkwardly, with some silences, but it got better. By the time they'd reached the station it was almost as if Patrick ahd never gone away, as if they were still as close as they used to be. That was why Omri didn't hesitate to say, 'Where do you keep Boone and his horse?'" (p. 7, The Return of the Indian)
+
+* "It's lonely having a secret like that. If Patrick hand'tmoved away, if they could have kept talking about it and remembering together, then he'd never have denie it, or started trying to pretend it never happened." (p. 8, The Return of the Indian)
+
+* "communed with her, eyeball to eyeball" (p. 10, The Return of the Indian)
+
+* "read the story aloud" (p. 13, The Return of the Indian)
+
+* "Omri's head began to spin with the incredible excitement of it. He jumped up." (p. 13, The Return of the Indian)
+
+* "The Iroquois were a tribe ferocious in war, stalward in alliance, magnanimous in victory" (p. 15, The Return of the Indian)
+
+* "In the old house, his bedroom had been just one of several opening off the upstairs landing, and at certain times of the day had been like a railway station. His new room was off the beaten track. No one (in his opinion) had any reason to come up here, or even pass the door. There were times, now that he had it all arranged to suit himself, when he forgot about how awful it was living in Hovel Road, when it seemed wroth anything to have a room like this." 9p. 17, The Return of the Indian)
+
+* "Put any plastic object - an ax, an India tepee, a quiver of arrows - into it, close the door, turn the key... and those things became real - miniature but real. Real leather, real cloth, real steel. Put the plastic figures of human beings or animals inside, and in the time it took to lock them in, they, too, became real. Real and live. And not just 'living toys', but people from another time, from their own lives, with their own personalities and needs and demands." (p. 20, The Return of the Indian)
+* "Cabinet's magic properties" (p. 20, The Return of the Indian)
+
+* "By putting their plastic figures into the magic cupboard, by turning the magic key, Omri had the power to recall them to life. To youth. He could snatch them from the past. The whole business nearly blew Omri's mind every time he thought at all deeply about it. So he tried not to think about it too much. And to prevent his yielding to temptaiton, he had given his mother the key. She wore it around her neck on a chain (it was quite decorative). People often asked her about it, and she would say, 'It's Omri's really, but he lends it to me.' That wasn't the whole truth. Omri had pressed it on her and begged her to keep it safe for him. Safe...not just getting lost again, but safe from him, from his longing to use it again; to reactivate the magic, to bring back his friends. To bring back the time when he had been - not happiest, but most intensely, dangerously alive himself." (pp. 22-23, The Return of the Indian)
 
 
 ## Mr. Popper's Penguins ##
