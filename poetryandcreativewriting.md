@@ -2085,6 +2085,18 @@ The love of ordinary moments in the spirit, feeling the culture expressed.
 
 Word Associations: common, culture, tradition, history, lore, tale, influence, ordinary, custom, spirit
 
+## Courage ##
+The courage to take another step after falling.
+The spirit of hope for humanity.
+The spirit fo virtue to know how to help people.
+The muster to keep going after failing.
+The ability to live amdist danger and fear and warfare.
+The heroism to overcome cowardly ways.
+
+<br>
+
+Word Associatiosn: hero, virtue, muster, coward, display, fail, spirit, danger, fear, war
+
 ## Art ##
 Art, a mirror to hold up to people to show them the dark corners of thought no one wants to be exposed, yet waiting to be exposed.
 Art, a reflection of the truth and light that has existed always.
