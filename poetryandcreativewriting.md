@@ -402,10 +402,11 @@ It's ok to cry
 It's ok to feel
 It should feel good to sing
 
-Thank you for holding the door
-Thank you for touching my heart
-Thank you for the concern for my health
-Thank you for asking me to dance
+Thank you for holding the door and making me feel like a lady
+Thank you for touching my heart and making me remember home
+Thank you for the head nod and helping me feel cool
+Thank you for the concern for my health and helping me recover
+Thank you for asking me to dance and not making me feel bad
 
 The love and the smile is in the silence
 The anger is in the lack of voice
@@ -414,6 +415,25 @@ In the bitterness and the loss, I found a voice that you happened to save
 The freedom is in the independence
 The spirit is all around
 The healing is in the mystery of the whirlwind of it all
+
+## She ##
+She had it all
+She was the babe
+She had the voice
+And she had the career
+
+I was a sinner
+I could barely speak or sing
+I was so flawed, so lacking, so desperate
+I was not the babe
+
+## The Tease ##
+He only spoke when it was convenient
+He knew my deepest flaws
+He knew my worst fears
+He knew my loudest secrets
+He knew my strongest weak points
+He knew just how to strike a chord with all that was wrong with me and make me change
 
 ## A Real Man ##
 A real man would say go for it, do it
