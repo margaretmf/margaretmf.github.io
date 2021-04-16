@@ -388,6 +388,15 @@ I have taken real train rides to Pennsylvania and back, and to Boston and back. 
 ## Write about a time you felt alone. ##
 Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
 
+## Where I am weak, you are strong ##
+Where I am weak, you are strong
+Where I am broken, you are whole
+Where I am alone, you are there
+Where I have failed, you know me
+Where I am broken, you are full
+Where I have said something wrong, you speak the truth
+Where I am hurt, you provide love
+
 ## It's Ok ##
 It's ok to cry
 It's ok to feel
