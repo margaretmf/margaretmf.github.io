@@ -2073,6 +2073,68 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Temptation ##
+The lure to engage in something that's not right for oneself, that's wrong
+The pull to sin
+The snakey voice that leads to reactions, a draw to sexiness, hotness
+The cravings for what is not healty
+The desire to be wild 
+The voice of the devil belitting, patronizing, defining someone as less than pure ideas
+
+<br>
+
+Word Associations: devil, lure, wild, shame, sin, resist, snake, craving, struggle, desire
+
+## Monster ##
+The monstrous ego that wants to promote itself, compare itself to others, boast, speak only about itself
+The monstrous terroristic reactions that wnat to be individualistic and like no one else
+The society mtyhs of cowobys, damsels-in-distress
+The labyrinth of false beliefs to be purged
+The ugly creature within that wants to be unleashed and uncloseted
+The feeling of being hit by truck with hate, and foolishness, and teasing, and ridicule
+
+<br>
+
+Word Associations: terror, beast, myth, labyrinth, creature, truck, unleaed, closet, hunt, supernatural
+
+## Identity ##
+Identity - what gives one meaning, and a purpose
+The essence within that roots someone and defines them
+The authetnic self with passions, ideas, thoughts, interests, and qualities like curiosity, wholeness, grace, creativity, ability
+The person who naturally loves 
+People try to steal this identity, rob the identity of it's true gold, it's true worth, define it by societyal truths
+Soceity tries to mask it
+People destory the privacy
+Beliefs cover up the appearance, and personality comes as a disguise
+
+<br>
+
+Word Associations: theft, mask, appearance, disguise, authentic, self, meaning, person, privacy, proof
+
+## Boundary ##
+A limit within oneself for what is acceptable in relations with others.
+A boundary for how others can treat someone, and how they can treat others.
+An edge, where one begins and ends, and where another begins and ends.
+An openness to a new frontier, a new territory.
+A crossing, a bridge that helps people relate and map the interests and ideas of one individual to the interests and individuals of another.
+The line that shuts out the outlwas from those that belong in the territory.
+
+<br>
+
+Word Associations: edge, coastline, frontier, territory, fault, limit, outlaw, cross, map, citizen
+
+## Honor ##
+The loss of honor, the loss of the pledge to mankind and society,
+the loss of the value, and the trust.
+The denigration of one as someone with ideas, thoughts, and a voice.
+The loss of a legacy fo doing good for society, the state.
+The loss of a state where one is respected or known as being attentive.
+The loss of the king within, the armor of good.
+
+<br>
+
+Word Associations: war, ceremony, legacy, dignity, state, pledge, king, armor, value, trust
+
 ## Bottom ##
 It got to the bottom of it,
 the place where there's a hole,
