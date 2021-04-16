@@ -169,6 +169,17 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## The Return of the Indian ##
+### Who? ###
+
+### Where? ###
+
+## What? ##
+
+## Color ##
+
+## Adjectives ##
+
 ## Mr. Popper's Penguins ##
 ### Who? ###
 * Mr. Popper
