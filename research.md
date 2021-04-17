@@ -10,6 +10,14 @@
 * How does benevolent racism and benevolent sexism influence our lifes?
 * What does it mean to be a "knight in shining armor"? [Men's Roles]
 
+## [Romanticism]() ##
+* Lyrical Ballads, 1798 the word "Romantic", "fanciful, light, inconsequential"
+* European Intellectuals, German Literature
+* Byron, Dante, Petrach, Boccaccio, Blake, Wordsworth, Coleridge, Byron, Shelley, Keats, Southey, Scott, Shelley
+* "Romantic writers", "English poets"
+* Charlotte Smith, Hannah More, Anna Laetitia Barbauld, Helen Maria Williams, Felicia Dorothea Hemans, Letitia Landon
+* "the concept of Romanticism"
+
 ## [Thomas Jefferson](https://billofrightsinstitute.org/founders/thomas-jefferson) ##
 "Thomas Jefferson hoped that he would be remembered for three accomplishments: his founding of the University of Virginia, his crafting of the Virginia Statute for Religious Freedom, and his authorship of the Declaration of Independence. It is for the last that he has most endeared himself to succeeding generations as a champion of liberty and equality.
 
