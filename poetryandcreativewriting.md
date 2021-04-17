@@ -2113,6 +2113,19 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Fire ##
+The fire within that lights someone up.
+The enflamed heat that cares for our heart and its sincerest desires.
+The kindling of what helps people feel at home.
+A passion within for someone tht helps us explode with joy.
+The bonds shared around a camp.
+The overcoming of the hell of lusts, anger, and depravity.
+The red drag of reactions and lashing out and hurting people.
+
+<br>
+
+Word Assocations: heat, flame, camp, explode, bomb, kindle, Hell, passion, dragon, cook
+
 ## Story ##
 Every one has a story of faith transforming them.
 Every one has a story of ancetors in other countires and the US.
