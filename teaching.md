@@ -196,6 +196,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * red // dress
 * brown, living // skin
 * khaki / bandages
+* white // bands
+* red // ball, the sun
 
 ## Adjectives ##
 * gloomy // afternoon
@@ -230,6 +232,26 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * munching // grass
 * eyes // glowing
 * lovely // place
+* favorite // corner
+* fearsome-looking // blade
+* big // lawn
+* monstrous // wilderness
+* well-oiled // defense
+* profound // silence
+* murky // water
+* physically // linked
+* intense anticlimax
+* little // house
+* plastic // figure
+* rocky // hillside
+* central // fire
+* dark // heart
+* night // sky
+* ruined // longhouse
+* clean // pages
+* bright // light
+* biggest // skinhead
+* life // force
 
 ## Vocabulary ##
 * Gauntlet
@@ -282,6 +304,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * American Soil
 * Magic
 * Homelife
+* Algonquin, Iroquois, Mohawk
 
 ### Interesting Sentences or Paragraphs ###
 "At moments like this, he would remember Little Bear. Little Bear had been only a fraction of Omi's size, and yet he had stood up to him. If he had felt scared, as Omri did now, he never showed it. Omri was not that much smaller than these boys. There were just so many of them, and only one of him. But imagine if they'd been giants, as he was to Little Bear. They were nothing but kids like himself, although several years older. Except that they weren't like 'Pigs. Toads. Mad dogs.' It would be shameful to let them see he was afraid of them. He gripped his schoolba tightly by both handles and came on." (p. 3, The Return of the Indian)
@@ -324,6 +347,16 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * English soldiers; differing periods; the French in America; Omri, "keen on brining any white men into it' (p. 97, The Return of the Indian)
 
+* "She put the glove-finger around him tot he armpits while Boone ran up the ramp and puled it up behind him. The two ponies were munching grass in their frenced-off paddock. Omri picked the whole thing up, while Patrick took the cupboard and the bag of new men. As an afterhtought he slipped Matron in his pocket. Omri did a quick reconnaissance to see that nobody was around. The they cautiously trooped down the stairs and out the kitchen door into the back garden.
+
+It was really a lovely place, far better than their old garden. It was not just a rectangle of lawn with a few flower beds. It had nooks and crannies. Omri headed for his favorite corner, a clump of bushes with a patch of grass in the middle, where rhododendrons and other tall plants kept prying eyes at bay. The sun was high and the place was sheltered from the wind. Still, Omri suggested Little Bear should be put into the longhouse to keep warm." (p. 100, The Return of the Indian)
+
+* "'More like Indian. Earth colors. Like leaf. Shadow. More good for hide. Jump out on enemy. Whit man learn much from Indian.'" (p. 103, The Return of the Indian)
+
+* "the idea of machine guns running amok with the idea of Indinas" "grenades and artillery" (p. 117, The Return of the Indian)
+
+* "bringing Indians to life"
+* "the guns the Indians had", "the cupboard"
 
 ## Mr. Popper's Penguins ##
 ### Who? ###
