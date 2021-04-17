@@ -108,6 +108,7 @@ Margaret
 * "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
 * "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
+* [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
 
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
