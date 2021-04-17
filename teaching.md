@@ -190,6 +190,115 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## The Secret of the Indian ##
+### Who? ###
+* Omri, and his plastic toys
+* Omri's parents
+* The baby-sitter - punctual and reliable
+* Patrick
+* Uniformed policemen
+* Omri's great-grandmother
+* Boone, the plastic figure
+
+### Where? ###
+* Their home, "drove home from their party", his mother, his father, car 
+* "Came up the steps and rang the bell"
+
+### What? ###
+* "their car key"
+* "a lengthy pause", "the door opened", "the light was behind him"
+* The Indian, the Key, the Cupboard
+
+### Color ###
+* very distressed // black // horse
+
+### Adjectives ###
+* wretched // baby-sitter
+* remote // island
+* cold, shaky // hands
+* dividing // door
+* little // pinholes
+* tiny // bullets
+* miniature // mortars
+* spiked // tools
+* burnt-out // candle
+* fateful // night
+* secret // cupboards, drawers, rooms
+* hiding // places
+* prying // eyes
+* favorite // things
+* rummaging // brothers
+* little // man
+* common // plight
+* marvelous // tale
+* vital // part
+* musket // balls
+* horrific // battle
+* modern // weapons
+* plastic // Marines
+* low // voices
+* heavy // silence
+* sick // joke
+* bloodstained // bodies
+* special // rituals
+* crybaby // cowboy
+* new // horse
+* bunk // bed
+* magic // cupboard
+* impatient // voice
+* amazing // idea
+* fantastic // one
+* desparate // hope
+* handmade // magnificence 
+* doubtful // tone
+* cautiously // forward
+* doomful // look
+
+### Vocabulary ###
+* Frantically
+* Lopsidedly
+* Stamping
+* Criminally
+* Exclamations
+* Ludicrous
+* Intruders
+* Reluctance
+* Conferred
+* Chuckle
+* Sniffling
+* Shuddered
+
+### Themes ###
+* Home Life
+* Adventure
+* Bringing the Plastic Figures to Life
+* Cowboys, Indians - enemies
+* the Algonquins, the French Soldiers
+* Weaponry, Fighting 
+* Innocent Childhood, Family Life
+
+### Interesting Sentences or Paragraphs ###
+* "Omri heard the light being switched on, and he bit his lips in suspense." (p. 6, The Secret of the Indian)
+* "'What in God's sweet name has been going on in our bedroom?'" (p. 6, The Secret of the Indian)
+
+* "'You look like a Sikh in that bandage'" (p. 9, The Secret of the Indian)
+
+* "the little plastic figure of an American Indian" (p. 18, The Secret of the Indian)
+
+* "bringing the plastic figures to life" (p. 19, The Secret of the Indian)
+
+* "The Indian, Little Bear, was no mere toy. Omri soon found out that he was a real person, somehow magicked into present-day London, England from the America of nearly two hundred years ago. The son of a chief of the Iroquois tribe, a fighter, a hunter, with his own history and his own culture. His own beliefs and morals. His own brand of courage." (p. 19, The Secret of the Indian)
+
+* "Little Bear regarded Omri as a magic being, a giant from the world of the spirits, and was at first terrified of him. Omri could see he was afraid, but the Indian was incredibly brave and controlled, and Omri soon began to admire him. He realized he couldn't treat him just as a toy - he was a person to be respected, despite his tiny size and relative helplesness." (p. 19, The Secret of the Indian)
+
+* "Patrick's face was blank for a moment, and Omri thought, Hes scared, and who can blame him! But then he saw it wasn't that all. Patrick simply hadn't been able to grasp the idea at first. When he did grasp it, not just his face but his whole body seemed to light up with excitement." (p. 37, The Secret of the Indian)
+
+* "Omri closed the door, turned the key, and after a moment turned it back, opened the door, and removed the nine plastic figures." (p. 45, The Secret of the Indian)
+
+
+----------
+
+
 ## The Return of the Indian ##
 ### Who? ###
 * Omri - private person, the wife
