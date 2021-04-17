@@ -873,6 +873,9 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the Post Office
 * Grateful for a society built on notes and letters, and the underground messaging
 * Grateful for the Matthew Code and bringing challenges directly to people
+* Grateful for a conversation with my aunt
+* Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
+* Grateful for positive memories of spending the summers reading in bunk beds with cousins
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
