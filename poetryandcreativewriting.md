@@ -7,6 +7,15 @@ is_contact: true
 
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
 
+## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: 
+
+'You're a poet, and you know it.
+Long before we had cities of stone or the technology to write, our ancestors were expressing their wants, needs, and personalities through singing and reciting poetry. Poetry was a record of history, an art form for every age, and a weapon capable of swaying any battle. It was the simplest and most reveed form of communication for centuries.
+
+Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
+
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' ##
+
 ## There is some other writing at the bottom. ##
 
 # Beliefs #
