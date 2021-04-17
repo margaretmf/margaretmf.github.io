@@ -2113,6 +2113,20 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Mutation ##
+A change in the code to life,
+mutating the pattern, the order,
+triggering renewal, and destruction all at once,
+leading to an inherited difference in behavior and being,
+a monstrous shift,
+an experiment with a new breed of thinking,
+a trigger to adapt,
+a random event that leads to a structural cleavage
+
+<br>
+
+Word Associations: change, inherit, trigger, code, offspring, monster, experiment, cleave, random, breed
+
 ## Fire ##
 The fire within that lights someone up.
 The enflamed heat that cares for our heart and its sincerest desires.
