@@ -192,6 +192,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * practically // dark
 * black // trousers, gray // pullover
 * black and white // cat
+* black // stockings
+* black // eyes
+* white // horse
+* red // bandanna
+* red // cross
+* white // ground
+* black // specks
+* black // eyes
 
 ## Adjectives ##
 * gloomy // afternoon
@@ -214,6 +222,29 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * brass // plate
 * terrible // fright
 * shamingly // softhearted (for a cowboy)
+* dead // faint
+* magic // cupboard
+* exceedingly // proficient
+* strong // tea
+* kitchen // light
+* stodgy // old lady
+* derelict // masterworks
+* anguished // cry
+* staring // eyes
+* extraordinary // change
+* quavering // voice
+* chain // mail 
+* old-fasioned // popguns
+* human // screen
+* pouring // blood
+* Indian // encampment
+* muffled // boom
+* bullet // holes 
+* tiny // pair 
+* cowboy // boots
+* blood // splashed
+* hard // stuff
+* tempting // solution
 
 ## Vocabulary ##
 * Gauntlet
@@ -233,6 +264,20 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Coincidence
 * Superstitious
 * Torment
+* Scurried
+* Miraculously
+* Formidable
+* Muttered
+* Efficient
+* Violently
+* Enigmatic
+* Microscopic
+* Quaver
+* Listening
+* Transfixed
+* Bristling
+* Adamant
+* Silence
 
 ## Themes ##
 * Feelings - "felt scared"
@@ -249,6 +294,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Natural Enemies, Little Bear and Boone, "they came close to killing each other several times"
 * American Soil
 * Magic
+* Expression
+* Feelings
+* Anger, Battering / Kicking
+* Richard the First, Palestine, Saracens, French Foreign Legionnaire, Arab tribesman, Russian Cossack, "great fighters", Frenchman in America, the Legions
 
 ### Interesting Sentences or Paragraphs ###
 "At moments like this, he would remember Little Bear. Little Bear had been only a fraction of Omi's size, and yet he had stood up to him. If he had felt scared, as Omri did now, he never showed it. Omri was not that much smaller than these boys. There were just so many of them, and only one of him. But imagine if they'd been giants, as he was to Little Bear. They were nothing but kids like himself, although several years older. Except that they weren't like 'Pigs. Toads. Mad dogs.' It would be shameful to let them see he was afraid of them. He gripped his schoolba tightly by both handles and came on." (p. 3, The Return of the Indian)
@@ -273,6 +322,18 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Cabinet's magic properties" (p. 20, The Return of the Indian)
 
 * "By putting their plastic figures into the magic cupboard, by turning the magic key, Omri had the power to recall them to life. To youth. He could snatch them from the past. The whole business nearly blew Omri's mind every time he thought at all deeply about it. So he tried not to think about it too much. And to prevent his yielding to temptaiton, he had given his mother the key. She wore it around her neck on a chain (it was quite decorative). People often asked her about it, and she would say, 'It's Omri's really, but he lends it to me.' That wasn't the whole truth. Omri had pressed it on her and begged her to keep it safe for him. Safe...not just getting lost again, but safe from him, from his longing to use it again; to reactivate the magic, to bring back his friends. To bring back the time when he had been - not happiest, but most intensely, dangerously alive himself." (pp. 22-23, The Return of the Indian)
+
+* "a little bird making a nest" (p. 71, The Return of the Indian)
+
+* "Omri uttered a shout of joy" (p. 74, The Return of the Indian)
+
+* "Omri was frowning, trying to imagine. 'Listen,' He picked up a knight in chain mail with a big helmet and a shield with a red cross on a white ground. 'If we put this one in, for instance, he'd come to us from the time of Richard the First. He wouldn't know a thing about Indians. He'd want to go off to Palestine and kill Saracens.' He put the knight down and picked up a soldier in a flat cap and khaki shorts. 'This one's a French Foreign Legionnaire. We couldn't even talk to him. Let alone to an Arab tribesman or a Russian Cossack. They were great fighters, but they wouldn't jsut agree to be in an army fighting Frenchmen in America on the side of the Indians. They're not toys. Every one of them's a person - I mean, if we brought them to life. We'd have to explain everything, half of them wouldn't believe it, others might think they'd gone crazy"
+
+* "the possibility of helping the Indians" (p. 84, The Return of the Indian)
+
+* "'So mah idee could work,' Boone remarked after draining his drink. 'Ten fellas like them, with guns like that, an' those Frenchies would be on their knees, if they had any left, beggin' the redskins to make powwow.'" (p. 94, The Return of the Indian)
+
+* "'You try explaiing to a whole bunch of soldiers who're probably in the middle of World War II or in Norhtern Ireland, that they're not to fight the Nazis or the IRA, they're to go off and shoot eighteenth-century Frenchmen in the middle of New York!'" (P. 94, The Return of the Indian)
 
 
 ## Mr. Popper's Penguins ##
