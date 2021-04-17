@@ -169,6 +169,27 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## Island of the Blue Dolphins ##
+### Who? ###
+
+### Where? ###
+
+### What? ###
+
+## Color ##
+
+## Adjectives ##
+
+## Vocabulary ##
+
+## Themes ##
+
+### Interesting Sentences or Paragraphs ###
+
+
+----------
+
+
 ## The Return of the Indian ##
 ### Who? ###
 * Omri - private person, the wife
