@@ -5,20 +5,26 @@ is_contact: true
 
 ## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
 
+## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. I am continuing this journey of writing music and setting poetry to music. ##
+
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
 
-## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: 
+## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
 
 'You're a poet, and you know it.
 Long before we had cities of stone or the technology to write, our ancestors were expressing their wants, needs, and personalities through singing and reciting poetry. Poetry was a record of history, an art form for every age, and a weapon capable of swaying any battle. It was the simplest and most reveed form of communication for centuries.
 
 Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
 
-In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' ##
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
 ## There is some other writing at the bottom. ##
 
-# Beliefs #
+
+----------
+
+
+# American Credo Beliefs #
 ## Art ##
 *I believe* participation in the fine arts brings joy [in 2009, 2010]
  
@@ -50,6 +56,10 @@ I love learning about interconnectedness, and how we are all connecting each oth
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
+
+----------
+
+
 ## Questions ##
 * What is democracy?
 * What does it mean to democratize?
@@ -63,6 +73,10 @@ Christian Science teaches that "we are all tributary to the same source", but th
 * How do you describe your relationship to God?
 * Do you believe in a higher power?
 * How do you feel Church and Democracy are related?
+
+
+----------
+
 
 # Creative Writing #
 ## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
@@ -82,16 +96,18 @@ Love,
 Margaret
 
 ## Top Songs ##
-* "When You Say Nothing at All"
+* "When You Say Nothing at All" --- **interested in this**
 * "Memphis Soul Song"
-* "I'm So Tired of Being Alone"
+* "I'm So Tired of Being Alone" --- **interested in this**
 * "Be Thou My Vision"
 * "Lo, How a Rose Ere Blooming"
 * "My Life Goes On In Endless Song Above Earth's Lamentations"
-* "Love Story"
-* "What a Wonderful World"
-* "Jailhouse Rock"
-* "Boy with a Coin"
+* "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
+* "What a Wonderful World" --- **interested in writing and composing a song called 'A New Day' inspired by this**
+* "Jailhouse Rock" --- **interested writing and composing a female version fo this song**
+* "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
+* "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
+* "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
 
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
