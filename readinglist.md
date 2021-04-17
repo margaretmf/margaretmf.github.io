@@ -11,6 +11,8 @@ layout: default
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
+* [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
+* [Traffic]() by tom vanderbilt
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
