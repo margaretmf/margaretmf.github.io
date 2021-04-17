@@ -2142,6 +2142,17 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Comedy ##
+The breakdown, the reaction is so ridiculous, it's like slapstick comedy, giving people a reason to laugh
+It's so out of the ordinary, it's tragic, and staged
+It's such a strong gag, that someone must satirize and turn humanity's vices into high art
+Drama in humanity becomes showtime in no time
+A direct sketch of everything comical in every day life
+
+<br>
+
+Word Associations: sketch, showtime, direct, laugh, satire, gag, tragic, art, drama, stage
+
 ## Symbol ##
 A representation for something to be known, and understood
 A sign signaling a missing puzzle piece
