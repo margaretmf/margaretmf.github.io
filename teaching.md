@@ -210,7 +210,12 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * The Indian, the Key, the Cupboard
 
 ### Color ###
-* very distressed // black // horse
+* very distressed // black // horsehuge, smooth, pale-brown // riverbed
+* black // mountain range
+* white // petticoats
+* red satin // dress
+* red // laces
+* red satin // ribbon
 
 ### Adjectives ###
 * wretched // baby-sitter
@@ -253,6 +258,53 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * doubtful // tone
 * cautiously // forward
 * doomful // look
+* harsh // sun
+* endless // expanse of sun
+* glaring // sun
+* gigantic // hat
+* soft-cornered // building
+* immediate // danger
+* glassy // shingle
+* overwhelming // sorrow
+* flicking // movement
+* shattered // sweater
+* expert // attention
+* urgent // desire
+* fine // friend
+* conflicting // efforts
+* bounding // curves
+* thick // flannel
+* distant // thunder
+* sickening // motion
+* gigantic // feet
+* ten-lane // highway
+* whole // sky
+* street // sounds
+* swinging // doors
+* soft // heart
+* little // ride
+* slight // embarassment
+* old-fashioned // gallon
+* heavy // stirrup
+* skycraper // height
+* meaningful // swallow
+* liqueur // glass
+* red sattin // ribbon
+* powerful // vittles
+* appalling // danger
+* old-fashioned // stethoscope
+* copper // hairpins
+* marble // pillar
+* whirling // leaves
+* old // fragments
+* open // sky
+* angry // sky
+* spurred // boots
+* freak // storm
+* absolute // disaster
+* real, tiny // frying pan
+* marvelous // occasion
+* piano // stool
 
 ### Vocabulary ###
 * Frantically
@@ -267,6 +319,30 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Chuckle
 * Sniffling
 * Shuddered
+* Promontory
+* Tottered
+* Oblivion
+* Suspense
+* Vulnerable
+* Exclamation
+* Tantalizingly
+* Grinned
+* Ecstatically
+* Vicinity
+* Intrepid
+* Suffocated
+* Incredulous
+* Mumbled
+* Conscience
+* Appalled
+* Hissing
+* Peeping
+* Querulous
+* Phenomenon
+* Vanished
+* Detonated
+* Gazing
+* Abrupt
 
 ### Themes ###
 * Home Life
@@ -294,6 +370,24 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Patrick's face was blank for a moment, and Omri thought, Hes scared, and who can blame him! But then he saw it wasn't that all. Patrick simply hadn't been able to grasp the idea at first. When he did grasp it, not just his face but his whole body seemed to light up with excitement." (p. 37, The Secret of the Indian)
 
 * "Omri closed the door, turned the key, and after a moment turned it back, opened the door, and removed the nine plastic figures." (p. 45, The Secret of the Indian)
+
+* "Patrick's journey through time and space was swift and painless", "a strange sort of whoosh during which he seemed to feel, for a split second, buffeted, as when two heavy trucks pass close by each other traveling at high speed in opposite directions" "Then there was heat, silence, and stillness" (p. 55, The Secret of the Indian)
+
+* "breathe life back into that tiny body" (p. 62, The Secret of the Indian) "giving Boone the kiss of life" and "artificial resuscitaiton" (p. 63, The Secret of the Indian)
+
+* "Suddenly they did focus. They foucsed on something he hadn't noticed before. Heaven knows why, because it was absolutely enormous. A vast black mountain range on the horizon. And it was moving." (p. 81, The Secret of the Indian)
+
+* "'Pt - this is Tickle. His real name's the Reverend Godfrey Tickson, and he has a past you wouldn't believe to look at him now, but we call him Tickle 'cause he tickles the ivories. Plays the piano, get it? Plays real good, too, especially hymns! Only now, eh, Tick? I got somethin' important fer ya to do. Is your buggy handy?'" (p. 98, The Secret of the Indian)
+
+* "'A real privilege, ma'am,' he said courteously. He stared at ehr for a moment. 'Y'know, with that fair hair o'yorn, and them eyes blue as the midday sky, ya sure remind me of a lady o'ma acquaintance....A' course, you're a mite younger 'n she is...' He stared awhile longer, and then shook himself and said brightly. 'Hey, 'Ah'm feelin' better every minute. Y' know, thur ain't nothin like bein' close to a beautiful female fer bringing a red-blooded dyin' man back t' th' land o' the livin'! Unelss it's...' And he gave a meaningful swallow." (p. 104, The Secret of the Indian)
+
+* "'Well, as the Bard says, 'Conscience does make cowards of us all!! I think each of them thought he'd probably had too much to drink, and none of them liked to admit it to the others, so they just got on with the job as per my orders." (p. 110, The Secret of the Indian)
+
+* "The story was based on his first meeting with the Indian, a year ago when he'd first discovered the cupboard and the key's magic. It was a great story, and he'd done his best to write it well. At first when he began to read it, he was nervous and stumbled over the words, but after a paragraph or two he hit his stride and began to read with feeling and expression. He did Little Bear's gruff voice and had a stab at Boone's Texas accent; when he said something funny, the whole auditorium erupted with laughter. During the exciting bits everyone sat poised to catch what came next. It was very satifsying, and when he finished the story and the applause broke out again, with some cheering, Omri felt this was a great moment in his life" (p. 115, The Secret of the Indian)
+
+* "wars, guns, bows, arrows"
+
+* "'That's all Ah needed,' he remarked bitterly, wincing as he felt himself all over. 'As if it wasn't enough t' lsoe mah hat, an' git crushed half to death by m' best buddy' - he gave Patrick a dirty look - 'I git blown almost up to the pearly gates, and instead o' findin' m'self on a nice soft pink cloud, I'm hangin' out there in space yellin' my haid off with not a livin' soul takin' a danged bit o' notice till it's nearly Too Late!' And he wiped away a tear. He scowled around darkly and then changed his tone. 'Say, whut hit this place, anyhow? Musta bin some dynamitin' that went wrong.'" (p. 150, The Secret of the Indian)
 
 
 ----------
