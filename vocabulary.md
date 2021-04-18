@@ -72,5 +72,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 * "The book is a perfect archetype of the genre"
 * "an original that has been imitated"
 
+## Expression: ##
+* The process of making known one's thoughts or feelings or emotions through one's face, voice, or affections
+
 
 
