@@ -79,6 +79,16 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 
 # Creative Writing #
+## Professionalization ##
+The world will try to define you.
+People will try to box you in.
+People who fit into a profession will try to limit you and tell you that you cannot be them, they have worked too hard.
+This is not true.
+A liberal education expands, and broadens, and helps people explore, and move out of their comfort zone.
+Anyone can learn something new. Anyone can try something out.
+People can work across disciplines, departments, try new things.
+The democratization of Life, Liberty, Happiness, and Education.
+
 ## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
 Music + Chai Tea = Love + Joy
 Rowing + Team Spirit = Oneness
