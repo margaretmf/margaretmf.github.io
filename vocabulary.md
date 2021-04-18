@@ -75,5 +75,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Expression: ##
 * The process of making known one's thoughts or feelings or emotions through one's face, voice, or affections
 
+## Resound: ##
+* (of a sound, voice, etc.) fill a place with sound; be loud enough to echo
+
 
 
