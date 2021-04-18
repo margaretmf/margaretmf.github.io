@@ -78,5 +78,15 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Resound: ##
 * (of a sound, voice, etc.) fill a place with sound; be loud enough to echo
 
+## Professionalization: ##
+* The action or process of giving an occupation, activity, or group professional qualities, typically by increasing training or raising required qualifications
+* The commercialization, credentialism, power, privileges, code of ethics, and division of labor associated with talents, skills, education, interests, curiosities, strengths, values, 
+* Professionalization is a social process by which any trade or occupation transforms itself into a true 'profession of the highest integrity and competence.' 
+* The definition of what constitutes a profession is often contested. Professionalization tends to result in establishing acceptable qualifications, one or more professional associations to recommend best practice and to oversee the conduct of members of the profession, and some degree of demarcation of the qualified from unqualified amateurs (that is, professional certification). It is also likely to create 'occupational closure', closing the profession to entry from outsiders, amateurs and the unqualified.
+
+## Spirituality: ##
+* The quality of being concerned with the human spirit or soul as opposed to material or physical things
+
+
 
 
