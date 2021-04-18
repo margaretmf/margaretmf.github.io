@@ -903,6 +903,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for a conversation with my aunt
 * Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
 * Grateful for positive memories of spending the summers reading in bunk beds with cousins
+* Grateful for the boys playing outside
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2151,6 +2152,36 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Bloom ## 
+My heart longs to hide in the deepness of the dirt where the seedling is buried and the roots spread throughout
+Out of the ripening of this earthgroud plant, this earthground rocks, comes a beatuiful, fresh season filled with
+bounty, spreading across all the land from a small beginning, springing to a full flower,
+touching all the points of the land, the country, the earth with love
+everything else is plucked out and flows out like honey
+
+<br>
+
+Word Associations: flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
+
+## Color ##
+All of the colors of the rainbow reflected thorugh everything in our world
+Many shades - red, green, pink, orange, yellow, purple
+A vision that includes:
+red apples, trucks,
+pink gums,
+orange crayons,
+black window frames,
+purple TVs,
+yellow dentures
+All the race, many nationalities, and countires
+colors and tones, all original
+such great contrast in everything we do with the light bouncing off of us in original ways
+we are all part of this great photo
+
+<br>
+
+Word Associations: shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
 ## Details ##
 The devil is in the details
