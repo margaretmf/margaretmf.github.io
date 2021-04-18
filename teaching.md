@@ -171,10 +171,27 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## Island of the Blue Dolphins ##
 ### Who? ###
+* Father Gonzales Rubio, Santa Barbara Mission, Book of Burials
+* October 19, 1853, ecclesiastical burial, Juana Maria, the Indian woman, understand her language, baptized conditionally by Fr. Sanchez
+* History as Juana Maria, her name, Lone Woman of San Nicolas, Karana, the name that Scott O'Dell gave to her when he wrote her story
+* the story of the girl Robinson Crusoe - attempting to create (1835-1853)
+* the Nicoleno tribe, "had lived peacefully", "tiny three-by-nine mile island about seventy miles off the coast of Southern California"
 
 ### Where? ###
+* the Island of the Blue Dolphins
+* The island first settled by Indians in about 2,000 B.C.
+* It was not discovered by white men until 1602
+* the Spanish explorer Sebastian Vizcaino, Mexico, in search of a port where treasure galleons from the Philippines could find shelter in case of distress
+* California Coast
+* California - changed from Spanish to Mexican hands, the Americans arrived, visited the island
+* Indian inhabitants
 
 ### What? ###
+* "she was never able to tell that story herself for her language was one that no one could comprehend"
+* "so the details were pieced together, guessed at, fabricated, romanticized at times, embroidered in the retellings"
+* the many Indians at the mission, strange language
+* CHannel Islands, Indians, the north
+* the land, sea, air, extraordinary skill
 
 ## Color ##
 
