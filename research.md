@@ -1292,6 +1292,100 @@ Many of us are women, and our portrayal in the media affects us every day. The m
 
 “You’re not like other *insert minority group here* girls”
 
+## [How to Rescue The Damsels in Data Science](https://medium.com/swlh/how-to-rescue-the-damsels-in-data-science-dece09dedf26) ##
+"Becoming a damsel in distress and not knowing how to send an S.O.S.
+
+One of the first things the instructor ever said was, 'Don’t suffer in silence.' He then showed a graph of the emotional undertaking Data Science boot campers endure in the months ahead. Here’s an annotated version of said graph below:
+
+I am a non-linear savvy enthusiast with strong soft-skills. In other words, I have worked extremely hard to alleviate my Asian parents’ concerns after I graduated with a B.A. in Comparative Literature. I’ve landed solid paying jobs since graduating. However, I recently reached a plateau which led me to sign up for a Data Science boot camp.
+
+The first weeks were humbling, to say the least. Days filled with technical challenges, sleep-deprived presentations, and incessant existential questions.
+
+And while I knew better than to internalize my frustrations or confusion over the course material, I chose to quietly flail for fear of being seen as incompetent or helpless. Or worst yet, hopeless.
+
+As a result, at the end of each day, I would make my way home feeling demoralized. I would have cried more if it weren’t for the readily available salty snacks provided on campus. Fortunately (or unfortunately), I was often too dehydrated to shed any tears.
+
+The class comprised of 5 male instructors, 11 male students and 7 female students. And as the weeks progressed, students dropped like rows with null values. Half of them being women. This broke my heart.
+
+As a modern woman, I am independent and fierce. Or so I’m told by blaring 'strong women' anthems and tagged inspirational quotes. Admittedly, while I believe in the 'strong women' movement, I fell into isolation because of it. I didn’t want to disappoint the women in my class so I withheld asking for help. I know, newb mistake. I also exhausted my energy attempting to uphold an 'independent' persona by trying to do the assignments on my own.
+
+It’s not like Rihanna bestowed upon me the responsibility of representing badass women in Data Science, but I felt a sense of duty. This sense of duty was further amplified after reading a recent TechRepublic report that stated,
+
+'…only 18% of Data Scientists are women.'
+
+Needless to say, I felt pressure to represent women in the best possible light. Of course, it gave me anxiety to not let on that I’m more of a 'black light' and 'fluorescent light' kind of woman, not so much 'best light'.
+
+Surprisingly, the remedy for the unyielding ache of self-doubt were simple kind acts done by both men and women. I’m grateful to them for saving me from the prison I made for myself.
+
+1. Check in with the women who aren’t asking questions.
+2. Setup a co-ed study group.
+3. Ask women for feedback.
+
+I thought I must have unknowingly signed my voice away to the infamous Disney villain, Ursula, because my initial attempts to contribute in group conversations were muted. I would have to physically wave my hands in front of people’s faces to be noticed. It made me question my value and my presence.
+It’s common for women to question their value as a Pew Research Center 2018 report states, '79% of women in STEM in majority-male workplaces feel the need to prove themselves most, if not all, of the time.'
+
+Every time someone did ask for my perspective, I felt like that person trusted and valued my input. After enough times, I was able to redirect energy towards exploring innovative projects and solutions. I no longer spent time focusing on ways to prove myself.
+
+Data Scientists uncover the stories behind the data. The more diverse the data, the greater the possibility of more stories being uncovered. More women does not necessarily mean better. More understanding and acknowledgement by both men and women does.
+
+It’s okay to not be okay. I can be a damsel in distress one day and the next day be a determined woman. My value is continuous and the kindness I have received from people- invaluable."
+
+## [Southern White Patriarchy](https://www.researchgate.net/publication/335328771_Southern_White_Patriarchy) ##
+"The pedestal upon which southern white womanhood stands is buttressed by an equally sacred southern white masculinity characterized by a distorted notion of honor, a penchant for violence, and male righteousness and superiority. Thus, Second-Wave Feminism spurred not only a defiant anti-feminism with which many white southern men and women identified, but also a men’s rights campaign that portrayed men as victims of reverse discrimination and promoted a dominant and defensive masculinity that was very familiar to southern white audiences. This misogyny, along with a religious assertion of manhood that was popular in southern evangelical churches, provided Republicans with an opportunity to build their partisan brand among white southerners. Often masked by romanticized notions of chivalry, southern white masculinity depends upon a patriarchal system and the traditional gender roles inherent in that system. The GOP would appeal to both as it chased southern white voters throughout the Long Southern Strategy."
+
+## [Crying Shame: The Power of White Woman's Tears](https://www.smh.com.au/entertainment/books/crying-shame-the-power-of-white-women-s-tears-20190820-p52iy7.html) ## 
+"One of the earliest critiques of White Womanhood comes from one of the most underrated figures of the suffragette era. Frances Ellen Watkins Harper was a poet, journalist, fiction writer and a formidable presence on the abolitionist speakers’ circuit.
+
+In 1866 she gave a far-sighted speech at the 11th National Women’s Rights Convention in New York City before a crowd that included key suffragist figures Elizabeth Cady Stanton and Susan B. Anthony.
+
+'We are all bound up in one great bundle of humanity, and society can’t trample on the weakest and feeblest among its members without receiving the curse in its own soul,' she declared.
+
+You white women speak of rights, I speak of wrongs. I do not believe that giving white women the ballot is immediately going to cure all the ills of society. I do not believe that white women are dew-drops just exhaled from the skies.
+
+Harper argued the condition of poor white men in the South was a direct consequence of the law favouring rich slave-owners: in enslaving black men, white men paralysed the moral strength of the nation and the rights of lower-class whites. Likewise, in the cities of the North, white women were turning away when black women tried to hail streetcars only to find the conductor refused to let them ride.
+
+'Have women nothing to do with this? While there exists this brutal element in society which tramples upon the feeble and treads down the weak, I tell you that if there is any class of people who need to be lifted out of their airy nothings and selfishness, it is the white women of America.'
+
+The key, then, to white women’s liberation lay in whether or not they considered black women to be women like themselves, and in using this recognition as the first step in building a fairer society. Sadly, those white women didn’t and arguably many still don’t. Rather than rejecting the concept of white women as virtuous "dew-drops" inherently equipped to right the wrongs of their white male counterparts, white women have largely chosen to navigate and bolster the existing system to gain some advantages, which necessarily come at the expense of people of colour. And this has meant adopting the persona of the damsel in distress.
+
+Perhaps no story encapsulates this more clearly and tragically than that of Emmett Till. The 14-year-old from Chicago was visiting family in 1955 Mississippi when he was accused of whistling at a white woman, Carolyn Bryant. Abducted by a group of white men including Bryant’s husband, he was beaten to death and dumped in the Tallahassee River. His killers were acquitted by an all-white jury. In 2018, Bryant recanted her testimony, admitting Till had not harassed her in any way.
+
+This is the power of the white damsel in distress. It is a power that is not in the past.
+
+We see this modern-day dynamic of white women’s innocence and virtue used as a justification for the oppression of brown and black bodies in the rhetoric of our politicians. Last year, US President Donald Trump invoked the protection of women as a rationale for demonising the so-called 'migrant caravan' - the dehumanising name given to the thousands of people attempting to make their way from Central America to the US border in the hope of finding safety. He conjured up the image of the white damsel, saying, ‘Women want security. Women don’t want that caravan’, echoing the messages of slavery, segregation and more recent white supremacist literature.
+
+In 1997, sociologist Abby L. Ferber published White Man Falling, a discourse analysis of newsletters and magazines printed by white supremacist groups. What she found, along with a preoccupation with 'saving' Western civilisation and restoring the reputation of the white Western male, was an obsession with policing the bodies of white women and the borders of 'white' countries.
+
+'America is being invaded by a deluge of legal and illegal non-White intruders: swarms of Mexican, Puerto Rican, Negro, Oriental and Jewish scum who are thronging across our wide-open borders,' thundered one publication, arguing that this 'unarmed invasion' threatened the white race because of the possibility of white women 'crossbreeding with inferior specimens', which would lead to the end of the white race through the contamination of white blood with 'inferior blood'.
+
+The logic of policing racial boundaries is not new. It is the foundation that all settler-colonies were built on.
+
+'I am being harassed': Damsels in distress
+
+The white damsel has enjoyed an online resurgence in this era of viral memes, and the past couple of years have seen a proliferation of white women caught on camera in the United States calling the police on black people for simply existing.
+
+Perhaps no meme better exposes the dangerous fiction that lies at the heart of the white damsel in distress trope than 'BBQ Becky'. In this viral video, a middle-aged white woman can be seen on her mobile phone angrily requesting police show up to eject a black family barbecuing in a park. After many words of consternation between Becky and the white woman who is filming her, a defiant Becky refuses to return a business card belonging to the other woman and storms off.
+
+The camera follows her, and the transformation in Becky’s demeanour is remarkable to witness. In a matter of minutes, she goes from assertive to combative to aggressive to defiant, and finally, when she spots and rushes towards a bewildered-looking white male police officer, becomes the white damsel in distress. Bursting into tears when she reaches her apparent rescuer, she manages to heave out a few words between gulping sobs: 'I am being harassed.'
+
+This incident demonstrates that white women are not only aware of their privileged status in society but use it to surreptitiously manipulate and dominate people of colour, only to resort to the damsel in distress archetype of white female innocence and victimhood when challenged.
+
+The original damsel in distress trope was a way for white women to exercise some limited power. I say 'limited' not because it didn’t have far-reaching effects but because it required white women to adhere to strict rules to be accepted. The damsel is an infantilised woman whose purity and innocence is both inherent and sanctified, leading to her perceived reliance on men and to the obsession with virginity that persists even in a Western world that is supposedly sexually liberated.
+
+The damsel ensured white women were at least considered human, even though it relegated them to subordinate status. But it did so by ruthlessly excluding non-white women from the construction of womanhood. It is not that non-white women were considered inferior to white women: they were not considered to be women at all. The damsel can only be white.
+
+Only white women were considered worthy of protecting, because only white women could ensure the continuation of a 'pure white race'. Black women, Indigenous women, brown women: all colonised women were regarded as lacking in innocence because their bodies were already freely, openly and liberally transgressed by white men.
+
+When white women invoke the damsel, they resurrect this bloody history. This is what makes white women’s tears so damaging and, yes, so violent when they are turned against people of colour. White women’s tears have little effect on white men - just ask Christine Blasey Ford, whose emotional testimony was not enough to prevent her alleged abuser being confirmed to the US Supreme Court - because they were never designed to implicate white men. This is why sexual violence by white men was rarely punished historically and why to this day so many white people still react so blithely to sexual assault and domestic violence perpetrated by white men, even when the victims are white women. This is why a self-confessed 'pussy grabber' can be elected president of the United States.
+
+To be a white man in the white supremacist construction is to have the right to sexual access to all women, while at the same time sequestering the bodies of white women to prevent men of colour ingratiating themselves into white society.
+
+A white man raping a white woman is not a threat to white male power. If it threatens to destroy the woman’s life then so be it. This, I believe, is why despite all our claims our society still does not take violence against women seriously. When perpetrated by white men, frequently such violence is ignored or blame heaped onto the victim. It is only when white women are violated or even imagined to be violated by non-white men that white society suddenly seems to find its moral compass.
+
+This is not to say that men of colour never assault white women - they do - but the scale of the white fear of brown and black men raping innocent white women with no repercussions is a gross perversion of the historical reality. White fear betrays deep-seated anxieties about white men being "replaced" at the top of the racial and gender hierarchy and white society collapsing; I don’t mean the total destruction of society here - merely it no longer being solely in the control of white men and women.
+
+White people as a collective still fear sharing power and status. They fear no longer being the special race. The Enlightened race. The civilised and civilising race. This is obvious to anyone watching the rise of right-wing 'populism', the alt-right and the resurgence of neo-Nazis. Perhaps, as people of colour half-joke, white people fear being treated the way they have long treated the minorities they have subordinated. At the very least, there appears to be a complete denial that the only thing that has made white people 'superior' is their own insistence that they are."
+
 ## [‘Truth or Dare’: If Disney Channel Made a Horror Movie](https://www.thecrimson.com/article/2018/4/17/truth-or-dare-review/) ##
 "In director Jeff Wadlow’s 'Truth or Dare,' a group of friends on spring break gets pulled into a lethal game of truth or dare. The movie had the potential to turn a juvenile game into something twisted and terrifying; instead, it feels incredibly childish. The stilted acting and shallow relationships, along with the relationship drama that seems equally important to the characters as the threat of death, are reminiscent of a Disney Channel-style horror flick. One scene steps beyond teen drama towards educational children’s television, when a character reads menacingly from a piece of paper, 'Demons can possess people, places, even ideas.' I felt transported back to fifth-grade grammar class—demons, it seems, can possess nouns.
 
@@ -1317,6 +1411,10 @@ I recognize that understanding the whole situation for what it really was is nea
 I view the actions of the male as absolutely predatory. You can't assume consent because a woman is near you and having sex with someone you have sex with regularly. That is not consent. My wife recalls stumbling around before the truth or dare games, and had bruises from falling/bumping around.
 At face value, someone had sex with someone without asking or talking about it. My wife made no advancements to the man and is not flirtatious at all. I have no idea how this will pan out in court. Its been months and the investigation is still ongoing I take it, but we have not had any word from our lawyer or otherwise. I figure that the defense will focus on the fact that she was having sex with the woman, and that seemed consensual so the rest must have been. Only over the following days did my wife understand what happened to her, and stopped blaming herself for every part of it. At the time she wanted less to stop the 'fun' and 'games' than she didnt want the people to do what they were doing, even if it involved her.
 Events took place in alaska."
+
+
+----------
+
 
 ## [Southern Gothic](https://oxfordre.com/literature/view/10.1093/acrefore/9780190201098.001.0001/acrefore-9780190201098-e-304) ##
 "Southern Gothic is a mode or genre prevalent in literature from the early 19th century to this day. Characteristics of Southern Gothic include the presence of irrational, horrific, and transgressive thoughts, desires, and impulses; grotesque characters; dark humor, and an overall angst-ridden sense of alienation. While related to both the English and American Gothic tradition, Southern Gothic is uniquely rooted in the South’s tensions and aberrations. During the 20th century, Charles Crow has noted, the South became “the principal region of American Gothic” in literature. The Southern Gothic brings to light the extent to which the idyllic vision of the pastoral, agrarian South rests on massive repressions of the region’s historical realities: slavery, racism, and patriarchy. Southern Gothic texts also mark a Freudian return of the repressed: the region’s historical realities take concrete forms in the shape of ghosts that highlight all that has been unsaid in the official version of southern history. Because of its dark and controversial subject matter, literary scholars and critics initially sought to discredit the gothic on a national level. Edgar Allan Poe (1809–1849) became the first Southern Gothic writer to fully explore the genre’s potential. Many of his best-known poems and short stories, while not placed in a recognizable southern setting, display all the elements that would come to characterize Southern Gothic.
@@ -1476,6 +1574,10 @@ The other day as I was leaving Woolworth’s in a small Southern town, an old ge
 
 "This is an interesting characterization, because being 'bawdy' typically referred to a woman's sexual nature. So a cowgirl was at risk fo being labeled as having a bawdy or sexual character for riding a horse incorrectly - not sidesaddle. Ironically, the safest way for a woman to ride a horse, astride the horse, was deemed bawdy. So, even if a cowgirl tossed the corset, she was still subject to patriarchal notions regarding her sexuality, depending upon how she sat on and rode the horse. If the White cowgirl was thought not to exist because her place was in the home, and had all of these patriarchal rules attached to her, then the erasure of the ethnic minority cowgirl was expected. Ethnic minority cowgirls had to be disenfranchised in order to make place for the 'non-existent' White cowgirl."
 
+
+----------
+
+
 ## ["Frustrated?" There's Probably Another Emotion Present Sometimes, Deeper Feelings Lie Under the Surface](https://www.psychologytoday.com/us/blog/friendship-20/201909/frustrated-theres-probably-another-emotion-present)
 "Frustration is likely to be the top layer of a feeling. It speaks to a sense of stagnation or helplessness, an inability to make things happen in the way that someone wants. Merriam-Webster defines being frustrated in part as 'feeling discouragement, anger, and annoyance because of unresolved problems or unfulfilled goals, desires, or needs.'
 
@@ -1493,8 +1595,6 @@ Shame"
 
 
 ## Romanticized South and Romanticized West, Scottish Romanticism, #MakeAmericaGreatAgain ##
-
-
 * [What Do We Call This?](https://www.wnycstudios.org/podcasts/otm/segments/what-call-on-the-media) 
 Trump - "I alone can fix this"
 Fear, "others" who he has vilified, "fear of his own demagoguery"
@@ -1633,127 +1733,6 @@ In the show Leave it to Beaver, the story comes from the children’s point of v
 "The gender roles presented in the popular culture of the 1950s, if viewed enough by young boys, could have led to the subordination and violence against women, even in the home. While hyper-masculinity correlates with violent behaviors, there is also support for the same correlative between these rigid gender roles and violence against women, specifically. Stephanie Coontz describes the households of the 1950s in her book titled The Way We Never Were: American Families and the Nostalgia Trap. She describes the rates of unhappy marriages that would likely have led to divorce, had that option been acceptable and accessible at the time, and she presents us with shocking information about abuse in 1950s households. Coontz theorizes that the pressure for perfection in the postwar home was too much pressure for each family member to handle and that this time period brought about sexual abuse, incest, alcoholism, and wife battering (Coontz 279).
 
 Violence against women is directly connected to hyper-masculine socialization. If a man during the 1950s felt that he did not live up this 'ideal' type, then this failure could have led to the use of violence toward his wife, or other women. Violence and abuse makes these men feel as though they are dominant, as their gender role prescribes that they should be. Even if this dominance is through violence, it is an act that makes the man feel 'more manly' to make up for the dominance he is lacking in his life outside of the home (Pleck 4). Men who believe that the male is the more valued gender in society, and that females are subordinate, are more likely to use violence against women, not only to reassert their own dominance but because they simply do not value femininity (Hatty 69)."
-
-
-## [How to Rescue The Damsels in Data Science](https://medium.com/swlh/how-to-rescue-the-damsels-in-data-science-dece09dedf26) ##
-"Becoming a damsel in distress and not knowing how to send an S.O.S.
-
-One of the first things the instructor ever said was, 'Don’t suffer in silence.' He then showed a graph of the emotional undertaking Data Science boot campers endure in the months ahead. Here’s an annotated version of said graph below:
-
-I am a non-linear savvy enthusiast with strong soft-skills. In other words, I have worked extremely hard to alleviate my Asian parents’ concerns after I graduated with a B.A. in Comparative Literature. I’ve landed solid paying jobs since graduating. However, I recently reached a plateau which led me to sign up for a Data Science boot camp.
-
-The first weeks were humbling, to say the least. Days filled with technical challenges, sleep-deprived presentations, and incessant existential questions.
-
-And while I knew better than to internalize my frustrations or confusion over the course material, I chose to quietly flail for fear of being seen as incompetent or helpless. Or worst yet, hopeless.
-
-As a result, at the end of each day, I would make my way home feeling demoralized. I would have cried more if it weren’t for the readily available salty snacks provided on campus. Fortunately (or unfortunately), I was often too dehydrated to shed any tears.
-
-The class comprised of 5 male instructors, 11 male students and 7 female students. And as the weeks progressed, students dropped like rows with null values. Half of them being women. This broke my heart.
-
-As a modern woman, I am independent and fierce. Or so I’m told by blaring 'strong women' anthems and tagged inspirational quotes. Admittedly, while I believe in the 'strong women' movement, I fell into isolation because of it. I didn’t want to disappoint the women in my class so I withheld asking for help. I know, newb mistake. I also exhausted my energy attempting to uphold an 'independent' persona by trying to do the assignments on my own.
-
-It’s not like Rihanna bestowed upon me the responsibility of representing badass women in Data Science, but I felt a sense of duty. This sense of duty was further amplified after reading a recent TechRepublic report that stated,
-
-'…only 18% of Data Scientists are women.'
-
-Needless to say, I felt pressure to represent women in the best possible light. Of course, it gave me anxiety to not let on that I’m more of a 'black light' and 'fluorescent light' kind of woman, not so much 'best light'.
-
-Surprisingly, the remedy for the unyielding ache of self-doubt were simple kind acts done by both men and women. I’m grateful to them for saving me from the prison I made for myself.
-
-1. Check in with the women who aren’t asking questions.
-2. Setup a co-ed study group.
-3. Ask women for feedback.
-
-I thought I must have unknowingly signed my voice away to the infamous Disney villain, Ursula, because my initial attempts to contribute in group conversations were muted. I would have to physically wave my hands in front of people’s faces to be noticed. It made me question my value and my presence.
-It’s common for women to question their value as a Pew Research Center 2018 report states, '79% of women in STEM in majority-male workplaces feel the need to prove themselves most, if not all, of the time.'
-
-Every time someone did ask for my perspective, I felt like that person trusted and valued my input. After enough times, I was able to redirect energy towards exploring innovative projects and solutions. I no longer spent time focusing on ways to prove myself.
-
-Data Scientists uncover the stories behind the data. The more diverse the data, the greater the possibility of more stories being uncovered. More women does not necessarily mean better. More understanding and acknowledgement by both men and women does.
-
-It’s okay to not be okay. I can be a damsel in distress one day and the next day be a determined woman. My value is continuous and the kindness I have received from people- invaluable."
-
-## [Southern White Patriarchy](https://www.researchgate.net/publication/335328771_Southern_White_Patriarchy) ##
-"The pedestal upon which southern white womanhood stands is buttressed by an equally sacred southern white masculinity characterized by a distorted notion of honor, a penchant for violence, and male righteousness and superiority. Thus, Second-Wave Feminism spurred not only a defiant anti-feminism with which many white southern men and women identified, but also a men’s rights campaign that portrayed men as victims of reverse discrimination and promoted a dominant and defensive masculinity that was very familiar to southern white audiences. This misogyny, along with a religious assertion of manhood that was popular in southern evangelical churches, provided Republicans with an opportunity to build their partisan brand among white southerners. Often masked by romanticized notions of chivalry, southern white masculinity depends upon a patriarchal system and the traditional gender roles inherent in that system. The GOP would appeal to both as it chased southern white voters throughout the Long Southern Strategy."
-
-## [Crying Shame: The Power of White Woman's Tears](https://www.smh.com.au/entertainment/books/crying-shame-the-power-of-white-women-s-tears-20190820-p52iy7.html) ## 
-"One of the earliest critiques of White Womanhood comes from one of the most underrated figures of the suffragette era. Frances Ellen Watkins Harper was a poet, journalist, fiction writer and a formidable presence on the abolitionist speakers’ circuit.
-
-In 1866 she gave a far-sighted speech at the 11th National Women’s Rights Convention in New York City before a crowd that included key suffragist figures Elizabeth Cady Stanton and Susan B. Anthony.
-
-'We are all bound up in one great bundle of humanity, and society can’t trample on the weakest and feeblest among its members without receiving the curse in its own soul,' she declared.
-
-You white women speak of rights, I speak of wrongs. I do not believe that giving white women the ballot is immediately going to cure all the ills of society. I do not believe that white women are dew-drops just exhaled from the skies.
-
-Harper argued the condition of poor white men in the South was a direct consequence of the law favouring rich slave-owners: in enslaving black men, white men paralysed the moral strength of the nation and the rights of lower-class whites. Likewise, in the cities of the North, white women were turning away when black women tried to hail streetcars only to find the conductor refused to let them ride.
-
-'Have women nothing to do with this? While there exists this brutal element in society which tramples upon the feeble and treads down the weak, I tell you that if there is any class of people who need to be lifted out of their airy nothings and selfishness, it is the white women of America.'
-
-The key, then, to white women’s liberation lay in whether or not they considered black women to be women like themselves, and in using this recognition as the first step in building a fairer society. Sadly, those white women didn’t and arguably many still don’t. Rather than rejecting the concept of white women as virtuous "dew-drops" inherently equipped to right the wrongs of their white male counterparts, white women have largely chosen to navigate and bolster the existing system to gain some advantages, which necessarily come at the expense of people of colour. And this has meant adopting the persona of the damsel in distress.
-
-Perhaps no story encapsulates this more clearly and tragically than that of Emmett Till. The 14-year-old from Chicago was visiting family in 1955 Mississippi when he was accused of whistling at a white woman, Carolyn Bryant. Abducted by a group of white men including Bryant’s husband, he was beaten to death and dumped in the Tallahassee River. His killers were acquitted by an all-white jury. In 2018, Bryant recanted her testimony, admitting Till had not harassed her in any way.
-
-This is the power of the white damsel in distress. It is a power that is not in the past.
-
-We see this modern-day dynamic of white women’s innocence and virtue used as a justification for the oppression of brown and black bodies in the rhetoric of our politicians. Last year, US President Donald Trump invoked the protection of women as a rationale for demonising the so-called 'migrant caravan' - the dehumanising name given to the thousands of people attempting to make their way from Central America to the US border in the hope of finding safety. He conjured up the image of the white damsel, saying, ‘Women want security. Women don’t want that caravan’, echoing the messages of slavery, segregation and more recent white supremacist literature.
-
-In 1997, sociologist Abby L. Ferber published White Man Falling, a discourse analysis of newsletters and magazines printed by white supremacist groups. What she found, along with a preoccupation with 'saving' Western civilisation and restoring the reputation of the white Western male, was an obsession with policing the bodies of white women and the borders of 'white' countries.
-
-'America is being invaded by a deluge of legal and illegal non-White intruders: swarms of Mexican, Puerto Rican, Negro, Oriental and Jewish scum who are thronging across our wide-open borders,' thundered one publication, arguing that this 'unarmed invasion' threatened the white race because of the possibility of white women 'crossbreeding with inferior specimens', which would lead to the end of the white race through the contamination of white blood with 'inferior blood'.
-
-The logic of policing racial boundaries is not new. It is the foundation that all settler-colonies were built on.
-
-'I am being harassed': Damsels in distress
-
-The white damsel has enjoyed an online resurgence in this era of viral memes, and the past couple of years have seen a proliferation of white women caught on camera in the United States calling the police on black people for simply existing.
-
-Perhaps no meme better exposes the dangerous fiction that lies at the heart of the white damsel in distress trope than 'BBQ Becky'. In this viral video, a middle-aged white woman can be seen on her mobile phone angrily requesting police show up to eject a black family barbecuing in a park. After many words of consternation between Becky and the white woman who is filming her, a defiant Becky refuses to return a business card belonging to the other woman and storms off.
-
-The camera follows her, and the transformation in Becky’s demeanour is remarkable to witness. In a matter of minutes, she goes from assertive to combative to aggressive to defiant, and finally, when she spots and rushes towards a bewildered-looking white male police officer, becomes the white damsel in distress. Bursting into tears when she reaches her apparent rescuer, she manages to heave out a few words between gulping sobs: 'I am being harassed.'
-
-This incident demonstrates that white women are not only aware of their privileged status in society but use it to surreptitiously manipulate and dominate people of colour, only to resort to the damsel in distress archetype of white female innocence and victimhood when challenged.
-
-The original damsel in distress trope was a way for white women to exercise some limited power. I say 'limited' not because it didn’t have far-reaching effects but because it required white women to adhere to strict rules to be accepted. The damsel is an infantilised woman whose purity and innocence is both inherent and sanctified, leading to her perceived reliance on men and to the obsession with virginity that persists even in a Western world that is supposedly sexually liberated.
-
-The damsel ensured white women were at least considered human, even though it relegated them to subordinate status. But it did so by ruthlessly excluding non-white women from the construction of womanhood. It is not that non-white women were considered inferior to white women: they were not considered to be women at all. The damsel can only be white.
-
-Only white women were considered worthy of protecting, because only white women could ensure the continuation of a 'pure white race'. Black women, Indigenous women, brown women: all colonised women were regarded as lacking in innocence because their bodies were already freely, openly and liberally transgressed by white men.
-
-When white women invoke the damsel, they resurrect this bloody history. This is what makes white women’s tears so damaging and, yes, so violent when they are turned against people of colour. White women’s tears have little effect on white men - just ask Christine Blasey Ford, whose emotional testimony was not enough to prevent her alleged abuser being confirmed to the US Supreme Court - because they were never designed to implicate white men. This is why sexual violence by white men was rarely punished historically and why to this day so many white people still react so blithely to sexual assault and domestic violence perpetrated by white men, even when the victims are white women. This is why a self-confessed 'pussy grabber' can be elected president of the United States.
-
-To be a white man in the white supremacist construction is to have the right to sexual access to all women, while at the same time sequestering the bodies of white women to prevent men of colour ingratiating themselves into white society.
-
-A white man raping a white woman is not a threat to white male power. If it threatens to destroy the woman’s life then so be it. This, I believe, is why despite all our claims our society still does not take violence against women seriously. When perpetrated by white men, frequently such violence is ignored or blame heaped onto the victim. It is only when white women are violated or even imagined to be violated by non-white men that white society suddenly seems to find its moral compass.
-
-This is not to say that men of colour never assault white women - they do - but the scale of the white fear of brown and black men raping innocent white women with no repercussions is a gross perversion of the historical reality. White fear betrays deep-seated anxieties about white men being "replaced" at the top of the racial and gender hierarchy and white society collapsing; I don’t mean the total destruction of society here - merely it no longer being solely in the control of white men and women.
-
-White people as a collective still fear sharing power and status. They fear no longer being the special race. The Enlightened race. The civilised and civilising race. This is obvious to anyone watching the rise of right-wing 'populism', the alt-right and the resurgence of neo-Nazis. Perhaps, as people of colour half-joke, white people fear being treated the way they have long treated the minorities they have subordinated. At the very least, there appears to be a complete denial that the only thing that has made white people 'superior' is their own insistence that they are."
-
-## [‘Truth or Dare’: If Disney Channel Made a Horror Movie](https://www.thecrimson.com/article/2018/4/17/truth-or-dare-review/) ##
-"In director Jeff Wadlow’s 'Truth or Dare,' a group of friends on spring break gets pulled into a lethal game of truth or dare. The movie had the potential to turn a juvenile game into something twisted and terrifying; instead, it feels incredibly childish. The stilted acting and shallow relationships, along with the relationship drama that seems equally important to the characters as the threat of death, are reminiscent of a Disney Channel-style horror flick. One scene steps beyond teen drama towards educational children’s television, when a character reads menacingly from a piece of paper, 'Demons can possess people, places, even ideas.' I felt transported back to fifth-grade grammar class—demons, it seems, can possess nouns.
-
-The movie makes an effort to hit not just on every classic horror movie trope, but also on every non-horror-related cliché possible, starting with the characters themselves. There is Ronnie (Sam Lerner), the completely clueless misogynist who tags along with the group in hopes of getting laid: He provides comic relief and is obviously introduced to serve as the first kill. There is Tyson (Noland Gerard Funk), the wealthy, perfectly-groomed, overconfident boy with no morals who sells fake prescriptions and only cares about getting into medical school. His perpetually drunk, doting girlfriend Penelope (Sophia Ali), is perhaps the most interesting character, as her alcoholism is at least surprising, but even that remains unexplored. There is Brad (Hayden Szeto), the problem-solving, likeable boy who is not yet out to his policeman father. And then of course, there are the two best friends Olivia (Lucy Hale) and Markie (Violette Beane)—who supposedly mean the world to each other despite constantly fighting—and the quiet, brooding boy they are both in love with, Lucas (Tyler Posey). The clichés unfortunately extend past the characters into the writing and score. It is hard to take a movie seriously when someone unironically says, “We can’t change the past but we can still have a future.” The soundtrack also screams, 'This is a horror movie,' loud and off-putting enough to be grating but not at all scary—an unexplained creepy laugh echoes even before the end of the opening credits.
-
-At times, the stereotypes and attempts at drama move beyond the ineffective and toward the actively offensive. For instance, the friends begin their game of truth or dare in Mexico, and the demon associated with the game follows them back to the United States. It is possible, of course, that Mexico was just the natural setting for a spring break trip. But after the fifth slow pan across the green Mexican border sign, the shot begins to seem not just repetitive but also slightly pointed—of course the unfamiliar dark magic, demons, abandoned buildings, and gruesome ancient rituals are from another country.
-
-The script shows a similar lack of sensitivity. In another scene, Olivia is dared to sleep with Lucas, Markie’s boyfriend. The pair’s feelings for each other have been obvious since the beginning of the movie, but they have not acted on them out of concern for Markie. As Lucas begins to passionately kiss Olivia, she stops him, fearing that he is faking his passion, complaining that he has to have sex for the sake of the game. 'You have to. I don’t,' he replies, in a response that is somehow framed as romantic. In a scene meant to be the pinnacle of Olivia and Lucas’s relationship, this language unnecessarily and uncomfortably recalls issues of sexual consent. This awkward and inconsiderate writing unfortunately represents a larger trend in the film.
-
-Wadlow cannot quite seem to make up his mind about what sort of horror movie he wants “Truth or Dare” to be. It is not particularly gory, and having the characters’ faces transform into what the movie itself acknowledges looks like “a messed up Snapchat filter” before they die dulls the impact of their deaths. The plot sets the movie up to be a psychological thriller, a seventh-grade game gone wrong, but the inner workings of the characters and the demon are not particularly interesting and the truths and dares laid out not particularly disturbing. The movie could have made good use of comedic horror—making it almost enjoyable to watch, or at least to make fun of, if not for the perpetual references to rape and suicide, which felt unemotional, out of place, and unnecessary, making it instead harder to laugh at the characters without feeling guilty.
-
-The lack of emotion in general is almost impressive. It is quite a feat, for example, to take the emotion out of a scene depicting a son as he is forced to hold his own father at gunpoint. The characters do not grieve at all as one after another of their friends die, and Olivia, the protagonist, barely reacts when her friend literally takes a bullet for her.
-
-The one possible redeeming feature is the concept. The idea of truth or dare—a game that is slightly sadistic even in its relatively innocent seventh-grade iteration—turned deadly and inescapable is certainly interesting. But the plot of the movie gets a little ridiculous as time goes on, and when the demon—in a move that has been annoying seventh-graders for centuries—dares someone to tell the truth, it is hard not to groan. One could also read the film, albeit generously, as a critique on social media, between the main characters’ obsession with various social media platforms, the comparison of their possessed faces to a grotesque Snapchat filter, and the demons occasional communication over social media. But even then its point is unoriginal and the moral does not justify the poor execution. The twist ending is the most compelling part of the movie, equally enjoyable both because it is surprising and because it means that the movie is finally over."
-
- ## [Truth or Dare Progressing to a Sexual Assault. Questions about How a Court Process Will Go, All Things Considered](https://www.reddit.com/r/legaladvice/comments/6zu3jm/truth_or_dare_progressing_to_a_sexual_assault/) ##
-"A few months ago my wife was raped at a party with friends. All people involved are coworkers, and usually hung out on weekends. I have so many questions about how the court proceedings will go, whats important information and what isnt. In my understanding of the law she was 100% coerced into doing something she didnt want while she was extremely intoxicated. I'll piece it together with the information I have and with what I think.
-To set the social scene, three of the five people there had recently partaken in a three-way. There was a couple who was hosting this party who we now know are swingers and like to involve women in their sex life. I have met these people, they know I exist, they know my relation with my wife who was there that night.
-The night started off with drinking and playing cards against humanity. As the drinking progressed my wife suggested an addition to the game. She suggested a strip-variant, explaining it to them like strip paddidle. From there it was if you lost a game you took off an article of clothing. To my wife, this is non-sexual completely and totally. She struggled with self esteem and body issues for a long time and was finally feeling comfortable with herself, so she was letting herself be seen in that way. She explained that to me after it all and I believe her. I've never had issues trusting her and never been lied to by her so I don't doubt what she says when she explains what she understands about this situation, even if she doesn't understand every aspect.
-As cards against humanity became stale to the party, I guess, the third wheel in the previous threeway group suggested truth or dare. Small (non-sexual) dares was how it started but eventually the wife of the group of three dared my wife to "like "A's" leg". (third wheel of threeway relationship) My wife took the dare and immediately after she did they dared her to have sex with A. My wife took that dare as well, and made out with/gave oral to A. I know that my wife would not want to do this sober. It's my guess that it was more about the game, and keeping the 'fun' going than it was a sexual act to my wife. My wife is far younger than these people and I believe they were acting in a predatory way when asking the things they were. At this point my wife was extremely inebriated, she was only able to explain to me and investigators/nurses bits and pieces of the following sequence. At one point someone (she does not know who) started to finger her while she was with A. She said she moved away from that because it was hurting her. She said she was not turned on and any insertion while she isn't causes her pain.
-The next thing she remembers is lying down on a couch with A on top of her, kissing her. The male in the previously mentioned group of 3 sexual partners was having sex with A, while she was on top of my wife. He then, without saying anything, started having sex with my wife. My wife explained to me that her only thought at the time was "this does not feel right". The male finished, his wife cleaned up my wife then everyone went to bed saying nothing.
-I recognize that understanding the whole situation for what it really was is nearly impossible without being there or being in the mind of the people involved. It is my belief that the people previously engaged in sexual relationships were together in trying to convince my wife to join them. My wife never saw that coming and did not expect what happened at all. To her, She was playing a game then the next day she realized it wasn't right. Nobody asked her anything, nobody talked about doing anything previous to that night. There was never a consensual talk about any of it.
-I view the actions of the male as absolutely predatory. You can't assume consent because a woman is near you and having sex with someone you have sex with regularly. That is not consent. My wife recalls stumbling around before the truth or dare games, and had bruises from falling/bumping around.
-At face value, someone had sex with someone without asking or talking about it. My wife made no advancements to the man and is not flirtatious at all. I have no idea how this will pan out in court. Its been months and the investigation is still ongoing I take it, but we have not had any word from our lawyer or otherwise. I figure that the defense will focus on the fact that she was having sex with the woman, and that seemed consensual so the rest must have been. Only over the following days did my wife understand what happened to her, and stopped blaming herself for every part of it. At the time she wanted less to stop the 'fun' and 'games' than she didnt want the people to do what they were doing, even if it involved her.
-Events took place in alaska."
 
 ## [Black Southern Belle](https://blacksouthernbelle.com/50-black-southern-belles-in-lifestyle-african-american-tastemakers-of-the-south/) ##
 "One thing Black Southern Belles know how to do is create. From compelling stories, to captivating images, to dynamic recipes, Black women from the South are renowned for their flair and style. From Southern natives to a few who have chosen to call this region home, here's a list of 50 Black Southern Belles making the region smarter, more beautiful, more creative, and more delicious. These are African American Tastemakers of the South that will add the inspiration you need in your life!
@@ -1954,6 +1933,23 @@ But Leonardo da Pisa’s most enduring mathematical contribution is something ra
 ## [Ladies' Pages: African American Women's Magazines and the Culture That Made Them](https://www.jstor.org/stable/j.ctt5hj55m) ## 
 
 ## [Retrieving the Black Rural Past]() ## 
+
+## [Harper's Magazine](https://harpers.org/about/) ##
+"Harper’s Magazine, the oldest general-interest monthly in America, explores the issues that drive our national conversation, through long-form narrative journalism and essays, and such celebrated features as the iconic Harper’s Index. With its emphasis on fine writing and original thought Harper’s provides readers with a unique perspective on politics, society, the environment, and culture. The essays, fiction, and reporting in the magazine’s pages come from promising new voices, as well as some of the most distinguished names in American letters, among them Annie Dillard, Barbara Ehrenreich, Jonathan Franzen, Mary Gaitskill, David Foster Wallace, and Tom Wolfe."
+
+"Harper’s Magazine made its debut in June 1850, the brainchild of the prominent New York book-publishing firm Harper & Brothers. The initial press run of 7,500 copies sold out immediately, and within six months circulation had reached 50,000.
+
+Although the earliest issues consisted largely of material that had already been published in England, the magazine soon began to print the work of American artists and writers—among them Horatio Alger, Stephen A. Douglas, Theodore Dreiser, Horace Greeley, Winslow Homer, William Dean Howells, Henry James, Jack London, John Muir, Frederic Remington, Booth Tarkington, and Mark Twain. Several departments served to note regularly important events of the day, such as the publication of Herman Melville’s novel Moby-Dick, the laying of the first trans-Atlantic cable, the latest discoveries from Thomas Edison’s workshop, and the progress of the crusade for women’s rights.
+
+In more recent years, the magazine published Woodrow Wilson and Winston Churchill long before either man became a political leader. Theodore Roosevelt wrote for Harper’s, as did Henry L. Stimson when he defended the bombing of Hiroshima. In the 1970s, Harper’s Magazine broke Seymour Hersh’s account of the My Lai massacre and devoted a full issue to Norman Mailer’s “The Prisoner of Sex.”
+
+Over the years, the magazine’s format has been revamped, its general appearance has evolved considerably, and ownership has changed hands. In 1962, Harper & Brothers merged with Row, Peterson, & Company to become Harper & Row (now HarperCollins). Some years later the magazine became a separate corporation and a division of the Minneapolis Star and Tribune Company. In 1980, when the parent company announced that Harper’s Magazine would cease publication, John R. (Rick) MacArthur and his father, Roderick, urged the boards of the John D. and Catherine T. MacArthur Foundation and the Atlantic Richfield Company to make a grant of assets and funds to form the Harper’s Magazine Foundation. The Foundation is today an entirely independent organization—unaffiliated with other philanthropies, and solely dedicated to promoting Harper’s Magazine as an independent voice in American culture.
+
+In 1984, Harper’s Magazine was completely redesigned by editor Lewis H. Lapham and MacArthur, who had become publisher of Harper’s and president of the Foundation. Recognizing the time constraints of the modern reader, the revived magazine introduced such original journalistic forms as the Harper’s Index, Readings, and the Annotation to complement its acclaimed fiction, essays, and reporting. Over the years Harper’s has received twenty-two National Magazine Awards, among many other journalistic and literary honors.
+
+The year 2000 marked the sesquicentennial of Harper’s Magazine and, to celebrate, the magazine introduced several new editorial inventions and restorations: Archive and the Weekly Review. It has also published An American Album: One Hundred and Fifty Years of Harper’s Magazine, a cloth-bound, 712-page illustrated anthology—with an introduction by Lewis H. Lapham and a foreword by Arthur Schlesinger, Jr.—that offers a unique perspective on American life, distilled from the pages of the nation’s oldest continuously published monthly magazine.
+
+Read Harper’s Magazine publisher John R. MacArthur on why Harpers.org has a paywall."
 
 ## [Bennett on Hurt, 'African-American Life in the Rural South, 1900-1950'](https://networks.h-net.org/node/512/reviews/762/bennett-hurt-african-american-life-rural-south-1900-1950) ## 
 "History is a product of the imagination. Facts, sources, data, and artifacts are all important, but it is imagination that shapes the remains of the past into history. This fact is plain to those who work with the scant records of the long-ago past, but is equally true for those whose sources are more recent and more voluminous. Despite its proximity to the present, the recent past is still a different country; writing its history requires no less imagination. The recent history of the rural South illustrates this well. The radical transformation of the southern countryside over the past half-century provides tangible proof of the historical distance created by even a few decades. Looking out on the region's sprawling neoplantations and multiplying McMansions, one is hard-pressed to bear in mind that the seemingly empty acres these fill were not long ago home to tens of thousands of farm families and vibrant rural communities. Further complicating attempts to envision the southern countryside as it was is the disappearance of African Americans from the rural South. At the dawn of the twentieth century, for example, African-American farm operators worked a full third of the farms in the eleven former Confederate states; in three states--Mississippi, Louisiana, and South Carolina--black operators worked more than half of the farms. A hundred years later, less than four percent of the region's farms are operated by black farmers.[1] The result of a number of factors, including outmigration, mechanization, and federal farm policy, the African-American exodus from the rural South had profound effects on not only black culture (making it more urban-centered) and the southern countryside (making it whiter than ever before), but also how the histories of both have been told.
