@@ -1,4 +1,4 @@
-## Research Questions ##
+## Research Questions and Studies ##
 * A study on Interracial Dating and Marriages 
 * A study on Democracy and Church
 * A study on Shays' Rebellion in relationship to the Trump Election
@@ -20,6 +20,17 @@
 * Byron, Dante, Petrach, Boccaccio, Blake, Wordsworth, Coleridge, Byron, Shelley, Keats, Southey, Scott, Shelley
 * Charlotte Smith, Hannah More, Anna Laetita Barbauld, Helen Maria Williams, Felicia Dorothea Hemans, Letitia Landon
 * "Romantic writers", "English poets"
+
+## [Credo: 'I Believe...'](https://pluralism.org/credo-“i-believe”) ##
+"Statements of belief unite Christians in their articulation of shared commitments. While the Apostles' Creed and the Nicene Creed are the oldest and most universal creeds of the churhc, the process of articulating what it means to give one's heart to Christ has continued to the present.
+
+One of the distinctive features of Christianity is its emphasis on a creed, a summary statement of faith. The Latin term *credo* is often translated today as 'I believe...' but it is important to remember that its literal meaning is 'I give my heart...' It is language of the heart, a profound expression of commitment, not simply a list of statements to which one gives intellectual assent. When the early church was being persecuted, commitment to the way of Christ was often dangerous, requiring true courage.f
+
+Creeds came into use as part of the rite of baptism. In this rite of initiation, a man or woman would take off old clothes, but on new white baptismal clothing, and become a Christian by a ritual bath and the affirmation of commitment to the Christian faith. The *credo* or *creed* expressed that commitment. Among the oldest creeds of the church is the Apostles' Creed, composed about 150 CE and used ritually at the time of Christian baptism, and starts, 'I believe in God, the Father Almighty, creator of heaven and earth. I believe in Jesus Christ, his only Son, Our Lord...' Through baptism, one was spiritually 'born again.' While the term 'born-again' has acquired the resonance of a dramtic and often emotion-laden conversion in modern American Christianity, it has a much wider and older significance for the church. To be 'born again' is what it means to be a baptized Christian.
+
+Christians in the early church had to answer for themselves the question Christ asked his disciples, 'Who do you say that I am?' In the councils of the early church, leaders met to come to a common mind about their faith. The Council of Nicaea, called by the Emperor Constantine in 325 CE, was the most important of these early councils. In the previous centuries, some ahd proposed that Jesus Christ was not really human at all, but was God appearing to be human; others had proposed that he was not really divine, but only a human being. The early church rejected these views as it worked together to articulate its faith: that Jesus Christ was fully God and fully human. The council also worked to express the menaing of God as threefold, a trinity, encompassing three aspects or 'persons' - the Father, the Son Jesus Christ, and the Holy Spirit. At Nicaea, the church articulated the complexity of the divine mystery: that the one God is the transcendent Creator, the fully human Christ, and the indwelling energy, fire, and breath of the Spirit.
+
+While the Apostles' Creed and the Nicene Creed are the oldest and most universal creeds of the church, the process of articulating what it means to give one's heart to Christ ahs continued to the present. New creeds are written in each new era."
 
 
 ----------
