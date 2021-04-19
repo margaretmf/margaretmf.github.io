@@ -192,16 +192,26 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * the many Indians at the mission, strange language
 * Channel Islands, Indians, the north
 * the land, sea, air, extraordinary skill
+* the Aleut ship, came to our island, "gull with folded wings"
+* little harbor, Coral Cove
 
 ## Color ##
+* red // sails
+* black // eyes ["like a Lizard's"]
+* blue // stone
+* red // ship
 
 ## Adjectives ##
+* sleepy // eyes
+* rising // sun
+* pointed // stick
 
 ## Vocabulary ##
 
 ## Themes ##
 
 ### Interesting Sentences or Paragraphs ###
+* "My brother Rabo was only a little boy half my age, which was twelve. He was small for one who had lived so many suns and moons, but quick as cricket. Also foolish, as a cricket when he was excited. For this reason and because I wanted him to help me gather roots and not go running off, I said nothing about the shell I saw or the gull with folded wings." (p. 1, Island of the Blue Dolphins)
 
 
 ----------
