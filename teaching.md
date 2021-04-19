@@ -169,6 +169,12 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## Brian's Winter ##
+
+
+----------
+
+
 ## Island of the Blue Dolphins ##
 ### Who? ###
 * Father Gonzales Rubio, Santa Barbara Mission, Book of Burials
