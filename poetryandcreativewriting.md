@@ -2153,6 +2153,16 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+
+## Charge ##
+Taking charge of what needs to be accomplished
+In the hour of darkness, the angels spy and conspire to take charge of everything
+In the moment of guilt-riddenness, fine, thoughts of peace explode and come to the rescue for the plea
+
+<br>
+
+Word Associations: horse, bill, electric, murder, spy, guilt, fine, conspire, plea, explode
+
 ## Bloom ## 
 My heart longs to hide in the deepness of the dirt where the seedling is buried and the roots spread throughout
 Out of the ripening of this earthgroud plant, this earthground rocks, comes a beatuiful, fresh season filled with
@@ -4036,6 +4046,23 @@ An intelligent force is monitoring everything to keep everyone in check.
 <br>
 
 **Word Associations:** govern, dominion, restraint, clout, authority direct, sway, monitor
+
+## Pain ##
+Pain, torment
+Tormented with lack, being mocked
+Aching within
+Ignored
+Condescended
+Gieving over loss, mourning over what has gone wrong
+Suffering in silence,
+afraid to speak up
+Forever in the depth of the darkness
+Finding ways to soothe oneself, free from the wounds,
+and heal by finding the inner wholeness
+
+<br>
+
+Word Associations: ache, grief, wound, suffer, healing, forever, deep, torment, sorrow, soothe
 
 ## Expectations ##
 An expectation - a knowing that something good will happen.
