@@ -21,6 +21,10 @@
 * Charlotte Smith, Hannah More, Anna Laetita Barbauld, Helen Maria Williams, Felicia Dorothea Hemans, Letitia Landon
 * "Romantic writers", "English poets"
 
+
+----------
+
+
 ## [Credo: 'I Believe...'](https://pluralism.org/credo-“i-believe”) ##
 "Statements of belief unite Christians in their articulation of shared commitments. While the Apostles' Creed and the Nicene Creed are the oldest and most universal creeds of the churhc, the process of articulating what it means to give one's heart to Christ has continued to the present.
 
@@ -69,7 +73,8 @@ Right to freedom fro arbitrary government regulation and control
 
 To personally understand and maintain the American way of life, to honor by his own exemplary conduct, and to pass this credo intact to succeeding generations is the responsibility of every true American"
 
-## [This I Believe() ##
+## [This I Believe(https://www.npr.org/series/4538138/this-i-believe) ##
+"During its four-year run on NPR, This I Believe engaged listeners in a discussion of the core beliefs that guide their daily lives. We heard from people of all walks of life — the very young and the very old, the famous and the previously unknown.'
 
 
 ----------
