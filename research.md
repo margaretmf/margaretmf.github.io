@@ -32,6 +32,45 @@ Christians in the early church had to answer for themselves the question Christ 
 
 While the Apostles' Creed and the Nicene Creed are the oldest and most universal creeds of the church, the process of articulating what it means to give one's heart to Christ ahs continued to the present. New creeds are written in each new era."
 
+## [The American Credo](https://www.freedomsfoundation.org/about/american-credo/) ##
+"Right to worship God in one's own way
+
+Right to free speech and press
+
+Right to peaceabily assemble
+
+Right to petition for redress of grievances
+
+Right to privacy in our homes
+
+Right of habeas corpus - no excessive bail
+
+Right to trial by jury - innocent until proven guilty
+
+Right to move about freely at home and abroad
+
+Right to own property
+
+Right to free elections and personal secret ballot
+
+Right to work in callings and localities of our choice
+
+Right to bargain with our employers and employees
+
+Right to go into business, compete, and make a profit
+
+Right to bargain for goods and services in a free market
+
+Right to contract about out affairs
+
+Right to the service of government as a protector and referee
+
+Right to freedom fro arbitrary government regulation and control
+
+To personally understand and maintain the American way of life, to honor by his own exemplary conduct, and to pass this credo intact to succeeding generations is the responsibility of every true American"
+
+## [This I Believe() ##
+
 
 ----------
 
