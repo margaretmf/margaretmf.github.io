@@ -190,7 +190,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "she was never able to tell that story herself for her language was one that no one could comprehend"
 * "so the details were pieced together, guessed at, fabricated, romanticized at times, embroidered in the retellings"
 * the many Indians at the mission, strange language
-* CHannel Islands, Indians, the north
+* Channel Islands, Indians, the north
 * the land, sea, air, extraordinary skill
 
 ## Color ##
