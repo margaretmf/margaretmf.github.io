@@ -456,7 +456,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * "wars, guns, bows, arrows"
 
-* "'That's all Ah needed,' he remarked bitterly, wincing as he felt himself all over. 'As if it wasn't enough t' lsoe mah hat, an' git crushed half to death by m' best buddy' - he gave Patrick a dirty look - 'I git blown almost up to the pearly gates, and instead o' findin' m'self on a nice soft pink cloud, I'm hangin' out there in space yellin' my haid off with not a livin' soul takin' a danged bit o' notice till it's nearly Too Late!' And he wiped away a tear. He scowled around darkly and then changed his tone. 'Say, whut hit this place, anyhow? Musta bin some dynamitin' that went wrong.'" (p. 150, The Secret of the Indian)
+* "'That's all Ah needed,' he remarked bitterly, wincing as he felt himself all over. 'As if it wasn't enough t' lose mah hat, an' git crushed half to death by m' best buddy' - he gave Patrick a dirty look - 'I git blown almost up to the pearly gates, and instead o' findin' m'self on a nice soft pink cloud, I'm hangin' out there in space yellin' my haid off with not a livin' soul takin' a danged bit o' notice till it's nearly Too Late!' And he wiped away a tear. He scowled around darkly and then changed his tone. 'Say, whut hit this place, anyhow? Musta bin some dynamitin' that went wrong.'" (p. 150, The Secret of the Indian)
 
 
 ----------
