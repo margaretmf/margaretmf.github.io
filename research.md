@@ -556,7 +556,6 @@ Since social skills are weak, the person can make up for them by making themselv
 
 Many high functioning autistic and Asperger teenagers get bored with school and misbehave. They need mentors who can teach them a field that will be beneficial to their future. I had a wonderful high school science teacher who taught me to use the scientific research library. Computers are a great field because being weird or a 'computer geek' is okay. A good programmer is recognized for his/her skills. I know several very successful autistic computer programmers. A bored high school student could enroll in programming or computer-aided drafting courses in a local community college."
 
-
 ## [Occupational Therapists: What Do They Do?](https://childmind.org/article/occupational-therapists-what-do-they-do/) ##
 "Occupational therapy, known as OT, is designed to help children and adults acquire (or regain) the skills needed to perform the activities—or 'occupations'—of daily life. 'It’s a huge field,' says Lindsey Biel, an OT specializing in pediatrics and coauthor with Nancy Peske of Raising a Sensory Smart Child. When a child shows delays in mastering typical activities, or displays unusual or disruptive behavior, the OT is often the first professional to work with her.
 
@@ -576,7 +575,6 @@ Children who have trouble modulating sensory input may experience over-sensitivi
 An extremely hypersensitive child tends to be withdrawn; because she’s easily overwhelmed by auditory and visual stimuli, she may want to avoid gym, recess and lunch. The buzz of fluorescent lights and anxiety about the loud fire alarm going off may distract her, making it difficult to pay attention and participate in class.
 
 Controversy continues as to whether two widely used practices, joint compressions and a brushing of the skin, actually 'rewire' the brain so that kids can appropriately integrate and respond to sensory input, allowing them to feel more comfortable and secure as they negotiate their environment. Even Biel admits that she isn’t always sure these practices have merit but “just when I have my doubts, there’s this great intervention. I had a child making almost no eye contact who was constantly in motion. I put him on cushions and gave him a good brushing. I got eye contact through the whole session; his parents were gasping. Is he cured? No. Was it organizing? Yes.”
-
 
 ## [Occupational Therapy](https://www.slideshare.net/StephanvanBreenenCli/occupational-therapy-and-intellectual-disability) ##
 "Intelligence": cognitive functions, "learning, reasoning, manipulating information, and identifying patterns and relationships, solving problems, recall, planning"
@@ -683,7 +681,6 @@ Right to Privacy
 Respect, Dignity, Duty of Care
 Consent to Sharing Sensitive Information
 
-
 ## [Should Music Be Used in Occupational Therapy?](https://ajot.aota.org/article.aspx?articleid=1874468) ##
 The healing power of music - many cultures, for many centuries
 
@@ -698,7 +695,6 @@ Disorders, psychoses
 
 "Occupational therapy addresses the dysfunction found in a wide variety of psychiatric, developmental, and physical disorders."
 
-
 ## [Music & Sound Therapy](https://www.ot-innovations.com/music-sound-therapy/) ##
 "Music is a very powerful sensory modulation tool! The therapeutic effects of music on the nervous system are well researched. Literature states that a 60 beat per minute pulse can help entrain healthy internal rhythms. Some important considerations before using music in the environment or during OT treatment sessions include the following: diagnosis, age, culture, environment, personal preferences, sensitivities, and personal history."
 
@@ -712,10 +708,8 @@ Mozart or Hayden: There is continuity, clarity, and order in these compositions 
 
 Tchaikovsky or Beethoven: Emotional and dynamic compositions known for their strong rhythms, emotional context changes, and unique sound textures which tend to stimulate the imagination."
 
-
 ## [Music as a Therapeutic Medium for Occupational Engagement: Implications for Occupational Therapy] ##
 "Music is a meaningful occupation; a summary of current literature and the authors’ experiences regarding health and wellness benefits and potential for music as a therapeutic medium in occupational therapy practice is presented. An interview and a summary of the authors’ experiences illustrate the role for music and its benefits for occupational therapy. These benefits are described through three themes which emerged: (a) music as a means of increasing group cohesion toward common goals, (b) music as a means of increasing socialization, and (c) music as a meaningful occupation can empower individuals to enhance and embrace wellness and recovery."
-
 
 ## [Occupational Therapy](https://www.aota.org/-/media/corporate/files/practice/mentalhealth/focus-on-mental-health-booklet.pdf) ##
 "Studies investigating the neurology of music show links between music and cognitive function. In a meta-analysis, music has been found to play a catalytic role in hippocampal-dependent temporal order learning, spatiotemporal reasoning, memory, recall, focus modulation, attention span, attention range in left neglect, sensory-motor learning, auditory verbal learning, emotional adjust- ment, motor/executive function, and psychosocial function (Thaut et al., 2009). With vast neuronal associations in the brain, the use of music in therapy can be individualized to facilitate cogni- tive remediation using the brain’s natural neuroplastic tendency. Experiencing music requires both cerebral and limbic involvement (Thaut et al., 2009). Because both regions are involved, music can be used to address the interconnectivity and communication between these brain areas without requiring verbal capability. Listening to music addresses sensory and emotional pathways, whereas playing music requires coordination, timing, proprioception, and memory."
