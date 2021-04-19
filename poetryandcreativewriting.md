@@ -456,6 +456,17 @@ The freedom is in the independence
 The spirit is all around
 The healing is in the mystery of the whirlwind of it all
 
+## After all That Work ##
+After all that work I had done,
+After all those thoughts I had thought,
+It was a slap in the face 
+for you to try to tell me who I was again,
+and speak for me
+I have a voice
+I did good work
+You are not my benefactor
+Thank you
+
 ## She ##
 She had it all
 She was the babe
@@ -1449,7 +1460,8 @@ In silence, there's the opportunity to say no to the silent arguments masqueradi
 
 ## Imagine ##
 Imagine a world where all 7.2 billion people look up to the same Sun smiling.
-Imagine a world where all 7.2 billion people are singing with their own tones.
+Imagine a world where all 7.2 billion people sing freely.
+Imagine a world where all 7.2 billion people's hearts light up inside.
 Imagine a world where all 7.2 billion people love one another.
 Imagine a world where all 7.2 people quickly forgive.
 The World would resound with light and sound.
