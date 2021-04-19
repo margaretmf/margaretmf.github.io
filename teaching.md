@@ -176,6 +176,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * History as Juana Maria, her name, Lone Woman of San Nicolas, Karana, the name that Scott O'Dell gave to her when he wrote her story
 * the story of the girl Robinson Crusoe - attempting to create (1835-1853)
 * the Nicoleno tribe, "had lived peacefully", "tiny three-by-nine mile island about seventy miles off the coast of Southern California"
+* Captain Orlov, Aleut hunters
 
 ### Where? ###
 * the Island of the Blue Dolphins
@@ -185,6 +186,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * California Coast
 * California - changed from Spanish to Mexican hands, the Americans arrived, visited the island
 * Indian inhabitants
+* The sea
+* Coral Cove, Ghalasat
+* the coast of Santa Barbara
+* the beach of Coral Cove
 
 ### What? ###
 * "she was never able to tell that story herself for her language was one that no one could comprehend"
@@ -194,24 +199,55 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * the land, sea, air, extraordinary skill
 * the Aleut ship, came to our island, "gull with folded wings"
 * little harbor, Coral Cove
+* "gaze at the sea", "dig roots", "punch at the eart with his stick"
+* the beach, the rocks, a small rock, the cliff
 
 ## Color ##
 * red // sails
 * black // eyes ["like a Lizard's"]
 * blue // stone
 * red // ship
+* blue // ones
+* black // ones
+* red // whale
+* heavy // brush
 
 ## Adjectives ##
 * sleepy // eyes
 * rising // sun
 * pointed // stick
+* flat // stone
+* sea // cliffs
+* long // oars - rowing
+* little // harbor
+* tall // man
+* bare // shoulders
+* toyon // bushes
+* higher // ground
 
 ## Vocabulary ##
+* 
 
 ## Themes ##
+* Exploration
+* Wideness of the Earth
+* Native Land, Native People, Native Names
+* Dolphins, Love for Dolphins
 
 ### Interesting Sentences or Paragraphs ###
 * "My brother Rabo was only a little boy half my age, which was twelve. He was small for one who had lived so many suns and moons, but quick as cricket. Also foolish, as a cricket when he was excited. For this reason and because I wanted him to help me gather roots and not go running off, I said nothing about the shell I saw or the gull with folded wings." (p. 1, Island of the Blue Dolphins)
+
+"'The sea is not a stone without scratches,' I said. 'It is water and no waves.'" (p. 2, Island of the Blue Dolphins)
+
+* "But Ramo's eyes missed little in the world. They were black like a lizard's and very large and, like the eyes of a lizard, could sometimes look sleepy." (p. 2, Island of the Blue Dolphins)
+
+* "I kept on gathering roots, but my hands trembled as I dug in the earth, for I was more excited than my brother. I knew thatit was a ship there on the sea and not a big canoe, and that a ship could mean many things. I wanted to drop the stick and run too, but I went on digging roots because they were needed in the village." (p. 3, Island of the Blue Dolphins)
+
+* "I was surprised that he gave his real name to a stranger. Everyone in our tribe had two names, the real one which was secret and was seldom used, and one which was common, for if people use your secret name it becomes worn out and loses its magic. Thus I was known as Won-a-pa-lei, which means The Girl with the Long Black Hair, though my secret name is Karnaa. My father's secret name was Chowig. Why he gave it to a stranger I do not know." (p. 5, Island of the Blue Dolphins)
+
+* "Everyone on the beach looked up. Silently I left the toyon bushes and ran without stoppiing until I reached the mesa." (p. 7, Island of the Blue Dolphins)
+
+* "Many dolphins live in our seas and it may be from them that the name came. But one way or another, this is what the island was called." (p. 9, Island of the Blue Dolphins)
 
 
 ----------
