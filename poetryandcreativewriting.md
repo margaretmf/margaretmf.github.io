@@ -2166,6 +2166,17 @@ That I ne sholde wedded be but ones."
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
 
+## Stolen ##
+A gem of great price within that feels stolen, trampled upon, violated
+The good work done stolen, not guarded
+The dreams ransom, thundered on
+Straight ways made crooked
+The good in human character villainized
+
+<br>
+
+Word Associations: dreams, crook, gem, villian, price, ranson, lurk, thunder, land, guard
+
 ## Charge ##
 Taking charge of what needs to be accomplished
 In the hour of darkness, the angels spy and conspire to take charge of everything
