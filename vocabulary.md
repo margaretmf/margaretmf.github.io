@@ -87,6 +87,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Spirituality: ##
 * The quality of being concerned with the human spirit or soul as opposed to material or physical things
 
+## Subjective: ##
+* Based on or influenced by personal feelings, tastes, or opinions
+* Relating to or denoting a case of nouns and pronouns used for the subject of a sentence
 
 
 
