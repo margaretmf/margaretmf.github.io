@@ -1,7 +1,8 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain". 
-Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder.
+The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain". 
+
+Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
 
 
 # Critical Reading #
@@ -194,7 +195,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * red // venison
 * red // meat
 * smooth, slow // movement
-* white // light 
+* white // light
+* great // weight 
+* red // berries
 
 ## Adjectives ##
 * new-cool // air
@@ -265,6 +268,18 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * white // spots
 * nearby // bush
 * killing // lance
+* same // world
+* plane // crash 
+* butcher // shop
+* crude // mittens
+* estsimate // temperature
+* stacked // moose
+* rabbit-skin // shirt
+* scraggly // trees
+* blistering // crack
+* narrow // highway
+* exploding // trees
+* small // bits
 
 ## Vocabulary ##
 * Softness ["describing how the Fall came on"]
@@ -300,6 +315,15 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Mutation
 * Brambles
 * Maneuver
+* Blazing
+* Grinning
+* Stiffness
+* Crystallized
+* Shattered
+* Stumbling
+* Splurged
+* Gorging
+* Fooledii
 
 ## Themes ##
 * Hunting
@@ -316,6 +340,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Weaponry, Protection - hatchet and knife
 * Nature
 * the Native Americans
+* Wood
 
 ### Interesting Sentences or Paragraphs ###
 * "living the same day-to-day pattern he had started just after crash" (p. 5, Brian's Winter)
@@ -363,6 +388,35 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "He moved around, did his toilet - drawing a picture in the snow when he did - and was amazed how well the boots worked, kept his feet warm and comfortable. As he came close to the shelter he saw a mouse appear almost magically out of the snow, run across the surface for three feet and then dive under again." (p. 72, Brian's Winter)
 
 * "Almost simultaneously he saw different tracks in the snow in front of him. Big tracks. Huge tracks. The hair went up on his neck. They were big enough for bear and what he really didn't want to do in his whole life was meat a bear in thick brush, especially if it was a bear that had a memory of a bad night with a skunk." (p. 75, Brian's Winter)
+
+* "Bright opened his eyes slowly, closed them against the brightness and the pain in his forehead, then opened them again." (p. 80, Brian's Winter)
+
+* "He made a fire inside the shelter with coals from the outside fire and soon it was warm and toasty. He hung the rabbit-skin shirt up to dry and lay back to wait the rain out. Having worked all night the previous night and slept most of the day, he wasn't sleepy and thought that the rain seemed light and would probably end by daylight and when he finaly dozed off, warm and snug in the shelter, it seemed to be coming down more lightly all the time." (p. 87, Brian's Winter)
+
+* "He needed wood and he spent most of that day dragging in dead poplar, finally taking the parka off because it was so heavy and working in the rabbit-skin shirt alone. Everything had ice frozen on it but it chipped off easily with the hatchet. When he had a good stack - enough for another week (he was definitly gun-shy now about storms) - he chopped some meat off one of the back legs of the moose for stew and settled in for another night of rubbing the hide of his parka to soften it." (p. 90, Brian's Winter)
+
+* "The berries boiled first and he added snow water to them and kept them boiling until he had a kind of mush in the pan. By that time the meat had cooked and he set it off to the side and tasted the berry mush." (p. 94, Brian's Winter)
+
+* "All that, he thought, all that and more to be thankful for and he ended the prayer - as it had seemed to become - with another thought about the pilot down in the lake, how he hoped the pilot had had a good life and was where it was good for him now." (p. 96, Brian's Winter)
+
+* "Then he ate, quietly, thinking of his mother and father, and when he finished his Thanksgiving it was dark, pitch-dark, and he crawled into his bag to sleep and had just closed his eyes and started to get drowsy when he heard the gunshot." (p. 96, Brian's Winter)
+
+* "He made a circle of the camp, walked out on the lake ice - which was covered with  snow as well - and back around and saw no tracks other than rabbit and mouse. (p. 99, Brian's Winter)
+
+Then he started to move toward where the sound had come from, workign slowly, amazed that he was starting to warm up and even feel comfortable. Back in the hood the air was kept from moving and his face grew warmer and the fact that his head was warm seemed to warm his whole body and once he became accustomed to the cold he could look around and appreciate the world around him. (p. 99, Brian's Winter)
+
+It was a world of beauty. It's like being inside glass, he thought, a beautiful glass crystal. The air was so clear he could see tiny twigs, needles on pine trees fifty, seventy-five yards away, and so still that when a chickadee flew from a tree to the meat piled near the entrace - where they flocked and picked at the meat - he could actually hear the rush of air as the bird flapped its wings." (p. 99, Brian's Winter)
+
+* "But there was moisture in them, sap, and when it got very cold the sap must freeze. He went up to the tree that had just exploded and saw that a whole section seemed to have been blown out of the side - maybe a foot and a half long and four or five inches wide. Just shattered and blown apart and the force seemed to have come from inside the tree and he stood back and stared at the wound and thought on it and finally came up with a theory. (p. 99, Brian's Winter)
+
+The tree would freeze on the outside first, a ring of frozen wood all the way around. Then, when it got truly cold - as it had last night - the inside would freeze." (p. 102, Brian's Winter)
+
+* "He did not know how to make the rest of the snowshoe. He had seen pictures and kenw it had to be a web of some sort but could not visualize how to start. In the end he just started in the middle and worked to the ends, tying the strips of moose hide crosswise, fastened to each side, making horizontal strips about two inches apart, each strap pulled tight and tied off in a double knot." (p. 107, Brian's Winter)
+
+* "Home was where he stopped to have a fire and by the end of a week - the warm weather held, rising to thirty above during the day - he actually stayed out away from the shelter for a night and sat by a fire in his clothes, listening to wolves howling, seeing a thousand diamond eyes from the firelight glittering in the snow around the fire pit." (pp. 119-120, Brian's Winter)
+
+* A line // "Brian had discovered that there are almost no straight lines in nature. The sides of trees up and down, the horizon, far away, but very little else. Animal tracks almost always wandered, circled; seldom did they go straight for any distance." (p. 126, Brian's Winter)
+
 
 ----------
 
