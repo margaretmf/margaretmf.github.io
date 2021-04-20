@@ -146,12 +146,13 @@ It came back up through another's song of the enigmatic smile, the victim and th
 
 ## First Impressiosn, and Expression ##
 First impressions, they don't capture the whole story.
-They say, "you can't judge a book by its cover."
+People warn, "you can't judge a book by its cover."
 The full expression is there, and the intuition is given to draw out the entire expression.
 The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
+Second looks, second glances, diving deeper to see the fuller picture, and the details are really what she loves.
 
 ## Truth or Dare ##
-So…. once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
+So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
 
 Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
 #IWasJustAFan 
