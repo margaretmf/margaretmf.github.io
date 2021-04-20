@@ -231,6 +231,19 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * iron // spearheads
 * green // sinew
 * gray // hair
+* black // sea
+* blue // dolphins
+* blue // water
+* black // rock
+* yellow // eyes
+* big gray // dog
+* black // dog
+* red // shells
+* star-shaped // creature
+* gold // eyes
+* black // rims
+* black, shining // walls
+* green and gold // colors
 
 ## Adjectives ##
 * sleepy // eyes
@@ -324,9 +337,52 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * terrible // flood
 * sea // rise
 * proper // strength
+* whale // spouting
+* big // waves
+* endless // waters
+* wild // dogs
+* large // rocks
+* slippery // bed
+* high // cliffs
+* faint // noises
+* leaking // canoe
+* calm // sea
+* good // distance
+* wild // dogs
+* gulls // flying
+* good // pole
+* cooking // seeds
+* clear // light
+* sea // elephant
+* crying // sounds
+* gray // boulders
+* deep // scars
+* ripped // deep
+* cactus // bush
+* low // bushes
+* broken // shaft
+* sea-elephant // teeth
+* wild // dogs
+* speckled/ eggs
+* beatuiful // feathers
+* clear // water
+* twisting // arms
+* giant // stalk
+* weak // light
+* jagged // crack
+* sound // echoed
+* whole // ocean
+* different // direction
+* beautiful // skirt
+* little // fish
+* brush // singing
+* strong // winds
+* wild // seas
+* graceful // stride
+* gleaming // stretch
 
 ## Vocabulary ##
-* Foolishenss
+* Foolishness
 * Stunted
 * Preparations
 * Stiffly
@@ -351,6 +407,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Frightened
 * Ravine
 * Forbade
+* Raviness
+* Waddling
+* Bellowings
+* Abandoned
+* Entangled
 
 ## Themes ##
 * Exploration
@@ -415,6 +476,36 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "As the sun rose high the tide came rushing up the beach and filled the hole with sand. Each wave covered the chest deeper until it was completely hidden. I stood on the, bracing myself against the waves, so that I would not have to look for it again. When the tide turned I began to dig with my feet, working them down and down, and then with my hands." (p. 50, Island of the Blue Dolphins)
 
 * "In the morning the gulls flew out from their nests in the crevices of the cliff. THey circled down to the tide pools where they stood first on one leg and then the other, splasing waterover themselves and combing their feathers with curved beaks. Then they flew off down the shore to look for food. Beyond the kelp beds pelicans were already hutnign, soaring high over the clear water, diving straight down, if they sighted a fish, to strike the ea with a great splash that I could hear." (p. 54, Island of the Blue Dolphins)
+
+* "The sun is warm then and the winds blow milder out of the west, something out fo the south." (p. 56, Island of the Blue Dolphins)
+
+* "swarm of dolphins" (p. 64, Island of the Blue Dolphins)
+
+* "Dolphins are animals of good omen. It made me happy to have them swimming around the canoe, and though my hands had begun to bleed from the chafing of the paddle, just watching them made me forget the pain. I was very lonely before they appeared, but now I felt that I had friends with me and did not feel the same. (p. 63, Island of the Blue Dolphins)
+
+* "The blue dolphins left me shortly before dusk. They left as quickly as they had come, going on into the west, but for a long time I could see the last of the sun shining on them." (p. 63, Island of the Blue Dolphins)
+
+* "a steadier flow of water" (p. 67, Island of the Blue Dolphins)
+
+* "They follow their mothers around, waddling along on their flippers like children learning to walk, making crying sounds and sounds of pleasure tha tonly the young make. And before they will leave the shore and learn to swim, thei rmothers have to push them into the sea, which is often difficult to do because of their size." (p. 77,  Island of the Blue Dolphins)
+
+* "Storms came early with rian and between the rains fierce winds struck the island and filled the air with sand. During this time, I made myself another dress, but most of the days I spent fashionarity a spear to catch giant devilish." (p. 101, Island of the Blue Dolphins)
+
+* "Flowers were plentiful that spring because of the winter's heavy rains. The dunes were covered with mats of sand flowers, which are red and have tiny eyes that are sometimes pink and sometimes white. Yuccas grew tall among the rocks of the ravine. Their heads were clustered with curly globes no larger than pebbles and the color of the sun when it rises. Lupines grew when the springs ran. From the sunny cliffs, in crevices where no one would think anything could grow, sprang the little read and yellow fountains of the comul bush." (p. 108, Island of the Blue Dolphins)
+
+* "Birds were plentiful, too. There were many hummers which can stand stil int he air and look like bits of polished stone and have long tongues to stip honey with. THere were blue jays, which are very quarrelsome birds, and black-and-white peckers tha tpecked holes in the yucca stalks and the poles of my roof, even in the whale bones of the fence. Red-winged blackbirds also came flying out of the south, and flocks of crows, and a bird with a yellow body and a scarlet head, which I had never seen before." (pp. 108-109, Island of the Blue Dolphin)
+
+* "The pull suddenly lessened and I was sure that he was gone, but the next instant I saw the string cutting the water in a wide circle. He was swimming off from the cave and the reef toward some rocks that were about twice the length of the string away. He would be safe there, too, for among them were many places to hide." (p. 117, Island of the Blue Dolphins)
+
+* "The sun made bright scales on the water, but I could see clearly. There were two sails and it was a ship coming toward the island. For a long time I could not tell the color fo the sails. I wondered if it could be the white men, though not thought about them little and seldom looked for them." (p. 125, Island of the Blue Dolphins)
+
+* "The sea water kept the abalones fresh, but when we had to go out again the night was took dark to find our way to the reef. I therefore had to gather roots. I could never gather many before the sun rose, so I went tou every monring until the next moon came. Then I went to the reef for abalones." (p. 129, Island of the Blue Dolphins)
+
+* "My heart beat loud" (p. 138, Island of the Blue Dolphins)
+
+* "Spring again was a time of flowers, and water ran in the ravines and flowed down to the sea. Many birds came back to the island." (p. 145, Island of the Blue Dolphins)
+
+* "Dolphins rose out of the sea and sawm before the ship. They swam for many leagues in the morning through the brigh water, weaving their foamy patterns. THe little birds were chirping in their cage and Rontu-Aru sat beside me." (p. 174, Island of the Blue Dolphins)
 
 
 ----------
