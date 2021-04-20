@@ -183,6 +183,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * the story of the girl Robinson Crusoe - attempting to create (1835-1853)
 * the Nicoleno tribe, "had lived peacefully", "tiny three-by-nine mile island about seventy miles off the coast of Southern California"
 * Captain Orlov, Aleut hunters
+* Ulape
+* Kimki
+* Chief Tanyositlopai
 
 ### Where? ###
 * the Island of the Blue Dolphins
@@ -196,6 +199,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Coral Cove, Ghalasat
 * the coast of Santa Barbara
 * the beach of Coral Cove
+* "came from a country far to the north"; "their ways are not ours nor is their language"
+* the island of Santa Catalina 
 
 ### What? ###
 * "she was never able to tell that story herself for her language was one that no one could comprehend"
@@ -217,6 +222,15 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * black // ones
 * red // whale
 * heavy // brush
+* good // hunter
+* blue // eyes
+* black // beard
+* black // eyes
+* longest // string
+* blue // bracelets
+* iron // spearheads
+* green // sinew
+* gray // hair
 
 ## Adjectives ##
 * sleepy // eyes
@@ -230,9 +244,113 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * bare // shoulders
 * toyon // bushes
 * higher // ground
+* polished // hills
+* small, twisted // trees
+* curious // news
+* fur // cap
+* poor // season
+* early // spring
+* heavy // seas
+* deep // water
+* harvested // seas
+* good // fortune
+* stormy // afternoon
+* bigget // waves
+* wide // beds
+* slain // otter
+* sea // otter
+* kelp // beds
+* sunless // day
+* deep // waves
+* narrow // beach
+* otter // pelts
+* white // smoke
+* secret // name
+* terrible // time
+* south // headland
+* snared // fowl
+* deep // water
+* built // canoes
+* wild // pack
+* ample // food
+* real // reason
+* every // house
+* big // canoe
+* rising // sun
+* silver // trail
+* wind // blew
+* one // moon
+* every // day
+* fog
+* next // sun
+* few // storms
+* red // sails
+* stout // rope
+* otter // cape
+* faint // light
+* growing // pale
+* small // quantity
+* deep // breath 
+* wind // grows
+* scraping // hides
+* cooking // pots
+* small // box
+* fierce // gusts
+* high // waves
+* two // boats
+* biggest // canoes
+* wind // drowned
+* beautiful // skirt
+* yucca // fibers
+* dogs // scurryings
+* small // fire
+* gull // eggs
+* gathering // food
+* tide // pools
+* flat // rock
+* big // canoe
+* wild // dogs
+* short // distance
+* growing // dark
+* small // valley
+* two // hills
+* gathered // bush
+* clear // place
+* safe // place
+* slain // dog
+* spearing // fish
+* small // holes
+* wide // circle
+* terrible // flood
+* sea // rise
+* proper // strength
 
 ## Vocabulary ##
-* 
+* Foolishenss
+* Stunted
+* Preparations
+* Stiffly
+* Barred
+* Rushed
+* Whirring
+* Gathering
+* Plentiful
+* Roamed
+* Decreed
+* Mischief
+* Disappeared
+* Shrouded
+* Alarm
+* Fastened
+* Hidden
+* Fearful
+* Motioning
+* Anchored
+* Gorged
+* Thrust
+* Frightened
+* Ravine
+* Forbade
 
 ## Themes ##
 * Exploration
@@ -254,6 +372,49 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Everyone on the beach looked up. Silently I left the toyon bushes and ran without stoppiing until I reached the mesa." (p. 7, Island of the Blue Dolphins)
 
 * "Many dolphins live in our seas and it may be from them that the name came. But one way or another, this is what the island was called." (p. 9, Island of the Blue Dolphins)
+
+* "Our island is two leagues long and one league wide, and if you were standing on one of the hills that rise int he middle of it, you would think that it looked like a fish. Like a dolphin lying on its side, with its tail pointing otward the sunrise, its nose pointing to the sunset, and its fins making reefs and the rocky ledges along the shore. Whether someone did stand there on the low hills in the days when the earth was new and, because of tis shape, called it the Island of the Blue Dolphins." (p. 8, Island of the Blue Dolphins) 
+* "Many dolphins live in our seas and it may be from them that the name came." (p. 8, Island of the Blue Dolphins)
+
+* "Many of our tribe went to the cliff each night to count the number killed during the day. They counted the dead otter and thought of the beads and other things that each pelt meant. But I never went to the cove and whenever I saw the hunters with their long spears skimming over the water, I was angry, for these animals were my friends. It was fun to see them playing or sunning themselves among the kelp. It was mreo fun thant the htought of beads to wear around my neck." (p. 15, Island of the Blue Dolphins)
+
+* "There are no trees on the island except the small ones stunted by the wind. When a log came ashore, as happened once in a long time, it was always carried to the village and worked on where a chance wave could not wash it away. That the men were sent to hollow out the log in the cove, and to sleep beside it during the night, meant that they were there to watch the Aleuts, to give the alarm should Captain Orlov try to sail off without paying us for the otter skins." (p. 16, Island of the Blue Dolphins)
+
+* "The storm struck as we ran, driving rain into our faces. Then other women were running beside us and their cries were louder than the wind. At the bottom of the trail we came upon our warriors. Many had fought on the beach." (p. 22, Island of the Blue Dolphins)
+
+* "Life in the village should have been peaceful, but it was not. The men said that the women ahd taken the tasks that rightfully were theirs and now that they had become hunters the men looked down upon them. There was much trouble over this until Kimki decreed that the work would again be divided - henceforth the men would hunt and the women harvest. Since there were already ample food to last through the winter, it no longer mattered who hunted." (p. 26, Island of the Blue Dolphins)
+
+* "In the spring, Kimki called the tribe together." (p. 27, Island of the Blue Dolphins)
+
+* "the cliff to scan the sea" (p. 29, Island of the Blue Dolphins)
+
+* "watch the cove", "wathced during the day" (p. 30, Island of the Blue Dolphins)
+
+* "Matasaip was silent, pondering the news. Then he told us to go on to where the canoes where and wait for him, for he was going back. It was light now and we went quickly over the dunes to the edge of the cliff and stood there while the sun rose." (p. 31, Island of the Blue Dolphins)
+
+* "The wind blew in fierce gusts as we left the village, stinging our faces with sand. Rmao hopped along far in front with one of our baskets, but before long he ran back to say that he had forgotten his fishing spear. Nanko was standing on the cliff motioning us to hurry, so I refused to let him go back for it." (p. 35, Island of the Blue Dolphins)
+
+* "The sails had filed and the ship was now moving slowly away. Everyone was looking toward the cliff, even the white men. I ran to one of them and pointed, but he shook his head and turned from me. The ship began to move faster. Against my will, I screamed." (p. 37, Island of the Blue Dolphins)
+
+* "The wind blew storng as we climbed the trail, covering th mesa with sand that sifted around our legs and shut out th esky. Since it was not possible to find our way back, we took shelter among some rocks. We stayed there until night fell. Then the wind lessened and the moon came out and by its light we reached village." (p. 39, Island of the Blue Dolphins)
+
+* "The ocean was calm on this day and we were able to hunt abalone among the rocks. From seaweed we wove a rough basket which we filled before the sun was overhead. On the way home, carrying the ablone between us, Ramo and I stopped on the clif. THe air was clear and we could look far out to sea in the direction in the ship had gone." (p. 40, Island of the Blue Dolphins)
+
+* "I searched the rocks for mussels" (p. 43, Island of the Blue Dolphins)
+
+* "The sun moved higher. There was no sign of Ramo. I began to feel uneasy. The basket was filled and I carried it up to the mesa." (p. 43, Island of the Blue Dolphins)
+
+* "The barking grew louder as I came closer to the cliff. It would die away and after a short silence start up again. The sound came from the opposite side of the dunes, and leaving the trail I climbed upward through the sand to its top." (p. 45, Island of the Blue Dolphins)
+
+* "Fogs crept in and out of the empty huts. It amde shapes as it drifted and they reminded me of all the people who were dead and those who were gone. The noise of the surf seemed to be their voices speaking." (p. 47, Island of the Blue Dolphins)
+
+* "the sun came out and the fog vanished" (p. 47, Island of the Blue Dolphins)
+
+* "the canoes were hidden, believing that weapons might have been stored there with the food and water" (p. 49, Island of the Blue Dolphins)
+
+* "As the sun rose high the tide came rushing up the beach and filled the hole with sand. Each wave covered the chest deeper until it was completely hidden. I stood on the, bracing myself against the waves, so that I would not have to look for it again. When the tide turned I began to dig with my feet, working them down and down, and then with my hands." (p. 50, Island of the Blue Dolphins)
+
+* "In the morning the gulls flew out from their nests in the crevices of the cliff. THey circled down to the tide pools where they stood first on one leg and then the other, splasing waterover themselves and combing their feathers with curved beaks. Then they flew off down the shore to look for food. Beyond the kelp beds pelicans were already hutnign, soaring high over the clear water, diving straight down, if they sighted a fish, to strike the ea with a great splash that I could hear." (p. 54, Island of the Blue Dolphins)
 
 
 ----------
