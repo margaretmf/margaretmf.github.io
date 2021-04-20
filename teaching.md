@@ -192,6 +192,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * gray // sky
 * blue // sky
 * red // venison
+* red // meat
+* smooth, slow // movement
+* white // light 
 
 ## Adjectives ##
 * new-cool // air
@@ -255,6 +258,13 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * chipping // arrowheads
 * hardwood // spears
 * strange // things
+* flat // rock
+* braided // nylon
+* hardwood // spears
+* soften // leather
+* white // spots
+* nearby // bush
+* killing // lance
 
 ## Vocabulary ##
 * Softness ["describing how the Fall came on"]
@@ -283,6 +293,13 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Kindled
 * Waddled
 * Hummed
+* Shrugged
+* Stymied
+* Fading
+* Fluke
+* Mutation
+* Brambles
+* Maneuver
 
 ## Themes ##
 * Hunting
@@ -341,6 +358,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * "Rabbits were easy to skin - the hide almost fell off them. The doe's skin was stuck tight to the meat and did not come off with simply pullying at it, the way a rabbit skin did. Brian had to use the tip of the knife to cut the skin away form the flesh, peeling it back a quarter of an inch at a time, and it took him the better part of an hour, working constantly, to get the hide loose, cutting it off the front legs and up the neck to the back of the head." (p. 47, Brian's Winter)
 
+* "The entire world was white, bright white with new morning sun glaring off and through it and so intense that it made his temples hurt." (p. 71, Brian's Winter)
+* "Snow had fallen in the night. Soft, large flakes, nearly four inches deep everywhere. On limbs, logs, the ground, on the lake ice - all over, an even four inches." (p. 71, Brian's Winter)
+* "He moved around, did his toilet - drawing a picture in the snow when he did - and was amazed how well the boots worked, kept his feet warm and comfortable. As he came close to the shelter he saw a mouse appear almost magically out of the snow, run across the surface for three feet and then dive under again." (p. 72, Brian's Winter)
+
+* "Almost simultaneously he saw different tracks in the snow in front of him. Big tracks. Huge tracks. The hair went up on his neck. They were big enough for bear and what he really didn't want to do in his whole life was meat a bear in thick brush, especially if it was a bear that had a memory of a bad night with a skunk." (p. 75, Brian's Winter)
 
 ----------
 
