@@ -1,6 +1,6 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins". 
+The top three books for children I have read are "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain". 
 Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder.
 
 
@@ -170,6 +170,176 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 
 ## Brian's Winter ##
+### Who? ###
+* Brian Robeson
+
+### Where ? ###
+* The Wilderness
+
+### What? ###
+* "'what woudl happen if Brian hadn't been rescued, if he had had to survive in the winter?'"
+* "survival in winter" - running two Iditarods, hunting and trapping a a boy and young man - the challenge became interesting"
+* Survival Packet, Hatched, Radio Signal, Rescuing
+
+### Color ###
+* blue // jays
+* shades of pink
+* mostly gold
+* red, scattered bits of color
+* flat coppery blue
+* ugly gray
+* red // velvet
+* gray // sky
+* blue // sky
+* red // venison
+
+## Adjectives ##
+* new-cool // air
+* dirt // hump
+* brush // cover
+* small // clump
+* heated // flame
+* rock // wall
+* fishing // line
+* small // panfish
+* night // fire
+* glorious // weather
+* true // happiness 
+* soft / afternoons
+* gray // light
+* solitary // wolf
+* rotten // stump
+* stronger // weapon
+* larger // bow
+* stronger // bow
+* arrow // shafts
+* warm // clothing
+* good // shelter
+* dead // leaves
+* stiffer // shafts
+* oil // stove
+* beautiful // collection
+* hunting // rabbits
+* large // patch
+* ancient // fire
+* brushy // area
+* reflexive // shot
+* stick // figure
+* lighter // bow
+* plane // crash
+* constant // drizzle
+* sputtering // fire
+* hunting // knife
+* tough // muscle
+* dawn // sunlight
+* dry // rock
+* hot // sun
+* small // draft
+* watertight // dam
+* fresh // mud
+* hitting // rocks
+* fracture // lines
+* true // arrowhead
+* hunting // knife
+* rekindled // fire
+* small // clearing
+* good // deal
+* feather // stash
+* smooth, slow // movement
+* pet // skunk
+* soft // rustle
+* whoofing // sound
+* enormous // form
+* new // smell
+* rank, foul, sulfurous, gagging // smell
+* chipping // arrowheads
+* hardwood // spears
+* strange // things
+
+## Vocabulary ##
+* Softness ["describing how the Fall came on"]
+* Hard-spined
+* Relieved
+* Glutted
+* Torment
+* Wanting
+* Slamming
+* Relief
+* Angry
+* Whiff
+* Relished
+* Snuggled
+* Rummaging
+* special // significance
+* Winterized
+* Insulated
+* Clearing
+* Gorged
+* Amazed
+* Awakened
+* Bulging
+* Concentrate
+* Rummaged
+* Kindled
+* Waddled
+* Hummed
+
+## Themes ##
+* Hunting
+* Surviving Education gained in the school of hrad knocks
+* the Summer
+* Luck, or abilities
+* Emergency Pack
+* The plane, crashing
+* Hunting, Nature, Rifle
+* Anger Management
+* The Sun
+* The Rabbit
+* Wolves, Territories
+* Weaponry, Protection - hatchet and knife
+* Nature
+* the Native Americans
+
+### Interesting Sentences or Paragraphs ###
+* "living the same day-to-day pattern he had started just after crash" (p. 5, Brian's Winter)
+
+* "In truth he felt relieved when the food was gone. It had softened him, made him want more and more, and he could tell that he was moving mentally away from the woods, his situation. He started to think in terms of the city agian, of hamburgers and malts, and his dreams changed." (p. 6, Brian's Winter)
+
+* "The plane, [crashing], [dream[ing] many times]" (p. 6, Brian's Winter)
+
+* "But with the supplies from the plane his dreams changed back to food and when it was gone - in what seemed a very short time - a kidn of wanting, hunger returned that he ahd not felt since the first week. For a week or two he was in torment, never satisfied; even when he ahd plenty of  fish and rabbit or foolbird to eat he thought of the things he didn't have. It somehow was never enough and he seemed to be angry all the time, so angry that he wasted a whole day just slamming things around and swearing at his luck." (p. 6, Brian's Winter)
+
+* "Almost a whiff, soemthing he could smell. He was hutning with the rifle when he sensed the change. He had awakened early, just before first light, and had decided to spend the entire day hunting and get maybe two or three foolbirds. He blew on the coals from the fire the night before until they glowed red, added some bits of dry grass, which burst into flame at once, and heated water in one of the aluminum pots that had come in the plane's survival pack." (p. 7, Brian's Winter)
+
+* "A new coolness, a touch, a soft kiss on his cheek. It was the same air, the same sun, the same morning, but it was different, so changed that he stopped and raised his hand to his cheek and touched where the coolness had brushed him." (p. 7, Brian's Winter)
+
+* "He closed his eyes and went to sleep like a baby." (p. 14, Brian's Winter)
+
+* "He had made many friends - or at least acquaintances. Birds had taken on a special significance for him. At night the owls made their soft sounds, calling each other in almost ghostly hoonnes that scared him until he finally saw one call on a night when the moon was full and so bright it was almost like a cloudy day." (p. 15, Brian's Winter)
+
+* "Before dawn, just as gray light began to filter through the trees, the day birds began to sing. They started slowly but before the gray had become light enough to see ten yards all the birds started to sing and Brian was brought out of sleep by what seemed to be thousands of singing birds." (p. 15, Brian's Winter)
+
+* "Robins had an evening song and one they snag right before a rainstorm and another when the rain was done. Blue jays spent all their time complaining and swearing but they also warned him when something - anything was moving in the wods. Ravens and crows were the same - scrawking and cawing their way through the trees." (p. 16, Brian's Winter)
+
+* "Good, he thought, I own something now. I belong. And he ahd gone on with his life believing that he wolves and he had settled everything." (p. 17, Brian's Winter)
+
+* "Everything in nature means something and he had missed the warnings that summer was ending, had in many ways already ended, and what was coming would be the most dangerous thing he had faced since the plane crash." (p. 21, Brian's Winter)
+
+* "And the sky over the lake was different as well. The soft, summer clouds were gone and where it was blue it was a flat coppery blue and where the clouds were coming they were a slate gray - and they grew as he watched. Not in thuderheads as in the summer, towering and full of drama, but an almost ugly gray that was all one shade, and expanded from the north to cover the sky as if pushed by a large hand. Even as he watched, the patch of blue he had seen at first was gone and all the sky was gray and he could smell rain. Again, not the rain of summer but a cooler, almost cold rain was coming and it made him shiver though it had not started yet." (pp. 24-25, Brian's Winter)
+
+* "Those people were the pros, he thought - the Native Americans who had made the points centuries before. They lived all the time as Brian was trying to live now and they had experimented for thousands of years to come up with the designs of the heads. Brian closed his eyes and tried to remember how they had looked." (p. 27, Brian's Winter)
+
+* "He searched his memory, what he had learned in school, seen on television, read in books, and nowhere could he find a picture of anybody saying how stone arrowheads were made." (p. 27, Brian's Winter)
+
+* "Thigns never happened as he planned, however, and because he was concentrating on looking for rabbits he very nearly stepped on a foolbird. It blew up under his foot in a flash of leaves and feathers like a grenade detonating and flew off at a quartering angle away and to Brian's left front." (p. 29, Brian's Winter)
+
+* "flock of geese" (p. 35, Brian's Winter)
+
+* "It was not finished as well as the ancients ahd finished theirs, but it was sharp and tapered the right way and had a notch for tying it onto the shaft." (p. 39, Brian's Winter)
+
+* "They must have been the wolves that had sung the night before just as he went to sleep. They had hunted well and he smiled, thinking how they must feel - how he felt when it went well - and turned to go to his stump, when he thought again." (p. 45, Brian's Winter)
+
+* "Rabbits were easy to skin - the hide almost fell off them. The doe's skin was stuck tight to the meat and did not come off with simply pullying at it, the way a rabbit skin did. Brian had to use the tip of the knife to cut the skin away form the flesh, peeling it back a quarter of an inch at a time, and it took him the better part of an hour, working constantly, to get the hide loose, cutting it off the front legs and up the neck to the back of the head." (p. 47, Brian's Winter)
 
 
 ----------
