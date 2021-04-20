@@ -79,6 +79,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 
 # Creative Writing #
+## Perspective, Stories, the South ##
+Around the south, there are so many individual perspectives. A song sings about the South, an infrastructure, a culture, a group of people who created a land. Every individual in the land, in the South associate different meanings with this land. Everyone is coming from a different subjective standpoint. Everyone associates his or her own meanings with what they hear. Songs can help people recall things in different ways based on their own subjective standpoints.
+
 ## Professionalization ##
 The world will try to define you.
 People will try to box you in.
