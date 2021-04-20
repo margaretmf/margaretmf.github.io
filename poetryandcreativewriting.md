@@ -80,7 +80,19 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 # Creative Writing #
 ## Perspective, Stories, the South ##
-Around the south, there are so many individual perspectives. A song sings about the South, an infrastructure, a culture, a group of people who created a land. Every individual in the land, in the South associate different meanings with this land. Everyone is coming from a different subjective standpoint. Everyone associates his or her own meanings with what they hear. Songs can help people recall things in different ways based on their own subjective standpoints.
+Around the south, there are so many individual perspectives. 
+
+Someone sings about the South, and shares a story about the infrastructure, the culture, the group of people who created a land. 
+
+Every individual in the land, in the South associate different meanings with this land. 
+
+Everyone is coming from a different subjective standpoint. 
+
+Everyone associates his or her own meanings with what they hear. 
+
+Songs can help people recall people, events, ideas, knowledge in different ways based on their own subjective standpoints.
+
+Isn't it cool that so many people grew up in the Southern United States and share common experiences but also have different meanings associated based on the time in which they were born, the state in which they were born, and the stories their ancestors shared.
 
 ## Professionalization ##
 The world will try to define you.
@@ -918,6 +930,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
 * Grateful for positive memories of spending the summers reading in bunk beds with cousins
 * Grateful for the boys playing outside
+* Grateful for the stories of African Americans in Spain
+* Grateful for all the girls at Camp Nakanawa
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
