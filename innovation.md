@@ -1063,6 +1063,8 @@ African music, African land, Cairo
 * The Union - North, South, East, West - we all stand in this union, where everything is interconnected, rising above the conflict, the chaos, finding our common bond, the bridge to the other side
 * Sitting in Traffic - birds on a wire, car lights - red, yellow, green, blinkers
 * Mandalas, circles, universal, community
+* Turtleneck Weather
+* Teatime, Tea
 
 
 <br>
