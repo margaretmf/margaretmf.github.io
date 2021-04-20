@@ -934,6 +934,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the stories of African Americans in Spain
 * Grateful for all the girls at Camp Nakanawa
 * Grateful for the people in the Courthouse
+* Grateful for the advertisement "Can you see me?"
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
