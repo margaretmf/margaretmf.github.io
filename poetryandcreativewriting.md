@@ -2130,7 +2130,7 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 # Precis #
 In her internet journal entitled 'Teaching Mark Twain's Adventures of Huckleberry Finn published in July of 1995, Shelley Fisher Fishkin argues that students should study the novel because it can make a difference in addressing the issues of racism. By making opinions and providing examples for them, she develops her argument. Fishkin describes the difference the novel can make when taught correctly in order to make the novel have a bigger impact. She encourages educators to teach the irony and satire Tain uses through a serious and urging tone.
 
-Gregory ROberts, the writer of the internet journal, "'Huck Finn' a msterpiece - or an insul', published on November 26, 3003, suggests the importance of teaching *The Adventures of Huckleberry Finn* in high schools. He makes this suggestion clear by providing research and quotes from other sources. He presents research from both sides of the argument in order to give the correct view of the issue. Roberts uses a formal tone as he presents information to the general public.
+Gregory Roberts, the writer of the internet journal, "'Huck Finn' a msterpiece - or an insul', published on November 26, 3003, suggests the importance of teaching *The Adventures of Huckleberry Finn* in high schools. He makes this suggestion clear by providing research and quotes from other sources. He presents research from both sides of the argument in order to give the correct view of the issue. Roberts uses a formal tone as he presents information to the general public.
 
 Eugenia Harris asserts that *The Adventures of Huckleberry Finn* teaches us about American culture and we should thus continue to teach it in internet article "'Huck Finn' still pushes buttons, professor says', pbulished on September 26, 2000. Harris develops her assertion trhough using research and arguing against the opinions of others. She explains that books that have challenging content cause discussion and allow people to grow up in order to persuade readers of the importance of reading *The Adventures of Huckleberry Finn*. Using a critical and assertive tone, Harris intends to convince the general public the importance of teaching the novel.
 
@@ -2199,6 +2199,25 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+
+## Stranger ##
+Someone on the outside, living in the shadows of life's existence.
+It's a mysterty why she's so unknown to people, living in the dark, enraptured by the loneliness.
+She's foreign, she's different, she's unfamiliar, yet she ha something new to offer and a heart to light up the whole room.
+
+<br>
+
+Word Associations: lonely, outsider, shadow, unknown, darkness, mystery, new, foreign, different, unfamiliar
+
+## Money ##
+Every day, people exchange money for goods.
+In God we trust, and place our value, when attracted to the things that the purse buys.
+There's a price to everything, so I spend carefully, and protect the bank from greed and stealth.
+It's a luxury to make these exchanges everyday.
+
+<br>
+
+Word Associations: luxury, value, purse, price, greed, steal, operation, exchange, attraction, bank
 
 ## Undergound ##
 Deep undergound, where the soul goes to find respite
