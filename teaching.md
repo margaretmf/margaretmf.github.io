@@ -178,6 +178,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * town dogs vs. savage dogs - "There was imperative need to be constantly alert; for these dogs and men were not town dogs and men. They were savages, all of them, who knew no law but the law of club and fang." (p. 8, The Call of the Wild)
 * Curly
 * Francois
+* Bille, Joe, two brothers, true huskies
+* Spitz
 
 ### Where? ###
 * Arctic darkness
@@ -195,6 +197,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Color ###
 * yellow // metal 
 * red // sweater
+* white // plain
+* gray of dawn
+* yellow // metal
+* white-hot // knife
+* white // woods
 
 ## Adjectives ##
 * heavy // dogs
@@ -244,6 +251,56 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * belligerent // fear
 * battle-scarred // face
 * single // eye
+* excessive // good nature
+* comradely // fashion
+* savage // dogs
+* confined // space
+* bad // dreams
+* supreme // expression
+* timber // line
+* cold // darkness
+* hunger // pangs
+* good // condition
+* moral // nature
+* vain // thing
+* ruthless // struggle
+* conspicuous // trait
+* forgotten // ancestors
+* domesticated // generations
+* ancient // song
+* small // copies
+* fierce // conditions
+* secret // growth
+* precipitate // action
+* bitter // hatred
+* perpendicular // wall of rock
+* sheltering / rock
+* warning // snarl
+* timid // dog
+* disrupted // nest
+* sheer // rage
+* astonished // team-dogs
+* famished // beasts
+* sorry // plight
+* exhausting // toil
+* weazened // face
+* frowning // shores
+* masterful // dog
+* open // mutiny
+* great // fight
+* steep // bank
+* warm // blood
+* living // meat
+* supreme // moods
+* faintest // whisper
+* expectant // circle
+* open // revolt
+* excellent // condition
+* strange // sounds
+* quick // alertness
+* weary // distance
+* soft // snow
+* wretched // state
 
 ## Vocabulary ##
 * Conveyance
@@ -271,6 +328,44 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Despatches
 * Appeasement
 * Incarnation
+* Gaunt
+* Prowess
+* Peculiarity
+* Consternation
+* Ignominiously
+* Venom
+* Disconslate
+* Miserable
+* Unmolested
+* Arduous
+* Animate
+* Eagerness
+* Passivness
+* Toiled
+* Fastidiousness
+* Characterized
+* Dainty
+* Remedy
+* Duplicated
+* Unsuspected
+* Decivilization
+* Deliberateness
+* Rashness
+* Astonished
+* Whimpered
+* Daunt
+* Inevitable
+* Transforming
+* Blundered
+* Shirked
+* Unearthed
+* Despatches
+* Recuperate
+* Arrange
+* Misdemeanor
+* Insidious
+* Imagination
+* Forevalued
 
 ## Themes ##
 * Emotions, storming, raging
@@ -290,6 +385,23 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * "It was the wolf manner of fighting, to strike and leap away; but there was mroe to it than this. Thirty or forty huskies ran to the spot and surrounded the combatants in an itnent and silent circle. Buck did not comprehend that silent intentness, nor the eager way with whcih they were licking their chops. Curly rushed her antagonist, who struck again and leaped aside. He met her next rush with his chest, in a peculiar fashion that tumbled her off her feet. She never regained them. This was what the onlooking huskies had waited for. They closed in upon her, snarling and yelping, and she was buried, screaming with agony, beneat the bristling mass of bodies." (p. 9, The Call of the Wild)
 
+* "Francois made remarkable progress. Ere they returned to camp he kenw enough to stop at 'ho,' to go ahead at 'mush,' to swing wide on the bends, and to keep clear of the wheeler when the loaded sled shot downhill at their heels.
+
+'Tree vair' good dogs.' Francois told Perrault. 'Dat Buck, heem pool lak hell. I tich heem queek as anyt'ing.'" (p. 10, The Call of the Wild)
+
+* "By evening Perrault secured another dog, an old husky, long and lean and gaunt, with a battle-scarred face and a single eye which flashed a warning of prowess that commanded respect: He was called Sol-leks, which means the Angry One. Like Dave, he asked nothing, gave nothing, expected nothing: and when he marched slowly and deliberately into their midst, even Spitz left him aloe. He had one peculiarity which Buck was unlucky enough to discover. He did not like to be approached on his blind side. Of this offence Buck was unwittingly guilt, and the first knowledge he had of his indiscretion was when Sol-leks whirled upon him and slashed his shoulder to the bone for three inches up and down. Forever after Buck avoided his blind side, and to the last of their comradeship had no more trouble. His only apparent ambition, like Dave's, was to be left alone, though, as Buck was afterward to learn, each of them possessed one other and even more vital ambition." (p. 10, The Call of the Wild)
+
+* "Three more huskies were added to the team inside an hour, making a total of nine, and before another quarter of an hour had passed they were in harness and swinging up the trail toward the Dyea Canon. Buck was glad to be gone, and though the work was hard he found he did not particularly despise it. He was surprised at the eagerness which animated the whole team and which was communicated to him; but still more surprisingly was the change wrought in Dave and Sol-leks. They were new dogs, utterly transformed by the harness. All passiveness and unconcern had dropped from them. They were alert, and active, anxious that the work should go well, and fiercely irritable with whatever, by delay or confusion, retarded that work. The toil of the traces seemed the supreme expression of their being, and all that they lived for and the only thing in which they took delight." (p. 12, The Call of the Wild)
+
+* "It was a hard day's run, up the canon, through Sheep Camp, past the Scales and the timber line, across glaciers and snowdrifts hundreds of feet deep, and over the great Chilkoot Divide, which stands between the salt water and the fresh and guards forbiddingly the sad and lonely North. They made good time down the chain of lakes which fill the craters of extinct volcanoes, and late that night pulled into the huge camp at the head of Lake Bennet, where thousands of goldseekers were building boats against the breakup of the ice in the spring. Buck made his hole in the snow and slept the sleep of the exhausted just, but all too early was routed out in the cold darkness and harnessed with his mates to the sled." (p. 12, The Call of the Wild)
+
+* "Day after day, for days unending, Buck toiled in the traces." (p. 13, The Call of the Wild)
+
+* "And not only did he learn by experience, but instincts long dead became alive again. The domesticated generations fell from him: In vague ways he remembered back to the youth of the breed, to the time the wild dogs ranged in packs through the primeval forest, and killed their meat as they ran it down. It was not task for him to learn to fight with cut and slash and the quick wolf snap. In this manner had fought forgotten ancestors. They quickened the old life within him, and the old tricks which they had stamped into the heredity of the breed were his tricks. They came to him without effort or discovery, as though they had been his always. And when, on the still cold nights, he pointed his nose at a star and howled long and wolflike, it was his ancestors, dead and dust, pointing nose at star and howling down through the centuries and through him. And his cadences were their cadences, the cadences which voiced their woe and what to them was the meaning of the stillness, and the cold, and dark." (p. 14, The Call of the Wild)
+
+* "Close in under the shltering rock Buck made his nest. So snug and warm was it, that he was loath to leave it when Francois distributed the fish which he had first thawed over the fire. But when Buck finished his ration and returned, he found his nest occupied. A warning snarl told him that the trespasser was Spitz. Till now Buck had avoided trouble with his enemy, but this was too much. The beast in him roared." (p. 15, The Call of the Wild)
+
+* "The breaking down of discipline likewise affected the dogs int heir relations with one another. They quarrelled and bickered more than ever among themselves, till at times the camp was a howling bedlam. Dave and Sol-leks alone were unaltered, though they were made irritable by the unending squabbling. Francois swore strange barbarous oaths, and stamped the snow in futile rage, and tore his hair. His lash was always singing with the dogs, but it was of small avail." (p. 22, The Call of the Wild)
 
 ----------
 
