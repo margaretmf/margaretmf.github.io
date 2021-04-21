@@ -938,6 +938,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the walking challenge in the Sun with a friend from UVA
 * Grateful for the imagery of a rose
 * Grateful for all the neighbors outside walking, running, and driving
+* Grateful for the leader of Discipleship Training School who overcame darkness like gun violence with God
+* Grateful for the people with Discipleship Training School who whovercame darkness like porn addiction with God
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -1143,6 +1145,13 @@ The interstate
 The stars
 
 Continuous. Circle. Rhythm. Structure. 
+
+## It Takes Faith ##
+It takes faith to wake up another day
+It takes faith to walk out the door
+It takes faith to take a step forward
+It takes faith to forgive and heal a relationship
+It takes faith to move on and trust people
 
 ## Working with EVERFI ##
 I was grateful that through the doubt, God intuitively led me to a place just right for me and everyone, where I was integrated with family members and community members doing their life work in the world.
@@ -1488,6 +1497,7 @@ Imagine a world where all 7.2 billion people sing freely.
 Imagine a world where all 7.2 billion people's hearts light up inside.
 Imagine a world where all 7.2 billion people love one another.
 Imagine a world where all 7.2 people quickly forgive.
+Imagine a world where all the colors exude the light and shine their true colors.
 The World would resound with light and sound.
 --All the coordinates, every localized place, people look up to the same Sun from different perspectives.
 For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
