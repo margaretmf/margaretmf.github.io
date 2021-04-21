@@ -174,6 +174,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Who? ###
 * Buck
 * tidewater dog
+* dogs
+* town dogs vs. savage dogs - "There was imperative need to be constantly alert; for these dogs and men were not town dogs and men. They were savages, all of them, who knew no law but the law of club and fang." (p. 8, The Call of the Wild)
+* Curly
+* Francois
 
 ### Where? ###
 * Arctic darkness
@@ -189,7 +193,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "the steamer", "great railway depot", "deposited in an express car"
 
 ### Color ###
-* yellow metal 
+* yellow // metal 
+* red // sweater
 
 ## Adjectives ##
 * heavy // dogs
@@ -211,6 +216,34 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * unwonted // performance
 * intolerable // pain
 * evil-looking // creatures
+* detestable // dogs
+* raging // friend
+* splintering // wood
+* blood-shot // eyes
+* exquisite // agony
+* complete // circle
+* primitive // law
+* unwonted // demand
+* unfair // sum
+* gloomy, morose // fellow
+* wolfish // creatures
+* unforgettable // lesson
+* sun-kissed // life
+* vicarious // experience
+* husky // dog
+* bloody, trampled // snow
+* fair // play
+* deathless // hatred
+* tragic // passing
+* instant // obedience
+* draught // animal
+* sharp // reproof
+* remarkable // progress
+* perpetual // snarl
+* malignant // eye
+* belligerent // fear
+* battle-scarred // face
+* single // eye
 
 ## Vocabulary ##
 * Conveyance
@@ -218,6 +251,26 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Ragged
 * Unkempt
 * Dragged
+* Throttled
+* Attempted
+* Choked
+* Assailed
+* Quivering
+* Frothing
+* Surging
+* Wrestling
+* Snarl
+* Conciliate
+* Morose
+* Civilization
+* Primordial
+* Peril
+* Imperative
+* Perpetual
+* Malignant
+* Despatches
+* Appeasement
+* Incarnation
 
 ## Themes ##
 * Emotions, storming, raging
@@ -226,6 +279,17 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ### Interesting Sentences or Paragraphs ###
 * "and he stormed and ragged at them through the bars"
+* "retaliated by teasing him"
+* * "his anger waxed and waned"
+* "the mor outrage to his dignity"
+* "he accumulated a fund of wrath" (pp. 1-5, The Call of the Wild)
+
+* "'Sacradam!' he cried, when his eyes lit upon Buck, 'Dat one dam bully dog! Eh? How moch?'" (p. 7, The Call of the Wild)
+
+* "He was friendly, in a treacherous sort of way, smiling into one's face the while he emditated some underhand trick, as, for instance, when he stole from Buck's food at the first meal. As Buck sprang to punish him, the lash of Francois's whip sang through the air, reaching the culprit first; and nothing remained to Buck ut to recover the bone." (p. 7, The Call of the Wild)
+
+* "It was the wolf manner of fighting, to strike and leap away; but there was mroe to it than this. Thirty or forty huskies ran to the spot and surrounded the combatants in an itnent and silent circle. Buck did not comprehend that silent intentness, nor the eager way with whcih they were licking their chops. Curly rushed her antagonist, who struck again and leaped aside. He met her next rush with his chest, in a peculiar fashion that tumbled her off her feet. She never regained them. This was what the onlooking huskies had waited for. They closed in upon her, snarling and yelping, and she was buried, screaming with agony, beneat the bristling mass of bodies." (p. 9, The Call of the Wild)
+
 
 ----------
 
@@ -238,7 +302,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * The Wilderness
 
 ### What? ###
-* "'what woudl happen if Brian hadn't been rescued, if he had had to survive in the winter?'"
+* "'what would happen if Brian hadn't been rescued, if he had had to survive in the winter?'"
 * "survival in winter" - running two Iditarods, hunting and trapping a a boy and young man - the challenge became interesting"
 * Survival Packet, Hatched, Radio Signal, Rescuing
 
