@@ -1,6 +1,6 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain". 
+The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", "Hatchet", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain", "The Call of the Wild".
 
 Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
 
