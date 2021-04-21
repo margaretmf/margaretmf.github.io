@@ -2030,6 +2030,66 @@ Arithmetic ('the science of numbers'; 'the art of calculation') applies numbers 
 
 Although certain symbols, marks, and letters customarily represent quantities and operations, seldom would the letters T, F, and S (see examples above) be used. Usually the early letters of the alphabet-a, b, c, etc.-are applied to stand for constants (fixed or known numbers) and the late letters-x, y, z-to stand for variables. Variables are quantities that may have various values or that are unknown. The letter 'n' is used to mean 'any given (or known) number'. A Power of a number is the product or result you get when you multiply the number by itself, one or more times. It is expressed by an Exponent (a small number written after and higher than the number). When you read it aloud as 'three squared,' this means 3 x 3 =9; or "two to the fifth power is 2x2x2x2x2 or 32. Roots, the opposite of a power, must be multiplied by itself to produce a given number. The cube root (using a number three times as a factor-4x4x4) of 64 is 4. A Series is a group of numbers related by some rule. In an arithmetic series-1, 4, 7, 10-a constant number (here, 3) is added to each term to give the next. Africans found a place for arithmetic and algebra during their on-going activities on such vast construction projects– as in building temples, pyramids, irrigation works, and obelisks."
 
+## [https://georgetowner.com/articles/2019/02/20/black-history-georgetown-2/]() ##
+"Step out of your home or walk a block from your office here in Georgetown, the oldest neighborhood in Washington, D.C., and you are sure to pass a spot that contains history — quite likely African American history. To the surprise of some, Georgetown can tell the story of early and contemporary America from a black perspective.
+
+In 2019, we mark the 400th anniversary of enslaved Africans arriving in the British American colonies at Point Comfort, Virginia. Disembarking in 1619 were 'not any thing but 20. and odd Negroes,' according to John Rolfe, widower of Pocahontas.
+
+The legacy of slavery continues to inform the American experience, black and white — particularly on the East Coast, where the United States began. Of the many stories to tell, we shall tell a local one.
+
+Washington, D.C., says Marcia Chatelain, Georgetown University associate professor of history, is a place with black history that has shown 'great beauty and inequality. It is a sober reminder and a celebration, too,' she added, 'of achievement and strengths.' Knowing and understanding history, says the author of 'South Side Girls: Growing Up in the Great Migration,' Americans have a chance 'to demonstrate what’s possible' — constructing 'a well-rounded account.' Black History Month is a time 'to be reflective.'
+
+Fifth-generation Washingtonian, P Street resident and educator Monica Roaché — former advisory neighborhood commissioner and now a D.C. Democratic Party Committee member — says she has used her platform to tell the story of black Georgetown. 'The African American community contributed to Georgetown. There were doctors, lawyers, educators and more,' she says, noting that 'Georgetown was the first D.C. neighborhood to experience gentrification.' (It did not turn out well for black Georgetowners.)
+
+Roaché’s family was part of 'Black Georgetown Remembered,' a 1989 video and book project by Georgetown University, authored by Kathleen Lesko, Valerie Babb and Carroll Gibbs. Crediting the university, Roaché calls the book 'an encyclopedia of Georgetowners’ shared experience.'
+
+
+That same Jesuit university at 37th & O Streets — the oldest Catholic institution of higher learning in the U.S. — only fully confronted its ties to slavery three years ago.
+
+'It seems to me that the story of Georgetown and slavery is a microcosm of the whole history of slavery,' said history professor Adam Rothman, a member of Georgetown University’s Working Group on Slavery, Memory & Reconciliation, in 2016, regarding the university’s connection with the Jesuits’ 1838 sale of 272 slaves.
+
+Since then, the university has apologized for arranging the sale of slaves from D.C. and Maryland farms to help pay off debts that endangered the survival of Georgetown College. And it has renamed two main campus buildings: for Isaac Hawkins, the first slave listed on the sales document; and for Anne Marie Becraft, who founded a school nearby for black girls and later became one of America’s first black nuns.
+
+The school has also offered descendants of the 272 slaves, most of whom ended up in Louisiana, legacy status in admissions.
+
+
+That same Jesuit university at 37th & O Streets — the oldest Catholic institution of higher learning in the U.S. — only fully confronted its ties to slavery three years ago.
+
+'It seems to me that the story of Georgetown and slavery is a microcosm of the whole history of slavery,' said history professor Adam Rothman, a member of Georgetown University’s Working Group on Slavery, Memory & Reconciliation, in 2016, regarding the university’s connection with the Jesuits’ 1838 sale of 272 slaves.
+
+Since then, the university has apologized for arranging the sale of slaves from D.C. and Maryland farms to help pay off debts that endangered the survival of Georgetown College. And it has renamed two main campus buildings: for Isaac Hawkins, the first slave listed on the sales document; and for Anne Marie Becraft, who founded a school nearby for black girls and later became one of America’s first black nuns.
+
+The school has also offered descendants of the 272 slaves, most of whom ended up in Louisiana, legacy status in admissions.
+
+
+That same Jesuit university at 37th & O Streets — the oldest Catholic institution of higher learning in the U.S. — only fully confronted its ties to slavery three years ago.
+
+'It seems to me that the story of Georgetown and slavery is a microcosm of the whole history of slavery,' said history professor Adam Rothman, a member of Georgetown University’s Working Group on Slavery, Memory & Reconciliation, in 2016, regarding the university’s connection with the Jesuits’ 1838 sale of 272 slaves.
+
+Since then, the university has apologized for arranging the sale of slaves from D.C. and Maryland farms to help pay off debts that endangered the survival of Georgetown College. And it has renamed two main campus buildings: for Isaac Hawkins, the first slave listed on the sales document; and for Anne Marie Becraft, who founded a school nearby for black girls and later became one of America’s first black nuns.
+
+The school has also offered descendants of the 272 slaves, most of whom ended up in Louisiana, legacy status in admissions.
+
+
+That same Jesuit university at 37th & O Streets — the oldest Catholic institution of higher learning in the U.S. — only fully confronted its ties to slavery three years ago.
+
+'It seems to me that the story of Georgetown and slavery is a microcosm of the whole history of slavery,' said history professor Adam Rothman, a member of Georgetown University’s Working Group on Slavery, Memory & Reconciliation, in 2016, regarding the university’s connection with the Jesuits’ 1838 sale of 272 slaves.
+
+Since then, the university has apologized for arranging the sale of slaves from D.C. and Maryland farms to help pay off debts that endangered the survival of Georgetown College. And it has renamed two main campus buildings: for Isaac Hawkins, the first slave listed on the sales document; and for Anne Marie Becraft, who founded a school nearby for black girls and later became one of America’s first black nuns.
+
+The school has also offered descendants of the 272 slaves, most of whom ended up in Louisiana, legacy status in admissions.
+
+Mention Dr. C. Herbert Marshall or Dr. Joseph Dodson and old-timers will smile in recognition. Mention the Blue Mouse Theatre, operated by George Martin, on 26th Street in the West End and older smiles will widen. Remaining in Georgetown were the families Bowman, Burnett, Butler, Calloway, Clark, Gaskin, Jackson, Jones, Marshall, Mitchell, Peebles, Roaché, Sewell, Waters and Wharton, when “Black Georgetown Remembered” was written.
+
+'One of the things I have enjoyed, even to this day, is the communal feeling in Georgetown. We’re still close-knit, even though our numbers have dwindled,” says Neville Waters, president of the Mount Zion Female Union Band Historic Memorial Park Inc. The nonprofit’s work for the old cemetery behind 27th and Q Streets has amped up with a major fundraising campaign: 'Reclaiming Our Past to Preserve Our Future.' (The group was one of this newspaper’s 2018 Georgetowners of the Year.)
+
+'It saddens me to think of a time when blacks and white could not be buried together, but we’ve gone beyond that,' Waters says. 'It’s important that everyone know our ancestors worked hard to help build the foundations of Washington, D.C.'
+
+Nowadays, D.C. is no longer 'Chocolate City.' Mayor Muriel Bowser calls for 'a fair shot' for all. And the Old Dominion — as it attempts to address shameful aspects of its history, some recent — touts its '2019 Commemoration, American Evolution.'
+
+'We’re still learning in 2019,' Roaché says."
+
+
 ## [Gender, Power, and Whiteness in Rodeo: Breaking Away from the Ties of Sexism and Racism](https://books.google.com/books?id=xcjq7_dG1RYC&pg=PA7&lpg=PA7&dq=cowboys+west+damsels+in+distress+south&source=bl&ots=pYgLRHxQl4&sig=ACfU3U3Zx-kziU3AmBTgdPzgksPsmq6ZwA&hl=en&sa=X&ved=2ahUKEwj1_Lj8ooHvAhU2MlkFHaWmB0UQ6AEwEXoECBAQAw#v=onepage&q=cowboys%20west%20damsels%20in%20distress%20south&f=false) ##
 "When I was a little girl, in the mid-1950s, I wanted more than anything than to be a cowgirl."
 
