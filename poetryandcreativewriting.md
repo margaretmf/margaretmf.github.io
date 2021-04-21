@@ -2187,6 +2187,28 @@ That I ne sholde wedded be but ones."
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
 
+## Undergound ##
+Deep undergound, where the soul goes to find respite
+Burying one's heart in the tunnel beneath the earth's rock, where theres a chamber of dirt supporting a bloom
+A great treasure lies deep underground, waiting to be mined
+I can be a fugitive from this hostile earth's existence and live in the subway to freedom
+
+<br>
+
+Word Associations: mine, treasure, coffin, tunnel, subway, well, crypt, chamber, magma, fugitive
+
+## Betrayal ##
+Failing to stay loyal to people
+Failing to keep the trust in the relationship
+A greatest enemy, someone not capable of looking deeper to understand
+A manipulator, someone using someone for their own gain
+Vengeance after being stabbed in the back after trying to trust
+Alliances to help community, someone like Judas, a traitor
+
+<br>
+
+Word Associations: enemy, turst, spy, manipulation, traitor, vengeance, Judas, stab, alliance, loyalty
+
 ## Education ##
 Life is continuous education
 A lesson to learn from everyone someone meets
