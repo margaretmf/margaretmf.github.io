@@ -1026,6 +1026,21 @@ is_contact: true
 (4) The laundry machine running
 (5) The clicks of the keyboard
 
+## **Day 67** ##
+## **Images** ##
+(1) Gumballs on the street
+(2) An old church for sale
+(3) An American flag flying over the water
+(4) Green leaves
+(5) White flowers
+
+## **Sounds ** ##
+(1) A door creaking, and squeaking
+(2) A motor zooming
+(3) A whiperwill bird
+(4) Highway sounds
+(5) Someone crunching on peanuts
+
 <br>
 
 <br>
@@ -1065,6 +1080,8 @@ African music, African land, Cairo
 * Mandalas, circles, universal, community
 * Turtleneck Weather
 * Teatime, Tea
+* Rose blooming in a heart, rose blooming in the dirt
+* All of mankind smiling, the face of the most high God
 
 
 <br>
