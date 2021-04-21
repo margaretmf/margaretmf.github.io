@@ -92,6 +92,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Based on or influenced by personal feelings, tastes, or opinions
 * Relating to or denoting a case of nouns and pronouns used for the subject of a sentence
 
+## Embarass : ##
+* To make someone feel self-conscious or make someone feel badly about himself
+
 
 
 
