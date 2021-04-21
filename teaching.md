@@ -170,6 +170,66 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## The Call of the Wild ##
+### Who? ###
+* Buck
+* tidewater dog
+
+### Where? ###
+* Arctic darkness
+* the Northland
+* Satan Clara Valley
+
+## What? ###
+* "trouble was brewing"
+* "steamship and transportation companies were booming the find"
+* "lived obscurely in the recesses of the house"
+* "faith in a system:
+* "For to play a systemr equires money, while the wages of a gradener's helper do not lap over the needs of a wife and numerous progeny."
+* "the steamer", "great railway depot", "deposited in an express car"
+
+### Color ###
+* yellow metal 
+
+## Adjectives ##
+* heavy // dogs
+* strong // muscles
+* gravelled // driveays
+* wide-spreading // lawns
+* interlacing // boughs of tall poplars
+* dozen // grooms
+* endless and ordelry array // outhouses
+* pumping // plant
+* morning // plunge
+* hot // afternoon
+* populous // kennels
+* strange // creatures
+* fearless // promises
+* besetting // weakness
+* little // flag // station
+* quiet // dignity
+* unwonted // performance
+* intolerable // pain
+* evil-looking // creatures
+
+## Vocabulary ##
+* Conveyance
+* Grumbled
+* Ragged
+* Unkempt
+* Dragged
+
+## Themes ##
+* Emotions, storming, raging
+* Economic Systems
+* Dogs
+
+### Interesting Sentences or Paragraphs ###
+* "and he stormed and ragged at them through the bars"
+
+----------
+
+
 ## Brian's Winter ##
 ### Who? ###
 * Brian Robeson
