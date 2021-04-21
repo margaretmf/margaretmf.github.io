@@ -202,6 +202,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * yellow // metal
 * white-hot // knife
 * white // woods
+* black // dog
 
 ## Adjectives ##
 * heavy // dogs
@@ -301,6 +302,28 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * weary // distance
 * soft // snow
 * wretched // state
+* inexorable // elimination
+* savage // environment
+* copious/ opinions
+* sufficient // reason
+* new / existence
+* murmured // oaths
+* kindly // greeting
+* cheering // word
+* keenest // interest
+* occasional // movements
+* terrible // antagonist
+* mighty // rhythm
+* fighting // spirit
+* cheery // words
+* oldest // tradition
+* boundless // delight
+* obliterated // trails
+* various // things
+* splendid // flod
+* terrible // transformation
+* savage // temper
+* new // stir
 
 ## Vocabulary ##
 * Conveyance
@@ -366,6 +389,23 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Insidious
 * Imagination
 * Forevalued
+* Sympathetically
+* Scattered
+* Thoroughfare
+* Importuned
+* Demonstrative
+* Convalescence
+* Peremptorily
+* Grappling
+* Instinctively
+* Miscalculated
+* Bluff
+* Quibble
+* Hauling
+* Musing
+* Triumphantly
+* Branching
+* Cessation
 
 ## Themes ##
 * Emotions, storming, raging
@@ -383,7 +423,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * "He was friendly, in a treacherous sort of way, smiling into one's face the while he emditated some underhand trick, as, for instance, when he stole from Buck's food at the first meal. As Buck sprang to punish him, the lash of Francois's whip sang through the air, reaching the culprit first; and nothing remained to Buck ut to recover the bone." (p. 7, The Call of the Wild)
 
-* "It was the wolf manner of fighting, to strike and leap away; but there was mroe to it than this. Thirty or forty huskies ran to the spot and surrounded the combatants in an itnent and silent circle. Buck did not comprehend that silent intentness, nor the eager way with whcih they were licking their chops. Curly rushed her antagonist, who struck again and leaped aside. He met her next rush with his chest, in a peculiar fashion that tumbled her off her feet. She never regained them. This was what the onlooking huskies had waited for. They closed in upon her, snarling and yelping, and she was buried, screaming with agony, beneat the bristling mass of bodies." (p. 9, The Call of the Wild)
+* "It was the wolf manner of fighting, to strike and leap away; but there was more to it than this. Thirty or forty huskies ran to the spot and surrounded the combatants in an itnent and silent circle. Buck did not comprehend that silent intentness, nor the eager way with whcih they were licking their chops. Curly rushed her antagonist, who struck again and leaped aside. He met her next rush with his chest, in a peculiar fashion that tumbled her off her feet. She never regained them. This was what the onlooking huskies had waited for. They closed in upon her, snarling and yelping, and she was buried, screaming with agony, beneat the bristling mass of bodies." (p. 9, The Call of the Wild)
 
 * "Francois made remarkable progress. Ere they returned to camp he kenw enough to stop at 'ho,' to go ahead at 'mush,' to swing wide on the bends, and to keep clear of the wheeler when the loaded sled shot downhill at their heels.
 
@@ -402,6 +442,23 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "Close in under the shltering rock Buck made his nest. So snug and warm was it, that he was loath to leave it when Francois distributed the fish which he had first thawed over the fire. But when Buck finished his ration and returned, he found his nest occupied. A warning snarl told him that the trespasser was Spitz. Till now Buck had avoided trouble with his enemy, but this was too much. The beast in him roared." (p. 15, The Call of the Wild)
 
 * "The breaking down of discipline likewise affected the dogs int heir relations with one another. They quarrelled and bickered more than ever among themselves, till at times the camp was a howling bedlam. Dave and Sol-leks alone were unaltered, though they were made irritable by the unending squabbling. Francois swore strange barbarous oaths, and stamped the snow in futile rage, and tore his hair. His lash was always singing with the dogs, but it was of small avail." (p. 22, The Call of the Wild)
+
+* "Buck heard the chaffering, saw the money pass between the man and the Government agent, and kenw that the Scotch half-breed and the mail-train drivers were passing out of his life on the heels of Perrault and Francois and the others who had gone before. When driven with his mates to the new owners' camp, Buck saw a slpishod and slovenly affair, tent half stretched, dishes unwashed, everything in disorder; also, he saw a woman. 'Mercedes' the men called her. She was Charles's wife and Hal's sister - a nice family party." (p. 32, The Call of the Wild)
+
+* "It was beautiful spring weather, but neither dogs nor humans were aware of it. Each day the sun rose earlier and set later. It was dawn by three in the morning, and twilight lingered till nine at night. The whole long day was a blaze of sunshine. The ghostly winter silence had given way to the great spring murmur of awakening life. This murmur arose from all the land, fraught with the joy of living. It came from the things that lived and moved again, things which had been as dead and which had not moved druing the long months of frost. The sap was rising in the pines. The willows and aspens were bursting out in young buds. Shrubs and vines were putting on fresh garbs of green. Crickets sang in the nights, and in the days all manner of creeping, crawling things rustled forth into the sun. Partridges and woodpeckers were booming and knocking in the forest. Squirrels were chattering, birds singing, and overhead honked the wildfowl driving up from the South in cunning wedges that split the air." (p. 39, The Call of the Wild)
+
+* "He had no fight left in him. Besides, his hands were full with ihs sister, or his arms, rather: while Buck was too near dead to be of fruther use in hauling the sled. A few minutes later they pulled out from the bank and down the river." (p. 41, The Call of the Wild)
+
+* "Faithfulness and devotion, things born of fire and roof, were his; yet he retained his wildness and wiliness. He was a thing of the wild, come in from the wild to sit by John Thornton's fire, rather than a dog of the soft Southland stamped with the marks of generations of civilization. Because of his very great love, he could not steal from this man, but from any other man, in any other camp, he did not hesitate an instnat, while the cunning with which he stole enabled him to escape detection." (p. 44, The Call of the Wild)
+
+* "He was older than the days he had seen and the breaths he had drawn. He linked the past with the present, and the eternity behind him throbbed through him in a mighty rhythm to which he swayed as the tides and seasons swayed." (p. 44, The Call of the Wild)
+
+* "He sat by John Thornton's fire, a broad-breasted dog, white-fanged and long-furred; but behind him were the shades of all manner of dogs, half-wolves and wild wolves, urgent and prompting, tasting the savor of the meat" (p. 44, The Call of the Wild)
+
+* "The blood-longing became stronger than ever before. He was a killer, a thing that prayed, living on the things that lived, unaided, alone, by virtue of his own strength and prowess, surviving triumphantly in a hostile environment where only the strong survive. Because of all this he became possessed of a great pride in himself, which communicated itself like a contagion to his physical being. It advertsed itself in all his movements was apparent in the play of every muscle, spoke plainly as speech in the way he carried himself, and made his glorious furry coat if anything more glorious. But for the stray brown on his muzzle and above his eyes, and for the splash of white hair that ran midmost down his chest, he might well have been mistaken for a gigantic wolf." (p. 56, The Call of the Wild)
+
+* "Night came on, and a full moon rose high over the trees into the sky lighting the land till it lay bathed in ghostly day. And with the coming of the night, brooding and mourning by the pool, Buck became alive to a stirring of the new life in the forest other than that which the Yeehats had made. He stood up, listening and scenting. From far way driffted a faint, sharp yelp, followed by a chorus of similar sharp yelps. As the moments passed the yelps grew closer and louder. Again Buck knew them as things heard in that toher world which persisted in his memory. He walked to the centre of the open space and listened. It was the call, the many-noted call, sounding more luringly and compelling than ever before." (p. 61, The Call of the Wild)
+
 
 ----------
 
