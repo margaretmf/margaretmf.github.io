@@ -14,3 +14,12 @@ This is a page to share words that speak to me intuitively throughout the day an
 
 ## Escuchar (verb, verbo): ##
 * To hear, to listen
+
+## La Integridad (f) (noun, sustantivo): ##
+* (=totalidad) Wholeness, completeness
+* (=honradez) Integrity
+* (Computing) Integrity
+* (old-fashioned) (= virginidad) virginity
+
+## La Sonrisa (f) (noun, sustantivo): ##
+* Smile
