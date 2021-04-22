@@ -964,6 +964,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the leader of Discipleship Training School who overcame darkness like gun violence with God
 * Grateful for the people with Discipleship Training School who whovercame darkness like porn addiction with God
 * Grateful for the lunch with a man from Africa, digging into his family's ancestory and roots in Cameroon and his shirt on Cameroonian Roots
+* Grateful for memories of the Operation Smile event in Virginia Beach
+* Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2082,17 +2084,20 @@ They take care of little kids and love them, and hug them.  [Seeing Integration,
 They help people feel better after feeling fallen, or rejected.  [Seeing Integration, Reconstruction's Effects]
 They are great sorority date function partners.  [Seeing Integration, Reconstruction's Effects]
 They are good students in school. [Seeing Integration, Reconstruction's Effects]
+They are compassionate teachers. [Seeing Integration, Reconstruction's Effects]
+They are good leaders at work. [Seeing Integration, Reconstruction's Effects]
 They invest in the community. [Seeing Integration, Reconstruction's Effects]
 They love their work.  [Seeing Integration, Reconstruction's Effects]
 They live for the future. [Seeing Integration, Reconstruction's Effects]
 They support their kids.  [Seeing Integration, Reconstruction's Effects]
 They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
-They lead teams at work. [Seeing Integration, Reconstruction's Effects]
 They built our country. [Seeing Integration, Reconstruction's Effects]
 They have beautiful names. [Seeing Integration, Reconstruction's Effects]
 They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
 They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
 They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
+They lead the Reading Rainbow talk.
+They have interesting thoughts and ancestry.
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
