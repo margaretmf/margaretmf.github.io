@@ -182,9 +182,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ### Adjectives ###
 
-## Vocabulary ##
+### Vocabulary ###
 
-## Themes ##
+### Allusions ###
+
+### Themes ###
 
 ### Interesting Sentences or Paragraphs ###
 
@@ -226,7 +228,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * white // woods
 * black // dog
 
-## Adjectives ##
+### Adjectives ###
 * heavy // dogs
 * strong // muscles
 * gravelled // driveays
@@ -347,7 +349,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * savage // temper
 * new // stir
 
-## Vocabulary ##
+### Vocabulary ###
 * Conveyance
 * Grumbled
 * Ragged
@@ -429,7 +431,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Branching
 * Cessation
 
-## Themes ##
+### Themes ###
 * Emotions, storming, raging
 * Economic Systems
 * Dogs
@@ -514,7 +516,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * great // weight 
 * red // berries
 
-## Adjectives ##
+### Adjectives ###
 * new-cool // air
 * dirt // hump
 * brush // cover
@@ -596,7 +598,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * exploding // trees
 * small // bits
 
-## Vocabulary ##
+### Vocabulary ###
 * Softness ["describing how the Fall came on"]
 * Hard-spined
 * Relieved
@@ -640,7 +642,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Gorging
 * Fooledii
 
-## Themes ##
+### Themes ###
 * Hunting
 * Surviving Education gained in the school of hrad knocks
 * the Summer
@@ -774,7 +776,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * "gaze at the sea", "dig roots", "punch at the eart with his stick"
 * the beach, the rocks, a small rock, the cliff
 
-## Color ##
+### Color ###
 * red // sails
 * black // eyes ["like a Lizard's"]
 * blue // stone
@@ -806,7 +808,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * black, shining // walls
 * green and gold // colors
 
-## Adjectives ##
+### Adjectives ###
 * sleepy // eyes
 * rising // sun
 * pointed // stick
@@ -942,7 +944,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * graceful // stride
 * gleaming // stretch
 
-## Vocabulary ##
+### Vocabulary ###
 * Foolishness
 * Stunted
 * Preparations
@@ -974,7 +976,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * Abandoned
 * Entangled
 
-## Themes ##
+### Themes ###
 * Exploration
 * Wideness of the Earth
 * Native Land, Native People, Native Names
@@ -1290,12 +1292,12 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * "much nicer neighborhood", "the new house", "the other house", "True, the new house was larger, and so was the garden. But the area was a slum."
 * the station, the school
 
-## What? ##
+### What? ###
 * "emerged cautiously"
 * "felt scared"
 * Plastic figures, cardboard box of them - not just soldiers or Indians, they were professional people, a judge, lawyers, businessmen, scientists, a nurse, doctors, surgeon
 
-## Color ##
+### Color ###
 * practically // dark
 * black // trousers, gray // pullover
 * black and white // cat
@@ -1305,7 +1307,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * white // bands
 * red // ball, the sun
 
-## Adjectives ##
+### Adjectives ###
 * gloomy // afternoon
 * mindless // antagonism
 * positively // lit
@@ -1359,7 +1361,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * biggest // skinhead
 * life // force
 
-## Vocabulary ##
+### Vocabulary ###
 * Gauntlet
 * Antagonism
 * Bursting
@@ -1394,7 +1396,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * Pitiful
 * Extraordinary
 
-## Themes ##
+### Themes ###
 * Feelings - "felt scared"
 * Boyhood
 * Violence, Boone's Revolver
@@ -1473,11 +1475,11 @@ It was really a lovely place, far better than their old garden. It was not just 
 * the house painter
 * "going home from work"
 
-## What? ##
+### What? ###
 * Carrying buckets with ladders and boards
 * Tigers in India, climbing the peaks of the Himalayas, dived for pearls in the South Seas, the Poles
 
-## Color ##
+### Color ###
 * Kitchen // green
 * Other side // yellow
 * Two-colored // kitchens
@@ -1492,7 +1494,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Polar // snow 
 * Delicate // music
 
-## Adjectives ##
+### Adjectives ###
 * Great // shining
 * House // painter
 * Cold // regions
@@ -1533,7 +1535,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Merry // games
 * Greatest // delight 
 
-## Vocabulary ##
+### Vocabulary ###
 * Spatttered, paint and calcimine, wallpaper
 * Mysteriously
 * Ventilating
@@ -1542,7 +1544,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Rotogravure
 * Irritable
 
-## Themes ##
+### Themes ###
 * Dreaming
 * Reading
 * Feeding pets
@@ -1645,10 +1647,10 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Peaceful
 * Moral
 
-## Allusions ##
+### Allusions ###
 * Catskill Mountains
 
-## Themes ##
+### Themes ###
 * Childlike dreaming
 * Nature, the land
 * Adventure
@@ -1797,15 +1799,13 @@ It was really a lovely place, far better than their old garden. It was not just 
 * healing // sleep
 * fishing // gear
 
-## Vocabulary ##
+### Vocabulary ###
 * Viciously
 * Raged
 * Abated
 * Self-pity
 
-## Allusions ##
-
-## Themes ##
+### Themes ###
 * Divorce, Family
 * Crashing, Nightmares
 * Engineering
@@ -1979,7 +1979,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * lifeless // plastic figures
 * grass // cuttings
 
-## Vocabulary ##
+### Vocabulary ###
 * Arrange
 * Astonishment
 * Ransacked
@@ -1991,10 +1991,10 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Apprehension
 * Insulation
 
-## Allusions ##
+### Allusions ###
 * "On the Trail of the Iroquois"
 
-## Themes ##
+### Themes ###
 * Children's Play and Imagination
 * Friendship
 * Indians in America and Cowboys // Western
