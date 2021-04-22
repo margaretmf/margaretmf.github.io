@@ -626,6 +626,29 @@ Margaret
 
 # Poetry #
 
+## She Is ##
+She's a whole-souled woman
+She knows what she wants
+She has a heart filled with love
+And she knows how to talk
+
+She's always staying moving
+She's got smiles in her eyes
+She's a glistening starlight
+And she's quick to rise back up
+
+## Boots ##
+These boots of mine
+They've walked down many roads
+They've touched upon dirt and grovel
+They've gone down lonely pathways
+
+They've really worn themselves in
+They have dug some holes
+They've really lived another day
+They've become sturdy and strong
+They've been everywhere
+
 ## Through the Silence ##
 Through the silence
 You knew to call out my name
@@ -2199,7 +2222,31 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Music ##
+The metaphor of music in life has lied, echoed, and resounded since the beginning of time.
+Everyone living in harmony, people working to harmnoize.
+Everyone like notes, musical instruments of their own, part of a emlody.
+An idea, a song, and intuition, a remark, a signal strikes a chord, and gets someone out of a funk.
+Some words become a lyric in line with the rest of the band.
 
+<br>
+
+Word Associations: lyric, funk, rap, melody, harmony, chord, note, line, lute, band
+
+## Cycle ##
+A new cycle of life beginning.
+A new beginning.
+The starting point on a circle, rotating around and around.
+The old becoming new.
+The past learned so taht new stories can be created.
+A sequence that is then shifted to a new rotation.
+A new routine developing, an adaptation like in music that helps the circle enlarge, grow, renew.
+The dropping of old past, old baggage.
+ 
+ <br>
+ 
+ Word Associations: water, rotation, bike, life, vertex, carbon, music, circle, routine, sequence
+ 
 ## Stranger ##
 Someone on the outside, living in the shadows of life's existence.
 It's a mysterty why she's so unknown to people, living in the dark, enraptured by the loneliness.
