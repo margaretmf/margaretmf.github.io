@@ -95,6 +95,10 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Embarass : ##
 * To make someone feel self-conscious or make someone feel badly about himself
 
+## Integrity: ##
+* The quality of being honest and having strong moral principles; moral uprightness
+* The state of being whole and undivided
+
 
 
 
