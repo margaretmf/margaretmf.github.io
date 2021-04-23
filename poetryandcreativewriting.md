@@ -2228,6 +2228,21 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Holy ##
+The holy ground
+the health and wholeness within
+the meekness to rest upon the divine blessings
+the spirit of peace and patience
+the vow to hold off from sin
+the angels on the pathway
+the book that gives the truth
+the soul within
+the true religion
+
+<br>
+
+Word Associations: divine, religion, spirit, bless, book, prophet, soul, vow, sin, angel
+
 ## Music ##
 The metaphor of music in life has lied, echoed, and resounded since the beginning of time.
 Everyone living in harmony, people working to harmnoize.
