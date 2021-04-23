@@ -131,7 +131,8 @@ Margaret
 * "My Life Goes On In Endless Song Above Earth's Lamentations"
 * "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
 * "What a Wonderful World" --- **interested in writing and composing a song called 'A New Day' inspired by this**
-* "Jailhouse Rock" --- **interested writing and composing a female version fo this song**
+* "Jailhouse Rock" --- **interested in female version of this song**
+* "Folsom Prison Blues" --- **interested in female version of this song**
 * "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
 * "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
@@ -442,6 +443,17 @@ Where I am broken, you are full
 Where I have said something wrong, you speak the truth
 Where I am hurt, you provide love
 
+## A Long Road ##
+There's a long road ahead
+It's uncertain where it's heading
+I set my head straight with a vision
+I hope to move through with love and hope
+
+There's a long road ahead
+I hope to move through committed
+There are new views and new jobs
+There is old to resurrect and re-appreciate
+
 ## It's Ok ##
 It's ok to cry
 It's ok to feel
@@ -648,10 +660,15 @@ They've touched upon dirt and grovel
 They've gone down lonely pathways
 
 They've really worn themselves in
-They have dug some holes
+They have some holes in the soles 
 They've really lived another day
 They've become sturdy and strong
 They've been everywhere
+
+They've walked down sidewalks
+They've walked through forests
+They've hit the mall
+They've been down grassland 
 
 ## Through the Silence ##
 Through the silence
@@ -971,6 +988,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for memories of the Operation Smile event in Virginia Beach
 * Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
 * Grateful for the construction workers
+* Grateful for the car ride with Nate
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
