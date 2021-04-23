@@ -179,6 +179,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * the Baron, "the real owner of the moutaintop"
 * the Conservation, Police Officer
 * Miss Turner, the librarian
+* Bando
 
 ### Where? ###
 * Mountaintop, home
@@ -189,7 +190,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "I can barely see the huge hemlock tree in which I live. I like the haze. It has erased all but the great tree trunks, making my mountaintop home as simple as it was whne i first cam here more than two years ago."
 * "saplings held together with rope made from the inner bark of the basswood tree"
 * "A wind rises as the sun warms the earth. The haze moves off, and I see my. pond, my millhouse, and the root cellar."
-* * "The first year I lived here I had only a tree, a bed, and a fireplace. But one idea led to another, and the next thing I knew, I had built myself a habitat. Things just kept evolving. Take this lounging chair, for instnace. One day I replaced the old stump I sat on with a three-legged stool,a nd then I replaced the three-legged stool with this comfortable chair."
+* * "The first year I lived here I had only a tree, a bed, and a fireplace. But one idea led to another, and the next thing I knew, I had built myself a habitat. Things just kept evolving. Take this lounging chair, for instance. One day I replaced the old stump I sat on with a three-legged stool,a nd then I replaced the three-legged stool with this comfortable chair."
 
 * the Falcon's flying - "When she flies, she is still a crossbow in the sky, and she still 'waits on' above my head until I kick up a pheasant or a rabbit.'"
 * "she is flying high above"
@@ -213,6 +214,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * green // uniform
 * berry-dyed T-shirt
 * yellow // tufts of hair
+* blue and white crystal // irises // eyes
+* white // oak
+* blue // eyes, brown // eye
+* red-tailed // hawk
+* yellowdock and mustard // greens
 
 ### Adjectives ###
 * lounging // chair
@@ -243,6 +249,38 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * outgrown // sapling bed
 * clay // fireplace
 * abandoned // fields
+* elaborate // stone
+* soil // conservation
+* wild // plants
+* poor // soil
+* spring // fiddling
+* lost // puppy
+* louder // voice
+* happiest // girl
+* eyes // crackled
+* plumping // mill
+* tree // house
+* blank // page
+* leather // hinges
+* root // cellar
+* birch-bark // note
+* deerskin // clothes
+* big // territory
+* environmental // confiscation
+* road // kill
+* damp // soil
+* shady // basswoods
+* rushing // stream
+* domestic // birds
+* rocky // stream bed
+* basswood // tree
+* inner // bark
+* several // branches
+* slender // rope
+* bark // rope
+* smoked // fish
+* fresh // fish
+* fresh // vegetables
 
 ### Vocabulary ###
 * Habitat
@@ -259,6 +297,28 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Captivity
 * Bred
 * Harassing
+* Confer
+* Stupendous
+* Forcibly
+* Foundation
+* Sarcastically
+* Doodle
+* Vividly
+* Identification
+* Tantalizing
+* Sorrow
+* Exhaust
+* Stench
+* Unbearable
+* Conspicuous
+* Swallow
+* Nestlings
+* Scampers
+* Rattling
+* Frenzied
+* Twilight
+* Frustration
+* Ammunition
 
 ### Allusions ###
 
@@ -266,6 +326,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Living in and with Nature
 * the Law
 * Books, Reading - healing
+* Native Americans // Indians - Ojibway Indians, dome // wigwam, Iroquois Confederacy // Farmers
 
 ### Interesting Sentences or Paragraphs ###
 * "He walks up to her and places his gloved hand under her breast. She steps up on it as she has been trained to do." (p. 7, On the Far Side of the Mountain)
@@ -293,6 +354,43 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 "'Hardly had my father borrowed Mrs. Strawberry's horse, Slats, and the plow, and taken them up one side of my meadow and down again, than he knew why his grandfather had abandoned this land. He was not plowing soil. He was plowing rocks...Here in these mountains, stones are our best crop.'" (p. 13, On the Far Side of the Mountain)
 
+* "'The land's good for trees and wildlife,' he told Dad, 'and maybe a few wild plants that like poor soil - and that's about all.'" (p. 13, On the Far Side of the Mountain)
+
+* "'Children,' Dad said when Alice came down from the spring, 'pack up your things. We're going to lave. It's impossible to farm this mountain. Men more skilled than I have tried and failed.'" (p. 14, On the Far Side of the Mountain)
+
+* "'Come on,' I said, jumping to my feet. 'Let's make a water mill!' I started off to get the lumber once meant for Dad's house, but Alice was not budging. She stood still with her hands on her hips." (p. 19, On the Far Side of the Mountain)
+
+* "'First of all I want a house.'
+'A house?' I said.
+This young lady, I realized, was not planning to cry and go home tomorrow.
+'Yes,' she answered, 'a house. I need a place to live. There's not enough room in your tree for me.'
+'I can sleep outside.'" (p. 19, On the Far Side of the Mountain)
+
+* "It had gorwn up in the open, probably when that side of the mountain was an Indian field, for its limbs grow horizontally to the groundm not up as they do when a white oak grows in a forest reaching for the sun. I say Indian field, not great-grandfather's field, because the white oak, like my hemlock, is at least three hundred years old, maybe four. No Gribleys tilled the soil in those days." (p. 20, On the Far Side of the Mountain)
+
+* "I turn the pages to find a black page in my jouranl for today's events." (p. 22, On the Far Side of the Mountain)
+
+* "I am grateful. I just want to be by myself." (p. 22, On the Far Side of the Mountain)
+
+* "The heat and stench of exhaust fromt he cars is almost unbearable and I want to turn back. I don't I have to know." (p. 25, On the Far Side of the Mountain)
+
+* The library is to the left, the Delaware county courthouse and sheriff's office are to the right. I strike out for the sheriff's office." (p. 25, On the Far Side of the Mountain)
+
+* "Life, my friend Bando once said, is meeting problems and solving them whether you are an amoeba or a space traveller. I have a problem. I have to provide Alice and myself with meat. Fish, nuts, and vegetables are good and necessary, but they don't provide enough fuel for the hard physical work we do. Although we have venison now, I can't always count on getting it. So far this year, our venison has been only road kill from in front of Mrs. Strawberry's farm." (pp. 26-27, On the Far Side of the Mountain)
+
+* "They settled in villages and planted corn and squash, bush beans and berries. We already grow groundnuts in the damp soil and squash in the poor land. But the Iroquois also hunted game. I can't do that anymore." (p. 27, On the Far Side of the Mountain)
+
+* "I could write to the president of the United States and ask him to make an exception of Alice and me. That won't work. The president swore to uphold the Constitution and laws of the United States when he took office." (p. 27, On the Far Side of the Mountain)
+
+* "When I am far above the river, I take off my clothes and moccasins and bathe in a deep, clear pool until I am refreshed and thinking more clearly. Climbing up the bank, I dress and sit down. I breathe deeply of the mountain air and try to solve my problem more realistically." (p. 28, On the Far Side of the Mountain)
+
+* "Alice and I could raise chickes - no, they're domestic birds and wouldn't lookr ight in the wilderness - pheasant and quail would be better." (p. 28, On the Far Side of the Mountain)
+
+* "The leaves above the jange like wind chimes." (p. 28, On the Far Side of the Mountain)
+
+* "The males are making their last territorial announcements before darkness falls. The tree frogs start singing, and I open my eyes. I am looking up into the trees." (p. 28, On the Far Side of the Mountain)
+
+* "A limb just above me resembles a shotgun. 'I would neever use a gun,' I say out loud. I would be forever tied to the stores for bullets, and the friendly spirit of my mountaintop would be violated. The birds would not come and sit on my hand, Baron Weasel would move out, and Jessie Coon James would no longer trust me. Something happens to a person when he picks up a gun, and the animals sense it. They depart. 'No guns,' I say.'" (pp. 28-29, On the Far Side of the Mountain)
 
 ----------
 
