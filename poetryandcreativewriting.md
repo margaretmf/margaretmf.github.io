@@ -989,6 +989,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
 * Grateful for the construction workers
 * Grateful for the car ride with Nate
+* Grateful for the time with the missionaires
+* Grateful for memories on the airplane with the people from Brazil and Argentina
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
