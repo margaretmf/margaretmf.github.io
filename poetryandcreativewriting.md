@@ -1322,6 +1322,10 @@ She's all-embracing,
 She's resilient,
 She's grateful, and at home.
 
+She's merciful,
+She's modest,
+She's open-mind, and poised.
+
 She's a searcher for humanity in the darkest areas of the world.
 She's a lover of Jesus and Mary Baker Eddy.
 She knows that Love has the throne and that Love is Life's true crown and glory.
@@ -1337,6 +1341,10 @@ He's helpful, and strong.
 He's embracive,
 He's courageous,
 He's free, and aware.
+
+He's adventurous,
+He's ordered,
+He's hard-working, and secure.
 
 He's a lover of mankind, and inclusive of all.
 With a passion for Church, He's a searcher for Truth in all areas of the world.
@@ -1552,6 +1560,8 @@ Imagine a world where all 7.2 billion people love one another.
 Imagine a world where all 7.2 people quickly forgive.
 Imagine a world where all the colors exude the light and shine their true colors.
 The World would resound with light and sound.
+The World where the heavens, the sky smile down.
+All the colors of the universe are embraced as one.
 --All the coordinates, every localized place, people look up to the same Sun from different perspectives.
 For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
 People sing with their full hearts and sing their own tunes.
@@ -1795,6 +1805,10 @@ We all stand in this union,
 where everything is interconnected, 
 rising above the conflict, the chaos, the discordant beliefs, and the enslavement and punishment of man,
 finding our common bond, the bridge to the other side, and the joy to love a neighbor another day.
+
+This is the place where the east meets the west, and the south meets the north.
+This is the place where we all call home.
+This is the place where we all appreciate the red, white, and blue.
 
 ## The Rose Within ##
 There is a rose within everyone's heart.
