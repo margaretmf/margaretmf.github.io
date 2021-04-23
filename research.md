@@ -187,6 +187,126 @@ What I am arguing is that to apply modern democratic understandings to Jefferson
 
 This is not to portray Jefferson as being antidemocratic. It is an attempt to more accurately contextualize his views on educating citizens in a republic. Freeing Jefferson from presentist views of his being a twentieth-century liberal democrat enable us to see him more accurately. By presenting his views in the context of his republicanism, we do not diminish his radicalism for his time as identified by people like Arendt (1963) and Mathews (1984). In the context of the eighteenth century, democracy was seen by most as a slippery slope that resulted in anarchy. Jefferson and a few others did embrace a limited amount of democracy as the best means to preserve the republic. Trusting the masses with political power was radical for that time. The magic potion to temper the potential intoxicating effects of that power was education. Education would enable Americans to assume their roles as republican citizens. They would be able to see through the propaganda espoused by politi- cians, and they would be able to exercise and defend their rights should their elected governments encroach upon them. However, the social and economic understandings of modern democratic theory that posits an egalitarian society were absent from Jefferson’s thinking. Modern scholars who use the term democratic in describing Jefferson’s educational plans have done a disservice to our ability to understand him. By reexamining his ideas, we are able to get a clearer and more accurate picture of Jefferson’s contributions to education and citizenship"
 
+## [Great Awakening](https://www.history.com/topics/british-history/great-awakening) ##
+"The Great Awakening was a religious revival that impacted the English colonies in America during the 1730s and 1740s. The movement came at a time when the idea of secular rationalism was being emphasized, and passion for religion had grown stale. Christian leaders often traveled from town to town, preaching about the gospel, emphasizing salvation from sins and promoting enthusiasm for Christianity. The result was a renewed dedication toward religion. Many historians believe the Great Awakening had a lasting impact on various Christian denominations and American culture at large."
+
+"In the 1700s, a European philosophical movement known as the Enlightenment, or the Age of Reason, was making its way across the Atlantic Ocean to the American colonies. Enlightenment thinkers emphasized a scientific and logical view of the world, while downplaying religion.
+
+In many ways, religion was becoming more formal and less personal during this time, which led to lower church attendance. Christians were feeling complacent with their methods of worship, and some were disillusioned with how wealth and rationalism were dominating culture. Many began to crave a return to religious piety.
+
+Around this time, the 13 colonies were religiously divided. Most of New England belonged to congregational churches.
+
+
+The Middle colonies were made up of Quakers, Anglicans, Lutherans, Baptists, Presbyterians, the Dutch Reformed and Congregational followers.
+
+Southern colonies were mostly members of the Anglican Church, but there were also many Baptists, Presbyterians and Quakers.
+
+The stage was set for a renewal of faith, and in the late 1720s, a revival began to take root as preachers altered their messages and reemphasized concepts of Calvinism. (Calvinism is a theology that was introduced by John Calvin in the 16th century that stressed the importance of scripture, faith, predestination and the grace of God.)"
+
+
+"Most historians consider Jonathan Edwards, a Northampton Anglican minister, one of the chief fathers of the Great Awakening.
+
+Edwards’ message centered on the idea that humans were sinners, God was an angry judge and individuals needed to ask for forgiveness. He also preached justification by faith alone.
+
+In 1741, Edwards gave an infamous and emotional sermon, entitled “Sinners in the Hands of an Angry God.” News of the message spread quickly throughout the colonies.
+
+Edwards was known for his passion and energy. He generally preached in his home parish, unlike other revival preachers who traveled throughout the colonies.
+
+Edwards is credited for inspiring hundreds of conversions, which he documented in a book, 'Narratives of Surprising Conversions.'"
+
+
+"George Whitefield, a minister from Britain, had a significant impact during the Great Awakening. Whitefield toured the colonies up and down the Atlantic coast, preaching his message. In one year, Whitefield covered 5,000 miles in America and preached more than 350 times.
+
+
+His style was charismatic, theatrical and expressive. Whitefield would often shout the word of God and tremble during his sermons. People gathered by the thousands to hear him speak.
+
+Whitefield preached to common people, slaves and Native Americans. No one was out of reach. Even Benjamin Franklin, a religious skeptic, was captivated by Whitefield’s sermons, and the two became friends.
+
+Whitefield’s success convinced English colonists to join local churches and reenergized a once-waning Christian faith."
+
+
+"Several other pastors and Christian leaders led the charge during the Great Awakening, including David Brainard, Samuel Davies, Theodore Frelinghuysen, Gilbert Tennent and others.
+
+Although these leaders’ backgrounds differed, their messages served the same purpose: to awaken the Christian faith and return to a religion that was relevant to the people of the day."
+
+
+"The Great Awakening brought various philosophies, ideas and doctrines to the forefront of Christian faith.
+
+Some of the major themes included:
+
+All people are born sinners
+Sin without salvation will send a person to hell
+All people can be saved if they confess their sins to God, seek forgiveness and accept God’s grace
+All people can have a direct and emotional connection with God
+Religion shouldn’t be formal and institutionalized, but rather casual and personal"
+
+
+"Not everyone embraced the ideas of the Great Awakening. One of the leading voices of opposition was Charles Chauncy, a minister in Boston. Chauncy was especially critical of Whitefield’s preaching and instead supported a more traditional, formal style of religion.
+
+By about 1742, debate over the Great Awakening had split the New England clergy and many colonists into two groups.
+
+Preachers and followers who adopted the new ideas brought forth by the Great Awakening became known as 'new lights.' Those who embraced the old-fashioned, traditional church ways were called 'old lights.'"
+
+
+"The Great Awakening came to an end sometime during the 1740s.
+
+In the 1790s, another religious revival, which became known as the Second Great Awakening, began in New England. This movement is typically regarded as less emotionally charged than the First Great Awakening. It led to the founding of several colleges, seminaries and mission societies.
+
+A Third Great Awakening was said to span from the late 1850s to the early 20th century. Some scholars, however, disagree that this movement was ever a significant event."
+
+## [November 2015 - Rev. Robert Hunt and Virginia Beach](http://blog.releasingheaven.org/2016/01/november-2015-rev-robert-hunt-and-virginia-beach/)
+"Covenant Root in Virginia – Rev. Robert Hunt
+
+Back in October while planning a Thanksgiving getaway, I (Yvonne) felt a quickening about visiting Virginia Beach.  In 2007, eight years prior, having arrived early in Virginia Beach for a prophetic conference (for which I felt a similar unctioning to attend), I was getting ready to walk the beach with a friend when a pastor stopped to tell us about Rev. Robert Hunt (an Anglican minister who was commissioned under the Virginia Charter to evangelize the land that stretched from South Carolina to Maine and far to the west) and how close we were to the First Landing where Rev. Hunt, after first making the crew stay on board for three days of fasting and praying, planted a wooden cross on those shores and dedicated this nation to the Lord. In his prayers, Rev. Hunt decreed that the gospel would not only be preached in this new land but would also go out from those shores to all of the nations of the world."
+
+
+"Appointed times and boundaries
+
+2007 happened to be the 400-year anniversary of that prophetic act. And it was that weekend that I finally got Acts 17:26-27, 'and He made from one man every nation of mankind to live on all the face of the earth, having determined their appointed times and the boundaries of their habitation, that they would seek God, if perhaps they might grope for Him and find Him, though He is not far from each one of us.' Although my call would touch the nations, that weekend my heart turned towards America, knowing that God’s hand was on my ancestors and on this nation and that He had some purpose for bringing my family here even though we were first enslaved."
+
+
+"Dry Bones
+
+So once again by divine providence, I felt compelled to go to Virginia Beach in the wake of Robert Hunt’s bones having been discovered and now very recently identified  – how profound and what a much needed sign for this nation. I set my heart towards Virginia Beach and towards walking that First Landing Beach,  finding the spot where the cross was planted,  there repenting of our sin of falling away,  and then rededicating the nation to the Lord while asking Him to visit us again. I could almost hear Dutch Sheets’ voice resounding in my ear: it is the synergy of the ages – we need to step into the timeline of the old, old stories."
+
+
+"Confirmation and Isaiah 22:22
+
+I had planned to get re-fired before my departure to Virginia Beach as Dutch was speaking at Glory of Zion that weekend  at the Awakening Our Prophetic Destiny for the Future Conference but the communication lines in the region had been severed and I was unable to receive any live feed.  So I drove the six hours on Sunday and got settled in; it wasn’t until the early hours of Monday morning that I caught his message from Friday night. Dutch spoke of the keys of opening doors no man could shut and closing doors no man could open (Isaiah 22:22) and high level assignments of apostolic and prophetic intercession being given out to the ekklesia – “He’s going to send us on high level assignments.  He’s going to shift nations and governments in this season through apostolic intercession. Not just through apostles, but through apostolic and prophetic intercession. …this move of the Spirit that’s coming and the prayer movement that’s coming is not for the chosen few.  It’s for the available few. There are going to be people sent to palaces that nobody will ever know they’ve been there and it will shift the government over a nation”; and then Chuck prophesied about a shift happening going back to the covenantal roots in Virginia."
+
+
+"Apostolic and Prophetic Decrees
+
+My, my. I knew that I was in the right place at the right time and I knew what I needed to do – make decrees based on Isaiah 22:22 and somehow plant a key when I went to the cross that Friday. So on Friday, I rose early and went through the checkpoint at Fort Story and spent an hour in worship and prayer and completed my assignment.
+
+At the cross
+'In this year of Ayin Vav and at the beginnings of the 2nd phase of the Third Great Awakening, I stand at the foot of the cross that is a granite replica of the one planted by Robert Hunt on 29 April 1607, where he dedicated this nation to the Lord Jesus Christ and to the preaching of the gospel to all inhabitants here and also to all nations, and with the prophetic sign of the recent identification of his bones, I stake that original covenant to the current & future destiny of our nation and I rededicate the United States of America to the Lord Jesus Christ and to the purposes of preaching the gospel and advancing His Kingdom (Isaiah 22:22)'"
+
+
+"There’s power in the bones!
+
+It was not until almost a week later that I heard Dutch’s Saturday message which talked about Robert Hunt’s bones!  Holy Spirit is speaking. I can tell you that something shifted in my spirit while “on assignment” in Virginia Beach – I feel Holy-Spirit-fire in my bones once again! And I feel the resonance of the roar of the Lion of the Tribe of Judah through my core – and there is a  listening, watching and waiting for more assignments.
+
+Excerpt of Saturday morning service –  GZI’s 'Awakening Our Prophetic Destiny' Conference
+
+James sings: Some of us thought we had seen the finalization of some things. Some of us saw even death and destruction and we thought it was over. We thought whatever prayers and whatever we had released had been finalized and perhaps the answer that happened was not the answer we were looking for. And that it was over. But just as the man was thrown onto the bones of Elisha and he was raised up from the dead, the Lord says the power of those prayers, the power of your answer is still within me. And although it seems a door had shut, the open door is in me. The answer is in me. And you will see it come around in another way. …The time has come back around. Life is coming round again. There’s power in the bones. There’s still power in the bones. There’s still power in the bones. The time is now. The time is now. The time is now. The time is now. The time is now. There’s power in the prayers, there’s power in the bones, the time is now. There’s power in the prayers, there’s power in the bones, the time is now.
+
+Chuck: This is a word from the Lord. There’s power in the bones – it is where the word of God dwells. … The word of God is quick and powerful, sharper than any two-edged sword, piercing, dividing soul and spirit going even down into your bone marrow.
+
+Dutch:… As I went back through the history of awakening – what are the verses important to us. What should we agree with? What do you want me to grab? I’ve studied our history. Let me tell you what I think God’s purpose for America is. 1607 they planted a cross and dedicated this land to the glory of God. They found 4 skeletons at Jamestown – one is Robert Hunt’s skeleton. Don’t miss that – in this season, it is a sign to us.
+
+At the scent of water!
+
+Job 14: 7-9
+
+7 'For there is hope for a tree, 
+When it is cut down, that it will sprout again, 
+And its shoots will not fail.
+8 “Though its roots grow old in the ground
+And its stump dies in the dry soil,
+9 At the scent of water it will flourish
+And put forth sprigs like a plant.'"
+
 
 ----------
 
@@ -2089,6 +2209,8 @@ Nowadays, D.C. is no longer 'Chocolate City.' Mayor Muriel Bowser calls for 'a f
 
 'We’re still learning in 2019,' Roaché says."
 
+## [400 Years of Africans and Black People in the US and Virginia](https://www.c-span.org/video/?463305-1/400th-anniversary-ceremony-africans-virginia)
+"American History TV was live from Fort Monroe for the 400th anniversary ceremony commemorating the arrival of the first Africans in Virginia and the dedication of a new visitor center."
 
 ## [Gender, Power, and Whiteness in Rodeo: Breaking Away from the Ties of Sexism and Racism](https://books.google.com/books?id=xcjq7_dG1RYC&pg=PA7&lpg=PA7&dq=cowboys+west+damsels+in+distress+south&source=bl&ots=pYgLRHxQl4&sig=ACfU3U3Zx-kziU3AmBTgdPzgksPsmq6ZwA&hl=en&sa=X&ved=2ahUKEwj1_Lj8ooHvAhU2MlkFHaWmB0UQ6AEwEXoECBAQAw#v=onepage&q=cowboys%20west%20damsels%20in%20distress%20south&f=false) ##
 "When I was a little girl, in the mid-1950s, I wanted more than anything than to be a cowgirl."
