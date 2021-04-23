@@ -1041,6 +1041,24 @@ is_contact: true
 (4) Highway sounds
 (5) Someone crunching on peanuts
 
+## **Day 68** ##
+## **Images** ##
+(1) Jeremiah bumper sticker in a truck window
+(2) Red van in a driveway
+(3) Church domes
+(4) A police car turning right
+(5) A hand outside the window with a cigarette
+(6) The oceanfront Ferris Wheel
+(7) American flag at a construction site
+(8) Gas station
+
+## **Sounds** ##
+(1) A car motor running
+(2) Birds chirping in the morning
+(3) The sound o my sister's voice
+(4) A honk of a car
+(5) The sound of a prayer for the nation and all the schools nearby and far away
+
 <br>
 
 <br>
