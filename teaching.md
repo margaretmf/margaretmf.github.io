@@ -173,22 +173,125 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## On the Far Side of the Mountain by Jean Craighead George ##
 ### Who? ###
+* Sam Gribley, the man
+* Frightful, the falcon
+* Leon Longbridge, the conservation officer
+* the Baron, "the real owner of the moutaintop"
+* the Conservation, Police Officer
+* Miss Turner, the librarian
 
 ### Where? ###
+* Mountaintop, home
+* the great tree trunksf
+* Greeland, Canada, the Catskills
 
 ### What? ###
+* "I can barely see the huge hemlock tree in which I live. I like the haze. It has erased all but the great tree trunks, making my mountaintop home as simple as it was whne i first cam here more than two years ago."
+* "saplings held together with rope made from the inner bark of the basswood tree"
+* "A wind rises as the sun warms the earth. The haze moves off, and I see my. pond, my millhouse, and the root cellar."
+* * "The first year I lived here I had only a tree, a bed, and a fireplace. But one idea led to another, and the next thing I knew, I had built myself a habitat. Things just kept evolving. Take this lounging chair, for instnace. One day I replaced the old stump I sat on with a three-legged stool,a nd then I replaced the three-legged stool with this comfortable chair."
+
+* the Falcon's flying - "When she flies, she is still a crossbow in the sky, and she still 'waits on' above my head until I kick up a pheasant or a rabbit.'"
+* "she is flying high above"
+"'Creee, creee, creee, car-reet'"
+
+* Relationship between Sam and the Falcon
+* "I call her name in her own language; I whistle three notes - low, high, low. She responds by lifting the feathers on her body, then shaking them. This is called rousing, whic is feather talk meaning, 'I like you' I can't speak in feathers so I answer by imitating her love notes. I do this by pulling air through my two front teeth to make a soft, cozy sound." 
+
+* Frightful's feathers
+
+### When? ###
+* June morning, hot and humid
+* Haze, dense
 
 ### Color ###
+* black // marks
+* gray blue // Falcon
+* large black // eyes
+* white // feathers
+* black // bear
+* green // uniform
+* berry-dyed T-shirt
+* yellow // tufts of hair
 
 ### Adjectives ###
+* lounging // chair
+* primitive // forest
+* strawberry // picking
+* tree // house
+* hot dry // wind
+* peregrine // Falcon
+* tawny // breast
+* high-pitched // creees
+* wild // tercel
+* vanishing // eastern peregrine falcons
+* dandelion // seed
+* gorgeous // creatures
+* meadow // garden
+* warning // signals
+* musky // scent
+* endangered // species
+* endangered // animals
+* hazeless // sky
+* artificial // insemination
+* artificial // breeding
+* captive // birds
+* perfect // opportunity
+* large // eyes, bony // arms and legs
+* deerskin // door
+* hemlock // home
+* outgrown // sapling bed
+* clay // fireplace
+* abandoned // fields
 
 ### Vocabulary ###
+* Habitat
+* Braked
+* Alighted
+* Demure
+* Daydream
+* Harboring
+* Confiscate
+* Falconer
+* Bate
+* Imprinted
+* Perpetuation
+* Captivity
+* Bred
+* Harassing
 
 ### Allusions ###
 
 ### Themes ###
+* Living in and with Nature
+* the Law
+* Books, Reading - healing
 
 ### Interesting Sentences or Paragraphs ###
+* "He walks up to her and places his gloved hand under her breast. She steps up on it as she has been trained to do." (p. 7, On the Far Side of the Mountain)
+
+* "beating her wings and hurting herself" (p. 7, On the Far Side of the Mountain)
+
+* "He really is a falconer. Hack is an old falconry temr. Trainers put young unleashed birds who are just learning to fly and hunt on a hack board, a sort of artificial nest. They leave them there with food, just as the parents do at the nest. The youngsters, falconers say, are 'at hack' - free to fly and hunt. If they miss their prey they come back to the board to eat. After a juvenile makes its first kill, the falconers leash and train it. I guess Frightful's young would be put at hack, but nto jessed and leashed when they learned to hunt. Instead, they would fly on and live out their lives in the wild. I ask the officer if that is so." (p. 9, On the Far Side of the Mountain)
+
+* "Pity didn't work. Politeness didn't work. Reason and philosophy failed. I try compassion. 'I love that bird.' She knows me. We are bonded. She'll die without me.'" (p. 9, On the Far Side of the Mountain)
+
+* "'You are harassing and talking back to an officer of the law,' he shouts. 'I can book you for that, and for harboring an endangered species.'" (p. 10, On the Far Side of the Mountain)
+
+* "'You get a lawyer into this, and you'll go to jail for sure. You're violating the law. I really should arrest you, you know.'" (p. 11, On the Far Side of the Mountain)
+* "He turns and harries down the trail. I runa fter him a short distance and give up. The law is the law." (p. 11, On the Far Side of the Mountain)
+
+* "Reading always clears my mind; I'll try that. I open my journal, a handsome leather-bound notebook. Miss Tunern gave me last summer. She said the birch-bark scrolls I used when I frst came to the wilderness were too fragile for notes, but I still have them and they are as good as ever." (p. 12, On the Far Side of the Mountain)
+
+* "'Alice, my sister who is two years younger than I am, is going to live on the mountain with me - for better or worse.'" (p. 12, On the Far Side of the Mountain)
+
+* "Dad was going to plow the abandoned fields, sow seeds, and reap the grain. The boys said they would help build the house from the planks and two-by-fours Dad brought up here for that purpose. Mom and the girls were eager to grow a garden and keep a cow." (pp. 12-13, On the Far Side of the Mountain)
+
+* "'Well, the house never got built.'" (p. 13, On the Far Side of the Mountain)
+
+* "She offered them rooms in her large old farmhouse until they got started. She's alone and said they would be company for her." (p. 13, On the Far Side of the Mountain)
+
+"'Hardly had my father borrowed Mrs. Strawberry's horse, Slats, and the plow, and taken them up one side of my meadow and down again, than he knew why his grandfather had abandoned this land. He was not plowing soil. He was plowing rocks...Here in these mountains, stones are our best crop.'" (p. 13, On the Far Side of the Mountain)
 
 
 ----------
