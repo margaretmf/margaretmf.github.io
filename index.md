@@ -23,8 +23,7 @@ Also, I love world cultures, includng African, Arab, Chinese, Spanish, and Nativ
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
 
-**I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
-
+Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am driving team members to practice in Charlottesville and waking up at 5am to go to practice in Glasgow, Scotland. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
@@ -45,6 +44,8 @@ I believe that the stories that families share about ancestors are the most spir
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
+
+**I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
 
 **What I LOVE about supervisors:**
 * Their ability to give candid feedback, and specific requirements, rather than make me guess about what is needed
