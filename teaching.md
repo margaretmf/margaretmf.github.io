@@ -281,6 +281,20 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * smoked // fish
 * fresh // fish
 * fresh // vegetables
+* largemouth // bass
+* leafy // ground
+* silent // moon
+* steep // trai
+* difficult // chores
+* clay // pots
+* blueberry // jam
+* dirt // road
+* log // walls
+* oak-plank // floors
+* small // logs
+* unpeeled // branches
+* pond // hill
+* empty // perch
 
 ### Vocabulary ###
 * Habitat
@@ -319,6 +333,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Twilight
 * Frustration
 * Ammunition
+* Trudging
+* Undoubtedly
+* Complimenting
 
 ### Allusions ###
 
@@ -391,6 +408,13 @@ This young lady, I realized, was not planning to cry and go home tomorrow.
 * "The males are making their last territorial announcements before darkness falls. The tree frogs start singing, and I open my eyes. I am looking up into the trees." (p. 28, On the Far Side of the Mountain)
 
 * "A limb just above me resembles a shotgun. 'I would neever use a gun,' I say out loud. I would be forever tied to the stores for bullets, and the friendly spirit of my mountaintop would be violated. The birds would not come and sit on my hand, Baron Weasel would move out, and Jessie Coon James would no longer trust me. Something happens to a person when he picks up a gun, and the animals sense it. They depart. 'No guns,' I say.'" (pp. 28-29, On the Far Side of the Mountain)
+
+* "When she's working on a project, she gets so involved she doesn't boher to come to my tree for meals. Instead she takes food from the root cellar to her tree house and works while she eats. I didn't see her for two days when she was making a
+* "A limb just above me resembles a shotgun. 'I would neever use a gun,' I say out loud. I would be forever tied to the stores for bullets, and the friendly spirit of my mountaintop would be violated. The birds would not come and sit on my hand, Baron Weasel would move out, and Jessie Coon James would no longer trust me. Something happens to a person when he picks up a gun, and the animals sense it. They depart. 'No guns,' I say.'" (pp. 28-29, On the Far Side of the Mountain)
+
+* "When she's working on a project, she gets so involved she doen't bother to come to my tree for meals. Instead she doesn't bother to come to my tree for meals. Instead she takes food from the root cellar to her tree house and works while she eats. I didn't see her for two days when she was making a mirror out of a windowpane and some mercury. When I realized she had not bought the mercury but gotten it out of a thermometer she had taken from Mr. Reily's barn, I made her buy a new one for him with some of the forty dollars I had brought with me from the city and never spent." (p. 32, On the Far Side of the Mountain)
+
+* "'Unfortunately, he had said, 'most of us have to learn from mistakes. But we do learn. I'll bet you never do this again.'" (p. 32, On the Far Side of the Mountain)
 
 ----------
 
