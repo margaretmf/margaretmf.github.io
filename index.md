@@ -19,9 +19,29 @@ I have done and said dumb things, retaliated, and shifted from being a rule-foll
 
 I love little children, organizing things, and expressing good cheer in the Post Office and the Fed Ex Building.
 
+Also, I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures.
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
 
+**I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
+
+
+**How Do I Improve Myself?**
+* Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
+* Daily, I work to listen to the feedback I receive from people.
+* Daily, I work to know how I can better work with people.
+* Daily, I work to know how I can respect the boundaries of others.
+* Daily, I work to forgive people who have hurt me.
+* Daily, I work to move outside of my comfort zone in some way.
+* Daily, I work to commit to people who I already know.
+* Daily, I work to appreciate and expand upon the work already done in the past.
+* Daily, I work to give credit to people where credit is already due.
+* Daily, I work to let go of the past.
+* Daily, I work to love someone who I haven't fully loved better.
+* Daily, I work to give up any vain or personal ambition.
+* Daily, I work to listen to the needs of others.
+* Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
+* Daily, I work to appreciate my family.
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
@@ -44,32 +64,12 @@ In previous work, I have worked with various types of supervisors.
 * Their disrespect of someone doing work that is more directly related to the work of another team
 * Their complaining about how a business overall does work
 
-**I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
-
-**How Do I Improve Myself?**
-* Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
-* Daily, I work to listen to the feedback I receive from people.
-* Daily, I work to know how I can better work with people.
-* Daily, I work to know how I can respect the boundaries of others.
-* Daily, I work to forgive people who have hurt me.
-* Daily, I work to move outside of my comfort zone in some way.
-* Daily, I work to commit to people who I already know.
-* Daily, I work to appreciate and expand upon the work already done in the past.
-* Daily, I work to give credit to people where credit is already due.
-* Daily, I work to let go of the past.
-* Daily, I work to love someone who I haven't fully loved better.
-* Daily, I work to give up any vain or personal ambition.
-* Daily, I work to listen to the needs of others.
-* Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-* Daily, I work to appreciate my family.
-
-
 ## Longer Work Biography ##
-I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
+I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, **languages - Español, English, and interested in Native and Chinese characters and symbols, and Sanskrit**. and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
 
 Most recently, I have been learning about antiracism and working on photography of light in the darkness and continuing the work to "Take Back the Night."
 
-I am exploring how to paint the light in the darkness series, and looking to the light in the house and on the streets led me to explore using visual arts to understand electrical and civil engineering of homes and cities.
+I am exploring how to paint the light in the darkness series, and looking to the light in the house and on the streets led me to explore using visual arts to understand electrical and civil engineering of homes and cities. I also explore sketching construction sites, geometric shapes, and civil engineering concepts.
 
 To reconcile being a career woman and a woman who loves home, I have started to think about all the activities inside and outside the home from an engineering and visual arts perspective.
 
