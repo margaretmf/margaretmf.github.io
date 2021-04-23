@@ -5,6 +5,8 @@ is_contact: true
 
 ## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports people who have experienced "moral hangovers" or have been imprisoned.** I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
 
+## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. ##
+
 ## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. I am continuing this journey of writing music and setting poetry to music. ##
 
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
@@ -138,11 +140,13 @@ Margaret
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
 
-When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile (the enigmatic smile?), the generity of the laugh, and the charm of the care speaks to the heart. From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required? Or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare is a prank, sinister, childish, aggressive, and insincere.
+When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile - the engimatic smile, the generity of the laugh, and the charm of the care speaks to the heart. 
+
+From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required? Or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare feels like a prank, sinister, childish, aggressive, and insincere.
 
 I also remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
 
-It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the silent treatment, the mesmeric teasing, the silence and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
+It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
 ## First Impressiosn, and Expression ##
 First impressions, they don't capture the whole story.
@@ -150,21 +154,6 @@ People warn, "you can't judge a book by its cover."
 The full expression is there, and the intuition is given to draw out the entire expression.
 The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
 Second looks, second glances, diving deeper to see the fuller picture, and the details are really what she loves.
-
-## Truth or Dare ##
-So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
-
-Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
-#IWasJustAFan 
-#IWasJustAListener 
-#IWasJustAClient 
-#IWasJustAnIntern 
-then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
-The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
-the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
-Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
-
-I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
@@ -186,7 +175,7 @@ She loves the sound of the highway and the trucks
 Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
 
 ## Write about a time you watched the sun rise. ##
-This morning, I wathced the sun rising in Norfolk, VA through the reflection shown in a car window. Watching the sun rise brings freshness to the day. The light causes people to want to rise up, learn something new, and contribute to humanity for another day. The sun will always rise in every corner of the Earth, for all people in all nations.
+This morning, I watched the sun rising in Norfolk, VA through the reflection shown in a car window. Watching the sun rise brings freshness to the day. The light causes people to want to rise up, learn something new, and contribute to humanity for another day. The sun will always rise in every corner of the Earth, for all people in all nations.
 
 ## What do you think is the most important question in life? ##
 'How do I love someone?' and 'What am I learning?' are the two most important questions in life. Answers to these questions provide the motives for staying active, moving, and being. With love for someone, if not all of humanity throughout the day, there is vibrancy in and a cause for the day. With the desire to understand a topic or a concept, there is reason and a cause for each day. A life well-lived includes loving the people around, learnnig more about love and the reason for living, and creating something to support people.
@@ -516,6 +505,21 @@ You have it all within, my friend
 I care for you
 I see the light in you
 I know who you are down deep
+
+## Truth or Dare ##
+So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
+
+Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
+#IWasJustAFan 
+#IWasJustAListener 
+#IWasJustAClient 
+#IWasJustAnIntern 
+then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
+The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
+the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
+Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
+
+I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
 ## If you could do one thing every day for the rest of your life, what would it be, and why? ##
 For the rest of my life, if I could do something, I would take up the life of a naturalist.
@@ -966,6 +970,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the lunch with a man from Africa, digging into his family's ancestory and roots in Cameroon and his shirt on Cameroonian Roots
 * Grateful for memories of the Operation Smile event in Virginia Beach
 * Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
+* Grateful for the construction workers
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
