@@ -99,6 +99,10 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The quality of being honest and having strong moral principles; moral uprightness
 * The state of being whole and undivided
 
+## Ecosystem: ##
+* A biological community of interacting organisms and their physical environment
+* A complex network or interconnected system.
+
 
 
 
