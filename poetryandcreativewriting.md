@@ -2309,6 +2309,21 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Forbidden ##
+The forbidden forest
+The place where one cannot go
+The people that one cannot talk to
+The place, the people are too good
+The one forbidden is too sinful
+The sin, dangerous, is in dnager zone
+A ban on the sin keeps it constrained
+A rule for how to go and how to live
+It's shaky, that's why a rule through religion keeps the fruit contained and untouchable
+
+<br>
+
+Word Associations: fruit, taboo, danger, ban, rule, sin, untouchable, snake, religion, zone
+
 ## Fight ##
 It's really a fight, within and without
 At odds with reality and what's going on
