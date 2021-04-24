@@ -11,17 +11,19 @@ layout: default
 ## Short Biography ##
 I am **Margaret Furr**, and I am a graduate of the University of Virginia. 
 
-I love the values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness. 
+The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me.
 
-I seek to learn something new every day to stay alive. I love how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good." I also love to cultivate latent talents and play around like little kids and amateurs.
+Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good." It's also great to cultivate latent talents and play around like little kids and amateurs.
 
 I have done and said dumb things, retaliated, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. I am also exploring how to sketch.
 
-I love little children, organizing things, and expressing good cheer in the Post Office and the Fed Ex Building.
+Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office and the Fed Ex Building keeps people vivacious, humble, and singing inside.
 
-Also, I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures.
+I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures.
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
+
+I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature in an imaginative way.
 
 Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am driving team members to practice in Charlottesville and waking up at 5am to go to practice in Glasgow, Scotland. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
 
