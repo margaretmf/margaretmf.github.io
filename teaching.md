@@ -213,6 +213,17 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * dark // back feathers
 * striking // black head
 * blond // head
+* black // head
+* black-brown // eyes
+* white // down
+* pink // blazing star flowers
+* bright red // beak
+* yellow // beak
+* brown-gray // color
+* blue // jay
+* silver // river
+* blue-green // landscape
+* orange, yellow, and purple // leaves
 
 ### Adjectives ###
 * huge // old // tree
@@ -268,6 +279,41 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * goshawk // rose
 * powerful // blow
 * bulky // nest
+* rocky // overhang
+* jutting // overhang
+* great // overheight
+* warm // air
+* love // song
+* steep // descent
+* cold // stillness
+* motherless // young
+* full // size
+* soft // rustle
+* screaming // chicks
+* good // provider
+* flight // feathers
+* pine // stub
+* tree // branches
+* strong // updraft
+* competitive // world
+* housing // arrangement
+* dead // branch
+* cliff // side
+* hunting // companion
+* immeasurable // distances
+* lightning // buzz
+* keen // eyes
+* blazing-star // leaves
+* lacy // needles
+* stretched // wings
+* shiny // legs
+* rumpled // feathers
+* huckleberry // patch
+* blazing-star // flowers
+* meandering // stream
+* fern // garden
+* powerful // desire (to live)
+* scattered // birdseed
 
 ### Vocabulary ###
 * Nurtured
@@ -304,10 +350,40 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Maneuver
 * Vibrate
 * Escarpment
+* Scarmbled 
+* Sculling
+* Hovered
+* Soaring
+* Scanning
+* Agitated
+* Royalty
+* Paddle
+* Glisten
+* Notice
+* Piercingly
+* Shiver
+* Tremble
+* Relentlessly
+* Prosper
+* Rumpled
+* Spiral
+* Absorb
+* Nourishment
+* Indigestible
+* Cycle
+* Riveted
+* Flapping
+* Hunkered
+* Alighted
+* Scrambled
+* Flopped
+* Migrating
 
 ## Allusions ##
 * Adirondack Mountains
 * Rivers
+* Schohrarie River
+* South America migration; El Niño rains - balance of nature and birds
 
 ## Themes ##
 * "She must find one mountain amoung thousands, one hemlock tree among millions, and the one boy who called himself Sam Gribley. The one mountain was her territory; the one tree was Sam's house; the perch beside it, her place. And Sam Gribley was life."
@@ -317,6 +393,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Engineering, Industry
 * Frightful's freedom, beauty, and wings
 * Bird Life
+* Ducks and Geese, other wildlife
+* Companionship
+* Above the Cliff
 
 * "The young girl's voice brought back images of the one mountain among thousands of mountains, the one hemlock tree among millions of trees - and Sam." (p. 9, Frightful's Mountain)
 
@@ -345,6 +424,21 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "To all birds anything overhead is a threat." (p. 14, Frightful's Mountain)
 * "Frightful ahd been in the territory of two devoted parents who were defending their young against a falcon." (p. 14, Frightful's Mountain)
 
+* "The one hemlock tree among millions came to mind, and she lifted her wings to fly." (p. 26, Frightful's Mountain)
+
+* "Their broad, short wings were designed to speed them in and around trees and branches. Frightful was a bird of the open sky. She climbed high above them." (p. 31, Frightful's Mountain)
+
+* "He soared along the cliff and landed with a crash on a ledge about a hundred feet away. Elegantly he folded hi wings to his body and stood tall. He watched the rainwater fall from the leaves of the forest below and a tree frog vibrate his throat with song." (p. 38, Frightful's Mountain)
+
+* "Companionship with Sam had colored her concept of life. Young, old, bird, boy, girl, dog - companionship was comforting." (p. 39, Frightful's Mountain)
+
+* Sitting among the lacy needles, the image of the one mountain among thousands, the one tree among millions, and Sam came to mind." (pp. 39-40, Frightful's Mountain)
+
+* "She napped in the noontime heat, opening her beak to paint and perspire. Upon awakening she played with a feather, then a stick. Feeling restless, she stretched her wings. The air picked her up, and Lady was flying, too. She flapped to the pine tree with the blue jays had nested, landed, and lost her balance. Thrashing her wings, she righted herself on a limb." (p. 40, Frightful's Mountain)
+
+* "She was comfortable. A dove flew past her. She focused on it with keen interest. A robin sang. She stared at it, then settled dreamily on her limb." (p. 43, Frightful's Mountain)
+
+* "He soared over the trees, tilted one wing, and found himself headed for the cliff. He pulled up on his tail, down on his wings, and was climbing. He came over the top of the cliff and steered to his oak tree." (p. 45, Frightful's Mountain)
 ----------
 
 
