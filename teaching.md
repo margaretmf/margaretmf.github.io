@@ -229,6 +229,16 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * brown // felt
 * dead // geraniums
 * blue // heron nests
+* raspberry // thicket
+* dark blue // jacket
+* silver // combs
+* brown // lines
+* directional // arrow
+* brown // contour lines
+* violet // leaves
+* blue // line
+* yellow // birches
+* white-footed // deer m ouse
 
 ### Adjectives ###
 * lounging // chair
@@ -384,6 +394,82 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * new // position
 * long-range // objective
 * immediate // route
+* long // sticks
+* dirt // road
+* short // distance
+* song // sparrow
+* Adirondack // fruniture
+* marsh // reek
+* wild // mountains
+* dark-rimmed // glasses
+* long-lashed // eyes
+* whimsical // smile
+* remarkable, spirited // bird
+* short // distance
+* state // map
+* quadrangle // map
+* political // boundaries
+* fine // man
+* topographic // maps
+* fishing // jacket
+* deer // trail
+* sun // compass
+* highest // mountain
+* rare // bluebells
+* pumpkinseed // sunfish
+* well-researched // book
+* wider // sweep
+* entire // delta
+* flood // plain
+* steep // climb
+* far // edge
+* slope // steep
+* swamp // symbol
+* quick // glance
+* displaced // leaves
+* distinctive // look
+* blackened // fireplace
+* beautiful // waterfalls
+* leafless // tree
+* screech // owl
+* amazing // things
+* peregrine // mew
+* enormous // barn
+* paired // falcons
+* ferocious // parental love
+* stream // bank
+* directional // line
+* bearing // marker
+* compass // housing
+* cleared // land
+* dense // forest
+* tower // struts
+* mountain // rnage
+* hunting // knife
+* edible // plants
+* rolling // terrain
+* nature // writer
+* country // road
+* beautiful // cascades
+* gabled // roof
+* porhc // railing
+* twisted // limbs and branches
+* garnled // oaks
+* mable // branches
+* smal // fire
+* outdoor // fireplace
+* maple // leaves
+* wild, savory // lunch
+* changing // course
+* soft // spray
+* water // music
+* submerged // log
+* lively // battle
+* daylily // roots
+* dark // forest
+* magnificent // gorge
+* large // stream
+* enormous // rock bowl
 
 ### Vocabulary ###
 * Habitat
@@ -454,8 +540,28 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Observe
 * Intersect
 * Plot
+* Contemplating
+* Incredulously
+* Spectacular
+* Spreading
+* Trek
+* Imprint
+* Inseminate
+* Incubate
+* Trigger
+* Unaccustomed
+* Strike
+* Climbing
+* Understory
+* Garnish
+* Reluctantly
 
 ### Allusions ###
+* Montana
+* Castkill Mountains
+* Adironik
+* Schoharie Reservoir
+* Manorkill Falls
 
 ### Themes ###
 * Living in and with Nature
@@ -469,6 +575,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Home Life, Parties, Cooking
 * Privacy
 * Mountain
+* Animals
 
 ### Interesting Sentences or Paragraphs ###
 * "He walks up to her and places his gloved hand under her breast. She steps up on it as she has been trained to do." (p. 7, On the Far Side of the Mountain)
@@ -576,6 +683,34 @@ This young lady, I realized, was not planning to cry and go home tomorrow.
 * "If I knew in which direction she was going, I might be able to look at a map and figure out her destination: I'd sure like to know where she's headed. She should have told me. At least I told Dad that I was going to run away to Great-grandfather Gribley's farm. He didn't believe me, but he should have. Alice hasn't even given me a hint - at least I don't recognize one if she has." (p. 65, On the Far Side of the Mountain)
 
 * "A stick is standing upright in the sand. Two rocks have been placed on either side of it, about three feet apart. A line has been drawn between them. Another line intersects the first." (p. 68, On the Far Side of the Mountain)
+
+* "Then I'll go home and do the chores." (p 70, On the Far Side of the Mountain)
+
+* "Bando has spread several of the topographical maps on his big oak table. The maps, which you order through the United States Department of Interior, U.S. Geological Survey, are masterpieces of mapmaking. They reflect the shape of the Earth's surface, portrayed by countour lines twenty feet apart. These brown lines are the distinctive characteristic of topographic maps. They tell you exactly where and how high you are, so you can never get lost. They also show roads, buildings, railroads, transmission lines, mines and caves, vegetation, and towns, cities, rivers, lakes, canals, marshes, and waterfalls." (p. 73, On the Far Side of the Mountain)
+
+* "'You say she's going east by northeast?' he says taking out a compass with a housing that has 360 degrees marked on it, as well as a clear plastic base-late with straight sides that can be used as a ruler. It also has a directional, or pointer, arrow drawn on it. The compass is for orienteering - finding your way with a map - and saves you a lot of time plotting your course. You don't have to use a protractor to figure out the degrees." (p. 73, On the Far Side of the Mountain)
+
+* "Animals communicating with each other, and when you learn their language, you can communicatte with them too. Scientists as well as animal lovers do this." (p. 76, On the Far Side of the Mountain)
+
+* "The quadrangle maps, which are literally quadrangles, 16 3/4 by 22 3/4 inches, are not like the county maps. These are land not political boundaries. Their scale is three and three-quarter inches to the mile - a lot of space to put down the details. On the Delhi quadrangle map is Bando's cabin, my mountain. Mrs. Strawberry's house and farm, as well as all the buildings in Delhi. My millhouse and tree are not on it, for which I am grateful. I like privacy." (p. 77, On the Far Side of the Mountain)
+
+* "Gradualy the sky darkens and fireflies flash their love lights as the males rise through the trees by the brook." (p. 89, On the Far Side of the Mountain)
+
+* "The parents tend their young until they fly." (p. 90, On the Far Side of the Mountain)
+
+* "On bare earth in the sun is another compass. This one is different from the first. Alice has propped up a stick at a 45-degree angle to the ground. On it hangs a stone on a string. Under it is a north-south directional stick. Smiling, I recall how Alice and I made a compass like this last spring. We placed a marker on the shadow that the hanging rock cast in the morning. Then, when the sun passed the meridian, we put another marker on the afternoon stone-shadow. Between the two marks and directly under the suspended rock, we laid a stick. We had a north-south line." (p. 92, On the Far Side of the Mountain)
+
+* "There are no trails or roads up here, so, by lining up trees to keep us going in a straight line, and by reading the quadrangle maps to avoid cliffs and marshes, we strike off across the top of the mountain range. (p. 95, On the Far Side of the Mountain)
+
+We traverse fields and forests, walk through barren lands where quails and woodcocks fly up at our feet, and, after twelve miles of bushwhacking, enter the Plattekill State Forest. We are greeted by a flock of wild turkeys, big, noisy, and glorious. They gobble and fly off, miraculously missing limbs and trunks as they zip through the forest. I could never hit one of those with my sling." (p. 95, On the Far Side of the Mountain)
+
+* "Map reading gives us a good excuse to rest." (p. 96, On the Far Side of the Mountain)
+
+* "'There's a power line below us. It leads to the road at the bottom of Manorkill Falls. It'll be a lot easier to walk on the cleared land under those wires than in this dense forest." (p. 96, On the Far Side of the Mountain)
+
+* "Bando is still bent over the maps. I cleeant he trout and wrap it in May-apple leaves, then dig a hole in the earth and build a fire. When the coals are hot, I push them into the hole, place the fish on them, and cover all with leaves, then soil." (p. 103, On the Far Side of the Mountain)
+
+* "We find a log and sit down. A woodthrush sings. His song sounds like water spilling down the rocks in a cool, dark forest. As I listen, I thank Alice in spite of myself. Were it not for her, I would not be hearing that glorious song on top of this magnificent gore." (p. 104, On the Far Side of the Mountain)
 
 
 ----------
