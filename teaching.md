@@ -219,6 +219,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * blue // eyes, brown // eye
 * red-tailed // hawk
 * yellowdock and mustard // greens
+* big // storm
+* plastering // holes
+* quarter-acre // pond
+* building // blocks
 
 ### Adjectives ###
 * lounging // chair
@@ -295,6 +299,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * unpeeled // branches
 * pond // hill
 * empty // perch
+* irrigation // ditch
+* rocky // meadow
+* electric // heaters
+* static // electricity
+* regal // bird
 
 ### Vocabulary ###
 * Habitat
@@ -336,6 +345,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Trudging
 * Undoubtedly
 * Complimenting
+* Composure
+* Convincing
+* Facetiousness
 
 ### Allusions ###
 
@@ -344,6 +356,9 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * the Law
 * Books, Reading - healing
 * Native Americans // Indians - Ojibway Indians, dome // wigwam, Iroquois Confederacy // Farmers
+* Maps, map-reading, map-making
+* Electricity, Engineering
+* Civilization
 
 ### Interesting Sentences or Paragraphs ###
 * "He walks up to her and places his gloved hand under her breast. She steps up on it as she has been trained to do." (p. 7, On the Far Side of the Mountain)
@@ -415,6 +430,13 @@ This young lady, I realized, was not planning to cry and go home tomorrow.
 * "When she's working on a project, she gets so involved she doen't bother to come to my tree for meals. Instead she doesn't bother to come to my tree for meals. Instead she takes food from the root cellar to her tree house and works while she eats. I didn't see her for two days when she was making a mirror out of a windowpane and some mercury. When I realized she had not bought the mercury but gotten it out of a thermometer she had taken from Mr. Reily's barn, I made her buy a new one for him with some of the forty dollars I had brought with me from the city and never spent." (p. 32, On the Far Side of the Mountain)
 
 * "'Unfortunately, he had said, 'most of us have to learn from mistakes. But we do learn. I'll bet you never do this again.'" (p. 32, On the Far Side of the Mountain)
+
+* "My mountain and all its elevations were on it, so I was studying the contours for the waterway when she tuck her head in the door." (p. 38, On the Far Side of the Mountain)
+
+* "'Lay the stones level, that's the first principle in keeping a wall from shifting and falling down.' 'The second is to lay the sotnes one on two, two on one.'" (p. 43, On the Far Side of the Mountain)
+
+* "'Our great grandfathers built stone walls and buildings that are standing today. In Europe some have been standing since the year 1000.'" (p/ 44, On the Far Side of the Mountain)
+
 
 ----------
 
