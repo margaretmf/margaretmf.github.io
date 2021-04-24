@@ -668,6 +668,7 @@ I know who you are down deep
 So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
 
 Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
+I felt like... 
 #IWasJustAFan 
 #IWasJustAListener 
 #IWasJustAClient 
@@ -678,6 +679,8 @@ the Truth is…that the Truth echoes on and on, resounding forever throughout th
 Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
 
 I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
+
+Ultimately, the Truth is...it's unfair to say that #IWasJustAClient, it may be ok to say #IWasJustAFan, I am glad to say #IWasAnIntern, and I rejoice in saying #IAmAnActiveListener.
 
 ## She Is ##
 She's a whole-souled woman
@@ -1030,6 +1033,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for memories on the airplane with the people from Brazil and Argentina
 * Grateful for the law of abundance
 * Grateful for a new perspective
+* Grateful for the children's books by Jean Craighead George
+* Grateful for memories of Camp Tabor at May Creek with kickball games, softball games, and other games led by two uncles, grateful for the harmony expressed by all 13 cousins
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -1924,6 +1929,11 @@ I had already felt denied by Southern culture, but it woke me up to my Southern 
 I was already aware of the trucks at the Port and on the roads in Bristol, but it led me to love the truck drivers more everywhere.
 I had thought Country music was just for White People, but I realized I already listened to and played country music produced by African Americans.
 
+## From the South, Subjectivity ##
+Other people are also from the South and have individual meanings, memories, and roots associated with the South.
+Not everything is centered around my ancestors and me.
+Other people are living and have meanings, memories, roots, and ancestors associated with music on the South.
+
 ## At the Root ##
 At the root is the same heart responding and reacting to the same culture. 
 The same heart is at the root singing, appreciating, and interpreting.
@@ -2172,13 +2182,17 @@ They love their work.  [Seeing Integration, Reconstruction's Effects]
 They live for the future. [Seeing Integration, Reconstruction's Effects]
 They support their kids.  [Seeing Integration, Reconstruction's Effects]
 They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
+They drive trucks. [Seeing Integration, Reconstruction's Effects]
+They work humbly in construction. [Seeing Integration, Reconstruction's Effects]
+They manage wealth. [Seeing Integration, Reconstruction's Effects]
+They lead schools. [Seeing Integration, Reconstruction's Effects]
 They built our country. [Seeing Integration, Reconstruction's Effects]
 They have beautiful names. [Seeing Integration, Reconstruction's Effects]
 They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
 They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
 They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
-They lead the Reading Rainbow talk.
-They have interesting thoughts and ancestry.
+They lead the Reading Rainbow talk. [Seeing Integration, Reconstruction's Effects]
+They have interesting thoughts and ancestry. [Seeing Integration, Reconstruction's Effects]
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
