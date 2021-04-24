@@ -171,6 +171,183 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## Frightful's Mountain by Jean Craighead George ##
+### Author ###
+* "In 1986, I met Jean Craighead George at a friend's home in the upstate New York town were we all live. I grew up admiring the Craigheads, a fmily of naturalists, whose adventures I followed in *National Geographic* magazine, where they always seemed to be attaching transmitters to girzzly bears, banding bald eagles, or paddling canoes and fiberglass kayaks on first descents down the best western white waters. Always, there were flocks of children participating in every adventure and experiment. I thought the Craigheads might be the only family in America that was having more fun than the Kennedys. Obsessed with falcons as I was from birth, I read *My Side of the Mountain* in 1964. When I met Jean Craighead George that day in New York, she reminded me about the letter that I had written her"
+
+* "trap fifty hawks: peregrines, Cooper's hawks, sharp-shins, red-tails, goshawks, merlins, and golden eagles"
+
+* "lifelong devotion to raptors" and "natural history"
+
+* "The knowledge and experience I acquired from falconers have marked my life and made me a far more effective advocate on nature's behalf. I have to assume that thousands of other children outside my immediate circle were also inspired to varying degrees of ecological stewardship by their exposure to Sam Gribley's adventures in *My Side of the Mountain*. It's my hope that this wonderful sequel, *Frightful's Mountain*, will inspire thousands of new kids."
+
+### Who? ###
+* Frightful, the peregrine falcon, quiet like daytime birds, whistling, wind music, images of strange woods and unknown to flowers, foreign sound, soft song of wind humming through the hemlock needles of home
+* Sam Gribley, and his relationship with the falcon
+
+### Where? ###
+* Nature
+* The Sky, winds
+* the Mountain
+* "forest clearing edged with bushes were song sparrows and cardinals lived"
+
+### What? ###
+* Sam lifted the falcon from the nest on the cliff, and she jabbed him
+* Sam names her "Frightful", and says, that she is "a raving beuaty" and a "gigantic hemlock tree on the mountain"
+* He nurtured her like a peregrine falcon mother would
+* He made a perch for her
+* Hunting, memory
+* Frightful loved the sky
+* wind, feathers
+* relationship to engineering, trucks, industry
+* bells tinkling along with the Falcons
+
+### When? ###
+
+### Color ###
+* red // air
+* sea-blue // eyes
+* yellow // hair
+* rosy // face
+* yellow-white-and-brown // dog
+* dark // back feathers
+* striking // black head
+* blond // head
+
+### Adjectives ###
+* huge // old // tree
+* rustic // bedstead
+* clay // fireplace
+* greatest // pleasure
+* excellent // hunter
+* big // hemlock tree
+* deep // jerky voice
+* leather // perch
+* sharp-shinned // hawk
+* prairie // falcon
+* single / note
+* moving // pickup
+* several // feedings
+* pine // forest
+* prairie // falcon
+* long pointed // wings
+* wide // shoulders
+* strong, tapered // body
+* open // sky
+* ancestral // prey
+* swift // birds
+* pine // forest
+* mental // images
+* song // sparrow
+* cardinal // chirped
+* northern // waterthrush
+* dashing // stream
+* majestic // forest
+* eastern / coyote
+* sharp-shinned // hawk
+* mourning // dove
+* incredible // vision
+* shiny // needles
+* steep // valley
+* rolling // mountain
+* sun-heated // ground
+* spiraling // bubble
+* steep // escarpment
+* industrial // haze
+* abandoned // fields
+* pine // forest
+* open // farmland
+* long // ears
+* droopy // eyes
+* thistle // patch
+* mortal // blow
+* dead // pheasant
+* polarized // light
+* woodland // birds
+* spruce // tree
+* goshawk // rose
+* powerful // blow
+* bulky // nest
+
+### Vocabulary ###
+* Nurtured
+* Hovering
+* Stooped
+* Depended
+* Presented
+* Stepped
+* Tinkled
+* Shifted
+* Agile
+* Sculpted
+* Trilled
+* Chittering (songbirds)
+* Stridulating (insects)
+* Bouncing
+* Conjure
+* Approach
+* Recognize
+* Darted (movement, running, leaping)
+* Cutting
+* License
+* Slash
+* Endowed
+* Incredible
+* Pumped
+* Plummeted
+* Scooped
+* Dash
+* Rocketed
+* Instinctively
+* Gleefully
+* Pester
+* Maneuver
+* Vibrate
+* Escarpment
+
+## Allusions ##
+* Adirondack Mountains
+* Rivers
+
+## Themes ##
+* "She must find one mountain amoung thousands, one hemlock tree among millions, and the one boy who called himself Sam Gribley. The one mountain was her territory; the one tree was Sam's house; the perch beside it, her place. And Sam Gribley was life."
+* Man
+* Falcons
+* Man's relationship to nature
+* Engineering, Industry
+* Frightful's freedom, beauty, and wings
+* Bird Life
+
+* "The young girl's voice brought back images of the one mountain among thousands of mountains, the one hemlock tree among millions of trees - and Sam." (p. 9, Frightful's Mountain)
+
+* "She turned her head almost all the way around, but could not see or sense the one mountain among thousands of mountains, the one tree among millions of trees. She must get higher. She flew. Strong wing beats carried her into a thermal, a column of warm air that rises from the sun-heated ground in a spiraling bubble." (p. 9, Frightful's Mountain)
+
+* "The image of the one hemlock tree among millions filled her mind's eye and then faded." (p. 13, Frightful's Mountain)
+
+* "The rays vibrated in lines that told her the direction. She sensed the one mountain among thousands, the one tree among millions - and Sam." (p. 14, Frightful's Mountain)
+
+### Interesting Sentences or Paragraphs ###
+* "Sam had begged and pleaded with the man not to take her away, but he had pushed Sam aside and carried her down the mountain to a pickup trup." (p. 7, Frightful's Mountain)
+
+* "a camper on the truck", "the motor rumbled" (p. 7, Frightful's Mountain)
+
+* "They, like herself, were sensing the direction of the moving pickup - east, northeast, east, then straight north." (p. 7, Frightful's Mountain)
+
+* "Frightful was a peregrine falcon. She was faster and more agile than any other bird or beast the world around. Her long pointed wings; wide shoulders; and strong, tapered boy were sculpted by the wind, the open sky, and the nature of her ancestral prey - swift birds." (p. 7, Frightful's Mountain)
+
+* "The enemy was low and coming toward her." (p. 8, Frightful's Mountain)
+* "A killing snarl colored the air red." (p. 8, Frightful's Mountain)
+
+* "Wary, she lifted her wings to fly." (p. 9, Frightful's Mountain)
+
+* "Frightful pumped her wings once and plummeted earthward. When she was twenty feet above Alice's head, she scooped her wings, dropped her secondary feathers, and braked herself. She hovered, 'waiting on' for the girl to kick through the fields and scare up the game as Sam would have done." (p. 11, Frightful's Mountain)
+
+* "To all birds anything overhead is a threat." (p. 14, Frightful's Mountain)
+* "Frightful ahd been in the territory of two devoted parents who were defending their young against a falcon." (p. 14, Frightful's Mountain)
+
+----------
+
+
 ## On the Far Side of the Mountain by Jean Craighead George ##
 ### Who? ###
 * Sam Gribley, the man
