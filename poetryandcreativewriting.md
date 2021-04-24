@@ -149,7 +149,7 @@ I also remember listening to the song "Memphis Soul Song". There's an angel on o
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
-## First Impressiosn, and Expression ##
+## First Impressions, and Expressions ##
 First impressions, they don't capture the whole story.
 People warn, "you can't judge a book by its cover."
 The full expression is there, and the intuition is given to draw out the entire expression.
@@ -534,6 +534,28 @@ Margaret
 
 
 # Poetry #
+
+## Partnerhsip ##
+You and I, helping each other to help the world
+Looking at each other to see what each other love about the world around us
+Lifting each other up
+Helping each other grow
+Working through the changing seasons
+Navigating the dark side of life
+I look to you know how to be better
+You look to me to know how to be better
+We create a part of the world and help the world create a better one
+
+## Home ##
+This home of mine
+It's been here all along
+The ancestors have been calling down 
+Awakening from up above to what life is all about
+
+Circling around this place called home again
+All the memories from the past come alive
+THey unearth themselves and revive a sense of childlike wonder so deep
+So much good has happened, and so much good is waiting to be born again
 
 ## Truth ##
 The truth can be ugly
