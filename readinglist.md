@@ -28,6 +28,9 @@ layout: default
 * [She Come By It Natural: Dolly Parton and the Women who Lived Her Songs](https://www.amazon.com/She-Come-Natural-Dolly-Parton/dp/1982157283) by Sarah Smarsh
 * [Lake of the Ozarks: My Surreal Summers i.a Vanishing America](https://www.amazon.com/Lake-Ozarks-Surreal-Summers-Vanishing/dp/1538729806/ref=sr_1_1?dchild=1&keywords=lake+of+the+ozarks&qid=1618439902&sr=8-1) by Bill Geist
 * [John Colter: The Life and Legacy of America's First Mountain Men](https://www.amazon.com/John-Colter-Legacy-Americas-Mountain-ebook/dp/B07FB2R49R/ref=sr_1_2?dchild=1&keywords=John+colter+the+life+and+legacy+of+America%27s+first+mountain+men&qid=1618674269&s=books&sr=1-2) by Charles River Editors
+* [My Side of the Mountain](https://www.amazon.com/Side-Mountain-Puffin-Modern-Classics/dp/0142401110/ref=sr_1_1?dchild=1&keywords=my+side+of+the+mountain&qid=1619275206&sr=8-1) by Jean Craighead George
+* [On the Other Side of the Mountain](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_2?dchild=1&keywords=on+the+other+side+of+the+mountain&qid=1619275239&sr=8-2) by Jean Craighead George
+* [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1619275259&sr=8-1) by Jean Craighead George
 
 
 ## 2020
