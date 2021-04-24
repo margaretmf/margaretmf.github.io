@@ -238,7 +238,15 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * violet // leaves
 * blue // line
 * yellow // birches
-* white-footed // deer m ouse
+* white-footed // deer mouse
+* yellow // birch
+* large white // farmhouse
+* white // nose
+* black // spots
+* white // ash
+* white // threads
+* big gray // coyote
+* gray // steak
 
 ### Adjectives ###
 * lounging // chair
@@ -456,7 +464,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * twisted // limbs and branches
 * garnled // oaks
 * mable // branches
-* smal // fire
+* small // fire
 * outdoor // fireplace
 * maple // leaves
 * wild, savory // lunch
@@ -470,6 +478,59 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * magnificent // gorge
 * large // stream
 * enormous // rock bowl
+* well-tended // land
+* hardworking // farmer
+* pioneer // farmer
+* good // meal
+* feudal // lords
+* powerful and influential // family
+* fanciest // places
+* good // sleep
+* underground // streams and rivers
+* subterranean // river
+* homemade // sausage
+* sow-thistle // leaves
+* canning // jars
+* personal // column
+* rugged // farmland
+* poor // crops
+* dim // light
+* original // plans
+* lilting // strides
+* sycamore // leaves
+* grapevine // thread
+* pine // plantation
+* eastern // coyote
+* good // health
+* clinching // proof
+* library // door
+* return // box
+* marvellous // meal
+* afternoon // light
+* bridge // railing
+* dangerous // men
+* good // news
+* charred // twigs
+* full // moon
+* dark // mass
+* road // winds
+* rising // moonlight
+* main // street
+* historical // marker
+* tenant // farmers
+* legal // structure
+* prairie // falcon
+* beaver-dam // cave
+* well-marked // trail
+* rabbit // home
+* gleaming // scimitars
+* wheezy // notes
+* brown // paper bag
+* perfect // place
+* quiet // nestling
+* old // tree
+* powerful // wings
+* heavy // bird
 
 ### Vocabulary ###
 * Habitat
@@ -555,6 +616,25 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Understory
 * Garnish
 * Reluctantly
+* Thinking
+* Relax
+* Wondering
+* Dashing
+* Comfortable
+* Thoughtless
+* Devastated
+* Clambering
+* Scattered
+* Indication
+* Dragged
+* Regurgitate
+* Rebel
+* Bedeviled
+* Accuse
+* Escarpment
+* Spiral
+* Hesitate
+* Jab
 
 ### Allusions ###
 * Montana
@@ -562,6 +642,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Adironik
 * Schoharie Reservoir
 * Manorkill Falls
+* Huck Finn
+* Saudi Arabia
 
 ### Themes ###
 * Living in and with Nature
@@ -711,6 +793,10 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 * "Bando is still bent over the maps. I cleeant he trout and wrap it in May-apple leaves, then dig a hole in the earth and build a fire. When the coals are hot, I push them into the hole, place the fish on them, and cover all with leaves, then soil." (p. 103, On the Far Side of the Mountain)
 
 * "We find a log and sit down. A woodthrush sings. His song sounds like water spilling down the rocks in a cool, dark forest. As I listen, I thank Alice in spite of myself. Were it not for her, I would not be hearing that glorious song on top of this magnificent gore." (p. 104, On the Far Side of the Mountain)
+
+* "The full moon is rising over the chimneys and gabled rooftops of the little town as I walk up the steps to the Ruffed Grouse Hotel and enter the lobby. At the registration desk I tap a bell and a tall man appears." (p. 109, On the Far Side of the Mountain)
+
+* "Living with nature teaches you to give." (p. 161, On the Far Side of the Mountain)
 
 
 ----------
