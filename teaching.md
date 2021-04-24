@@ -224,6 +224,15 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * silver // river
 * blue-green // landscape
 * orange, yellow, and purple // leaves
+* purple-red // clouds
+* blue-gray // clouds
+* white-yellow // colors of a rain-cleansed day
+* pale blue // colors of a rain-cleansed day
+* twilight purple // sky
+* light and dark // shapes
+* yellow // face
+* blue // heron
+* red-winged // black // birds
 
 ### Adjectives ###
 * huge // old // tree
@@ -314,6 +323,72 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * fern // garden
 * powerful // desire (to live)
 * scattered // birdseed
+* pine // woods
+* warm // currents
+* jutting // roof
+* flight // feathers
+* dark // night
+* dancing // trees
+* air // current
+* abandoned // church
+* rotting // peak
+* visual // memory
+* nearby // woods
+* glassless // windows
+* migrating // eagle
+* twisting // grass seed
+* mountain // laurel
+* bobbing // seed
+* neglected // farm
+* overgrown // fencerows
+* forested // mountains
+* bright // sun
+* glorious // flight
+* highest // levels
+* western // horizon
+* high-pressure // bubble
+* juvenile // feathers
+* pigeon // cote
+* duck // house
+* federal // offense
+* nesting // season
+* lonely // one
+* midnight // bats
+* electric // current
+* fallen // branch
+* long // branch
+* seared // feathers
+* hot // line
+* little // adjustment
+* white // mountain
+* apprentice // falconer
+* nesting // site
+* big, fluffy, snowy // owl
+* state // highway
+* iron // bridge
+* good // idea
+* middle // school
+* tree // stumps
+* round // holes
+* migrating // south
+* chilly // day
+* utility // pole
+* wonderful // project
+* bridge-repair // equipment
+* dirt // road
+* bird // lover
+* cloud // tops
+* migrating // falcons
+* spring // force
+* human // love and affection
+* generating electricity // waterwheel
+* electric // stove
+* washing / machine
+* horizontal // girder
+* iron // columns and webs
+* bumpy // winds
+* smart // misle
+* predetermined // destination
 
 ### Vocabulary ###
 * Nurtured
@@ -378,12 +453,24 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Scrambled
 * Flopped
 * Migrating
+* Tittered
+* Deluge
+* Counterclockwise
+* Equilibrium
+* Astonished
+* Gripping
+* Emanated
+* Contentment
+* Riveted
 
 ## Allusions ##
 * Adirondack Mountains
 * Rivers
 * Schohrarie River
 * South America migration; El Niño rains - balance of nature and birds
+* Atlantic flyway
+* Migrating Route
+* Globality of Falconers
 
 ## Themes ##
 * "She must find one mountain amoung thousands, one hemlock tree among millions, and the one boy who called himself Sam Gribley. The one mountain was her territory; the one tree was Sam's house; the perch beside it, her place. And Sam Gribley was life."
@@ -404,6 +491,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "The image of the one hemlock tree among millions filled her mind's eye and then faded." (p. 13, Frightful's Mountain)
 
 * "The rays vibrated in lines that told her the direction. She sensed the one mountain among thousands, the one tree among millions - and Sam." (p. 14, Frightful's Mountain)
+
+* "The one mountain among thousands, the one tree among millions, and Sam were coming more vividly to mind the longer she lingered." (p. 55, Frightful's Mountain)
+
+* "She was going away from the one mountain among thousands, the one tree among millions, and Sam. She was going south to warm weather and food." (p. 57, Frightful's Mountain)
+
+* "The one mountain among thousands of mountains, the one tree among millions of trees, and somewhere there, the one boy." (p. 62, Frightful's Mountain)
+
+* "Drawing herself up tall, she mapped the direction to the one mountain among thousands, the one tree among millions." (p. 92, Frightful's Mountain)
 
 ### Interesting Sentences or Paragraphs ###
 * "Sam had begged and pleaded with the man not to take her away, but he had pushed Sam aside and carried her down the mountain to a pickup trup." (p. 7, Frightful's Mountain)
@@ -439,6 +534,28 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "She was comfortable. A dove flew past her. She focused on it with keen interest. A robin sang. She stared at it, then settled dreamily on her limb." (p. 43, Frightful's Mountain)
 
 * "He soared over the trees, tilted one wing, and found himself headed for the cliff. He pulled up on his tail, down on his wings, and was climbing. He came over the top of the cliff and steered to his oak tree." (p. 45, Frightful's Mountain)
+
+* "'Cree, cree, cree'" (p. 51, Frightful's Mountain)
+
+* "'Could,' said Spud, peering around, 'I saw that falcon guy from Roxbury driving along the lumber road down below.'" (p. 65, Frightful's Mountain)
+
+* "A wind gust knocked her off balance. She tipped, spread her flight feathers like fingers, and braced herself against two wires." (p. 69, Frightful's Mountain)
+
+* "With a swift wing beat she alighted above a transformer on an electric utility pole. The man was not Sam. She lifted her wings to fly." (p. 69, Frightful's Mountain)
+
+* "He opened his pocket and peered down at Frightful, thinking, I've written the utility-company manager so many times, my fingers hurt. Today I'm calling the company president." (p. 71, Frightful's Mountain)
+
+* "He studied and became a master falconer with a license from the U.S. fish and Wildlife Service. He taught his raptors to fly free and come back to the lure, and the next think he knew, he and Susan were visiting schools with their birds to tell the children of the importance of the birds of prey." (p. 72, Frightful's Mountain)
+
+* "Falconers for three millenia in Asia and Europe had put the exact same kind of straps on the legs of their falcons, hawks and eages." (p. 73, Frightful's Mountain)
+
+* "At the bottom of the hill, Jon stopped. A state highway maintenance truck was parked across from his drive. Two men were unloading equipment on the side of the road." (p. 81, Frightful's Mountain)
+
+* "'Yeah, but we've got orders to repair every bridge in the state, big and little. Governor's decree. No exceptions. New policy since those people died when the hundred-year flod collapsed the Schoharie Bridge. Big political issue - safety.'" (p. 81, Frightful's Mountain)
+
+* "The cars that drove over the bridge trembled as if they were wind in the trees." (pp. 98-99, Frightful's Mountain)
+
+
 ----------
 
 
