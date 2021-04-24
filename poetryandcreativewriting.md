@@ -2345,6 +2345,16 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Letter ##
+Your song is a secret letter speakig to the deepest darkness and lightest light of my heart
+Your song is like a note in an evelope holding up a mirror to the ghost of the past and the truth of the Christ
+the intent is unknown, there's a cryptic healing for a cryptic pen from the past
+by law you help me, your will is good, it almost feels like it comes straight out of a book
+
+<br>
+
+Word Associations: missive, diary, pen, will, intent, law, note, forge, figure, envelope
+
 ## Mystery ##
 In the mystery of it all, unexpected wonders come out of left field.
 A surprise, a wonder, a riddle.
