@@ -107,5 +107,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Free from outside control; not depending on another's authority
 * Not depending on another for livelihood or subsistence
 
+## Idiom: ##
+* A group of words established by usage as having a meaning not deducible from those of the individual words (e.g., rain cats and dogs, see the light)
+* A characteristic mode of expression in music or art
 
 
