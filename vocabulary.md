@@ -103,6 +103,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 * A biological community of interacting organisms and their physical environment
 * A complex network or interconnected system.
 
+## Independent: ##
+* Free from outside control; not depending on another's authority
+* Not depending on another for livelihood or subsistence
 
 
 
