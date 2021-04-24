@@ -223,6 +223,12 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * plastering // holes
 * quarter-acre // pond
 * building // blocks
+* black // paws
+* orange // crate
+* green // frog pipes
+* brown // felt
+* dead // geraniums
+* blue // heron nests
 
 ### Adjectives ###
 * lounging // chair
@@ -304,6 +310,80 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * electric // heaters
 * static // electricity
 * regal // bird
+* perfect // blocks
+* millhouse // roof
+* gabled // roof
+* big // hemlock
+* tree // snap
+* carpentry // compass
+* house // lumber
+* huge // circle
+* fitted // boards
+* dougnut-shaped // structures
+* productive // tree
+* county // road
+* stacking // stones
+* rabbit // skins
+* rubber // cap
+* barometric // pressure
+* cog // wheel
+* sluice // gate
+* hollowed // tree
+* high // noon
+* water // mill
+* big // change
+* millhouse // roof
+* perfect // nozzle
+* handlike // paws
+* better // lock
+* clean // scent
+* cattail // rush basket
+* hickory // nuts
+* wild-food // cookbook
+* maple // syrup
+* outdoor // kitchen
+* chittering // purr
+* cold // weather
+* lit // tree
+* hollow // tree
+* irrigation // ditch
+* stone lined // paths
+* thorn // hook
+* braided // basswood
+* edible // plants
+* crooked // limbs
+* electric // lights
+* obscure // tune
+* high // spirits
+* contorted // sapling
+* burning // coals
+* long, narrow // pieces
+* outdoor // kitchen
+* huge // sandstone slab
+* big // boulders
+* better // appetites
+* empty // hickory nut
+* smoked // venison
+* stone // house
+* weatherworn // farmhouse
+* old // lilacs
+* inspiring // sight
+* star // shoots
+* sharp // nose
+* pointed // chin
+* challenging // horse
+* western // cowboys
+* new // dimensions
+* broken // sticks
+* pine // tree
+* fallow // field
+* leaping // mullens
+* cow // barn
+* dead // trees
+* dark // water
+* new // position
+* long-range // objective
+* immediate // route
 
 ### Vocabulary ###
 * Habitat
@@ -348,6 +428,32 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Composure
 * Convincing
 * Facetiousness
+* Splintering
+* Tilted
+* Trough
+* Fussed
+* Foraging
+* Object
+* Admonish
+* Amble
+* Envious
+* Curious
+* Surrounded
+* Sagging
+* Annoying
+* Vocabulary
+* Ancestors
+* Thrashes
+* Troubed
+* Worry
+* Discipline
+* Threat
+* Language
+* Exclaim
+* Affectionate
+* Observe
+* Intersect
+* Plot
 
 ### Allusions ###
 
@@ -359,6 +465,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Maps, map-reading, map-making
 * Electricity, Engineering
 * Civilization
+* Granfathers, Grandparents
+* Home Life, Parties, Cooking
+* Privacy
+* Mountain
 
 ### Interesting Sentences or Paragraphs ###
 * "He walks up to her and places his gloved hand under her breast. She steps up on it as she has been trained to do." (p. 7, On the Far Side of the Mountain)
@@ -436,6 +546,36 @@ This young lady, I realized, was not planning to cry and go home tomorrow.
 * "'Lay the stones level, that's the first principle in keeping a wall from shifting and falling down.' 'The second is to lay the sotnes one on two, two on one.'" (p. 43, On the Far Side of the Mountain)
 
 * "'Our great grandfathers built stone walls and buildings that are standing today. In Europe some have been standing since the year 1000.'" (p/ 44, On the Far Side of the Mountain)
+
+* "One door, one window, and a hole for the shaft are all the openings we built, because they are very difficult to make. The window, however, lets in lots of light, and I'll be able to see just fine when I work." (p. 44, On the Far Side of the Mountain)
+
+* "'This is the first time i've seen Zella happy on the mountain. She had been taught by her grandfather, a bricklayer, how to make corners when she was a kid, and she was delighted to see how much she remembered. The corners, as well as the walls, are very professional and strong because of Miss Turner and Zella.'" (pp. 44-45, On the Far Side of the Mountain)
+
+* "So the roof is just logs covered with bark to keep out the rain." (p. 45, On the Far Side of the Mountain)
+
+* "'She notched it with Dad's axe in the direction I had marked for it to fall - from the dam to the millhouse - and then she told me to saw on the opposite side. After an hour or so I heard the tree snap. It titled, began to fall slowly, then faster and faster until it crashed down with a splintering of limbs to lie exactly where Mrs. Strawbery had said it would. She wiped her hands, saying she should have been a lumberjack." (p. 45, On the Far Side of the Mountain)
+
+* "'I knew I had to burn and chip out the isnide of the tree to make a trough, like the pioneers made water pipes. It was not hard work, but it was a tedious chore I could do when I didn't have help, so Bando and I started on the waterwhell." (p. 46, On the Far Side of the Mountain)
+
+* "'Everybody gathered for the opening of the sawmill. Miss Turner made the bread this time, Bando and Zello brought cheese, and Mrs. Strawberry made corn pudding. Alice ahd brewed some tea with wild peppermint leaves, and I contributed two nice bass. They grow fast in ponds." (pp. 50-51, On the Far Side of the Mountain)
+
+* "I stop reading my journal and look up. The water mill was a big change. I sawed wood and made a gable for the millhouse roof and shingles to cover it. I had leaped from the Stone Age into the beginning of the Industrial Revolution without any pain, in fact, with a lot of joy." (p. 51, On the Far Side of the Mountain)
+
+* "The trail to her house is bordered with stones she gathered and put there. She wanted to edge all the paths, but I objected. Bordered trails get too much use. The wildflowers can't push up, and when they don't grow, the soil erodes and is carried into the streams by the rain. The best thing to do, I told Alice, is to take different routes from place to place, or put a log across an old path and let it rest. I kick leaves onto her trail to protect it. Jessie Coon James walks up to me." (p. 55, On the Far Side of the Mountain)
+
+* "The water gushes forward, the wheel turns, and he joins me, whistling some obscure tune. Running the waterwheel always puts him in high spirits. He picks up a contorted sapling." (p. 58, On the Far Side of the Mountain)
+
+* "I want to tell him about Alice, I don't. She has a right to her privacy. When she's ready, she'll tell me what she's been up to." (p. 60, On the Far Side of the Mountain)
+
+* "She's left all her books, as far as I can see, but has taken the maps from the orienteering, or map reading, course. Also gone are her backpack and our water carrier, a square of hide folded in fourths. It's a great device, because it can also be used for a pillow or a hat - all of which means she will not be back soon." (p. 61, On the Far Side of the Mountain)
+
+* "Then I remember the triumphs of making a fire, catching a fish, and sleeping on a bed of pine boughs all alone in the wilderness." (p. 62, On the Far Side of the Mountain)
+
+* "As I step into the yard, I glance up at my mountain. It's strong and beautiful, with the sun rising behind it. The view from here is its western side." (pp. 63-64, On the Far Side of the Mountain)
+
+* "If I knew in which direction she was going, I might be able to look at a map and figure out her destination: I'd sure like to know where she's headed. She should have told me. At least I told Dad that I was going to run away to Great-grandfather Gribley's farm. He didn't believe me, but he should have. Alice hasn't even given me a hint - at least I don't recognize one if she has." (p. 65, On the Far Side of the Mountain)
+
+* "A stick is standing upright in the sand. Two rocks have been placed on either side of it, about three feet apart. A line has been drawn between them. Another line intersects the first." (p. 68, On the Far Side of the Mountain)
 
 
 ----------
