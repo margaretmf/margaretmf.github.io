@@ -2345,6 +2345,31 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Mystery ##
+In the mystery of it all, unexpected wonders come out of left field.
+A surprise, a wonder, a riddle.
+How does God know all of our deepest, darkest secrets?
+It's suspect in his woven mystery.
+It's curious how he leads us to clues, and pieces of his larger puzzle.
+No question about it, in God's mysterious workings and intuitions, he connects our dots to wholeness, greatness, life, and healing.
+
+<br>
+
+Word Associations: surprise, unexpected, curiosity, wonder, clue, suspect, question, riddle, darkness, secret
+
+## Men ##
+Men, the best people in the world.
+They have the power.
+They provide the defense.
+They are our brothers, and cousins, teaching us how to be better friends.
+They end wars.
+They take care of the provision.
+They are the king of all kigns, with the glory of true fatherhood, sonship, and husbandry.
+
+<br>
+
+Word Associations: power, father, husband, brother, son, alpha, defense, war, provision, king
+
 ## Distance ##
 Finding the space to think things through, understand, and process emotions
 Distancing oneself from the chaos, the scene, the drama
