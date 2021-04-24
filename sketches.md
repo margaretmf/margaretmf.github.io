@@ -11,3 +11,17 @@
 
 <img class="profile-picture" src="Geometric6-Blue&Red.jpg">
 
+<img class="profile-picture" src="Brown&BlueLines.jpg">
+
+<img class="profile-picture" src="Red&Green&BlackLines.jpg">
+
+<img class="profile-picture" src="Stoplight.jpg">
+
+<img class="profile-picture" src="Green&BlackLines&Arrows.jpeg">
+
+<img class="profile-picture" src="Black&ColoredLines.jpeg">
+
+<img class="profile-picture" src="Red&BlackLines&Shapes.jpeg">
+
+<img class="profile-picture" src="Stoplights.jpg">
+
