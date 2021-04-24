@@ -350,20 +350,6 @@ Today I hope to live in peace.
 Today I hope to pray the prayers we prayed in school for all schools nationwide.
 Today I hope someone feels free of a claim that holds them in hostage and in bondage.
 
-## Memories ##
-I remember the crowd of people wearing red, white, and blue clothes.
-I remember the women working on grassroots projects in the Stadium.
-I remember the reformation, and the repentance, and the shift of view.
-I remember the size of the crowd.
-I remember my friend's passion.
-I remember the people working in the post office, and the Fed Ex Office, and the Government buildings, and the Salvation Army.
-I remember listening to "One Tribe" and "I Believe".
-I remember serving in the Diversity and Inclusion Club and God giving me an interest in Islam in high school. I remember feeling "white privilege" and "white guilt" in the Diversity and Inclusion Club.
-I remember taking a photo.
-I remember feeling concerned about healing from racial prejudices.
-I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
-I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
-
 ## What is a memory you would like to erase? ##
 As a free agent, I would like to erase the memory of being 'a heartbroken cowgirl', a criminal, and a damsel in distress within. I am a free agent, I am able, I am intelligent, I have a good sense of humor, and I am quick to forgive.
 
@@ -433,105 +419,6 @@ I have taken real train rides to Pennsylvania and back, and to Boston and back. 
 
 ## Write about a time you felt alone. ##
 Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
-
-## Where I am weak, you are strong ##
-Where I am weak, you are strong
-Where I am broken, you are whole
-Where I am alone, you are there
-Where I have failed, you know me
-Where I am broken, you are full
-Where I have said something wrong, you speak the truth
-Where I am hurt, you provide love
-
-## A Long Road ##
-There's a long road ahead
-It's uncertain where it's heading
-I set my head straight with a vision
-I hope to move through with love and hope
-
-There's a long road ahead
-I hope to move through committed
-There are new views and new jobs
-There is old to resurrect and re-appreciate
-
-## It's Ok ##
-It's ok to cry
-It's ok to feel
-It should feel good to sing
-
-Thank you for holding the door and making me feel like a lady
-Thank you for touching my heart and making me remember home
-Thank you for the head nod and helping me feel cool
-Thank you for the concern for my health and helping me recover
-Thank you for asking me to dance and not making me feel bad
-
-The love and the smile is in the silence
-The anger is in the lack of voice
-In the bitterness and the loss, I found a voice that you happened to save
-
-The freedom is in the independence
-The spirit is all around
-The healing is in the mystery of the whirlwind of it all
-
-## After all That Work ##
-After all that work I had done,
-After all those thoughts I had thought,
-It was a slap in the face 
-for you to try to tell me who I was again,
-and speak for me
-I have a voice
-I did good work
-You are not my benefactor
-Thank you
-
-## She ##
-She had it all
-She was the babe
-She had the voice
-And she had the career
-
-I was a sinner
-I could barely speak or sing
-I was so flawed, so lacking, so desperate
-I was not the babe
-
-## The Tease ##
-He only spoke when it was convenient
-He knew my deepest flaws
-He knew my worst fears
-He knew my loudest secrets
-He knew my strongest weak points
-He knew just how to strike a chord with all that was wrong with me and make me change
-
-## A Real Man ##
-A real man would say go for it, do it
-There's nothing wrong with you
-You have it all within baby
-I believe in you
-I see the good in you
-I know who you are down deep
-
-A real woman would say go for it, do it, it's yours
-There's something great and insightful reflected in you
-You have it all within, my friend
-I care for you
-I see the light in you
-I know who you are down deep
-
-## Truth or Dare ##
-So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
-
-Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
-#IWasJustAFan 
-#IWasJustAListener 
-#IWasJustAClient 
-#IWasJustAnIntern 
-then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
-The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
-the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
-Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
-
-I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
 ## If you could do one thing every day for the rest of your life, what would it be, and why? ##
 For the rest of my life, if I could do something, I would take up the life of a naturalist.
@@ -640,7 +527,157 @@ Margaret
 
 3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
 
+<br>
+
+
+----------
+
+
 # Poetry #
+
+## Truth ##
+The truth can be ugly
+The truth is hard to hide
+The truth cannot be lied about
+The truth can be uncovered
+The truth is real
+The truth is just
+The truth is beautiful
+The truth is within
+The truth is there
+The truth is free
+
+## Flickering Lights ##
+The flickering lights-
+The flickering lights in the hearts of all the people throughout the nation and the earth
+The flickering lights in the homes and office buildings united
+You can see them from u p above in theplane looking down through the seat window
+
+## Where You are From, Where You are From From ##
+I appreciate where you're from, where you're from from
+I appreciate where your ancestors come from
+I appreciate where you are from
+I appreciate your story, your background, your interests, your passions
+Everyone has a story
+Everyone has a place of origin
+Everyone ahs their roots to celebrate
+Everyone has a place where they are from
+Some people feel displace
+Some people feel like their roots are ignored or dulled
+Everyone belongs to the Earth
+
+## Memories ##
+I remember the crowd of people wearing red, white, and blue clothes.
+I remember the women working on grassroots projects in the Stadium.
+I remember the reformation, and the repentance, and the shift of view.
+I remember the size of the crowd.
+I remember my friend's passion.
+I remember the people working in the post office, and the Fed Ex Office, and the Government buildings, and the Salvation Army.
+I remember listening to "One Tribe" and "I Believe".
+I remember serving in the Diversity and Inclusion Club and God giving me an interest in Islam in high school. I remember feeling "white privilege" and "white guilt" in the Diversity and Inclusion Club.
+I remember taking a photo.
+I remember feeling concerned about healing from racial prejudices.
+I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
+I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
+
+## Where I am weak, you are strong ##
+Where I am weak, you are strong
+Where I am broken, you are whole
+Where I am alone, you are there
+Where I have failed, you know me
+Where I am broken, you are full
+Where I have said something wrong, you speak the truth
+Where I am hurt, you provide love
+
+## A Long Road ##
+There's a long road ahead
+It's uncertain where it's heading
+I set my head straight with a vision
+I hope to move through with love and hope
+
+There's a long road ahead
+I hope to move through committed
+There are new views and new jobs
+There is old to resurrect and re-appreciate
+
+## It's Ok ##
+It's ok to cry
+It's ok to feel
+It should feel good to sing
+
+Thank you for holding the door and making me feel like a lady
+Thank you for touching my heart and making me remember home
+Thank you for the head nod and helping me feel cool
+Thank you for the concern for my health and helping me recover
+Thank you for asking me to dance and not making me feel bad
+
+The love and the smile is in the silence
+The anger is in the lack of voice
+In the bitterness and the loss, I found a voice that you happened to save
+
+The freedom is in the independence
+The spirit is all around
+The healing is in the mystery of the whirlwind of it all
+
+## After all That Work ##
+After all that work I had done,
+After all those thoughts I had thought,
+It was a slap in the face 
+for you to try to tell me who I was again,
+and speak for me
+I have a voice
+I did good work
+You are not my benefactor
+Thank you
+
+## She ##
+She had it all
+She was the babe
+She had the voice
+And she had the career
+
+I was a sinner
+I could barely speak or sing
+I was so flawed, so lacking, so desperate
+I was not the babe
+
+## The Tease ##
+He only spoke when it was convenient
+He knew my deepest flaws
+He knew my worst fears
+He knew my loudest secrets
+He knew my strongest weak points
+He knew just how to strike a chord with all that was wrong with me and make me change, force me to change, force me to look in the mirror
+
+## A Real Man ##
+A real man would say go for it, do it
+There's nothing wrong with you
+You have it all within baby
+I believe in you
+I see the good in you
+I know who you are down deep
+
+A real woman would say go for it, do it, it's yours
+There's something great and insightful reflected in you
+You have it all within, my friend
+I care for you
+I see the light in you
+I know who you are down deep
+
+## Truth or Dare ##
+So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
+
+Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
+#IWasJustAFan 
+#IWasJustAListener 
+#IWasJustAClient 
+#IWasJustAnIntern 
+then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
+The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
+the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
+Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
+
+I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
 ## She Is ##
 She's a whole-souled woman
@@ -1566,6 +1603,9 @@ All the colors of the universe are embraced as one.
 For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
 People sing with their full hearts and sing their own tunes.
 I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+
+<br>
+
 
 ----------
 
