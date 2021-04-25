@@ -540,6 +540,47 @@ Margaret
 
 
 # Poetry #
+## Home ##
+A place deep within, deep within the family tree more broadly that shares the love of things that bring joy to everyone and all mankind,
+the safety that trusts one another with secrets and challenges, and that picks someone up when they fall,
+the memories of past ancestors and common roots that help us grow past the loss and bounce back up from the damage done in the weeds of existence
+
+<br>
+
+Word Associations: family, roots, love, ancestor, safety, memory, growth, loss, damage, past
+
+## Noise ##
+The noise vs. the sound.
+The noise is everywhere.
+My being drowns in it, frantics in it, reacts to it.
+Everything is so loud.
+There's so much outside chatter, banter, and commotion.
+There's no place for quiet.
+It's hard to filter everything out.
+The sound. 
+The deep echoings of the resounding sense of harmony, the resounding prayers, the roaring Truth.
+My being dwells in it, loves it, heals in it, bathes in it.
+It's the opposite of noise, the music to the ears.
+With observation, the noise can become sound.
+
+<br>
+
+Word Associations: roar, sound, click, rumor, commotion, complaint, music, crash, filter, drown
+
+## Light ##
+The light in the darkness heals everything.
+It's the simplest, most eloquent, and loudest truth.
+The intelligent force lighting everything up.
+The stars in the highest sky.
+The fire in the forest guiding the path.
+The inner echoing of the true spirit behind the layers of dark evil forces in the world.
+The window that lets the sun extinguish out and draw the shadows.
+The inner truth voicing good in one's heart.
+
+<br>
+
+Word Associations: spirit, intelligence, fire, star, sun, window, dark, extinguish, shadow, heart
+
 ## The People Behind the Work ##
 There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
 There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
