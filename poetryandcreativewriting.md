@@ -1631,6 +1631,18 @@ For 365 days a year, the Sun lights up the Earth like the love that lights up ou
 People sing with their full hearts and sing their own tunes.
 I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
 
+## A World That Is Always Moving ##
+A world that's always moving
+365 days around the Sun
+Since the beginnig of time
+It never stops
+It's always going
+The planets are always cycling and circling
+
+## To the Core ##
+Connected, at one with the core of the Earth, the center of the Earth, the heart of the Earth
+In step and in sync with everyone around, moving as one
+
 <br>
 
 
