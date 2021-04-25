@@ -73,7 +73,7 @@ Right to freedom fro arbitrary government regulation and control
 
 To personally understand and maintain the American way of life, to honor by his own exemplary conduct, and to pass this credo intact to succeeding generations is the responsibility of every true American"
 
-## [This I Believe(https://www.npr.org/series/4538138/this-i-believe) ##
+## [This I Believe](https://www.npr.org/series/4538138/this-i-believe) ##
 "During its four-year run on NPR, This I Believe engaged listeners in a discussion of the core beliefs that guide their daily lives. We heard from people of all walks of life — the very young and the very old, the famous and the previously unknown.'
 
 
