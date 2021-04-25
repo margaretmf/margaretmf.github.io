@@ -1086,11 +1086,10 @@ is_contact: true
 * Farmland, Ports, Mountains
 * Oceans, Rivers, Bays
 * Logistics - Supply Chain Engineering
-* People can learn about history and the country through music
-& Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
+* People can learn about history and the country through music & Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
 * Thornton Wilder, Thornton Burgess
 * Arts in Hotels, Hotel Indigo
-* A City of Strangers
+* A City of Strangers, A City of Angels
 * Climbing Up
 * The Face of God in the Sky
 * Regrets
