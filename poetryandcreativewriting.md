@@ -2355,7 +2355,67 @@ That I ne sholde wedded be but ones."
 <br>
 
 
-## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+## **I am not a naturally verbal thinker. I am more naturally a svisual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Letter ##
+Remembering all of the letters friends and fmily members sent at camp.
+What a joy to write with pen on a card and put the card in an envelope, and lick the envolope and stamp it.
+Writing slows thought down.
+What a joy to receive a card in the mailbox from someone.
+
+
+## Chore ##
+The grace expressed in doing chores, stackig clothes, cleaning dishes, running the laundry machine.
+Running these errands are some of the greatest gifts in the world.
+What joy comes from singing through them like a novice or like a child works through routine tasks.
+Not a robot but like Cinderella singing and not neglecting a single detail.
+
+<br>
+
+Word Associations: errand, sing, novice, fix, childhood, task, routine, Cinderella, neglect, robot
+
+## Style ##
+She's a woman with style, grace, and flair.
+Nothing gets to her.
+She's royal and strong.
+She's fashionable, dressing well.
+Everything on display fits her and every sign supports her decoration.
+
+<br>
+
+Word Associations: flair, grace, fashion, figure, display, ornament, sign, dress, royalty, decorate
+
+## Face ##
+The face fo God reflected through all the face of humanity, smiling, and laughing, or sometimes crying.
+The expression of joy, or sorrow on humanity's face.
+The image of beauty in the sky.
+The good comes back to the surface, the mirror.
+The head is Life.
+
+<br>
+
+Word Associations: beard, mask, expression, head, image, reputation, surface, makeup, confront, mirror
+
+## Swallow ##
+The truth is hard to swallow.
+The truth of the flight, the rejection, the reaction, the pain.
+The pride of the serpent is hard to take in.
+It's poison, shaming, a potion.
+It's grimacing.
+There's a popping reflex.
+The danger.
+Be patient. This will all pass.
+Everything will pass.
+
+<br>
+
+Word Associations: poison, flight, draught, serpent, pride, potion, reflex, patient, pop, grimace
+
+## A Seed in the Ground ##
+There's a seed in the ground, buried.
+It contains the treasures of ancestors, our family's past.
+It grows and grows through the ground to wake the heart up, and
+acuse it to live and flourish.
 
 ## Destiny ##
 The epic course for life that God designed.
