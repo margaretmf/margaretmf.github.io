@@ -1059,6 +1059,22 @@ is_contact: true
 (4) A honk of a car
 (5) The sound of a prayer for the nation and all the schools nearby and far away
 
+## **Day 69** ##
+## **Images** ##
+(1) The markings on the street
+(2) The church domes
+(3) The flowers in front of the library
+(4) The school bus
+(5) The public transportation bus
+
+## **Sounds** ##
+(1) A car speeding up
+(2) The breeze beating up on a car window moving my hair
+(3) Children screaming and playing
+(4) Geese sounds
+(5) Squeaking of a swing
+
+
 <br>
 
 <br>
@@ -1078,7 +1094,9 @@ is_contact: true
 * Climbing Up
 * The Face of God in the Sky
 * Regrets
-* Church Bells Ringing
+* Church Bells Ringing, Church Domes, Schools
+* "Sweet Nothings"
+* Gas Stations, Hotels
 
 ## ** Plantation ** ##
 The definition of plantation
