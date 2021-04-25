@@ -20,6 +20,12 @@
 * Byron, Dante, Petrach, Boccaccio, Blake, Wordsworth, Coleridge, Byron, Shelley, Keats, Southey, Scott, Shelley
 * Charlotte Smith, Hannah More, Anna Laetita Barbauld, Helen Maria Williams, Felicia Dorothea Hemans, Letitia Landon
 * "Romantic writers", "English poets"
+* The Romantic period, immediacy; values and proccupations; "it coincides with the moment at which Britain industrialized itself. Factories sprang up in towns and cities across the country, and the agrarian lives people had known for centuries stopped being taken for granted. Instead labourers began to move into conurbations, working long hours in close proximity to each other."
+* "Today we take our rights for granted, forgetting the length of the intellectual journey workig people had to make merely to understand they had such things."
+* "very similar to the feudal system of medieval times continued to dictate their place in society"
+* "The process by which people were awakened to a sense of self-determination was global. It began with the American Revolution and continued with that in France. And the impact of those upheavals cannot be overstated. Whole populations began to question the legitimacy of hereditary monarchs whose right to rule had once been accepted"
+* National cause, patriotic feeling
+* "the inventions of the steam press and the paper-making machine (1814, 1803)" - "produce newspapers on a an industrial scale"
 
 
 ----------
