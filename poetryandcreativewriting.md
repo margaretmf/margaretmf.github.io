@@ -1057,6 +1057,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for a new perspective
 * Grateful for the children's books by Jean Craighead George
 * Grateful for memories of Camp Tabor at May Creek with kickball games, softball games, and other games led by two uncles, grateful for the harmony expressed by all 13 cousins
+* Grateful for the leaders of the chorus groups I have been in and the work to blend in and sing different parts, including Alto and Soprano
+* Grateful for the good cheer of a friend I drove around
+* Grateful for memories at camp of the cooks
+* Grateful for memories at camp of running
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2355,7 +2359,28 @@ That I ne sholde wedded be but ones."
 <br>
 
 
-## **I am not a naturally verbal thinker. I am more naturally a svisual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Water ##
+The deep, clear water thatn runneth through the earth and separates the country
+It flows through the earth from the ocean to the land
+and cycles around, giving life and purity
+THe sky soaks it up, it changes elements, becomes vapor, and is a flood
+
+<br>
+
+Word Associations: vapor, ocean, sky, life, cycle, shallow, sprinkle, flow, element, flood
+
+## Reliable ##
+Being consistently on time, ready to go, ready to help
+Expressing the same quality over and over again
+Predictable behavior when a promise is made, it's guaranateed that it will be kept without error, with stability
+A safe foundation, free from the need to test out
+Always there, ready to go, reliable
+
+<br>
+
+Word Associations: quality, stability, bias, error, prediction, test, guarantee, safety, foundation, sense
 
 ## Letter ##
 Remembering all of the letters friends and fmily members sent at camp.
