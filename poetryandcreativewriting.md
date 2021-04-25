@@ -81,6 +81,12 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 
 # Creative Writing #
+## Bible Imagery ##
+My favorite imagery is the rose in the desert surrounded by drops of water.
+
+## Spiritual Imagery ##
+My favorite imagery are a flower with water droplets, green weeds, and a flower with snow on it.
+
 ## Perspective, Stories, the South ##
 Around the south, there are so many individual perspectives. 
 
@@ -534,6 +540,53 @@ Margaret
 
 
 # Poetry #
+## The People Behind the Work ##
+There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
+
+## These Feelings, The World ##
+What do I do with these feelings?
+These feelings, the rage, the spitefulness, the pain, the hurt, the betrayal, the desparity, the want, the lack, the displacement.
+Someone on the other side of the world feels the same way.
+We are one in the same, sharing the same feelings, experiencing the same things in two different ways, in two differen cultures.
+
+## A Year ##
+12 months per year
+4 season per year (in some parts of the world not 4)
+A season for everything (the Bible)
+365 days per year
+Winter, Spring, Summer Fall
+Bare branches glistening gray
+Snow covered trees
+Flowers blooming
+Snow covered flower buds
+Fully blossomed trees
+Green, hot summer fields
+Orange, yellow, and brown foliage
+Leaves falling
+Full Circle
+The Changing Seasons
+Adapting with the change
+
+## A Society Driven by Money ##
+A society driven by money.
+Money makes the world go round.
+Leaves turn into gold.
+Exchanges are driven by love and soul.
+In God We Trust.
+E Pluribus Unum.
+
+## The Gun Images ##
+Put the gun images down.
+Drop them.
+Why use them?
+Isn't there so much joy and live and love in that person, those people? 
+Life gets better from here.
+Just live.
+Choose to live another day.
+Choose to learn.
+Love that person wholly.
 
 ## Partnerhsip ##
 You and I, helping each other to help the world
@@ -574,6 +627,8 @@ The flickering lights-
 The flickering lights in the hearts of all the people throughout the nation and the earth
 The flickering lights in the homes and office buildings united
 You can see them from u p above in theplane looking down through the seat window
+
+A society run by electric lines, power grids, and lightbulbs.
 
 ## Where You are From, Where You are From From ##
 I appreciate where you're from, where you're from from
@@ -1061,6 +1116,14 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the good cheer of a friend I drove around
 * Grateful for memories at camp of the cooks
 * Grateful for memories at camp of running
+* Grateful for the memories of singing Amazing Grace at Camp Nakanawa on Sundays
+* Grateful for memories of Shakespeare plays at Camp Tabor
+* Grateful for memories at the Beach Cottage with the Furr Family and the Talbot family
+* Grateful for my aunt
+* Grateful for the man on the street, Jamal, who blessed with a complement "you have a beautiful soul"
+* Grateful for the man at church who shared his testimony
+* Grateful for the Holy Bible in the hotel room
+* Grateful for the man on the street and his name
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
