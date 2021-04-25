@@ -33,8 +33,8 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## El Idioma (m) (noun, sustantivo): ##
 * Language, Tongue, Idiom
 
-## La Escuela (f) (noun, sustantivo): ##
-* School
+## Claro: ##
+* Sure
 
 
 
