@@ -111,4 +111,13 @@ Something exists in consciousness. The image in mind has not been consciously co
 * A group of words established by usage as having a meaning not deducible from those of the individual words (e.g., rain cats and dogs, see the light)
 * A characteristic mode of expression in music or art
 
+## Meditation: ##
+* A written or spoken discourse expressing considered thoughts on a subject
+* The action or practice of meditating
+* To train attention and awareness, and achieve a mentally clear and emotionally calm and stable state
+
+## Prayer: ##
+* A solemn request for help or expression of thanks addressed to God or an object of worship
+* A religious service, especially a regular one, at which people gather in order to pray together
+* An earnest hope or wish
 
