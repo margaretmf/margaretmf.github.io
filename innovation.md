@@ -1074,6 +1074,11 @@ is_contact: true
 & Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
 * Thornton Wilder, Thornton Burgess
 * Arts in Hotels, Hotel Indigo
+* A City of Strangers
+* Climbing Up
+* The Face of God in the Sky
+* Regrets
+* Church Bells Ringing
 
 ## ** Plantation ** ##
 The definition of plantation
