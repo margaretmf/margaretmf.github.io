@@ -2475,6 +2475,34 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Sanity ##
+The sanity within to know what's real,a nd what's causing imbalance.
+The freedom from the joker, the ongoing question of who one is, the release from the chaos, the madness, the clinginess, the fear, the insanity unmasked and released to balance.
+
+<br>
+
+Word Associations: madness, chaos, erosion, question, mind, cling, fear, balance, mask, joker
+
+## Disturbance ##
+A disturbance, an event that shocks the human mind and wakes it up to more of the reality within and without.
+A disturbance that leads to madness, rage, mood swings, insomnia.
+A disease of the senses because of the noise, and the magnetic fragments of the earth.
+
+<br>
+
+Word Associations: insomnia, fragment, disease, mind, madness, sense, noise, mood, magnet, earthquake
+
+## Freedom ##
+The freedom to take off the chains, the weight of the oppression that slows people down.
+The right to be untrapped.
+The right to be a free spirit, a free bird, and engage with opportunity.
+The right to be protected.
+The right to express, share the ideas that spring up from within, from the source of life.
+
+<br>
+
+Word Associations: opportunity, chains, rights, oppression, safety, protection, trap, spirit, genie, life
+
 ## Nature ##
 Nature, the earth, the land, the place where people belong and deeply connect to the seed of the universe.
 Forces for good, beauteous things, a good environment, mother instinct, healing the chaos of all the vioence and passion and weather from the past.
