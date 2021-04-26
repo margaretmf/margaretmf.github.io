@@ -81,6 +81,9 @@ Christian Science teaches that "we are all tributary to the same source", but th
 
 
 # Creative Writing #
+## Tennessee and Nashville ##
+Tennessee used to be the west, and the state of the frontier, not just the south.
+
 ## Bible Imagery ##
 My favorite imagery is the rose in the desert surrounded by drops of water.
 
