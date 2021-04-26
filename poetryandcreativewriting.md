@@ -2471,6 +2471,27 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Family ##
+A unviersal family with mothers and fathers, and children, and homes.
+All over the world, though people look different, there are common roots, common acnestry, yet distinct features on the tree of life.
+Everyone has a name reflecting who each indidivdual is.
+Names reflect values of tribes and clans.
+
+<br>
+
+Word Associations: tree, roots, ancestors, mother, father, children, home, name, tribe, clan
+
+## Treasure ##
+The treasures within acnient cultures that bring us closer to stories we can uncover to know ourselves better.
+The hunt is for the the true gold within the earth,
+the sweet suprise that lay buried for all to discover,
+the relics to uncover,
+the shifts in view that people can explain through maps.
+
+<br>
+
+Word Associations: gold, hunt, danger, map, relic, guard, legend, hidden, buried, pirate
+
 ## Struggle ##
 The struggle to break the chains and shackles of pain,
 constraint, and limitation.
