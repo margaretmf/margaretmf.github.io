@@ -233,6 +233,11 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * yellow // face
 * blue // heron
 * red-winged // black // birds
+* black // head
+* black // spots
+* golden // foot
+* blue // sky
+* purple-blue
 
 ### Adjectives ###
 * huge // old // tree
@@ -389,6 +394,31 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * bumpy // winds
 * smart // misle
 * predetermined // destination
+* old // tree
+* riverside // clay
+* library // books
+* bandaged // friends
+* peace // message
+* sphagnum // moss
+* awakening // birds
+* metal // plate
+* raccoon // scale
+* full // force
+* hacking // porch
+* good // observer
+* wrong // way
+* mill // house
+* first // flight
+* afternoon // shadows
+* telephone // pole
+* open // space
+* air // currents
+* rising // thermal
+* new // feathers
+* lowering // temperatures
+* healthy // offspring
+* migrating // birds
+* warm // bubble
 
 ### Vocabulary ###
 * Nurtured
@@ -471,6 +501,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Atlantic flyway
 * Migrating Route
 * Globality of Falconers
+* Thomas Paine
 
 ## Themes ##
 * "She must find one mountain amoung thousands, one hemlock tree among millions, and the one boy who called himself Sam Gribley. The one mountain was her territory; the one tree was Sam's house; the perch beside it, her place. And Sam Gribley was life."
@@ -499,6 +530,8 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "The one mountain among thousands of mountains, the one tree among millions of trees, and somewhere there, the one boy." (p. 62, Frightful's Mountain)
 
 * "Drawing herself up tall, she mapped the direction to the one mountain among thousands, the one tree among millions." (p. 92, Frightful's Mountain)
+
+* "She hunted from the cupola by day, and at night she flew back to the one mountain among hundreds, the one tree among millions, and Sam." (p. 220, Frightful's Mountain)
 
 ### Interesting Sentences or Paragraphs ###
 * "Sam had begged and pleaded with the man not to take her away, but he had pushed Sam aside and carried her down the mountain to a pickup trup." (p. 7, Frightful's Mountain)
@@ -554,6 +587,26 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "'Yeah, but we've got orders to repair every bridge in the state, big and little. Governor's decree. No exceptions. New policy since those people died when the hundred-year flod collapsed the Schoharie Bridge. Big political issue - safety.'" (p. 81, Frightful's Mountain)
 
 * "The cars that drove over the bridge trembled as if they were wind in the trees." (pp. 98-99, Frightful's Mountain)
+
+* "Sam talked on, feeling totally inadequate. Telling a falcon and a raccoon to be best friends was almost impossible." (p. 201, Frightful's Mountain)
+
+* "When you watch birds long enough, you see their differences. She's our bird, all right." (p. 205, Frightful's Mountain)
+
+* "Beating them hard, she skimmed forward but could not get off the ground. At the edge of the millpond she stopped and looked behind her. She had lost the bird." (p. 208, Frightful's Mountain)
+
+* "'As long as we're stuck here,' he said, 'you might as well learn something. I'll ready to you'" (p. 210, Frightful's Mountain)
+
+* "'With his first trip to France in 1781, a five-year period began in which Thomas Paine used his skills to work more openly on behalf ot the United States to insure that his liberal-republican ideals were implemented. (p. 210, Frightful's Mountain)
+
+He glanced at Mole. The dog's eyes were closed. 'We're on page one hundred thirty-one in Jack Fruchtman Jr.'s book called *Thomas Paine*,' he said" (p. 210 Frightful's Mountain)
+
+ * "She saw trees, boulders, the millpond, and high above them a bright glimpse of blue sky. The sky captivated her. She sensed she should be there. She flapped her wings. Nothing happened. The air was still. No wind gave her lift. She closed her wings to her body and flicked ehr tial in frustration. She needed to be in that sky." (p. 211, Frightful's Mountain)
+
+* "A flock fo starling swarmed past him, fanning out and coming back together. He found them interesting - they flew, they moved - they wre birds. They swooped into the bushes and vanished." (p. 217, Frightful's Mountain)
+
+* "Flocks of ducks and shorebirds had migrated down from the arctic." (p. 218, Frightful's Mountain)
+
+* "They soared with her out over the countryside, learning to catch rats, mice, and pigeons. They became expert vermin hunters until Blue Bill a cliff near the Pepacton Reservoir. Here thousands of migrating waterfowl came down to rest on the water. They were easy to catch, and when they moved on, he went with them. His early visual memory of life with Perry was forgotten. He followed the birds. He was not, after all, imprinted." (p. 221, Frightful's Mountain)
 
 
 ----------
