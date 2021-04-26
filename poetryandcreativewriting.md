@@ -1171,6 +1171,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the Holy Bible in the hotel room
 * Grateful for the man on the street and his name
 * Grateful for the ways different people on social media share nature and observations
+* Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
