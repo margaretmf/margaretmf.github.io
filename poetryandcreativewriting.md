@@ -2475,6 +2475,33 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Nature ##
+Nature, the earth, the land, the place where people belong and deeply connect to the seed of the universe.
+Forces for good, beauteous things, a good environment, mother instinct, healing the chaos of all the vioence and passion and weather from the past.
+
+<br>
+
+Word Associations: force, beuaty, instinct, violence, chaos, human, environment, passion, seed, weather
+
+## School ##
+The best place to learn, to develop habits of the mind, and to make new friends.
+There can be competition, segregation, and compulsory classes.
+It can be a palce for safety, a place for growth, a place for discipline with peers.
+
+<br>
+
+Word Associations: competition, segregate, safety, peers, growth, intelligence, lesson, discipline, compulsory, class
+
+## Reason ##
+A reason for everything.
+Revelation to why everything operates the way it does.
+It operates for order, it operates for justice, it operates for logic, it operates to minimize, subtract, and let go of error.
+Arguments, suspicions, excuses.
+
+<br>
+
+Word Associations: argument, suspect, revelation, instinct, justice, compel, logic, error, motive, excuse
+
 ## Family ##
 A unviersal family with mothers and fathers, and children, and homes.
 All over the world, though people look different, there are common roots, common acnestry, yet distinct features on the tree of life.
