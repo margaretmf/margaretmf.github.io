@@ -643,7 +643,7 @@ We create a part of the world and help the world create a better one
 ## Home ##
 This home of mine
 It's been here all along
-The ancestors have been calling down 
+The ancestors have been calling down, singing down from heaven
 Awakening from up above to what life is all about
 
 Circling around this place called home again
@@ -2469,6 +2469,25 @@ That I ne sholde wedded be but ones."
 
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
+
+## Struggle ##
+The struggle to break the chains and shackles of pain,
+constraint, and limitation.
+The adversity leads to higher views, and greater outlooks.
+The obstacles support achieving nobler goals.
+The perserverance supports winning.
+The hope to begin again is have the struggle.
+
+<br>
+
+Word Associations: adversity, obstacles, goal, perseverance, chains, shackles, growth, chance, pain, hope
+
+## Transportation ##
+From port to port across this large, moving world,
+everyone is on a journey,
+carrying freight, goods, and objects through ships trains, and trucks.
+The freedom to share cultures across the world, through traveling drivers, expressing freedom, loving those roots, and paying these tools.
+Life is a journey, America is the land free to shift its foundation from one that appreicates the colonized version of the world to one that appreciates the de-colonized version fo the world.
 
 ## History ##
 Across time and space, 
