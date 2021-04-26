@@ -912,6 +912,11 @@ They encourage people to feel untouched and walk through the fire
 ## Coins ##
 Today I found a handful of coins
 A handful of coins I found in the side of the car
+I threw them in the wishing well
+I made a wish for you
+I made a wish that you feel the love
+I made a wish that I can speak and sing
+I made a wish that
 
 I picked them up and held them in my hand for you and me
 You and me
@@ -2465,6 +2470,39 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## History ##
+Across time and space, 
+records stored, 
+lessons learned,
+empires built,
+mistakes made,
+folklore shared,
+maps used,
+globes loved,
+movement of humanity,
+life repeated,
+truth expressed,
+modernity created
+
+<br>
+
+Word Associations: maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
+
+## Voice ##
+Use your voice,
+Cherish the silence,
+Speak your truth,
+express your heart,
+articulate your opinion,
+narrate stories - your story and others' stories,
+echo another's,
+find the strength within
+get things off your chest
+
+<br>
+
+Word Associations: mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
+
 ## Water ##
 The deep, clear water thatn runneth through the earth and separates the country
 It flows through the earth from the ocean to the land
@@ -2556,7 +2594,7 @@ It's epic that an omniscient source of inteligence guides, and shapes the paths 
 Word Associations: fate, manifest, birth, epic, course, prophecy, shape, guide, tragic, seed
 
 ## Letter ##
-Your song is a secret letter speakig to the deepest darkness and lightest light of my heart
+Your song is a secret letter speaking to the deepest darkness and lightest light of my heart
 Your song is like a note in an evelope holding up a mirror to the ghost of the past and the truth of the Christ
 the intent is unknown, there's a cryptic healing for a cryptic pen from the past
 by law you help me, your will is good, it almost feels like it comes straight out of a book
