@@ -121,3 +121,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 * A religious service, especially a regular one, at which people gather in order to pray together
 * An earnest hope or wish
 
+## Depth: ##
+* The distance from the top or surface to the bottom of something
+* The quality of being intense or extreme
+
+
