@@ -9,6 +9,7 @@
 * Why do some feminists feel comfortable with sexuality and being called "babe" but other feminists do not? [Sexual Revolution, Intellectual Revolution - Gender Roles]
 * How does benevolent racism and benevolent sexism influence our lifes?
 * What does it mean to be a "knight in shining armor"? [Men's Roles]
+* A study on the Native Americans' influence, why street names and neighborhoods are named after them, and the specificities of all the tribes
 
 
 ----------
