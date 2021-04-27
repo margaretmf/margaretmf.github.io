@@ -20,6 +20,10 @@ Connecting you to the legacy of poetry, this journal helps you dive into writing
 
 In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
+
+## Singer-Songwriting ##
+Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound.
+
 ## There is some other writing at the bottom. ##
 
 
