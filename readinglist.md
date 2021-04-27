@@ -15,7 +15,6 @@ layout: default
 * [Traffic]() by tom vanderbilt
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 * [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
-* [A Most Beautiful Thing: The True story of America's First All-Black High School Rowing Team](https://www.amazon.com/Most-Beautiful-Thing-Americas-All-Black/dp/1250754771/ref=sr_1_2?dchild=1&keywords=a+most+beautiful+thing&qid=1619549425&sr=8-2) by Arshay Cooper
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
@@ -34,6 +33,7 @@ layout: default
 * [My Side of the Mountain](https://www.amazon.com/Side-Mountain-Puffin-Modern-Classics/dp/0142401110/ref=sr_1_1?dchild=1&keywords=my+side+of+the+mountain&qid=1619275206&sr=8-1) by Jean Craighead George
 * [On the Other Side of the Mountain](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_2?dchild=1&keywords=on+the+other+side+of+the+mountain&qid=1619275239&sr=8-2) by Jean Craighead George
 * [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1619275259&sr=8-1) by Jean Craighead George
+* [A Most Beautiful Thing: The True story of America's First All-Black High School Rowing Team](https://www.amazon.com/Most-Beautiful-Thing-Americas-All-Black/dp/1250754771/ref=sr_1_2?dchild=1&keywords=a+most+beautiful+thing&qid=1619549425&sr=8-2) by Arshay Cooper
 
 
 ## 2020
