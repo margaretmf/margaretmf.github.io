@@ -237,12 +237,16 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * black // spots
 * golden // foot
 * blue // sky
-* purple-blue
+* purple // mountains
+* dark brown // feathers
+* yellow // eyes
+* orange-red // sun
 
 ### Adjectives ###
 * huge // old // tree
 * rustic // bedstead
 * clay // fireplace
+* upright // birds
 * greatest // pleasure
 * excellent // hunter
 * big // hemlock tree
@@ -419,6 +423,12 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * healthy // offspring
 * migrating // birds
 * warm // bubble
+* ancient // hemlock
+* great // sadness
+* migratory // flyways
+* sudden // gust
+* dry // air
+* bird // club
 
 ### Vocabulary ###
 * Nurtured
