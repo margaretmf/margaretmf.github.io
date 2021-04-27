@@ -2475,6 +2475,25 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Smoke ##
+The smoke coming up from a truck captures my eyes.
+It's swirling and vaporous, and wispy.
+There's an interesting, curious smell, and it flows to the rooftop chimneys.
+An illusion, a mirror.
+
+<br>
+
+Word Associations: chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haze
+
+## Joy ##
+Nothing, no one can rob the joy within to be a giver, shareer, and seer of light.
+There's a feeling inside of the gratitude for people at convenience stores, gas stations, and shopping malls.
+The wish is to take another day to appreciate some form of beauty in the ocean, even if its fleeting and the buzz of nasty, angry fears and emotions that come back up.
+
+<br>
+
+Word Assocations: feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
+
 ## Heroism ##
 Everywhere lif is filled with heroism, 
 the desire to heal,
