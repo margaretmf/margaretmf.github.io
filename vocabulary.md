@@ -125,4 +125,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The distance from the top or surface to the bottom of something
 * The quality of being intense or extreme
 
+## Manifest: ##
+* To make clear or obvious to the eye or mind
+* To display or show (a quality or feeling) by one's acts or appearance; demonstrate
 
