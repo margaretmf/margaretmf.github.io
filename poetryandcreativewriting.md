@@ -543,6 +543,12 @@ Margaret
 
 
 # Poetry #
+## Coming Full Circle ##
+It all began like this.
+It's coming back home to restore not break.
+It's reminding you where you came from, not where you are going.
+It's showing you who you can become.
+
 ## Home ##
 A place deep within, deep within the family tree more broadly that shares the love of things that bring joy to everyone and all mankind,
 the safety that trusts one another with secrets and challenges, and that picks someone up when they fall,
