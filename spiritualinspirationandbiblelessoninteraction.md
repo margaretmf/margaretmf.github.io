@@ -1,5 +1,29 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## Week of April 27, 2021 - A Hymn, Hymn 39 - Inspiring Song ##
+"He that has God his guard'an made,
+Shall under the Almighty's shad
+Secure and undistirubed abide;
+
+His tender love and watchful care
+Shall free thee from the fowler's snare
+And from the noisome pestilence;
+Because with well-placed confidence
+Thou mak'st the Lord they sure defence,
+Thy refuge, even God most high;
+
+Thus to myself of Him I'll say,
+He is my fortress and my stay,
+My God, in whom I will confide.
+
+He over thee His wings shall spread,
+And cover thy unguarded heed;
+His truth shall be thy strong defence.
+
+Therefore no ill on thee shall come, 
+Nor to thy heav'n protected home
+Shall overwhelming plagues draw nigh."
+
 ## Week of March 8, 2021 - 'Substance' - Inspiring Passages ##
 
 * The Lord has done great things for us - praise the Lord for this
