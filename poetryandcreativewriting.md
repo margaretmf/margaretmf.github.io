@@ -2475,6 +2475,33 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Heroism ##
+Everywhere lif is filled with heroism, 
+the desire to heal,
+the bravery to do what's right when at a crossroads,
+the ability to be a superhuman when facing villains and tragedies,
+the slaying of demons in the face of adversity when seeing someone suffering
+
+<br>
+
+Word Associations: bravery, model, villain, fable, legend, superhuman, tragedy, slay, sandwhich, icon
+
+## Cherish ##
+The peace within I cherish
+the heartfelt love for another
+for a dear someone 
+a feeling of gratitude, and appreciation,
+a memory of something positive,
+protection from the harm done,
+a promise for somethign better to come to light,
+an inner treasure that's crystal clear and lasts forever,
+a hope for the best to play out,
+a care for the future and what's dearest to one's heart
+
+<br>
+
+Word Associations: love, dear, feeling, memory, protect, promise, treasure, forever, hope, care
+
 ## Sanity ##
 The sanity within to know what's real,a nd what's causing imbalance.
 The freedom from the joker, the ongoing question of who one is, the release from the chaos, the madness, the clinginess, the fear, the insanity unmasked and released to balance.
