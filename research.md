@@ -2298,6 +2298,10 @@ Nowadays, D.C. is no longer 'Chocolate City.' Mayor Muriel Bowser calls for 'a f
 
 
 ## [Robber Barons](https://mises.org/library/truth-about-robber-barons) ##
+* The Truth About the "Robber Barons"
+
+* "Free-market capitalism is a network of free and voluntary exchanges in which producers work, produce, and exchange their products for the products of others through prices voluntarily arrived at. State capitalism consists of one or more groups making use of the coercive apparatus of the government… for themselves by expropriating the production of others by force and violence."
+
 
 ## [Robber Barons](https://en.wikipedia.org/wiki/Robber_baron) ##
 
