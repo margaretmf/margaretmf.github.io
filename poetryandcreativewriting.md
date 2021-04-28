@@ -1208,6 +1208,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
 * Grateful for the sign "Today is a nice day"
 * Grateful for the Spanish signs
+* Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
