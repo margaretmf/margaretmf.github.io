@@ -928,14 +928,19 @@ They confuse
 They challenge thought to look at culture from different angles
 They encourage people to feel untouched and walk through the fire
 
+## The Sea ##
+Today I filled a bottle with water and bubbles
+I tossed it into the sea
+I tossed the bottle with bubbles coming up and water spewing out and message for someone in the sea to receive
+
 ## Coins ##
 Today I found a handful of coins
 A handful of coins I found in the side of the car
+
 I threw them in the wishing well
 I made a wish for you
 I made a wish that you feel the love
 I made a wish that I can speak and sing
-I made a wish that
 
 I picked them up and held them in my hand for you and me
 You and me
