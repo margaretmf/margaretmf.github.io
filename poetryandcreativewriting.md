@@ -553,6 +553,16 @@ Margaret
 
 
 # Poetry #
+## Nostalgia ##
+A sense of childlike innocence, of home, a childhood memory that remains pure and unexlored.
+A longing for a purity within that belongs to people.
+A positive aspect of the world that lasts throughout time.
+A vintage piece of something that losts throughout time.
+
+<br>
+
+Word Associations: innocence, home, childhood, memory, lost, sense, longing, vintage, haunt, time
+
 ## Coming Full Circle ##
 It all began like this.
 It's coming back home to restore not break.
