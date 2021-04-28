@@ -129,3 +129,6 @@ Something exists in consciousness. The image in mind has not been consciously co
 * To make clear or obvious to the eye or mind
 * To display or show (a quality or feeling) by one's acts or appearance; demonstrate
 
+## Music: ##
+* Vocal or instrumental sounds (or both) combined in such a way as to produce beauty of form, harmony, and expression of emotion
+* The written or printed signs representing vocal or instrumental sound
