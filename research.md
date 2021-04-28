@@ -10,6 +10,7 @@
 * How does benevolent racism and benevolent sexism influence our lifes?
 * What does it mean to be a "knight in shining armor"? [Men's Roles]
 * A study on the Native Americans' influence, why street names and neighborhoods are named after them, and the specificities of all the tribes
+* Change in America
 
 
 ----------
