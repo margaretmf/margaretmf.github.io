@@ -1,6 +1,55 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
-## Week of April 27, 2021 - A Hymn, Hymn 39 - Inspiring Song ##
+## April 29, 2021 - Another Favorite Hymn, The Story ##
+I love to tell the story of unseen things above:
+of Jesus and his glory, of Jesus and his love.
+I love to tell the story, because I know ’tis true.
+It satisfies my longings as nothing else could do.
+
+I love to tell the story,
+’twill be my theme in glory,
+to tell the old, old story
+of Jesus and his love.
+
+I love to tell the story. ’Tis pleasant to repeat
+what seems, each time I tell it, more wonderfully sweet.
+I love to tell the story, for some have never heard
+the message of salvation from God’s own holy word. [
+
+I love to tell the story, for those who know it best
+seem hungering and thirsting to hear it, like the rest.
+And when, in scenes of glory, I sing the new, new song,
+’twill be the old, old story that I have loved so long. 
+
+## April 29, 2021 - A Favorite Hymn, Homes United, Mission Hymn ##
+"A glorious day is dawning,
+And o’er the waking earth
+The heralds of the morning
+Are springing into birth.
+In dark and hidden places
+There shines the blessed light;
+The beam of Truth displaces
+The darkness of the night.
+
+The advocates of error
+Foresee the glorious morn,
+And hear in shrinking terror,
+The watchword of reform:
+It rings from hill and valley,
+It breaks oppression’s chain.
+A thousand freemen rally,
+And swell the mighty strain.
+
+The watchword has been spoken,
+The light has broken forth,
+Far shines the blessed token
+Upon the startled earth.
+To hearts and homes benighted
+The blessed Truth is given,
+And peace and love, united,
+Point upward unto heaven."
+
+## April 27, 2021 - A Hymn, Hymn 39 - Inspiring Song ##
 "He that has God his guard'an made,
 Shall under the Almighty's shad
 Secure and undistirubed abide;
