@@ -1226,6 +1226,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for cheerfulness of the Construction workers
 * Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
 * Grateful for the Spanish music on the radio
+* Grateful for power lines
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2526,6 +2527,15 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Resolution ##
+The resolution to shift a thought, and change a habit.
+The unanimous decision to withdraw from something.
+The vote to affirm an idea.
+
+<br>
+
+Word Associations: meditation, image, scan, telescope, decision, unanimous, affirm, withdraw, war, vote
+
 ## Bully ##
 A bystander of the bribign, the taunting, the tormet, leading to an imablance.
 A target of rage, unkind behavior mixed messages.
@@ -2574,7 +2584,7 @@ The wish is to take another day to appreciate some form of beauty in the ocean, 
 Word Assocations: feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
 
 ## Heroism ##
-Everywhere lif is filled with heroism, 
+Everywhere life is filled with heroism, 
 the desire to heal,
 the bravery to do what's right when at a crossroads,
 the ability to be a superhuman when facing villains and tragedies,
