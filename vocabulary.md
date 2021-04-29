@@ -132,3 +132,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Music: ##
 * Vocal or instrumental sounds (or both) combined in such a way as to produce beauty of form, harmony, and expression of emotion
 * The written or printed signs representing vocal or instrumental sound
+
+## Demonstration: #
+* The action or process of showing the existence or truth of something by giving proof or evidence
+* A practical exhibition and explanation of how something works or is performed
+
