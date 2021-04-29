@@ -15,6 +15,7 @@ layout: default
 * [Traffic]() by tom vanderbilt
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 * [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
+* [American Gospel: God, the Founding Fathers, and the Making of a Nation]() by Jon Meacham
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
