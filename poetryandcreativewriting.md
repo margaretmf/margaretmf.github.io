@@ -1227,6 +1227,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
 * Grateful for the Spanish music on the radio
 * Grateful for power lines
+* Grateful for the man sitting outside the Post Office
+* Grateful for the man sitting outside his home on runs when in Downtown
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2547,7 +2549,7 @@ The vote to affirm an idea.
 Word Associations: meditation, image, scan, telescope, decision, unanimous, affirm, withdraw, war, vote
 
 ## Bully ##
-A bystander of the bribign, the taunting, the tormet, leading to an imablance.
+A bystander of the bribing, the taunting, the torment, leading to an imablance.
 A target of rage, unkind behavior mixed messages.
 A tyrant lashing out, making life difficult for others.
 The failure to bring out a full child in school with security.
