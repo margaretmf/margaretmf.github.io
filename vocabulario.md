@@ -41,3 +41,6 @@ This is a page to share words that speak to me intuitively throughout the day an
 
 ## Encender: ##
 * To ignite, set on fire
+
+## La Seguridad (f) (noun, sustantivo): ##
+* Security
