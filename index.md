@@ -17,11 +17,13 @@ Every day I seek to learn something new to stay alive. It's amazing how all huma
 
 I have done and said dumb things, retaliated, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. I am also exploring how to sketch.
 
-Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office and the Fed Ex Building keeps people vivacious, humble, and singing inside.
+Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
-I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures.
+I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. Actualment, estudiando la versión del biblio.
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
+
+I am interested in how movements start from the ground-up.
 
 I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature in an imaginative way.
 
