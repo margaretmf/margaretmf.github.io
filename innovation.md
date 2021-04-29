@@ -1074,6 +1074,21 @@ is_contact: true
 (4) Geese sounds
 (5) Squeaking of a swing
 
+## **Day 70** ##
+## **Images** ##
+(1) Pen touching paper 
+(2) Cars standing in line
+(3) People sitting in cars listening to music
+(4) Yellow leaves on the ground
+(5) Bubbles in water in waterbottles
+
+## **Sounds** ##
+(1) The cutting of food
+(2) The oven heating
+(3) Cars driving by outside the window
+(4) The washer machine running
+(5) Little kids yelling outside
+
 
 <br>
 
