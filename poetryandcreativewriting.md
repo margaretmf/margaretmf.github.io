@@ -2529,6 +2529,31 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Lines ##
+The lines on the road that guard, draw boundaries, and protect.
+The markings, clear.
+They support the commute.
+Figures and shapes directing the traffic.
+Colors and signs communicating the rules.
+The borders provide a rule for whether to continue in line or stop.
+The lines and shapes draw a dimension around a geography of movement for people.
+
+<br>
+
+Word Associations: mark, continue, dimension, commute, figure, geography, rope, communication, border, ancestor
+
+## Connection ##
+A connection through the spirit, through God
+that supports the divine interconnectedness, the whole family
+Everyone is part of a network that enfolds, unfolds, and deepens
+What strikes a nerve with one or even sever another nerve
+The transition of ideas, the movement from one stage to another stage
+The plumbing that supports a massive consciousness cleaning and shifting
+
+<br>
+
+Word Associations: brain, nerve, network, transit, mafia, plumbing, family, blood, sever, tie
+
 ## Power ##
 The power within moving through the currents spreading through the lives that light up the world on a daily basis.
 The force of energy transmuting with strength all of the homes and buildings.
