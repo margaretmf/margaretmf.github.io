@@ -21,6 +21,20 @@ Connecting you to the legacy of poetry, this journal helps you dive into writing
 In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
 
+## Currently, revising this piece of writing and learning to self-actualize what it means. ##
+## The American Chain [Written in 2010] ##
+"As a child, I grew up singing 'I am proud to be an American' like many of my peers. I never knew what it meant to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for how we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are'. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
+
+A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Obama began his speech the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason stood in a tight place, for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
+
+I had a similar experience in October 2008 when I went to another Barack Obama rally at the Tides' Stadium one week before the election. This event strengthened my love of being present in a community of Americans. Everyone had to behave and work together in the thirty degree weather to make the rally successful. Once again, each person I saw expressed friendliness and happiness. People stood in line patiently for hours before entering the stadium. Friends and neighbors helped each other when rushing through security. Volunteers gave their time to guide people to open seats.
+
+Finally, in January 2009, on the Inaugaration Day, although I was not there, I watched the big event on television. As I watched the millions of people there, I could feel the presence of a true society. That day was truly a day full of nonpartisanship and support for America from everyone. Everyone supported Barack Obama on this day, a day of uniting America together. I not only truly felt like an American on that special day, but I also loved being an American. I wanted to make a difference for my country.
+
+Throughout Obama's campaign and these three events, because I have grown love my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the "Homework Help" program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
+
+Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop" (577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people."
+
 ## Singer-Songwriting ##
 Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound.
 
@@ -812,7 +826,7 @@ I see the light in you
 I know who you are down deep
 
 ## Truth or Dare ##
-So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
+So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I loved how she was an education and church reformer and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
 
 Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
 I felt like... 
@@ -1209,6 +1223,9 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the sign "Today is a nice day"
 * Grateful for the Spanish signs
 * Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
+* Grateful for cheerfulness of the Construction workers
+* Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
+* Grateful for the Spanish music on the radio
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
