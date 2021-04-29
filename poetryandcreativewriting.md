@@ -182,7 +182,7 @@ I also remember listening to the song "Memphis Soul Song". There's an angel on o
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
-## ##
+## EVERFI, Book ##
 With EVERFI, to commit to the team, I remember appreciating the opportunity work with an older male in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business.
 
 ## First Impressions, and Expressions ##
@@ -191,6 +191,9 @@ People warn, "you can't judge a book by its cover."
 The full expression is there, and the intuition is given to draw out the entire expression.
 The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
 Second looks, second glances, diving deeper to see the fuller picture, and the details are really what she loves.
+
+## Engineering, A Career of Singing ##
+The work of engineering, a career of singing, and nature, and where the constructions of mankind meet nature.
 
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
@@ -568,6 +571,30 @@ Margaret
 
 ----------
 
+
+## America ##
+America is a story of belief.
+America is a story of overcoming.
+America is a story of team spirit.
+America is a story of family.
+America is a story of repentance and reformation.
+America is a story of change.
+America is a story of freedom.
+
+## Coming around the Bend ##
+Coming around the bend, returning home to where you belong.
+
+## Books ##
+I am grateful for books. I love books. I love hearing the voices of people in books.
+Books support democracy.
+Books create value.
+Books support learning something new each day.
+Books empower people to express through words.
+Books help people share feelings on the other side of the world.
+Books help people understand what they cannot understand.
+
+## In God We Trust ##
+In God we trust, each day, in all of our business activites. It's amazing that people in the business world have faith and know God. It's on the dollar bill.
 
 ## Martin Luther King, Jr. Event ##
 In Washington, DC, I attended the event at the Chapel with Martin Luther King, Jr. III. He encouraged people to walk outside their bubbles and meet new people to learn from their perspectives. Since then, I met someone who encouraged me to learn about Malcolm X, the Arabs, and the Spanish ancestry. I met someone in Norfolk, and I met some other people. I have learned about their individuality, and unique perspectives and strengths. I also restarted a friendship with someone from high school. In school, it can feel like people limit people from reaching out of their bubbles to meet new people, but in the real world, it's helpful that people encourage people to learn from other walks of life.
@@ -1238,6 +1265,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for power lines
 * Grateful for the man sitting outside the Post Office
 * Grateful for the man sitting outside his home on runs when in Downtown
+* Grateful for the light in the darkness at the candlelight choral concert
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
