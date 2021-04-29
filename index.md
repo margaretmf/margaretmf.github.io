@@ -19,7 +19,7 @@ I have done and said dumb things, retaliated, and shifted from being a rule-foll
 
 Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
-I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. Actualment, estudiando la versión del biblio.
+I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. Actualmente, estudiando la versión del biblio en español.
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
 
