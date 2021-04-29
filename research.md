@@ -4,6 +4,8 @@
 * A study on Shays' Rebellion in relationship to the Trump Election
 * A study on Cultures that Influence and Shape Engineering
 * A study on the Dark Web
+* A study on Harassment - why do people harass people? men, women, women men; What's the boundary between teasing, flirting, harassment
+* A study on the boundaries on the internet; the relationship between the boundaries on the internet and the boundaries on the road - the Internet Highway
 
 
 ----------
