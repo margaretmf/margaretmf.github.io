@@ -1702,6 +1702,53 @@ I view the actions of the male as absolutely predatory. You can't assume consent
 At face value, someone had sex with someone without asking or talking about it. My wife made no advancements to the man and is not flirtatious at all. I have no idea how this will pan out in court. Its been months and the investigation is still ongoing I take it, but we have not had any word from our lawyer or otherwise. I figure that the defense will focus on the fact that she was having sex with the woman, and that seemed consensual so the rest must have been. Only over the following days did my wife understand what happened to her, and stopped blaming herself for every part of it. At the time she wanted less to stop the 'fun' and 'games' than she didnt want the people to do what they were doing, even if it involved her.
 Events took place in alaska."
 
+## [Truth or Dare: How to Protect Your Privacy from Predators](https://www.psychologytoday.com/us/blog/why-bad-looks-good/201704/truth-or-dare-how-protect-your-privacy-predators) ##
+"As we enter April — Sexual Assault Awareness Month — we affirm our commitment to preparedness, not paranoia. This includes an awareness of the strategies sexual predators use to infiltrate the lives of prospective victims, both on and offline. 
+
+We begin with the caveat that most people you encounter are safe. For every predator lurking in a crowd looking for a potential victim to approach, there are scores of law-abiding, helpful citizens ready to sound the alarm and rush to assist if they witness anyone in danger. I have summoned countless good Samaritans to the witness stand to recount their sharp-eyed observations prior to a sexual assault. 
+
+Yet because the ultimate goal is not prosecution but prevention, proactive awareness includes a working knowledge of the methods predators use to infiltrate the lives of their victims. And the reality is that the most dangerous people are often people we already know.
+
+Truth or Dare: A Lose-Lose Proposition
+
+Remember the rules of Truth or Dare? It is hard to call it a “game,” because there is no way to win: You either disclose personal (often embarrassing) information or engage in reckless behavior you usually regret. Sexual predators target individuals who are willing to play.
+
+In this column, we examine how choosing “Truth” by agreeing to reveal secrets, or proactive over-sharing, can result in dangerous disclosures.
+
+The Truth Will Not Set You Free, but It Could Set You Up for Victimization
+
+When interacting with manipulators, the truth will not “set you free,” but it could subject you to potential victimization. Yet many people routinely over-share, especially online. Disclosing details of emotional trauma, medical conditions, relational difficulties, or, worse, private facts about your children can endanger the personal safety of you and your loved ones.
+
+As we have seen far too often, malicious use of private information facilitates everything from identity theft to extortion. Over-sharing is unwise, even with people you trust, and potentially disastrous with those you don't trust — or shouldn't.
+
+Here is the frightening thing: Even when you do not intentionally reveal personal information, experienced manipulators are masterful at provoking unintended admissions. They are able to solicit private facts during polite conversation before you even realize how much you have disclosed. This dynamic is particularly potent online, where research reveals that people are predisposed to self-disclose more quickly than in person.
+
+Transparency Prompts Reciprocity
+
+Some people are open books, over-sharing personal details from the start. Most people who routinely provide too much information are harmless. A few are not, but those few constitute a dangerous minority, because (perceived) transparency prompts reciprocity. Recognizing that you cannot always judge a book by its cover, consider the possibility, before you reciprocate a new acquaintance's self-disclosure, that what you assume to be authentic autobiography may, in fact, be fiction. 
+
+Long gone is the “strangers on a train” phenomenon — in which people feel comfortable sharing intimate details with a stranger they do not expect to see again.[1] Today, when you meet someone new, you can expect to be tagged, friended, and followed almost immediately after the conversation is over. And that selfie you took with your seatmate? Posted on Instagram for all to see — with both of your names and your current location.
+
+Online Reciprocity: The Open Nook[2]
+
+Transparency prompts reciprocity online as well, where, ironically, strangers are called “fans,” “friends,” and “connections.” Virtual acquaintances often become familiar quickly based on frequency of contact, even when they have never met in person. This superficial familiarity can lead to heightened self-disclosure — which many people already find easier online, given the relative anonymity of cyberspace.[3]
+
+In fact, research shows that people report liking others more after interacting with them online, and feel they know them better, than when they meet in person.[4] These feelings often fuel a desire to move an online relationship offline.[5]
+
+Online Show and Tell
+
+Another way sexual predators learn private information about prospective victims is through online "show and tell." Many people overshare on social media — both visually and verbally. Studies demonstrate that extraverts are particularly likely to go overboard, as they are more likely than introverts to upload photos and to update their status more frequently, and to display more friends on their Facebook wall.[6] Extraverts also “Like,” “Share,” and “Comment” on the News Feed more frequently less outgoing peers.[7]
+
+Exploiting the Selfie
+
+Selfies are another common way of showcasing ourselves online truthfully — through posting real photos taken in different contexts. Research indicates that motivations for posting selfies on social networking sites include communication, attention seeking, archiving, and entertainment.[8]
+
+Predators capitalize on the fact that selfies are often posted in pursuit of attention — which they are more than willing to provide — all for the wrong reasons. Because selfies reveal values and interests, online reaction provides validation through affirming self-worth.[9] Selfies thus provide a method of self-promotion through impression management.[10]
+
+Manipulators also, however, exploit the reality that selfies provide a direct route to relationship building. Selfies stimulate relationships by sparking online dialog, such as through replies to comments about one's photo postings.[11] Manipulators can then use an individual's truthful information to build a relationship designed to eventually facilitate sexual exploitation.
+
+The bottom line is to use caution when revealing truthful information. Do not overshare, think before you tweet, and when in doubt, leave it out."
+
 
 ----------
 
