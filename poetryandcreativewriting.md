@@ -283,7 +283,7 @@ My family ventured out to the beach for the 4th of July. Young girls played in t
 In bed, I love to journal, and do my best thinking. In bed, I find the comfort of the squishy mattress, and the soft sheets. I love the feel of my head on the pillow in the dark, while writing in the journal. While writing, the sun shines through the window, and I can hear the geese calls.
 
 ## Write about someone, living or dead, who you would you like to have back in your life. ##
-I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, amke decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibrancy in the world. Every voice is vital in the light, and every life is vital in the light.
+I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, make decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibrancy in the world. Every voice is vital in the light, and every life is vital in the light.
 
 ## If you had the opportunity to write as a career, what would you write? ##
 In a career, I would love to write a book about unity and oneness, and the power of the people. I would also love to write music. In a writing career, I would love to take the emphasis off of self and put the emphasis on Soul. I love the work she is showing on social media.
@@ -565,6 +565,12 @@ Margaret
 
 ----------
 
+
+## Martin Luther King, Jr. Event ##
+In Washington, DC, I attended the event at the Chapel with Martin Luther King, Jr. III. He encouraged people to walk outside their bubbles and meet new people to learn from their perspectives. Since then, I met someone who encouraged me to learn about Malcolm X, the Arabs, and the Spanish ancestry. I met someone in Norfolk, and I met some other people. I have learned about their individuality, and unique perspectives and strengths. I also restarted a friendship with someone from high school. In school, it can feel like people limit people from reaching out of their bubbles to meet new people, but in the real world, it's helpful that people encourage people to learn from other walks of life.
+
+## The Trucks and the Industry ##
+In Norfolk, during the pandemic, after stumbling and falling, I remember tuning into the port scenery. As a child, I remember growing up loving the industrial scenery, and I am increasingly grateful for it.
 
 # Poetry #
 ## Nostalgia ##
