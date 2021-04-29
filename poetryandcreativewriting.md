@@ -2566,6 +2566,35 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Faith ##
+The belief in something outside of oneself or within oneself motivating someone to live another day.
+The ability to trust one's intuition, interests, and nudgings.
+THe faith in the inner truth, the miraculous ways God unfolds religion.
+The love of God, and letting go of sin that supports waking up, and walking forward, and leaping with joy with trust in another day.
+
+<br>
+
+Word Associations: question, sin, God, belief, truth, miracle, religion, doubt, trust, leap
+
+## Space ##
+The flight to outer space,
+the movement to a new time and sphere.
+The journey to the infinite vastne
+
+<br>
+
+Word Associations: time, sphere, star, air, void, infinite, empty, open, curtain, gravity
+
+## Touch ##
+The touch of a stranger who turns a life around in a different direction.
+The feeling of something familair, and close to heart.
+The sense of good hugging someone.
+The power within to transform and be effected by heartfelt notions.
+
+<br>
+
+Word Associations: feel, glove, bare, sense, contact, distrub, land, effect, power, manipulate
+
 ## Lines ##
 The lines on the road that guard, draw boundaries, and protect.
 The markings, clear.
