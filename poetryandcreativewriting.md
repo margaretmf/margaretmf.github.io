@@ -208,6 +208,7 @@ Margaret
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
 * "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
 * [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
+* "One Voice" by The Wailin' Jennys
 
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
@@ -220,8 +221,11 @@ I also remember listening to the song "Memphis Soul Song". There's an angel on o
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
+## A Spanish Lense ##
+It brings an interesting feeling, a new perception, a beautiufl insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
+
 ## EVERFI, Book ##
-With EVERFI, to commit to the team, I remember appreciating the opportunity work with an older male in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business.
+With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older male in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business.
 
 ## First Impressions, and Expressions ##
 First impressions, they don't capture the whole story.
