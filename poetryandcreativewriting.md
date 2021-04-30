@@ -1266,6 +1266,9 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the man sitting outside the Post Office
 * Grateful for the man sitting outside his home on runs when in Downtown
 * Grateful for the light in the darkness at the candlelight choral concert
+* Grateful for the woman working at CVS
+* Grateful for the woman working at the coffee shop
+* Grateful for the chiming of the bells outside
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
