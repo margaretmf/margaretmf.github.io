@@ -36,10 +36,10 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Claro: ##
 * Sure
 
-## Ayuda: ##
+## Ayuda (verb, verbo): ##
 * Help
 
-## Encender: ##
+## Encender (verb, verbo): ##
 * To ignite, set on fire
 
 ## La Seguridad (f) (noun, sustantivo): ##
@@ -47,4 +47,7 @@ This is a page to share words that speak to me intuitively throughout the day an
 
 ## La Soledad (f) (noun, sustantivo): ##
 * Loneliness
+
+## Aprender (verb, verbo): ##
+* To learn
 
