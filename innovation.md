@@ -1089,6 +1089,24 @@ is_contact: true
 (4) The washer machine running
 (5) Little kids yelling outside
 
+## **Day 71** ##
+## **Images** ##
+(1) Coins at the laundromat
+(2) Industry scenery
+(3) Playgrounds
+(4) White and red home in the Virginia country
+(5) Red truck on the road
+(6) Red signals on a truck
+(7) Four yellow buses
+(8) A dual language church
+
+## **Sounds** ##
+(1) A conversation in Spanish
+(2) Country music on the road
+(3) The air conditioning
+(4) A song on the radio about a woman standing on her own two feet
+(5) The keyboard clicks
+
 
 <br>
 
