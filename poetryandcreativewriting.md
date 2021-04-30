@@ -119,6 +119,9 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 # Creative Writing #
+## The Purpose of Studying History ##
+The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
+
 ## Do you have hope? ##
 Today after breaking down and losing trust in myself because everything swirling around, a therapist asked if I have hope. Do I have a reason to be hopeful and to hope? I didn't know. I shared that I had hope in everyone around me and the hope in the next generation, but I did not have hope in myself.
 
@@ -133,6 +136,9 @@ My favorite imagery is the rose in the desert surrounded by drops of water.
 
 ## Spiritual Imagery ##
 My favorite imagery are a flower with water droplets, green weeds, and a flower with snow on it.
+
+## Trucks and Cargo Colors ##
+Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green
 
 ## Perspective, Stories, the South ##
 Around the south, there are so many individual perspectives. 
@@ -149,6 +155,8 @@ Songs can help people recall people, events, ideas, knowledge in different ways 
 
 Isn't it cool that so many people grew up in the Southern United States and share common experiences but also have different meanings associated based on the time in which they were born, the state in which they were born, and the stories their ancestors shared.
 
+South is also South America, Mexico.
+
 ## Professionalization ##
 The world will try to define you.
 People will try to box you in.
@@ -158,6 +166,16 @@ A liberal education expands, and broadens, and helps people explore, and move ou
 Anyone can learn something new. Anyone can try something out.
 People can work across disciplines, departments, try new things.
 The democratization of Life, Liberty, Happiness, and Education.
+
+## Bridges ##
+I just drove across another bridge today in Virginia, outside of Isle Wight County.
+I braced myself. 
+Not being afraid of the cars driving by. 
+Trusting in God. 
+Appreciating the water on the side. 
+Driving at the speed of traffic, in line with everyone else.
+Sitting the right distance behind the car in front.
+Being an everyday common citizen on the road, part of the E Pluribus Unum.
 
 ## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
 Music + Chai Tea = Love + Joy
@@ -211,6 +229,9 @@ People warn, "you can't judge a book by its cover."
 The full expression is there, and the intuition is given to draw out the entire expression.
 The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
 Second looks, second glances, diving deeper to see the fuller picture, and the details are really what she loves.
+
+## The Same Thing through the Spirit, Different Forms ##
+Doing the same thing throught he spirit in a different form.
 
 ## Engineering, A Career of Singing ##
 The work of engineering, a career of singing, and nature, and where the constructions of mankind meet nature.
