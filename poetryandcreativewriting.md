@@ -3,13 +3,15 @@ layout: default
 is_contact: true
 ---
 
-## I was grateful in high school for an English teacher in high school who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
+## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. ##
 
 ## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. I am continuing this journey of writing music and setting poetry to music. ##
 
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
+
+## Through a career, I hope to work as a liberal engineer, bringing together culture, social sciences, history, literature, and engineering. I also hope to explore teaching students at the elementary, high school, or college levels. ##
 
 ## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
 
