@@ -1069,6 +1069,7 @@ Those backhanded complements
 Those snarky, side comments
 Those spiteful poems
 Those hateful emails
+Those vengeful comments
 Those cuss words
 Those notes in the jouranl
 Those rejection emails
@@ -1079,6 +1080,7 @@ They degrade
 They confuse
 They challenge thought to look at culture from different angles
 They encourage people to feel untouched and walk through the fire
+They exist on the dark web, in the deep corners of the universe, in the places where our hearts are most sensitive
 
 ## The Sea ##
 Today I filled a bottle with water and bubbles
@@ -2593,7 +2595,7 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 # Precis #
 In her internet journal entitled 'Teaching Mark Twain's Adventures of Huckleberry Finn published in July of 1995, Shelley Fisher Fishkin argues that students should study the novel because it can make a difference in addressing the issues of racism. By making opinions and providing examples for them, she develops her argument. Fishkin describes the difference the novel can make when taught correctly in order to make the novel have a bigger impact. She encourages educators to teach the irony and satire Tain uses through a serious and urging tone.
 
-Gregory Roberts, the writer of the internet journal, "'Huck Finn' a msterpiece - or an insul', published on November 26, 3003, suggests the importance of teaching *The Adventures of Huckleberry Finn* in high schools. He makes this suggestion clear by providing research and quotes from other sources. He presents research from both sides of the argument in order to give the correct view of the issue. Roberts uses a formal tone as he presents information to the general public.
+Gregory Roberts, the writer of the internet journal, "'Huck Finn' a masterpiece - or an insult', published on November 26, 3003, suggests the importance of teaching *The Adventures of Huckleberry Finn* in high schools. He makes this suggestion clear by providing research and quotes from other sources. He presents research from both sides of the argument in order to give the correct view of the issue. Roberts uses a formal tone as he presents information to the general public.
 
 Eugenia Harris asserts that *The Adventures of Huckleberry Finn* teaches us about American culture and we should thus continue to teach it in internet article "'Huck Finn' still pushes buttons, professor says', pbulished on September 26, 2000. Harris develops her assertion trhough using research and arguing against the opinions of others. She explains that books that have challenging content cause discussion and allow people to grow up in order to persuade readers of the importance of reading *The Adventures of Huckleberry Finn*. Using a critical and assertive tone, Harris intends to convince the general public the importance of teaching the novel.
 
