@@ -8,14 +8,10 @@ layout: default
 
 <img class="profile-picture" src="me.jpg">
 
-## Short Biography ##
-I am **Margaret Furr**, and a graduate of the University of Virginia. 
+## Short Biography, **La Biografía** ##
+I am **Margaret Furr**, and a graduate of the University of Virginia. **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia.**
 
-[Me llamo Margarita, and estoy una graduada de la Universidad de Virginia.]
-
-The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me.
-
-[Los valores que Thomas Jefferson y otros descrubridores...dividir]
+The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.
 
 Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good." It's also great to cultivate latent talents and play around like little kids and amateurs.
 
@@ -53,6 +49,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 * Daily, I work to listen to the needs of others.
 * Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
 * Daily, I work to appreciate my family.
+* Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
