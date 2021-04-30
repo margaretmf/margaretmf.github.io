@@ -3,7 +3,8 @@
 The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain", "The Call of the Wild", "On the Far Side of the Mountain", and "Out of the Dust".
 
 Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
-Children's books on a list include: "Chasing Vermeer", "A Dog's Life", "Elijah of Buxton", "Freak the Mighty", "George", "Gregor the Overlander", "Missing May", "My Brother Sam is Dead", "A Night Divided", "Rules", "Save Me a Seat", "A Snicker of Magic", and "Esperanza Rising".
+
+Children's books on a list include: "Chasing Vermeer", "A Dog's Life", "Elijah of Buxton", "Freak the Mighty", "George", "Gregor the Overlander", "Missing May", "My Brother Sam is Dead", "A Night Divided", "Rules", "Save Me a Seat", "A Snicker of Magic", "Esperanza Rising", and "Witness".
 
 
 # Critical Reading #
