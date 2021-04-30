@@ -1155,6 +1155,15 @@ African music, African land, Cairo
 * Teatime, Tea
 * Rose blooming in a heart, rose blooming in the dirt
 * All of mankind smiling, the face of the most high God
+* Mondays, the best day of the world, the fresh start, the active morning, a new beginning, a return to work
+* Saturdays, laying around, drinking tea, enjoying the low key atmosphere, vibe
+* Other people feeling the same thing on the other side of the world
+* Coins Tossing
+* Wishing Well
+* Ocean
+* Regrets
+* Colors
+* Systems, Universe, Humanity
 
 
 <br>
