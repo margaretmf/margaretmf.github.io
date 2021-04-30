@@ -9,17 +9,25 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography ##
-I am **Margaret Furr**, and I am a graduate of the University of Virginia. 
+I am **Margaret Furr**, and a graduate of the University of Virginia. 
+
+[Me llamo Margarita, and estoy una graduada de la Universidad de Virginia.]
 
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me.
 
+[Los valores que Thomas Jefferson y otros descrubridores...dividir]
+
 Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good." It's also great to cultivate latent talents and play around like little kids and amateurs.
 
-I have done and said dumb things, retaliated, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. I am also exploring how to sketch.
+I have done and said dumb things, retaliated, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. 
+
+I am exploring how to sketch to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
 Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
-I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. Actualmente, estudiando la versión del biblio en español.
+I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. 
+
+Actualmente, estudiando la versión del biblio en español. Estoy revitalizando una apreciación por el idioma muy bonito.
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
 
