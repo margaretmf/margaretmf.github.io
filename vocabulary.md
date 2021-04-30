@@ -137,3 +137,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The action or process of showing the existence or truth of something by giving proof or evidence
 * A practical exhibition and explanation of how something works or is performed
 
+## Equality: #
+* The state of being equal, especially in status, rights, and opportunities
+* A symbolic expression of the fact that two quantities are equal; an equation
+
