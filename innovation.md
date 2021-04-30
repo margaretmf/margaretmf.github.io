@@ -1184,7 +1184,14 @@ African music, African land, Cairo
 * EVERFI
 * The Assemblage
 
-
+## Children's Books Ideas ##
+* Mountains, Eage, love moves mountains, seeing neighbor across countries, international languages, oneness, countries moving together, compassion, spectrum
+* Stars, symphony, universe, shining, music, child of the universe, spheres
+* Kalaidoscope, time travel, place, shifts, compass
+* Word structure, tree, grammar
+* Hiding, opposites, sunshine, shadow
+* Building a house, gratitude, different roles, foundation strong, working together, all works together for good
+* Mountains, rainbow, tapestry, valley
 <br>
 
 <br>
