@@ -76,6 +76,26 @@ I love learning about interconnectedness, and how we are all connecting each oth
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
 
+## What do I believe in? ##
+I believe in the next generation of humanity and all that they can learn each day and all that they can contribute.
+I believe in every individual as individual.
+I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
+
+----------
+
+
+## Relationship to Art ##
+* Learned about history through a song
+
+## Relationship to Nature ##
+* Threw away a piece of trash that I saw on the ground outside of Starbucks, a steward of the earth
+
+## Relationship to Spirituality ##
+* Appreciated the architecture of all the churches in the community
+
+## Relationship to Individual and Society ##
+* Started learning a new language more deeply that part of the country speaks
+
 
 ----------
 
@@ -572,6 +592,16 @@ Margaret
 ----------
 
 
+## Praying on the Road ##
+In the car, on the road the best place to pray.
+Following the rules of the road, the logic of the street, the signs and signals.
+Engaging in conversations, and meeting people at truck stops and gas stations.
+Meeting people on the street, who are asking for help is a democratic thing.
+
+## Daily Conversations ##
+Daily conversations are democratic.
+Learning and reading supports healthier communication and conversation.
+
 ## America ##
 America is a story of belief.
 America is a story of overcoming.
@@ -580,6 +610,27 @@ America is a story of family.
 America is a story of repentance and reformation.
 America is a story of change.
 America is a story of freedom.
+
+## The Country ##
+A country of beliefs. 
+A country of freedom of expression. 
+A system of expression, the reverse of oppression.
+History is subjective.
+Different viewpoints on the same thing.
+
+## Smile Like You Mean It ##
+Smile like you mean it.
+In the pain, and the tears, and the fight within, smile like you mean it.
+In the loss for words, and the heartbreak, smile that winning smile.
+You smile like a ray of light.
+It lights up the whole room.
+It brightens up someone's day.
+It makes someone feel at ease.
+It cheers someone's heart.
+So smile like you mean it.
+Let the glow shine.
+It is yours to share.
+It is yours to wear.
 
 ## Coming around the Bend ##
 Coming around the bend, returning home to where you belong.
@@ -689,6 +740,15 @@ Full Circle
 The Changing Seasons
 Adapting with the change
 
+----------
+
+All the languages of the earth
+The number of people on the earth
+The number of continents
+The number of countries
+The number of languages
+The daily actions, small actions
+
 ## A Society Driven by Money ##
 A society driven by money.
 Money makes the world go round.
@@ -708,7 +768,7 @@ Choose to live another day.
 Choose to learn.
 Love that person wholly.
 
-## Partnerhsip ##
+## Partnership ##
 You and I, helping each other to help the world
 Looking at each other to see what each other love about the world around us
 Lifting each other up
@@ -1269,6 +1329,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the woman working at CVS
 * Grateful for the woman working at the coffee shop
 * Grateful for the chiming of the bells outside
+* Grateful for how Taylor Swift expresses emotions, stories, and relationships through song
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
