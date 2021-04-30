@@ -2651,6 +2651,21 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Perfection ##
+The state of excellence, refinement, 
+the perfect qualities, 
+the careful honing in on details and what's right,
+the high demand,
+the harmony within and without,
+the quest to improve,
+the transcending ability to probe deeper and wider,
+the infinite sense of growing more ethical, and moral,
+the desire to make the right decisions to overcome flaws
+
+<br>
+
+Word Associations: high, excellence, quality, harmony, transcend, spiritual, utopia, infinite, flaw, quest
+
 ## Evolution ##
 The evolution of thinking, the process to get to the answer, the human steps to order a solution, the ground in diversity of people and thoughts, the renewal of a population.
 
