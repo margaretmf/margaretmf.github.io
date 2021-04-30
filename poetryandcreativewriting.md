@@ -119,6 +119,13 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 # Creative Writing #
+## Maps ##
+Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
+
+Bridges connect one place to another place.
+
+Maps show visually the relationships of places culturally and historically, and also for engineering purposes.
+
 ## The Purpose of Studying History ##
 The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
