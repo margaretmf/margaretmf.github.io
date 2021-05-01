@@ -623,11 +623,15 @@ Margaret
 ----------
 
 
+## Tide ##
+The roll of the tide, where the sea meets the land.
+
 ## Praying on the Road ##
 In the car, on the road the best place to pray.
 Following the rules of the road, the logic of the street, the signs and signals.
 Engaging in conversations, and meeting people at truck stops and gas stations.
 Meeting people on the street, who are asking for help is a democratic thing.
+The space where freeom meets rules.
 
 ## Daily Conversations ##
 Daily conversations are democratic.
