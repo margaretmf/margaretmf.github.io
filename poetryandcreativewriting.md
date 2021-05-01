@@ -3,7 +3,7 @@ layout: default
 is_contact: true
 ---
 
-## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. ##
+## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. I work to write a little each day and edit a little each day. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. ##
 
@@ -2237,13 +2237,13 @@ I learn to write poetry.
 
 ## The South ##
 What is in the South?
-Friendly neighbors, strong families, lightness of heart, good food - grits, pumpkin pie, pecan pie, oyster stuffing, and white houses, good porches, and amazing nurses, and teachers.
+Friendly neighbors, strong families, lightness of heart, good food beautiful houses and architecture, and good porches.
 Good music - bluegrass, country, the blues, and jazz, and bridges to the West Coast.
-Equality for all.
+Equality.
 A connection to the land.
 A love of home and family.
 Freedom from racial, gender, and cultural politics.
-Where the country began and started.
+The place the country began and started.
 
 ## Southern Titles ##
 "Ladies" at home, and the country club, and "women" at work.
@@ -5756,7 +5756,7 @@ The time finally came for me to choose, like a nation does, whether I turn to th
 
 We all dwell in the Shadow of the Almighty at all times whether we know it or not. But do I choose to make my bed in fear, envy, a sense of inferiority, physical pain, discouragement, anger, rage, self-justification, gun violence, self-mutilation, and hell? Or do I choose to make my bed in heaven? God will always be there behind the clouds of mortal sense like the Sun does, moving our receptive hearts and minsd always in the right direction, but moment by moment, I have the ability to choose where I make my bed. Psalm 23:4 'Yea, though I walk through the darkest valley, I will fear no evil, for you are with me' represents this spiritual concept.
 
-My mom worked as a teacher like my grandmother did. And as a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men teaching, and I remember feeling a constant mortal sene that I was dependent on men or desperate to be in a relationship with a guy.
+My mom worked as a teacher like my grandmother did. As a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men working in the profession, and I remember feeling a constant mortal sense that I was dependent on men or desperate to be in a relationship with someone who would provide something.
 
 ...
 
