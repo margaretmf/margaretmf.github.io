@@ -1,18 +1,18 @@
 # Research Questions and Studies #
-* A study on the American Flag, and what the American flag represents through text
-* A study on Light in the Darkness, and where this comes up in books, and what this means, and its spiritual significance
-* A study on Societal Wholeness, and Connectedness; this Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
-* A study on Signs and Sybmols
-* A study on Interracial Dating and Marriages 
-* A study on Democracy and Church
-* A study on Shays' Rebellion in relationship to the Trump Election
-* A study on Cultures that Influence and Shape Engineering
-* A study on the Dark Web
-* A study on what People Listen to While Driving
-* A study on Weaving Individual Narratives with Collective, National Narratives
-* A study on Harassment - why do people harass people? men, women, women men; What's the boundary between teasing, flirting, harassment
-* A study on the Boundaries on the Internet; the Relationship between the boundaries on the internet and the boundaries on the road - the Internet Highway
-* A study on What People Choose to Study and Learn in College
+* A Study on the American Flag, and what the American flag represents through text
+* A Study on Light in the Darkness, and where this comes up in books, and what this means, and its spiritual significance
+* A Study on Societal Wholeness, and Connectedness; this Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
+* A Study on Signs and Sybmols
+* A Study on Interracial Dating and Marriages 
+* A Study on Democracy and Church
+* A Study on Shays' Rebellion in relationship to the Trump Election
+* A Study on Cultures that Influence and Shape Engineering
+* A Study on the Dark Web
+* A Study on what People Listen to While Driving
+* A Study on Weaving Individual Narratives with Collective, National Narratives
+* A Study on Harassment - why do people harass people? men, women, women men; What's the boundary between teasing, flirting, harassment
+* A Study on the Boundaries on the Internet; the Relationship between the boundaries on the internet and the boundaries on the road - the Internet Highway
+* A Study on What People Choose to Study and Learn in College
 
 
 ----------
