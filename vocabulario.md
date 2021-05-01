@@ -57,7 +57,10 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Incluyir (verb, verbo): ##
 * To include
 
+----------
 
 ## Encontrar (verb, verbo): ##
 * Intuition - this word comes to mind; intuition - it means something like "discover"
 * To find
+
+----------
