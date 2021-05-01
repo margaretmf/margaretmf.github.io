@@ -2666,23 +2666,37 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Time ##
+Past, present, future weaving together.
+The stories and tales of the past being entertained in and informing the present,
+and the present moment's choices shaping the future.
+Time flowing forever through the river and cycling throughout with growth, decay, and a legacy to leave behind.
+
+<br>
+
+Word Associations: past, present, future, watch, flow, forever, cycle, growth, decay, legacy
+
 ## Perfection ##
-The state of excellence, refinement, 
-the perfect qualities, 
-the careful honing in on details and what's right,
-the high demand,
-the harmony within and without,
-the quest to improve,
-the transcending ability to probe deeper and wider,
-the infinite sense of growing more ethical, and moral,
-the desire to make the right decisions to overcome flaws
+The state of excellence, refinement.
+The perfect qualities.
+The careful honing in on details and what's right.
+The high demand.
+The harmony within and without.
+The quest to improve.
+The transcending ability to probe deeper and wider.
+The infinite sense of growing more ethical, and moral.
+The desire to make the right decisions to overcome flaws.
 
 <br>
 
 Word Associations: high, excellence, quality, harmony, transcend, spiritual, utopia, infinite, flaw, quest
 
 ## Evolution ##
-The evolution of thinking, the process to get to the answer, the human steps to order a solution, the ground in diversity of people and thoughts, the renewal of a population.
+The evolution of thinking.
+The process to get to the answer.
+The human steps to order a solution.
+The ground in diversity of people and thoughts.
+The renewal of a population.
 
 <br>
 
@@ -2691,7 +2705,7 @@ Word Associations: process, human, gene, diversity, extinction, origin, order, b
 ## Punish ##
 Anger, guilt, loss, deprivation, a negative conscience, the worst punishment.
 After a crime, a misdeed, there's knowledge of the harm done, and there may be a pull to rebel further against the innocent and the innocence.
-Punishment is the way to seek justifce for an offence, correct behavior, and dictate what's wrong vs. right.
+Punishment is the way to seek justifce for an offence, correct behavior, and dictate what's wrong from what's right.
 
 <br>
 
@@ -2718,8 +2732,8 @@ The love of God, and letting go of sin that supports waking up, and walking forw
 Word Associations: question, sin, God, belief, truth, miracle, religion, doubt, trust, leap
 
 ## Space ##
-The flight to outer space,
-the movement to a new time and sphere.
+The flight to outer space.
+The movement to a new time and sphere.
 The journey to the infinite vastne
 
 <br>
@@ -2728,7 +2742,7 @@ Word Associations: time, sphere, star, air, void, infinite, empty, open, curtain
 
 ## Touch ##
 The touch of a stranger who turns a life around in a different direction.
-The feeling of something familair, and close to heart.
+The feeling of something familiar, and close to heart.
 The sense of good hugging someone.
 The power within to transform and be effected by heartfelt notions.
 
@@ -2750,12 +2764,11 @@ The lines and shapes draw a dimension around a geography of movement for people.
 Word Associations: mark, continue, dimension, commute, figure, geography, rope, communication, border, ancestor
 
 ## Connection ##
-A connection through the spirit, through God
-that supports the divine interconnectedness, the whole family
-Everyone is part of a network that enfolds, unfolds, and deepens
-What strikes a nerve with one or even sever another nerve
-The transition of ideas, the movement from one stage to another stage
-The plumbing that supports a massive consciousness cleaning and shifting
+A connection through the spirit, through God that supports the divine interconnectedness, the whole family.
+Everyone is part of a network that enfolds, unfolds, and deepens.
+What strikes a nerve with one or even sever another nerve.
+The transition of ideas, the movement from one stage to another stage.
+The plumbing that supports a massive consciousness cleaning and shifting.
 
 <br>
 
@@ -2781,7 +2794,7 @@ The vote to affirm an idea.
 Word Associations: meditation, image, scan, telescope, decision, unanimous, affirm, withdraw, war, vote
 
 ## Bully ##
-A bystander of the bribing, the taunting, the torment, leading to an imablance.
+A bystander of the bribing, the taunting, the torment, leading to an imbalance.
 A target of rage, unkind behavior mixed messages.
 A tyrant lashing out, making life difficult for others.
 The failure to bring out a full child in school with security.
@@ -2792,17 +2805,17 @@ Word Associations: bystander, kid, bribe, target, school, imbalance, rage, secur
 
 ## Trouble ##
 Trouble ahead, a crisis moment, trouble trusting in oneself, and beliefing in oneself because of the mischief.
-Rebelling against everyone, questioning, robbing, accusing of mistakes, and punishment with the pain of loss and failure to obey the law
+Rebelling against everyone, questioning, robbing, accusing of mistakes, and punishment with the pain of loss and failure to obey the law.
 
 <br>
 
 Word Associations: punish, pain, crisis, mischief, thief, loss, law, rebellion, youth, mistake
 
 ## Guilt ##
-The guilt from another mistake made
-Awareness of the wrong done, the sin that defileth
-Confessing the tripping that harms and offends
-The plea for atonement
+The guilt from another mistake made.
+Awareness of the wrong done, the sin that defileth.
+Confessing the tripping that harms and offends.
+The plea for atonement.
 
 <br>
 
@@ -2819,7 +2832,7 @@ An illusion, a mirror.
 Word Associations: chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haze
 
 ## Joy ##
-Nothing, no one can rob the joy within to be a giver, shareer, and seer of light.
+Nothing, no one can rob the joy within to be a giver, sharer, and seer of light.
 There's a feeling inside of the gratitude for people at convenience stores, gas stations, and shopping malls.
 The wish is to take another day to appreciate some form of beauty in the ocean, even if its fleeting and the buzz of nasty, angry fears and emotions that come back up.
 
@@ -2828,7 +2841,7 @@ The wish is to take another day to appreciate some form of beauty in the ocean, 
 Word Assocations: feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
 
 ## Heroism ##
-Everywhere life is filled with heroism, 
+Everywhere life is filled with heroism,
 the desire to heal,
 the bravery to do what's right when at a crossroads,
 the ability to be a superhuman when facing villains and tragedies,
@@ -2845,17 +2858,17 @@ for a dear someone
 a feeling of gratitude, and appreciation,
 a memory of something positive,
 protection from the harm done,
-a promise for somethign better to come to light,
+a promise for something better to come to light,
 an inner treasure that's crystal clear and lasts forever,
 a hope for the best to play out,
-a care for the future and what's dearest to one's heart
+a care for the future and what's dearest to one's heart.
 
 <br>
 
 Word Associations: love, dear, feeling, memory, protect, promise, treasure, forever, hope, care
 
 ## Sanity ##
-The sanity within to know what's real,a nd what's causing imbalance.
+The sanity within to know what's real, and what's causing imbalance.
 The freedom from the joker, the ongoing question of who one is, the release from the chaos, the madness, the clinginess, the fear, the insanity unmasked and released to balance.
 
 <br>
