@@ -2,6 +2,7 @@
 ## Political Rebellion ##
 "Societies exist under three forms sufficiently distinguishable. 1. Without government, as among our Indians. 2. Under governments wherein the will of every one has a just influence, as is the case in England in a slight degree, and in our states in a great one. 3. Under governments of force: as is the case in all other monarchies and in most of the other republics. To have an idea of the curse of existence under these last, they must be seen. It is a government of wolves over sheep. It is a problem, not clear in my mind, that the 1st. condition is not the best. But I believe it to be inconsistent with any great degree of population. The second state has a great deal of good in it. The mass of mankind under that enjoys a precious degree of liberty and happiness. It has it’s evils too: the principal of which is the turbulence to which it is subject. But weigh this against the oppressions of monarchy, and it becomes nothing. Malo periculosam, libertatem quam quietam servitutem. Even this evil is productive of good. It prevents the degeneracy of government, and nourishes a general attention to the public affairs. I hold it that a little rebellion now and then is a good thing, and as necessary in the political world as storms in the physical.1 Unsuccesful rebellions indeed generally establish the incroachments on the rights of the people which have produced them. An observation of this truth should render honest republican governors so mild in their punishment of rebellions, as not to discourage them too much. It is a medecine necessary for the sound health of government." - Thomas Jefferson to James Madison, Paris, January 30, 17872
 
+# Oneness and Unity #
 ## [Bound Up in One Great Bundle of Humanity](https://www.blackpast.org/african-american-history/speeches-african-american-history/1866-frances-ellen-watkins-harper-we-are-all-bound-together/) ##
 "'We are all bound up in one great bundle of humanity, and society can’t trample on the weakest and feeblest among its members without receiving the curse in its own soul,' she declared." -Frances Ellen Watkins Harper, 1866
 
@@ -31,6 +32,25 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ## Winthrop ##
 "Now the only way to avoid this shipwreck and to provide for our posterity is to follow the counsel of Micah; to do justly, to love mercy, to walk humbly with our God. We must be knit together in this work as one man, we must entertain each other in brotherly affection...we must delight in each other; make others' condition our own, rejoice together; mourn together, labor, and suffer together...for we must consider that we shall be as a city upon a hill, the eyes of all people are upon us; so that if we shall deal falsely with our God in this work we have undertaken, and so cause Him to withdraw His present help from us, we shall be made a story and a by-word through the world...we shall shame the faces of many of God's worthy servants, and cause their prayers to be turned into curses upon us..." (p. 47, "American Gospel: God, the Founding Fathers and the Making of A Nation")
 
+## Mother Land ##
+"Sitting in the cab, Rachel looked out the window as Swati slept next to her and the car sat in Mumbai's never-ending traffic. Outside, the city raged and dozed and moved, always a kaleidoscope of action, as all big cities were, but as Mumbai especialy was, a writhing mass of humanity grinding and struggling against itself, as endless multiheaded snake, a hydra of a city eating itself and fighting itself day in and day out." (p. 235, "Mother Land", Leah Franqui)
+
+"Sometimes, just as Rachel woke up, when the fan blew cooler air across her body and the world outside was somehow magically quiet, she almost thought she was in New York and not India. She forgot, for a spli second, that she was miles away, and smiled at the thought of a bagel, fresh, covered in sesame seeds and bursting with schmeer. But then something would remind her. **The call of banana sellers, the thousand honks of cars and rickshaws and buses and motorcycles, a faint trill of bicycle bells, or the loud chattering of the many murders of crows perched in the palm trees, sinister voices in tropical havens." (p. 71, "Mother Land", Leah Franqui)
+
+"People like her watched the city through windows as millions of people walked from place to place to work and buy food and find space outside the millions of tiny cramped apartments in the city." (p. 99, "Mother Land", Leah Franqui)
+
+## Mother Land ##
+"The dark was beginning to fall, although it was early, only six P.M. and Rachel realized with a start that it was autumn, actually, even though it didn't feel like it; that's why the light was fading. Th eweather never changed much, and she had forgotten that time was moving on regardless. She was getting older, every day. She had lived in Mumbai a day longer every morning. And Swati lived with them longer very minute. But the city was indifferent to Rachel's problems. It had enough of its own." (p. 235, "Mother Land", Leah Franqui)
+
+# Marriage #
+
+# Cultural Exchange #
+
+# Popular Culture #
+
+# Feelings and Emotions
+
+# The Art of Ecology #
 ## [The Art of Ecology](https://intercongreen.com/2012/09/12/the-art-of-ecology/) ##
 "Irons finds her inspiration for her work in the complexities of natural ecologies and their interconnected component, leaving it as no surprise that I was drawn to her work immediately. One of her fascinating collections grew from the notion of bird migration related to the loss of habitat from human development. These events can cause evolutions, or even the outright collapse, of ecosystems overtime that may ultimately find their way to regrowth. Ellie walked me through the first piece in the series that works with pencil and water on paper that is collaged with pieces of vintage bird guides. A network of branch-like forms gives birth to the color and shape of birds as it evolves across the three pages of the piece before fading out with only a hint of possible rejuvenation at the end. This series evolved into a “night” migration collection that I was particularly drawn to as well.
 
@@ -43,6 +63,3 @@ Given that Ellie is an artist with interested in ecology and urban restoration, 
 "When asked if there were artists that had served as inspiration for her when it came to her ecological focus or natural media, she had an ample list. She mentioned Newton & Helen Mayer Harrison who work closely with the fields of ecology and biology to promote biodiversity and community development. Also included were Mark Dion and Agnus Denes. One of Denes’ most well known projects was the installation of a wheat field in the New York Battery Park landfill in 1982–grain that would ultimately be harvested at travel to 28 cities in a work that the artist described as commenting on “human values and misplaced priorities.”
 
 Ellie’s work takes on a difficult task: trying to depict the connections of systems that are almost too complicated to describe, but the depth of her composition conveys the amount of information that operates behind the scenes. Again, despite the fact that Ellie Iron’s artwork and the informational resource of Intercon have missions that are closely related, the delivery is meaningfully different–but that could be a good thing. The more ways we can try to convey what is important, the underlying force of sustainability and why it is essential, the better chances we have of conveying more knowledge to more people. If anyone else has artists whose work operates in a similar vein, please share them as well."
-
-
-
