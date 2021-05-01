@@ -11,7 +11,7 @@ layout: default
 ## Short Biography, **La Biografía** ##
 I am **Margaret Furr**, and a graduate of the University of Virginia. **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia.**
 
-The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.
+The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.**
 
 Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good." It's also great to cultivate latent talents and play around like little kids and amateurs.
 
@@ -23,7 +23,7 @@ Little children are healing, organizing things is my passion, and expressing goo
 
 I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. 
 
-Actualmente, estudiando la versión del biblio en español. Estoy revitalizando una apreciación por el idioma muy bonito.
+**Actualmente, estudiando la versión de La Biblia en Español. Estoy revitalizando una apreciación por el idioma muy bonito.**
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
 
