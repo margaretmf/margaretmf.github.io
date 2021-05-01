@@ -637,6 +637,11 @@ The space where freeom meets rules.
 Daily conversations are democratic.
 Learning and reading supports healthier communication and conversation.
 
+## Into the Sky, Into the Ocean, Into the Green ##
+Into the sky, upward into the 3pm afternoon sky, the clear blue air.
+Into the depth of the ocean, across the sea, into the depth of the gray-blue waves.
+Into the green through the brown-grounded forest and up the mount to see the land below.
+
 ## America ##
 America is a story of belief.
 America is a story of overcoming.
@@ -681,6 +686,7 @@ Books help people understand what they cannot understand.
 
 ## In God We Trust ##
 In God we trust, each day, in all of our business activites. It's amazing that people in the business world have faith and know God. It's on the dollar bill.
+They say, "money doesn't grow on trees."
 
 ## Martin Luther King, Jr. Event ##
 In Washington, DC, I attended the event at the Chapel with Martin Luther King, Jr. III. He encouraged people to walk outside their bubbles and meet new people to learn from their perspectives. Since then, I met someone who encouraged me to learn about Malcolm X, the Arabs, and the Spanish ancestry. I met someone in Norfolk, and I met some other people. I have learned about their individuality, and unique perspectives and strengths. I also restarted a friendship with someone from high school. In school, it can feel like people limit people from reaching out of their bubbles to meet new people, but in the real world, it's helpful that people encourage people to learn from other walks of life.
@@ -871,6 +877,29 @@ I remember taking a photo.
 I remember feeling concerned about healing from racial prejudices.
 I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
 I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
+
+## My Mom and I ##
+My mom and I are on different journeys.
+We are two different people with two different perspectives and career projectories.
+I began to grow deeper in understanding the perspective of President Barack Obama's mother. I tried to at least.
+I realized the connection between the Arab world and Spain.
+I realized the connection between the woman who inspired MLK, Jr.
+I realized that Norfolk is not that different from Memphis or Nashville. There are common truths, roots, binds, images, stories, and scenery with shipping, trains, trucks, racial tension, and civil rights.
+I realized the importance of true self-government.
+
+## God Blesses the Broken Roads ##
+"God blesses the broken roads"
+
+## The Side Roads ##
+The side roads that lead to new surprises and destinations I love.
+You don't know where they are going.
+They beg you to question what's down them.
+They ask you to explore and walk down an unknown path.
+They call you to see something different and go on a detour.
+Through the orange gates, across the white fence.
+
+## If I Had Not Done This...Reasoning ##
+If I had not...then ...
 
 ## Where I am weak, you are strong ##
 Where I am weak, you are strong
@@ -1367,6 +1396,11 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the woman working at the coffee shop
 * Grateful for the chiming of the bells outside
 * Grateful for how Taylor Swift expresses emotions, stories, and relationships through song
+* Grateful for the early learning center
+* Grateful for the student studying bilogy
+* Grateful for memories of rappelling with other Christians
+* Grateful for Christian music
+* Grateful for homes aligned in rows next to each other
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
