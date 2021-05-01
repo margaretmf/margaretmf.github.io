@@ -2,6 +2,10 @@
 ## Political Rebellion ##
 "Societies exist under three forms sufficiently distinguishable. 1. Without government, as among our Indians. 2. Under governments wherein the will of every one has a just influence, as is the case in England in a slight degree, and in our states in a great one. 3. Under governments of force: as is the case in all other monarchies and in most of the other republics. To have an idea of the curse of existence under these last, they must be seen. It is a government of wolves over sheep. It is a problem, not clear in my mind, that the 1st. condition is not the best. But I believe it to be inconsistent with any great degree of population. The second state has a great deal of good in it. The mass of mankind under that enjoys a precious degree of liberty and happiness. It has it’s evils too: the principal of which is the turbulence to which it is subject. But weigh this against the oppressions of monarchy, and it becomes nothing. Malo periculosam, libertatem quam quietam servitutem. Even this evil is productive of good. It prevents the degeneracy of government, and nourishes a general attention to the public affairs. I hold it that a little rebellion now and then is a good thing, and as necessary in the political world as storms in the physical.1 Unsuccesful rebellions indeed generally establish the incroachments on the rights of the people which have produced them. An observation of this truth should render honest republican governors so mild in their punishment of rebellions, as not to discourage them too much. It is a medecine necessary for the sound health of government." - Thomas Jefferson to James Madison, Paris, January 30, 17872
 
+
+----------
+
+
 # Oneness and Unity #
 ## [Bound Up in One Great Bundle of Humanity](https://www.blackpast.org/african-american-history/speeches-african-american-history/1866-frances-ellen-watkins-harper-we-are-all-bound-together/) ##
 "'We are all bound up in one great bundle of humanity, and society can’t trample on the weakest and feeblest among its members without receiving the curse in its own soul,' she declared." -Frances Ellen Watkins Harper, 1866
@@ -42,6 +46,10 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ## Mother Land ##
 "The dark was beginning to fall, although it was early, only six P.M. and Rachel realized with a start that it was autumn, actually, even though it didn't feel like it; that's why the light was fading. Th eweather never changed much, and she had forgotten that time was moving on regardless. She was getting older, every day. She had lived in Mumbai a day longer every morning. And Swati lived with them longer very minute. But the city was indifferent to Rachel's problems. It had enough of its own." (p. 235, "Mother Land", Leah Franqui)
 
+
+----------
+
+
 # Marriage #
 
 # Cultural Exchange #
@@ -49,6 +57,10 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 # Popular Culture #
 
 # Feelings and Emotions
+
+
+----------
+
 
 # The Art of Ecology #
 ## [The Art of Ecology](https://intercongreen.com/2012/09/12/the-art-of-ecology/) ##
