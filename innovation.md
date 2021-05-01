@@ -1117,6 +1117,8 @@ is_contact: true
 (6) A red wall with a red door
 (7) A sunshine balloon
 (8) 91st psalm on a store in the country
+(9) Coke box on the back of a red truck
+(10) Ribbons on a tree
 
 ## **Sounds** ##
 (1) A woman with a Spanish voice
@@ -1124,6 +1126,7 @@ is_contact: true
 (3) Car door shutting
 (4) A man yelling outside
 (5) The computer machine running
+(6) A man yelling with his son cheerfully
 
 <br>
 
