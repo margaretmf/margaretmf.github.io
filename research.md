@@ -1,17 +1,17 @@
 # Research Questions and Studies #
-* A Study on the American Flag, and what the American flag represents through text
-* A Study on Light in the Darkness, and where this comes up in books, and what this means, and its spiritual significance
-* A Study on Societal Wholeness, and Connectedness; this Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
+* A Study on the American Flag, and what the American flag represents through Text
+* A Study on Light in the Darkness, and Where This Comes Up in Books, and What This Means, and Its Spiritual Significance
+* A Study on Societal Wholeness, and Connectedness; This Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
 * A Study on Signs and Sybmols
 * A Study on Interracial Dating and Marriages 
 * A Study on Democracy and Church
-* A Study on Shays' Rebellion in relationship to the Trump Election
+* A Study on Shays' Rebellion in Relationship to the Trump Election
 * A Study on Cultures that Influence and Shape Engineering
 * A Study on the Dark Web
-* A Study on what People Listen to While Driving
+* A Study on What People Listen to While Driving
 * A Study on Weaving Individual Narratives with Collective, National Narratives
-* A Study on Harassment - why do people harass people? men, women, women men; What's the boundary between teasing, flirting, harassment
-* A Study on the Boundaries on the Internet; the Relationship between the boundaries on the internet and the boundaries on the road - the Internet Highway
+* A Study on Harassment - Why Do People Harass People? Men, Women, Women, Men; What's the Boundary Between Teasing, Flirting, Harassment
+* A Study on the Boundaries on the Internet; the Relationship Between the Boundaries on the Internet and the Boundaries on the Road - the Internet Highway
 * A Study on What People Choose to Study and Learn in College
 
 
@@ -31,6 +31,10 @@
 * "The process by which people were awakened to a sense of self-determination was global. It began with the American Revolution and continued with that in France. And the impact of those upheavals cannot be overstated. Whole populations began to question the legitimacy of hereditary monarchs whose right to rule had once been accepted"
 * National cause, patriotic feeling
 * "the inventions of the steam press and the paper-making machine (1814, 1803)" - "produce newspapers on a an industrial scale"
+
+
+----------
+
 
 # History #
 ## How is History Shared? How Do We Appreciate and Share the Past? ##
