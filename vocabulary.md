@@ -141,3 +141,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The state of being equal, especially in status, rights, and opportunities
 * A symbolic expression of the fact that two quantities are equal; an equation
 
+## System: ##
+* A set of things working together as parts of a mechanism or an interconnecting network
+* A set of principles or procedures according to which something is done; an organized framework or method
+
+
