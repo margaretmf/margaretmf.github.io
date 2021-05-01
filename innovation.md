@@ -1107,6 +1107,23 @@ is_contact: true
 (4) A song on the radio about a woman standing on her own two feet
 (5) The keyboard clicks
 
+## **Day 72** ##
+## **Images** ##
+(1) Yellow leaves on the driveway
+(2) Yellow plants on the side of the highway
+(3) Cellphone towers
+(4) A bird sailing through the sky
+(5) A car stopped on the road
+(6) A red wall with a red door
+(7) A sunshine balloon
+(8) 91st psalm on a store in the country
+
+## **Sounds** ##
+(1) A woman with a Spanish voice
+(2) Car motor
+(3) Car door shutting
+(4) A man yelling outside
+(5) The computer machine running
 
 <br>
 
