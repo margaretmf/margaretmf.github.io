@@ -1145,6 +1145,11 @@ Just me alone
 I can go out and spend money on books and cars
 The world is open for me to spend my money and bless the world
 
+2 quarters
+6 dimes
+2 buckles
+4 pennies
+
 ## Alone ##
 On the outside, looking in.
 Expect someone on the inside to reach their voice, their hand out and invite them in.
@@ -1401,6 +1406,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for memories of rappelling with other Christians
 * Grateful for Christian music
 * Grateful for homes aligned in rows next to each other
+* Grateful for the sense of renewal at UVA
+* Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
+* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men.
+* Grateful for conversations with him about a key African American leader.
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -2411,15 +2420,6 @@ There are White Americans and African Americans eating together at diners.
 Thank you, God, for the good you do through your Christian brothers and sisters.
 Martin Luther King, Jr.'s work was so powerful.
 Your eyes were on the prize all along, leading your people along.
-
-## I LOVE THE BLACK MAN ##
-I am grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men.
-I am grateful for conversations with him about a key African American leader.
-The stereotype of African Americans is that their neighborhoods are dangerous, in debt, in poverty.
-The stereotype of African Americans is that they are borderline criminals.
-They do so much good, however.
-This is the stereotype.
-Everyone has a story. Everyone has a past. Everyone has a future. This is only the beginning of America's journey to freedom. I believe in the Black man.
 
 ## Why Am I Being Tracked? ##
 Why am I being tracked?
