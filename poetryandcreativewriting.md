@@ -133,11 +133,6 @@ Maps show visually the relationships of places culturally and historically, and 
 ## The Purpose of Studying History ##
 The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
-## Do you have hope? ##
-Today after breaking down and losing trust in myself because everything swirling around, a therapist asked if I have hope. Do I have a reason to be hopeful and to hope? I didn't know. I shared that I had hope in everyone around me and the hope in the next generation, but I did not have hope in myself.
-
-I hoped and dreamed to write a book, but I do not want to write a book. Christian Scientists told me I COULD NOT WRITE, I COULD NOT WRITE, I COULD NOT WRITE.
-
 # Creative Writing #
 ## Tennessee and Nashville ##
 Tennessee used to be the west, and the state of the frontier, not just the south.
