@@ -1119,6 +1119,8 @@ is_contact: true
 (8) 91st psalm on a store in the country
 (9) Coke box on the back of a red truck
 (10) Ribbons on a tree
+(11) A cross on a tree
+(12) A balloon hitting a car
 
 ## **Sounds** ##
 (1) A woman with a Spanish voice
