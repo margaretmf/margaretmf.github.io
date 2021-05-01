@@ -29,7 +29,9 @@ Little children are healing, organizing things is my passion, and expressing goo
 
 I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. 
 
-**Actualmente, estudiando la versión de La Biblia en Español. Estoy revitalizando una apreciación por el idioma muy bonito.**
+Me amo muchas de las culturas del mundo, incluyendo Africano, Árabes, Chino, Español, y Nativa.
+
+**Actualmente, estudiando la versión de La Biblia en Español. Estoy revitalizando una apreciación por el idioma muy bonito. Escuchando a la música y la radio en Español todos de los días.**
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
 
