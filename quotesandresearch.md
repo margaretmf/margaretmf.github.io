@@ -74,12 +74,38 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
 
 # Belief #
+"He was the kind of man who **believed** hismelf to be better than other people. He liked to be so. He enjoyed knowing where he stood next to others. He had liked her own moral rigidity, her disinterest in breaking with the rituals and conventions of their lives, and yet he had wanted to surpass her in them." (p. 138, "Mother Land", Leah Franqui)
 
-# Marriage #
+"Now, though, she woke up eager to be Magda. Magda lived a life lit with courage. She was forever willing to see the best in others, to be hopeful, to open her heart." (p. 184, "Mother Land", Leah Franqui)
+
+"Saying it would make it fine; his belief would become her reality. She would live by what other people thought, hoping their thoughts would be so strong that they would make them come true." (p. 261, "Mother Land", Leah Franqui)
+
+# America #
 
 # Cultural Exchange #
 
 # Infrastructure #
+
+# Marriage #
+"Perhaps it was America, because everyone knew that marriage did't mean anything over there. But here, where people had good values, marriage was life. Swati had turned her back on a good life, left it behind to come and guide her son and daughter-in-law, given up her household and marriage, and Racehl had asked if she was sure." (p.26, "Mother Land", Leah Franqui)
+
+"They had not been able to attend the wedding. At least, that is what they had told people. In truth, they weren't really sure if Dhruv wanted them there. He had announced that he and his fiancée, the one he'd acquired without his parents' ever meeting her ever setting eyes on her, without a proper engagement ceremony, an exchange of gifts between family members, a woman with no people Swati could investigate, no family she could research, no tribe she could find, planned to marry at city hall in New York, in a fast and tiny ceremony, and there was no need for her and Vinod to undergo the long and difficult trip, which would be hard on their bodies and wallets." (p. 18, "Mother Land", Leah Franqui)
+
+"THey had all told her not to marry Dhruv so fat, that they didn't know each other well. They had told her not to quit her job. THey had told her not to move to Mumbai, to visit India first, then make a decision. But the decisions had been made, didn't they see that? Dhruv was so certain that they should get married, so sure that she was the person for him, so clear that Mumbai would be good for both of them. So she had listened to him, told her friends that they were wrong, that they didn't know what she did, which was that Dhruv would make her happy, he would make her life something stable, something solid". (p. 77, "Mother Land", Leah Franqui)
+
+"When she had first married, she had cooked for her in-laws daily. Getting help had been a godsend. She was offering to save Rachel labor, to make her life easier, better, and she said no. The girl was cracked. 'It's so much work,' Swati said again." (p. 92, "Mother Land", Leah Franqui)
+
+"She had imagined herself in love with everyone, from the milkman to their fellow passengers on the bus, and had flirted shamelessly with the boys at the school near their own, unbuttoning the top button of her starched blouses." (p. 93, "Mother Land", Leah Franqui)
+
+"At any family wedding, he was the one telling people how to hang the flowers, how to wrap the turbans, in what order the garlands should be given, what was auspicious and inauspicious, what was wrong and right." (p. 138, "Mother Land", Leah Franqui)
+
+"'Not like I thought she might. It's not like America, people getting divorces all the time. We value marriage here.'
+
+Rachel stiffened. 'People value marriage everywhere,' Rachel said sharply.
+
+'Then why so much divorce divorce divorce all the time?' Swati asked, genuinely curious." (p. 182, "Mother Land", Leah Franqui)
+
+"Was that what it was like for women who moved into an Indian joint-family system, living with their in-laws and with their male in-laws and their families, when they got married?" (p. 193, "Mother Land", Leah Franqui)
 
 
 ----------
