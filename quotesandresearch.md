@@ -55,8 +55,8 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ----------
 
 
-## Mother Land ##
 # Light in the Darkness Imagery #
+## Mother Land ##
 "The next Saturday, as they dodged crowds of tourists taking photos of masterpieces with their phones, she watched his face as he looked at painting after painting with the same expression he had worn since she met him on the steps outside the building: nothing. Blankness. Her heart began to sink. The man who had seemed so interesting and alluring in the **warmth** and the **dark light** of the bar now looked lifeless, and she had just decided that she wouldn't be seeing him again when they stopped in front of Vermeer's *Young Woman with a Water Pitcher*." (p. 75, "Mother Land", Leah Franqui)
 
 "When she had first come to Mumbai, it had whirled past her window in the cab from the airport, and it had looked so much dingier than she had thought it would, as if the city were sepia toned, broken by bright flashes that seemed garish in comparison." (p. 78, "Mother Land", Leah Franqui)
@@ -67,8 +67,8 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ----------
 
 
-## Mother Land ##
 # Light Imagery # 
+## Mother Land ##
 "Looking at the delicate painting, the rich tapestry in one corner, the open light streaming through the window and illuminating the young woman's face as she concentrated, a moment caught forever, as precise and clean as a photograph but so much deeper, so much more, he looked stunned. His mouth moved slightly, and his eyes widened, and suddenly, his whole face opened up for her, like a pair of shutters being flung back to let in the morning sun. 'I like this one,' he said, nodding, certain, authoritative. 'It's so simple, but the light. I love the light.'" (p. 75, "Mother Land", Leah Franqui)
 
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
