@@ -64,6 +64,10 @@ Christianity
 * Nate Frederick's lecture inspired thinking more deeply about the Government being in the Footnotes of Church
 *I love Democratization, Democratic Republic, Religious Liberty and Religious Freedom*
 
+* Laurie Burgdorff's children's book inspired thought on light in the darkness
+
+* Grace Askew's collective music project inspired a love for democratization 
+
 * Ryan Winslow's music drew out an understanding of political and cultural nuances around the Rust Belt, the South, the West, Tennessee being the West, Trucking, the Confederate Flag, Music healing Aspergers; it confirmed some of my observations, and the music along with prayer, and gratitude tuned me into more interconnections
 
 <br>
