@@ -149,3 +149,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * To resolve, to settle or find a solution to a problem, dispute, or contentioius matter
 * To decide firmly on a course of action
 
+## Tenacity: ##
+* The quality or fact of being able to grip something firmly; grip
+* The quality or fact of being very determine
+
