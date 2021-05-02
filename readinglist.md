@@ -5,6 +5,11 @@ layout: default
 ## 2021
 
 ### Books
+#### Interest
+* Cervantes
+* Jorge Louis Borges
+* Shakespeare
+
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
 * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
