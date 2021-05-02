@@ -63,6 +63,8 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "The dark was beginning to fall, although it was early, only six P.M. and Rachel realized with a start that it was autumn, actually, even though it didn't feel like it; that's why the light was fading. Th eweather never changed much, and she had forgotten that time was moving on regardless. She was getting older, every day. She had lived in Mumbai a day longer every morning. And Swati lived with them longer very minute. But the city was indifferent to Rachel's problems. It had enough of its own." (p. 235, "Mother Land", Leah Franqui)
 
+"They craved the taste of human flesh and ate villagers who strayed too far into their territory, those who stayed out fishing too late, who didn't heed the setting of the sun, who planted their rice too far beyond teh boundaries of their village land. The more they ate, the more they craved. Rumors passed through Kolkata on the backs of newspapers and servants with relatives in the little towns that dotted the mangrove forests, that the tigers had stopped hunting other prey altogether, that they only focused on humans now. People said you didn't know they were there until they snuck up on you, emerging out of the water, silent strong swimmers that they were, a pair of violent yellow eyes glowing in the night, lighting the way to your doom." (p. 313, "Mother Land", Leah Franqui)
+
 
 ----------
 
