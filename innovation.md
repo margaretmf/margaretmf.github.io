@@ -1121,6 +1121,7 @@ is_contact: true
 (10) Ribbons on a tree
 (11) A cross on a tree
 (12) A balloon hitting a car
+(130 Dogs in the back of a pickup truck
 
 ## **Sounds** ##
 (1) A woman with a Spanish voice
@@ -1150,6 +1151,8 @@ is_contact: true
 * Regrets
 * Church Bells Ringing, Church Domes, Schools
 * "Sweet Nothings"
+* Secret Admirer
+* Ribbons and Trees and Forests
 * Gas Stations, Hotels
 
 ## ** Plantation ** ##
