@@ -33,7 +33,9 @@ Me amo muchas de las culturas del mundo, incluyendo Africano, Árabes, Chino, Es
 
 **Actualmente, estudiando la versión de La Biblia en Español. Estoy revitalizando una apreciación por el idioma muy bonito. Escuchando a la música y la radio en Español todos de los días.**
 
-I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share with us. The way people capture stories matters.
+I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share. The way people capture stories is important.
+
+## Creo que los cuentos que familias contan sobre antepasados son los elementos más espirituales de quien la gente están. Creo que los detalles importan. Creo en...## 
 
 I am interested in how movements start from the ground-up.
 
