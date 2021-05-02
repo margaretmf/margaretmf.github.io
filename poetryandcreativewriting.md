@@ -174,6 +174,16 @@ Anyone can learn something new. Anyone can try something out.
 People can work across disciplines, departments, try new things.
 The democratization of Life, Liberty, Happiness, and Education.
 
+## Smile ##
+There's a reason to smile today.
+Appreciate the smiles you see from people.
+There's a reason to hope today.
+There's hope for everyone and what everyone is overcoming.
+
+## The Seed Within ##
+The seed within lays buried deep.
+It's deep within and grows it roots to spread out throughout the earth.
+
 ## Bridges ##
 I just drove across another bridge today in Virginia, outside of Isle Wight County.
 I braced myself. 
