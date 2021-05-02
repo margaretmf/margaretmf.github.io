@@ -34,7 +34,7 @@ During her justice work, Harper met many Unitarians also working to bend the arc
 Harper died in 1911, before the 19th Amendment gave women the right to vote in 1919. This was a cause she worked hard to bring about. Yet, Harper understood that her labors might bring about freedoms she would never enjoy. She said, 'Apparent failure may hold in its rough shell the germs of a success that will blossom in time, and bear fruit throughout eternity.' Some of the fruits of Harper's labor—and the labor of other Unitarian Universalists—are enjoyed by us today. Yet, we are not done. Oppression still exists in our world. Harper's hands—and Parker's, Adam's, Anthony's, Reeve's and Carson's—are no longer on the arc. Our hands are needed to take their place."
 
 ## Winthrop ##
-"Now the only way to avoid this shipwreck and to provide for our posterity is to follow the counsel of Micah; to do justly, to love mercy, to walk humbly with our God. We must be knit together in this work as one man, we must entertain each other in brotherly affection...we must delight in each other; make others' condition our own, rejoice together; mourn together, labor, and suffer together...for we must consider that we shall be as a city upon a hill, the eyes of all people are upon us; so that if we shall deal falsely with our God in this work we have undertaken, and so cause Him to withdraw His present help from us, we shall be made a story and a by-word through the world...we shall shame the faces of many of God's worthy servants, and cause their prayers to be turned into curses upon us..." (p. 47, "American Gospel: God, the Founding Fathers and the Making of A Nation")
+"Now the only way to avoid this shipwreck and to provide for our posterity is to follow the counsel of Micah; to do justly, to love mercy, to walk humbly with our God. We must be knit together in this work as one man, we must entertain each other in brotherly affection...we must delight in each other; make others' condition our own, rejoice together; mourn together, labor, and suffer together...for we must consider that we shall be as a city upon a hill, the eyes of all people are upon us; so that if we shall deal falsely with our God in this work we have undertaken, and so cause Him to withdraw His present help from us, we shall be made a story and a by-word through the world...we shall shame the faces of many of God's worthy servants, and cause their prayers to be turned into curses upon us..." (p. 47, "American Gospel: God, the Founding Fathers and the Making of A Nation", Jon Meacham)
 
 ## Mother Land ##
 "Sitting in the cab, Rachel looked out the window as Swati slept next to her and the car sat in Mumbai's never-ending traffic. Outside, the city raged and dozed and moved, always a kaleidoscope of action, as all big cities were, but as Mumbai especialy was, a writhing mass of humanity grinding and struggling against itself, as endless multiheaded snake, a hydra of a city eating itself and fighting itself day in and day out." (p. 235, "Mother Land", Leah Franqui)
@@ -50,13 +50,11 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ----------
 
 
+# Belief #
+
 # Marriage #
 
 # Cultural Exchange #
-
-# Popular Culture #
-
-# Feelings and Emotions
 
 
 ----------
