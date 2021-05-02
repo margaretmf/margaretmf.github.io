@@ -77,6 +77,7 @@ I do not know, but I love this concept, and I have felt reminded of this intuiti
 I love learning about interconnectedness, and how we are all connecting each other to a higher sense of life.
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
 Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
+I believe in the idea of "standing in union with everyone around in society and the world" as best as I can from this time forth
 
 ## What do I believe in? ##
 I believe in the next generation of humanity and all that they can learn each day and all that they can contribute.
