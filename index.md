@@ -47,6 +47,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
+* Daily, I work to explore the idea of belief and believing.
 * Daily, I work to listen to the feedback I receive from people.
 * Daily, I work to know how I can better work with people.
 * Daily, I work to know how I can respect the boundaries of others.
