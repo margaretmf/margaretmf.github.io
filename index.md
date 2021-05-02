@@ -35,13 +35,15 @@ Me amo muchas de las culturas del mundo, incluyendo Africano, Árabes, Chino, Es
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share. The way people capture stories is important.
 
-## Creo que los cuentos que familias contan sobre antepasados son los elementos más espirituales de quien la gente están. Creo que los detalles importan. Creo en...## 
+## Creo que los cuentos que familias contan sobre sus antepasados son los elementos más espirituales de quien la gente están. Creo que los detalles importan. Es importantae respitar los misterios que la gente comparte. Como la gente captura los cuentos es valiosa. ##
 
 I am interested in how movements start from the ground-up.
 
 I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature in an imaginative way.
 
 Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am driving team members to practice in Charlottesville and waking up at 5am to go to practice in Glasgow, Scotland. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
+
+## Finalmente, como un estudiante de las Universidad de Virginia y la Universidad de Glasgow, remé. ...##
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
