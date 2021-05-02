@@ -781,6 +781,27 @@ Full Circle
 The Changing Seasons
 Adapting with the change
 
+An earth, a sphere
+Blue, green, brown, and white
+The sea and the land
+Humanity circling around
+Different Perspectives
+
+You and me - we live under the same Sun
+It shines on us from different angels
+It lights us up in different ways
+365 days per year
+
+I open my eyes to see your light
+Your truth makes me bolder
+Your love makes me stronger
+Your light makes me lighter
+
+Imagine all the people sharing smiles
+While looking up to this same Sun
+Seeing a friend in everyone
+Loving everyone's view
+
 ----------
 
 All the languages of the earth
@@ -808,6 +829,10 @@ Just live.
 Choose to live another day.
 Choose to learn.
 Love that person wholly.
+
+## It's a Blue-Eyed, Blonde-Haired Thing ##
+It's a blue-eyed, blonde-haired thing.
+Don't we love our brown-haired, brown-eyed sisters though?
 
 ## Partnership ##
 You and I, helping each other to help the world
