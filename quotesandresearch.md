@@ -33,7 +33,7 @@ During her justice work, Harper met many Unitarians also working to bend the arc
 
 Harper died in 1911, before the 19th Amendment gave women the right to vote in 1919. This was a cause she worked hard to bring about. Yet, Harper understood that her labors might bring about freedoms she would never enjoy. She said, 'Apparent failure may hold in its rough shell the germs of a success that will blossom in time, and bear fruit throughout eternity.' Some of the fruits of Harper's labor—and the labor of other Unitarian Universalists—are enjoyed by us today. Yet, we are not done. Oppression still exists in our world. Harper's hands—and Parker's, Adam's, Anthony's, Reeve's and Carson's—are no longer on the arc. Our hands are needed to take their place."
 
-## Winthrop ##
+## [Winthrop](https://www.amazon.com/American-Gospel-Founding-Fathers-Making/dp/0812976665) ##
 "Now the only way to avoid this shipwreck and to provide for our posterity is to follow the counsel of Micah; to do justly, to love mercy, to walk humbly with our God. We must be knit together in this work as one man, we must entertain each other in brotherly affection...we must delight in each other; make others' condition our own, rejoice together; mourn together, labor, and suffer together...for we must consider that we shall be as a city upon a hill, the eyes of all people are upon us; so that if we shall deal falsely with our God in this work we have undertaken, and so cause Him to withdraw His present help from us, we shall be made a story and a by-word through the world...we shall shame the faces of many of God's worthy servants, and cause their prayers to be turned into curses upon us..." (p. 47, "American Gospel: God, the Founding Fathers and the Making of A Nation", Jon Meacham)
 
 ## [Mother Land](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) ##
@@ -83,6 +83,11 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 # America #
 
 # Cultural Exchange #
+"she had looked up how to pronounce each word in Hindi, they became garbled in ehr mouth and the man didn't know what she was saying, and grew confused, and she ended up angry, her face hot and her voice an octave higher than it normally was, hanging up the phone in frustration" (p. 1, "Mother Land", Leah Franqui)
+
+"She had joined an expat Facebook group before she moved to the city, and that had led to a few others, and now she was a member of multiple groups, which threw events and had chatty members who had lots of opinions about subjects Rachel had little interest in. People asked about where to find a summer camp for their six-year-old, or if it was better to vacation in Goa or Kerala, and at which beach and which hotel, and plugged their new business ideas and wellness sessions with earnest abandon. Rachel didn't think she would have much to say to the people discussing these new things, but facing the reality of making friends as an adult in a new city, she tried to go to the meet-ups and participate online." (p. 6, "Mother Land", Leah Franqui)
+
+"compared cultures like children compare baseball cards"
 
 # Infrastructure #
 
