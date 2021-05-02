@@ -1131,6 +1131,21 @@ is_contact: true
 (5) The computer machine running
 (6) A man yelling with his son cheerfully
 
+## **Day 73** ##
+## **Images** ##
+(1) Green paint on a house
+(2) Spanish language on doors and signs
+(3) "Atone" graphic on a building
+(4) Balloons on the street
+(5) A green ladder
+
+## **Sounds** ##
+(1) Water dripping
+(2) Land mower mowing
+(3) Five birds chirping on a wire
+(4) Water bubbling in the bathtub
+(5) Clock ticking
+
 <br>
 
 <br>
