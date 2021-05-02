@@ -1157,18 +1157,9 @@ is_contact: true
 * Farmland, Ports, Mountains
 * Oceans, Rivers, Bays
 * Logistics - Supply Chain Engineering
-* People can learn about history and the country through music & Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land
+* People can learn about history and the country through music & Chinese ballads, songs, folklore; African folkstore, stories; American folklore; South American land and folklore
 * Thornton Wilder, Thornton Burgess
 * Arts in Hotels, Hotel Indigo
-* A City of Strangers, A City of Angels
-* Climbing Up
-* The Face of God in the Sky
-* Regrets
-* Church Bells Ringing, Church Domes, Schools
-* "Sweet Nothings"
-* Secret Admirer
-* Ribbons and Trees and Forests
-* Gas Stations, Hotels
 
 ## ** Plantation ** ##
 The definition of plantation
@@ -1204,6 +1195,18 @@ African music, African land, Cairo
 * Regrets
 * Colors
 * Systems, Universe, Humanity
+* * A City of Strangers, A City of Angels
+* Climbing Up
+* The Face of God in the Sky
+* Regrets
+* Church Bells Ringing, Church Domes, Schools
+* "Sweet Nothings"
+* Secret Admirer
+* Ribbons and Trees and Forests
+* Gas Stations, Hotels
+* Time Glass, and Sand
+* Pen on Paper
+* Paper, Sand, Ocean, Water
 
 
 <br>
@@ -1234,7 +1237,7 @@ African music, African land, Cairo
 * The Assemblage
 
 ## Children's Books Ideas ##
-* Mountains, Eage, love moves mountains, seeing neighbor across countries, international languages, oneness, countries moving together, compassion, spectrum
+* Mountains, Eagle, love moves mountains, seeing neighbor across countries, international languages, oneness, countries moving together, compassion, spectrum
 * Stars, symphony, universe, shining, music, child of the universe, spheres
 * Kalaidoscope, time travel, place, shifts, compass
 * Word structure, tree, grammar
