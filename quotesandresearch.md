@@ -73,6 +73,10 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
 
+
+----------
+
+
 # Belief #
 "He was the kind of man who **believed** hismelf to be better than other people. He liked to be so. He enjoyed knowing where he stood next to others. He had liked her own moral rigidity, her disinterest in breaking with the rituals and conventions of their lives, and yet he had wanted to surpass her in them." (p. 138, "Mother Land", Leah Franqui)
 
@@ -80,37 +84,50 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "Saying it would make it fine; his belief would become her reality. She would live by what other people thought, hoping their thoughts would be so strong that they would make them come true." (p. 261, "Mother Land", Leah Franqui)
 
+
+----------
+
+
 # America #
+"Rachel tried to speak slowly, which was not in her nature. Her in-laws had, when she met them, look confused when she spoke, which Dhruv told her was because she had an American accent, but she privately believed was because they couldn't speak English that well." (p. 12, "Mother Land", Leah Franqui)
+
+"She had seen that kind of happiness in television shows and movies, that American cheer, and she had thought that was just for Westerners. But if Dhruv could find it, if he could be so close with someone, so happy from that closeness, then surely it was not a Western trait at all." (p. 20, "Mother Land", Leah Franqui)
+
+"'You are American. That is what American stories are like. Maybe he made it like that.'" (p. 58, "Mother Land", Leah Franqui)
+
+"What did all this look like to her? Swati wondered. She had seen some movies set in Aemrica, and everything looked so orderly there. The shops where you bought food were air-condition and white and everything was all together." (p. 60, "Mother Land", Leah Franqui)
+
+"Luckily Rachel's parents were American, and couldn't tell anyone in India, therefore didn't matter, but still." (p. 87, "Mother Land", Leah Franqui)
+
+"But Dhruv had refused to do so. Bunny's son, Arjun, though, had gone to America for school but then come back right away and used his newfound knowledge to expand the confection factory and business, even moving the company..." (p. 94, "Mother Land", Leah Franqui)
+
+"'Why should I adapt to her just because she is American? She is living here,' Swati said, with more force than she intended. But it was true, wasn't it, it was what she had been telling herself day after day, that Rachel had to adapt, she had no choice. But wasn't that part of why you left Vinod? For choices?" (p. 178, "Mother Land", Leah Franqui)
+
+"'Not like I thought she might. It's not like America, people getting divorces all the time. We value marraige here.'" (p. 182, "Mother Land", Leah Franqui)
+
+
+----------
+
 
 # Cultural Exchange #
 "she had looked up how to pronounce each word in Hindi, they became garbled in ehr mouth and the man didn't know what she was saying, and grew confused, and she ended up angry, her face hot and her voice an octave higher than it normally was, hanging up the phone in frustration" (p. 1, "Mother Land", Leah Franqui)
 
 "She had joined an expat Facebook group before she moved to the city, and that had led to a few others, and now she was a member of multiple groups, which threw events and had chatty members who had lots of opinions about subjects Rachel had little interest in. People asked about where to find a summer camp for their six-year-old, or if it was better to vacation in Goa or Kerala, and at which beach and which hotel, and plugged their new business ideas and wellness sessions with earnest abandon. Rachel didn't think she would have much to say to the people discussing these new things, but facing the reality of making friends as an adult in a new city, she tried to go to the meet-ups and participate online." (p. 6, "Mother Land", Leah Franqui)
 
-"compared cultures like children compare baseball cards"
+"compared cultures like children compare baseball cards" (p. 8, "Mother Land", Leah Franqui)
+
+"He didn't seem to know so many of the customs; perhaps they were the domain of women, or perhaps he hadn't been paying attention gorwing up. He had lived abroad for years, too; maybe things had changed." (p. 13, "Mother Land", Leah Franqui)
+
+"Rachel had read many books by Indian authors before she had arrived in Mumbai, trying to fill the gaps in her knowledge and in Dhruv's descriptions with information. She had never been to India before she moved, and now she realized that perhaps that had been a good thing." (p. 13, "Mother Land", Leah Franqui)
+
+"Listening intently, she heard murmuring in the living room, words she didn't understand, a conversation in Hindi. She heard more Hindi than English most days; it was a shame she still hadn't learned much. She wasn't good with languages, not like Dhruv was. Everything just passed her by; she could feel things washing over her, nothing sticking in her mind." (p. 42, "Mother Land", Leah Franqui)
+
+
+----------
+
 
 # Infrastructure #
-
-# Marriage #
-"Perhaps it was America, because everyone knew that marriage did't mean anything over there. But here, where people had good values, marriage was life. Swati had turned her back on a good life, left it behind to come and guide her son and daughter-in-law, given up her household and marriage, and Racehl had asked if she was sure." (p.26, "Mother Land", Leah Franqui)
-
-"They had not been able to attend the wedding. At least, that is what they had told people. In truth, they weren't really sure if Dhruv wanted them there. He had announced that he and his fiancée, the one he'd acquired without his parents' ever meeting her ever setting eyes on her, without a proper engagement ceremony, an exchange of gifts between family members, a woman with no people Swati could investigate, no family she could research, no tribe she could find, planned to marry at city hall in New York, in a fast and tiny ceremony, and there was no need for her and Vinod to undergo the long and difficult trip, which would be hard on their bodies and wallets." (p. 18, "Mother Land", Leah Franqui)
-
-"THey had all told her not to marry Dhruv so fat, that they didn't know each other well. They had told her not to quit her job. THey had told her not to move to Mumbai, to visit India first, then make a decision. But the decisions had been made, didn't they see that? Dhruv was so certain that they should get married, so sure that she was the person for him, so clear that Mumbai would be good for both of them. So she had listened to him, told her friends that they were wrong, that they didn't know what she did, which was that Dhruv would make her happy, he would make her life something stable, something solid". (p. 77, "Mother Land", Leah Franqui)
-
-"When she had first married, she had cooked for her in-laws daily. Getting help had been a godsend. She was offering to save Rachel labor, to make her life easier, better, and she said no. The girl was cracked. 'It's so much work,' Swati said again." (p. 92, "Mother Land", Leah Franqui)
-
-"She had imagined herself in love with everyone, from the milkman to their fellow passengers on the bus, and had flirted shamelessly with the boys at the school near their own, unbuttoning the top button of her starched blouses." (p. 93, "Mother Land", Leah Franqui)
-
-"At any family wedding, he was the one telling people how to hang the flowers, how to wrap the turbans, in what order the garlands should be given, what was auspicious and inauspicious, what was wrong and right." (p. 138, "Mother Land", Leah Franqui)
-
-"'Not like I thought she might. It's not like America, people getting divorces all the time. We value marriage here.'
-
-Rachel stiffened. 'People value marriage everywhere,' Rachel said sharply.
-
-'Then why so much divorce divorce divorce all the time?' Swati asked, genuinely curious." (p. 182, "Mother Land", Leah Franqui)
-
-"Was that what it was like for women who moved into an Indian joint-family system, living with their in-laws and with their male in-laws and their families, when they got married?" (p. 193, "Mother Land", Leah Franqui)
+"The streets of Mumbai were bumpy with potholes, speed bumps to slow down fast-moving motorcycles and derail bicycle delivery boys. Every few seconds a bump or depression would rip through the car, jolting Rahcel and Swati against each other. Each woman clutched the side of the car as a matter of course. The seat belts never functioned in these cars, or the black-and-yellow taxis, let alone a rickshaw. As she had grown older, Swati had felt her body protesting Kolkata's ill-kept streets, but somehow Mumbai, wealthy, shiny Mumbai, was even worse. Looking out, though the breeze from the sea caught the trees and the sun felt strong, even though it was autumn. That was nothing like Kolkata's chilly gloom, and Swati found herself smiling out into the bright day, enjoying how the light hit the bright magenta bougainvillea growing like weeds from every balcony and over every fence." (p. 89, "Mother Land", Leah Franqui)
 
 
 ----------
