@@ -70,9 +70,12 @@ Christianity
  
 ## RELEVANT WORK EXPERIENCE
 
-### INDEPENDENT EDUCATION
+### INDEPENDENT Work
 Children's Book Analyst
-* Read children's books, analyze the books, and create outlines to guide how to critically think about them
+* Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career
+
+Photographer 
+* Working on two series - "Light in the Darkness" and "American Flags"
 
 ### VIBRANT WORLD
 Trends and News Reviewer, Data Science Project Application Reviewer, Blog Writer, Media Manager, Researcher, Sketcher, Ideator, & Musician | January 2019 - Present
