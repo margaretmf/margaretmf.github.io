@@ -145,4 +145,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * A set of things working together as parts of a mechanism or an interconnecting network
 * A set of principles or procedures according to which something is done; an organized framework or method
 
+## Resolve: ##
+* To resolve, to settle or find a solution to a problem, dispute, or contentioius matter
+* To decide firmly on a course of action
 
