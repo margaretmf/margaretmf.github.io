@@ -36,7 +36,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ## Winthrop ##
 "Now the only way to avoid this shipwreck and to provide for our posterity is to follow the counsel of Micah; to do justly, to love mercy, to walk humbly with our God. We must be knit together in this work as one man, we must entertain each other in brotherly affection...we must delight in each other; make others' condition our own, rejoice together; mourn together, labor, and suffer together...for we must consider that we shall be as a city upon a hill, the eyes of all people are upon us; so that if we shall deal falsely with our God in this work we have undertaken, and so cause Him to withdraw His present help from us, we shall be made a story and a by-word through the world...we shall shame the faces of many of God's worthy servants, and cause their prayers to be turned into curses upon us..." (p. 47, "American Gospel: God, the Founding Fathers and the Making of A Nation", Jon Meacham)
 
-## Mother Land ##
+## [Mother Land](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) ##
 "Sitting in the cab, Rachel looked out the window as Swati slept next to her and the car sat in Mumbai's never-ending traffic. Outside, the city raged and dozed and moved, always a kaleidoscope of action, as all big cities were, but as Mumbai especialy was, a writhing mass of humanity grinding and struggling against itself, as endless multiheaded snake, a hydra of a city eating itself and fighting itself day in and day out." (p. 235, "Mother Land", Leah Franqui)
 
 "Sometimes, just as Rachel woke up, when the fan blew cooler air across her body and the world outside was somehow magically quiet, she almost thought she was in New York and not India. She forgot, for a spli second, that she was miles away, and smiled at the thought of a bagel, fresh, covered in sesame seeds and bursting with schmeer. But then something would remind her. **The call of banana sellers, the thousand honks of cars and rickshaws and buses and motorcycles, a faint trill of bicycle bells, or the loud chattering of the many murders of crows perched in the palm trees, sinister voices in tropical havens." (p. 71, "Mother Land", Leah Franqui)
@@ -56,7 +56,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 
 # Light in the Darkness Imagery #
-## Mother Land ##
+## [Mother Land](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) ##
 "The next Saturday, as they dodged crowds of tourists taking photos of masterpieces with their phones, she watched his face as he looked at painting after painting with the same expression he had worn since she met him on the steps outside the building: nothing. Blankness. Her heart began to sink. The man who had seemed so interesting and alluring in the **warmth** and the **dark light** of the bar now looked lifeless, and she had just decided that she wouldn't be seeing him again when they stopped in front of Vermeer's *Young Woman with a Water Pitcher*." (p. 75, "Mother Land", Leah Franqui)
 
 "When she had first come to Mumbai, it had whirled past her window in the cab from the airport, and it had looked so much dingier than she had thought it would, as if the city were sepia toned, broken by bright flashes that seemed garish in comparison." (p. 78, "Mother Land", Leah Franqui)
@@ -68,7 +68,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 
 # Light Imagery # 
-## Mother Land ##
+## [Mother Land](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) ##
 "Looking at the delicate painting, the rich tapestry in one corner, the open light streaming through the window and illuminating the young woman's face as she concentrated, a moment caught forever, as precise and clean as a photograph but so much deeper, so much more, he looked stunned. His mouth moved slightly, and his eyes widened, and suddenly, his whole face opened up for her, like a pair of shutters being flung back to let in the morning sun. 'I like this one,' he said, nodding, certain, authoritative. 'It's so simple, but the light. I love the light.'" (p. 75, "Mother Land", Leah Franqui)
 
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
