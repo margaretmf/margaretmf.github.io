@@ -2726,6 +2726,26 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Go ##
+Go forth as if all of the past can be left behind.
+Moving onward, moving forward, not being stalled.
+There's something beyond what is right here.
+Go, march, proceed.
+
+<br>
+
+Word Association: errand, wilt, bathroom, fare, nowhere, move, beyond, stall, travel, leave
+
+## Future ##
+The opportunity that exists tomorrow provides reason to live today.
+Today, there are regrets and a legacy, but there's also a future.
+The past may look bleak, the present may be uncertain, but the future is filled with hope.
+Endless promises and possibilities for those who lean on God and are able to imagine past the dark dreams shielding the light.
+
+<br> 
+
+Word Associations: legacy, questions, uncertainty, hope, fear, promise, possibility, prediction, bleak, imagination
+
 ## Discipline ##
 The discipline within to stay silent, quiet, and in meditation with the Lord.
 The submission to God, the authority figure.
