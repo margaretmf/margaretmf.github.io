@@ -6,7 +6,7 @@
 ----------
 
 
-# Oneness and Unity #
+# Oneness and Unity, Systems #
 ## [Bound Up in One Great Bundle of Humanity](https://www.blackpast.org/african-american-history/speeches-african-american-history/1866-frances-ellen-watkins-harper-we-are-all-bound-together/) ##
 "'We are all bound up in one great bundle of humanity, and society can’t trample on the weakest and feeblest among its members without receiving the curse in its own soul,' she declared." -Frances Ellen Watkins Harper, 1866
 
@@ -43,18 +43,43 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "People like her watched the city through windows as millions of people walked from place to place to work and buy food and find space outside the millions of tiny cramped apartments in the city." (p. 99, "Mother Land", Leah Franqui)
 
+"Sitting in the cab, Rachel looked out the window as Swati slept next to her and the car sat in Mumbai's never-ending traffic. Outside, the city raged and dozed and moved, always a kaleidoscope of action, as all big cities were, but as Mumbai especially was, a writhing mass of humanity grinding and struggling against itself, an endless multiheaded snake, a hydra of a city eating itself and fighting itself day in and day out." (p. 235, "Mother Land", Leah Franqui)
+
+"He came home buzzing, elated with the thrill of loving what he did. Loving helping other business run faster, better, more efficiently. Every day was a series of puzzles Dhruv got to solve, with pleasing money-saving solutions as the reward for his efforts. The puzzles had become harder and mroe complicated in India, and he reveled in it. It excited his brain. It made him happy." (p. 236, "Mother Land", Leah Franqui)
+
+"She looked out onto the sweep of the city, the view from the highway showing her the foothills of South Mumbai, the Sea Link bridge rising dramtically over the water, tiny fishing boats dwarfed by skyscrapers, all of it somehow in the same place at once. Just like her, somehow there, somehow sitting in a rickshaw next to a million other people, all on the same road in the same place; who knew how or why?" (p. 271, "Mother Land", Leah Franqui)
+
+"All you had to do was look out your window, or get out of your rickshaw a little before your destination, and there it all was, the swirling mass of humanity all at once, in every direction. But perhaps many people, the world over, didn't een do that, when it came to life around them. And those women didn't ride in rickshaws, anyway." (p. 274, "Mother Land", Leah Franqui)
+
+
+----------
+
+
 ## Mother Land ##
+# Light in the Darkness Imagery #
+"The next Saturday, as they dodged crowds of tourists taking photos of masterpieces with their phones, she watched his face as he looked at painting after painting with the same expression he had worn since she met him on the steps outside the building: nothing. Blankness. Her heart began to sink. The man who had seemed so interesting and alluring in the **warmth** and the **dark light** of the bar now looked lifeless, and she had just decided that she wouldn't be seeing him again when they stopped in front of Vermeer's *Young Woman with a Water Pitcher*." (p. 75, "Mother Land", Leah Franqui)
+
+"When she had first come to Mumbai, it had whirled past her window in the cab from the airport, and it had looked so much dingier than she had thought it would, as if the city were sepia toned, broken by bright flashes that seemed garish in comparison." (p. 78, "Mother Land", Leah Franqui)
+
 "The dark was beginning to fall, although it was early, only six P.M. and Rachel realized with a start that it was autumn, actually, even though it didn't feel like it; that's why the light was fading. Th eweather never changed much, and she had forgotten that time was moving on regardless. She was getting older, every day. She had lived in Mumbai a day longer every morning. And Swati lived with them longer very minute. But the city was indifferent to Rachel's problems. It had enough of its own." (p. 235, "Mother Land", Leah Franqui)
 
 
 ----------
 
 
+## Mother Land ##
+# Light Imagery # 
+"Looking at the delicate painting, the rich tapestry in one corner, the open light streaming through the window and illuminating the young woman's face as she concentrated, a moment caught forever, as precise and clean as a photograph but so much deeper, so much more, he looked stunned. His mouth moved slightly, and his eyes widened, and suddenly, his whole face opened up for her, like a pair of shutters being flung back to let in the morning sun. 'I like this one,' he said, nodding, certain, authoritative. 'It's so simple, but the light. I love the light.'" (p. 75, "Mother Land", Leah Franqui)
+
+"The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
+
 # Belief #
 
 # Marriage #
 
 # Cultural Exchange #
+
+# Infrastructure #
 
 
 ----------
