@@ -1146,6 +1146,21 @@ is_contact: true
 (4) Water bubbling in the bathtub
 (5) Clock ticking
 
+## **Day 74** ##
+## **Images** ##
+(1) A tree branch fallen
+(2) Purple flowers budding
+(3) Green grass looking like paste on the street asphalt
+(4) Brown circles caved into sdiewalks
+(5) People taking pictures
+
+## **Sounds** ##
+(1) Cars driving by
+(2) Clicking clickety clack of light rale
+(3) Background music
+(4) Sunday afternoon lunches
+(5) Crumbling of dirt
+
 <br>
 
 <br>
@@ -1195,7 +1210,7 @@ African music, African land, Cairo
 * Regrets
 * Colors
 * Systems, Universe, Humanity
-* * A City of Strangers, A City of Angels
+* A City of Strangers, A City of Angels, City of Freedom, City of Visitors, City of Nationz, City of Citizens
 * Climbing Up
 * The Face of God in the Sky
 * Regrets
