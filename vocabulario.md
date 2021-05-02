@@ -57,6 +57,12 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Incluyir (verb, verbo): ##
 * To include
 
+## La Casa (f) (noun, sustantivo): ##
+* Home
+
+## Seguir (verb, verbo): ##
+* To follow, To continue
+
 ----------
 
 ## Encontrar (verb, verbo): ##
@@ -64,3 +70,6 @@ This is a page to share words that speak to me intuitively throughout the day an
 * To find
 
 ----------
+
+## Conjugaciones (Conjugations) ##
+
