@@ -2738,6 +2738,14 @@ That I ne sholde wedded be but ones."
 
 ## **I am not a naturally verbal thinker. I am more naturally a visual thinker, and it has taken me a long time in life to learn how to express my feelings in a world where expressing feelings, or opening up is not ok. I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
+## Challenge ##
+A challenge, an obstacle to overcome, something to create a soltuion for so that people can become better.
+The success that comes from beating down the odds, the opposition, the face of adversity, the championing to something better.
+
+<br>
+
+Word Associations: duel,d are, wrestle, possession, champion, success, opposition, monopoly, ballot, face
+
 ## Go ##
 Go forth as if all of the past can be left behind.
 Moving onward, moving forward, not being stalled.
