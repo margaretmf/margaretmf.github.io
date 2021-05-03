@@ -1447,6 +1447,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men.
 * Grateful for conversations with him about a key African American leader.
 * Grateful for the friendly policeman this morning
+* Grateful for the dignity of people in the car while driving
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
