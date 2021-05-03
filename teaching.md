@@ -175,9 +175,150 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## The Witch of Blackbird Pond by Elizabeth George Speare ##
+### Who? ###
+* the brigantine Dolphin
+* Nathanial Eaton, Nat
+
+### Where? ###
+* leaving open sea, sailing birskly, across the Sound and the Connecticut River, Saybrook harbor
+* Connecticut Colony
+
+### What? ###
+* catching "the first sight of land"
+* "she found this first glimpse of America"
+* "this is the port of Saybrook"
+* "Home to us Eatons. There's my father's shipyard; just beyond the dock."
+* "ride to shore with you", "but there is America"
+* "readied their oars"
+* 43 mile voyage from Saybrook to Wethersfield, Dolphin
+
+### When? ###
+* mid-April 1687
+
+### Color ###
+* black // line
+* gray // harbor
+* turquoise // bay
+* wind-reddened // cheeks
+* tangled // brown // curls
+* blue // eyes
+* wide-brimmed // black // hat
+* brown // forest
+* gray, silk-clad // figure
+* green // palms
+* warm turquoise // ocean
+* white // beaches 
+* soft pink // skin
+* blue-veined // hands
+* brilliant blue // sky
+
+### Adjectives ###
+* long // voyage
+* dozen // words
+* sun-bleached // head
+* disheartening // contrast
+* earthen // wall
+* unimpressive// shacks
+* pure // relief
+* grim // place
+* little // pinnacles
+* natural // sailor
+* unbearable // stench
+* stout // one
+* blue // jackets
+* bright // kerchiefs
+* trip // upriver
+* forbidding // shore
+* shining // eyes
+* boxlike // houses
+* impulsive // trip
+* stiff // courtesy
+* comforting // smile
+* heathen // island
+* famous // town
+* fine // streets
+* windless // hours
+* civil // word
+* unpromising // child
+* punctilious // caution
+* dull // history
+* livelong // day
+* curious // device
+* agonizing // slowness
+* hot spring // sun
+* filthy // ship
+* touchy // temper
+* brocaded // gown
+* leather // bindings
+* sinful // nature
+* solemn // words
+* gentle // voice
+
+### Vocabulary ###
+* Sparkled
+* Hankering
+* Twinkle
+* Anticipation
+* Embarassment
+* Presumed
+* Stow
+* Provisions
+* Impulsive
+* Anguish
+* Sway
+* Teeter
+* Scrambled
+* Gasped
+* Civilized
+* Divest
+* Nonchalance
+* Mocking
+* Punctilious
+* Reluctantly
+* Appallingly
+* Deliberation
+* Shameful
+* Scandalized
+* Thrashing
+* Frizzle
+* Paddled
+* Relief
+* Indignation
+* Reproof
+* Repel
+
+### Allusions ###
+* Africa, Ports, Traveling, Colonies
+
+### Themes ###
+
+### Interesting Sentences or Paragraphs ###
+* "His face lighted with admiration." (p. 3, The Witch of Blackbird Pond)
+
+* "In the wintertime it is, when we sail to the West Indies. But I was born in Saybrook, and in the spring I get to hankering for my house and garden. Besides, I'd never let on to my husband, but the summer trips are tedious, just back and forth up and down the river. I stay at home and tend my vegetables and my spinning like a proper housewife. Then, come November, when he sails for Barbados again, I'm ready enough to go with him. 'Tis a good life, and one of the best things about it is coming home in the springtime.'" (p. 4, The Witch of Blackbird Pond)
+
+* "With a bound she was over the side and had set foot on America. She stood taking deep breaths of the salt, fish-tainted air, and looked about for someone to share her excitement. She was quite forgotten. A throng of men and boys on the wharf had noisily closed in on the three Eatons, and she could hear a busy catching up of the past months' news." (p. 5, The Witch of Blackbird Pond)
+
+* "To make matters worse, America was behaving strangely underfoot. As she stepped forward, the wharf tilted upward, and she felt curiously lightheaded." (p. 6, The Witch of Blackbird Pond)
+
+* "The shock of cold, totally unexpected, almost knocked her senseless. As her head came to the surface she could not catch her breath at all. But after a dazed second she sighted the bobbing piece of wood and instinctively struck out after it in vigorous strokes that set her blood moving again. She had the doll in her hand before her numbed mind realized that there had been a second splah, and as she turned back she saw that Nathaniel was in the water beside her, thrashing with a clumsy paddling motion. She could not help laughing as she passed him, and with a feeling of triumph she beat him to the boat." (p. 8, The Witch of Blackbird Pond)
+
+* "Her high spirits plunged." (p. 10, The Witch of Blackbird Pond)
+
+* "A smile filled his eyes with such warmth and sympathy that a lump rose in Kit's throat, and she glanced away. Then she saw that the child, silently clutching her sodden doll, was staring at her with a gaze of pure worship." (p. 10, The Witch of Blackbird Pond)
+
+* "With the narrowing of the river the fresh sea breeze dropped behind, and by sunset it died away altogether. The sails sagged limp and soundless, and the Dolphin rolled sickeningly in midstream. On one or two evenings a temporary breeze raised their hopes and sent the ship ahead a few miles, only to die away again. In the morning Kit could scarcely tell that they had moved." (p. 15, The Witch of Blackbird Pond)
+
+* "Two sailors in a small boat went some distance ahead bearing a long rope fastened to a small anchor. Rowing as far as the rope would stretch, they dropped the anchor. On the deck of the ship the crew lined up, ten hearty men bared to the waist, each grasping the rope, and began a rhythmical march from one end of the ship to the other. As one man reached the end, he dropped the rope, and raced back to grasp it again at the end of the line. Painfully, almost imperceptibly, the Dolphin inched forward through the water. In an hour's time they had reached the anchor and the rowboat went ahead a second time. Over and over, hour after hour, the men moved, hauling the ship by the sheer force of straining muscle and gasping breath." (p. 21, The Witch of Blackbird Pond)
+
+
+----------
+
+
 ## Frightful's Mountain by Jean Craighead George ##
 ### Author ###
-* "In 1986, I met Jean Craighead George at a friend's home in the upstate New York town were we all live. I grew up admiring the Craigheads, a fmily of naturalists, whose adventures I followed in *National Geographic* magazine, where they always seemed to be attaching transmitters to girzzly bears, banding bald eagles, or paddling canoes and fiberglass kayaks on first descents down the best western white waters. Always, there were flocks of children participating in every adventure and experiment. I thought the Craigheads might be the only family in America that was having more fun than the Kennedys. Obsessed with falcons as I was from birth, I read *My Side of the Mountain* in 1964. When I met Jean Craighead George that day in New York, she reminded me about the letter that I had written her"
+* "In 1986, I met Jean Craighead George at a friend's home in the upstate New York town were we all live. I grew up admiring the Craigheads, a fmily of naturalists, whose adventures I followed in *National Geographic* magazine, where they always seemed to be attaching transmitters to grizzly bears, banding bald eagles, or paddling canoes and fiberglass kayaks on first descents down the best western white waters. Always, there were flocks of children participating in every adventure and experiment. I thought the Craigheads might be the only family in America that was having more fun than the Kennedys. Obsessed with falcons as I was from birth, I read *My Side of the Mountain* in 1964. When I met Jean Craighead George that day in New York, she reminded me about the letter that I had written her"
 
 * "trap fifty hawks: peregrines, Cooper's hawks, sharp-shins, red-tails, goshawks, merlins, and golden eagles"
 
