@@ -691,7 +691,7 @@ In another case the parents of an Asperger teenager called and told me that they
 
 It is essential that talented children labeled either high functioning autism or Asperger's be trained in fields such as computer programming, where they can do intellectually satisfying work.
 
-I have been reading, with great satisfaction, the many articles in magazines about Linux free software. People in the business world are not able to comprehend why the computer people give their work away. I am unable to think about this without becoming emotional. It is no mystery to me why they download their intellectual ideas into the vast, evolving and continually improving computer operating system. It is because their thoughts will live forever as part of the "genetic code" of the computer program. They are putting themselves into the program and their 'intellectual DNA' will live forever in cyber-space. As the program evolves and changes, the code they wrote will probably remain hidden deep within it. It is almost like a living thing that is continually evolving and improving. For both me and for the programmers that contribute to Linux, we do it because it makes our lives more meaningful.
+I have been reading, with great satisfaction, the many articles in magazines about Linux free software. People in the business world are not able to comprehend why the computer people give their work away. I am unable to think about this without becoming emotional. It is no mystery to me why they download their intellectual ideas into the vast, evolving and continually improving computer operating system. It is because their thoughts will live forever as part of the 'genetic code' of the computer program. They are putting themselves into the program and their 'intellectual DNA' will live forever in cyber-space. As the program evolves and changes, the code they wrote will probably remain hidden deep within it. It is almost like a living thing that is continually evolving and improving. For both me and for the programmers that contribute to Linux, we do it because it makes our lives more meaningful.
 
 There is a continuum of personality and intellectual traits from normal to abnormal. At what point does a brilliant computer programmer or engineer get labeled with Asperger's. There is no black and white dividing line. Simon Baron-Cohen, an autism researcher at the University of Cambridge, found that there were 2 ½ times as many engineers in the family history of people with autism. I certainly fit this pattern. My grandfather was an engineer who was co-inventor of the automatic pilot for an airplane. I have second and third cousins who are engineers and mathematicians.
 
@@ -849,9 +849,9 @@ Disorders, psychoses
 'Occupational therapy addresses the dysfunction found in a wide variety of psychiatric, developmental, and physical disorders.'"
 
 ## [Music & Sound Therapy](https://www.ot-innovations.com/music-sound-therapy/) ##
-"Music is a very powerful sensory modulation tool! The therapeutic effects of music on the nervous system are well researched. Literature states that a 60 beat per minute pulse can help entrain healthy internal rhythms. Some important considerations before using music in the environment or during OT treatment sessions include the following: diagnosis, age, culture, environment, personal preferences, sensitivities, and personal history."
+"Music is a very powerful sensory modulation tool! The therapeutic effects of music on the nervous system are well researched. Literature states that a 60 beat per minute pulse can help entrain healthy internal rhythms. Some important considerations before using music in the environment or during OT treatment sessions include the following: diagnosis, age, culture, environment, personal preferences, sensitivities, and personal history.
 
-"Slower paced music with a consistent and predictable rhythm is known for having calming effects on the system, while upbeat & quick paced music is generally alerting and facilitates action/movement. Some popular examples are listed below:
+Slower paced music with a consistent and predictable rhythm is known for having calming effects on the system, while upbeat & quick paced music is generally alerting and facilitates action/movement. Some popular examples are listed below:
 
 Ambient music encompasses a variety of music; most common today are many of the 'relaxation tapes' widely available on the market. The purpose of these recordings is to produce a general state of relaxation.
 
@@ -939,37 +939,37 @@ But what many might not know is that some highly deplorable conditions exist rig
 
 A huge volume of the nation's imports arrive by container ship in Southern California, where short-haul truckers take the merchandise to nearby rail yards or storage depots, a key step in the goods' journey to some of the nation's leading retail stores. A year-long investigation by the USA TODAY Network found that a good chunk of the port trucking industry relies heavily on a modern-day form of indentured servitude.
 
-The abuse starts when a trucking company pressures its drivers to sign lease-to-own contracts on their tractor-trailer rigs. Often, these drivers speak little English and do not understand what they are getting into."
+The abuse starts when a trucking company pressures its drivers to sign lease-to-own contracts on their tractor-trailer rigs. Often, these drivers speak little English and do not understand what they are getting into.
 
 
-"Network reporter Brett Murphy documented hundreds of cases like this at Los Angeles ports since 2010, including 1,150 instances in which drivers had filed formal complaints, 140 trucking companies that had been accused by at least one driver of shorting drivers on pay, and more than 120 cases in which drivers said they worked 12 to 20 hours at a time, in violation of federal highway safety laws."
+Network reporter Brett Murphy documented hundreds of cases like this at Los Angeles ports since 2010, including 1,150 instances in which drivers had filed formal complaints, 140 trucking companies that had been accused by at least one driver of shorting drivers on pay, and more than 120 cases in which drivers said they worked 12 to 20 hours at a time, in violation of federal highway safety laws.
 
 
-"Federal law has numerous workplace protections, but only for employees. The trucking companies at the Port of Los Angeles classify their drivers, incorrectly in many cases, as independent contractors rather than employees."
+Federal law has numerous workplace protections, but only for employees. The trucking companies at the Port of Los Angeles classify their drivers, incorrectly in many cases, as independent contractors rather than employees.
 
 
-"If a category of worker is to exist outside of the Fair Labor Standards Act and other workplace protection laws, Congress needs to either delegate workplace authority to the states, or set minimum standards to protect contract workers against exploitation."
+If a category of worker is to exist outside of the Fair Labor Standards Act and other workplace protection laws, Congress needs to either delegate workplace authority to the states, or set minimum standards to protect contract workers against exploitation.
 
 
-"The industry points to a study stating that drivers like being independent contractors. But the study is commissioned by the industry, uses data not available to outsiders, and includes long-haul drivers as well as the port truckers who are the subject of so much abuse."
+The industry points to a study stating that drivers like being independent contractors. But the study is commissioned by the industry, uses data not available to outsiders, and includes long-haul drivers as well as the port truckers who are the subject of so much abuse."
 
 
 ## [Review: The Big Rig: Trucking and the Decline of the American Dream](https://www.labornotes.org/blogs/2017/10/review-big-rig-trucking-and-decline-american-dream) ##
-"Truck drivers seem to have re-entered the public consciousness in 2017—but today our understanding of the occupation is far from the freewheeling “cowboy of the highway” image of the 1970s. It’s also no longer synonymous with “Teamster” or even seen as a desirable job.
+"Truck drivers seem to have re-entered the public consciousness in 2017—but today our understanding of the occupation is far from the freewheeling “cowboy of the highway” image of the 1970s. It’s also no longer synonymous with 'Teamster' or even seen as a desirable job.
 
-These days most talk about truckers centers on self-driving vehicles and the prospect that more than three million professional drivers will be replaced by robots. Business writers excitedly write about how this “cost-saving” technology lies just around the corner, only briefly pausing to consider the social crisis that would be created by laying off so many workers.
+These days most talk about truckers centers on self-driving vehicles and the prospect that more than three million professional drivers will be replaced by robots. Business writers excitedly write about how this 'cost-saving' technology lies just around the corner, only briefly pausing to consider the social crisis that would be created by laying off so many workers.
 
-As a truck driver myself, I know that so much of what we do is far too complicated to be replaced by technology any time soon. We do a lot more than just hold a steering wheel. We navigate city streets and highways that are perpetually “under construction,” deal with distracted drivers who spend more time looking at their phones than at the road, maneuver impossibly narrow spaces to make deliveries, and back trailers up to dock doors, sometimes across traffic, with no room for error—and that's just what we do from the driver’s seat, not counting time for inspections, dropping and hooking, loading and unloading."
-
-
-"As 27-year driver Greg Simmons says in a recent New York Times profile of long-haul truckers, “We’re throwaway people. Nobody cares about us.” Simmons says he feels trapped in an occupation that no longer provides a decent living, thanks to corporate innovations like the pay-by-mile system, which doesn’t account for all the hours drivers get stuck in traffic or wait on trailers to be loaded or unloaded, a process that often takes hours.
-
-For truckers at the ports who move goods from ships to warehouses, the situation is even worse. An in-depth USA Today report (June 20, 2017) exposed the terrible conditions faced by immigrants driving trucks at the ports of Los Angeles and Long Beach, describing their situation as “modern-day indentured servitude.”
-
-Many port truckers are locked into lease agreements in which a large portion of their wages goes toward their truck and vehicle maintenance. Their bosses use these leasing agreements to force drivers into punishing schedules, threatening them with losing their truck (and forfeiting all the wages paid into the truck) if they refuse to work beyond the legal maximum hours or if they get sick and can't work. They are also often misclassified as “independent contractors,” depriving drivers of basic protections like overtime compensation, family and medical leave, and unemployment insurance."
+As a truck driver myself, I know that so much of what we do is far too complicated to be replaced by technology any time soon. We do a lot more than just hold a steering wheel. We navigate city streets and highways that are perpetually 'under construction,' deal with distracted drivers who spend more time looking at their phones than at the road, maneuver impossibly narrow spaces to make deliveries, and back trailers up to dock doors, sometimes across traffic, with no room for error—and that's just what we do from the driver’s seat, not counting time for inspections, dropping and hooking, loading and unloading.
 
 
-"Deregulation, beginning with President Carter and continued by Ronald Reagan, did away with the federal permit system and encouraged thousands of new carriers to enter the industry. By dramatically increasing competition, both shipping prices and wages were driven down considerably. It became more affordable for shippers to use 'truckload' shipments, where a trailer is filled exclusively with one shipper’s freight and sent directly to its destination, instead of relying on the union-dense “less than truckload” terminals to move smaller shipments."
+As 27-year driver Greg Simmons says in a recent New York Times profile of long-haul truckers, 'We’re throwaway people. Nobody cares about us.' Simmons says he feels trapped in an occupation that no longer provides a decent living, thanks to corporate innovations like the pay-by-mile system, which doesn’t account for all the hours drivers get stuck in traffic or wait on trailers to be loaded or unloaded, a process that often takes hours.
+
+For truckers at the ports who move goods from ships to warehouses, the situation is even worse. An in-depth USA Today report (June 20, 2017) exposed the terrible conditions faced by immigrants driving trucks at the ports of Los Angeles and Long Beach, describing their situation as 'modern-day indentured servitude.'
+
+Many port truckers are locked into lease agreements in which a large portion of their wages goes toward their truck and vehicle maintenance. Their bosses use these leasing agreements to force drivers into punishing schedules, threatening them with losing their truck (and forfeiting all the wages paid into the truck) if they refuse to work beyond the legal maximum hours or if they get sick and can't work. They are also often misclassified as 'independent contractors, depriving drivers of basic protections like overtime compensation, family and medical leave, and unemployment insurance.
+
+
+Deregulation, beginning with President Carter and continued by Ronald Reagan, did away with the federal permit system and encouraged thousands of new carriers to enter the industry. By dramatically increasing competition, both shipping prices and wages were driven down considerably. It became more affordable for shippers to use 'truckload' shipments, where a trailer is filled exclusively with one shipper’s freight and sent directly to its destination, instead of relying on the union-dense “less than truckload” terminals to move smaller shipments."
 
 
 ## [The Big Rig: Trucking and the Decline of the American Dream](https://www.ucpress.edu/book.php?isbn=9780520278127) ##
