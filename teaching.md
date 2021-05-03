@@ -218,6 +218,15 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * peacock // blue gown
 * pink // cheeks
 * blue // wool
+* black // flies
+* white // sepulcher
+* cinnamon // broadcloth coat
+* fluffy // white kernels
+* pale // cheeks
+* white // oak
+* gray // wool
+* gray // figure
+* black // covers
 
 ### Adjectives ###
 * long // voyage
@@ -289,6 +298,61 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * damp // pillow
 * single // sniff
 * bushy // eyebrows
+* nasal // voice
+* reverent // silence
+* rustling // sound
+* constant // jerking
+* fleeting // motion
+* imprisoned // fly
+* downright // hostility
+* impulsive // greeeting
+* remarkable // sermon
+* new // pupil
+* gracious // acceptance
+* plain // features
+* sturdy // frame
+* helpless // rage
+* evil // results
+* musical // cadence
+* deliberate // appraisal
+* fulsome // words
+* good // standing
+* folded // hands
+* urgent // prayer
+* outside // door
+* parlor // door
+* understanding // glance
+* unclaimed // land
+* soft // life
+* bare // hands
+* single // winter
+* substantial // way
+* breath // tightening
+* brief // leasure
+* veritable // mountain
+* steady // admiration
+* easier // relationship
+* river // floods
+* rich // soil
+* marshy // pond
+* little // soil
+* creepy // feeling
+* long // stick
+* lonely // figure
+* encroaching // weeds
+* primer // readers
+* stout-handled // wooden
+* narrow // leather
+* blurred // letters
+* breathless // eagerness
+* every // motion
+* delighted // expectation
+* stocky small // edition
+* simple // method
+* daily // scrambling
+* lovely // composure
+* chanting // syllables
+* enforced // discipline
 
 ### Vocabulary ###
 * Sparkled
@@ -330,11 +394,27 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Drained
 * Repented
 * Protest
+* Recoiled
+* Convulse
+* Menacingly
+* Pompous
+* Shrivel
+* Timorous
+* Venture
+* Desperation
+* Rebel
+* Solemnness
+* Indulgence
 
 ### Allusions ###
 * Africa, Ports, Traveling, Colonies
 
 ### Themes ###
+* Voyage
+* Relationship to Christianity
+* Society
+* Slave history
+* Education
 
 ### Interesting Sentences or Paragraphs ###
 * "His face lighted with admiration." (p. 3, The Witch of Blackbird Pond)
@@ -362,6 +442,16 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "After the candles were lit, Rachel and the two girls picked up skeins of yarn and began to knit as Matthew drew the great Bible toward him across the table. Matthew's voice was harsh and monotonous. Kit could not keep her mind on the words. Every muscle in her body ached with weariness. As the reading went on her head grew heavier, and twice she jerked herself painfully back from the bring of sleep. The others, intent on their knitting, did not notice. Only when her uncle closed the Book and bent his head for the long evening prayer, did the clicking needles cease." (p. 49, The Witch of Blackbird Pond)
 
 * "There was no Church of England in Wethersfield, her uncle had informed her, and furthermore, since she was now a member of his household she would forget her popish ideas and attend Meeting like a God-fearing woman. This time, however, he was baffled; he knew as well as she that there were no garments to spare in that house." (p. 51, The Witch of Blackbird Pond)
+
+* "The sun slanted directly downward through the clinks in the roof when the sermon ended. It must have been a good two hours, and would, Kit suspected have been much longer had not the minister's voice grown increasingly hoarse till it threatened-to fail altogether. Kit rose thankfully for the final prayer, and stood respectfully with the rest of the congregation till the minister had passed down the aisle the door." (pp. 54-55, The Witch of Blackbird Pond)
+
+* "The roadway was bordered and daisies and buttercups, pale and thin, of course, compared to the brilliant masses of color in Barbados, but pretty all the same." (pp. 75-76, The Witch of Blackbird Pond)
+
+* "What patience Mercy, ahd@ If only patience were contagious like mumps. Kit sighed and urned back to the primer. Of all the dreary monotous sermons! Grandfather would never have allowed her to learn from such a book. She wished she could remember her grandfather had taught her the syllables and word. She suspected that he had made up his own lessons, and now, as her small pupiles spelled out the gloomy text, she could not resist following his example. She seized a quill pen and printed two lines on a scrap of the curly birch bark which the children collected to use in place of costly paper." (p. 83, The Witch of Blackbird Pond)
+
+* "Now she had only the BIble to read to them, but there was far more between those black covers than the verses Uncle Matthew favored. Kit chose the stories she herself enjoyed most, and her reading had a zest and liveliness that enthralled the children. Even Mercy was surprised, and frequently a little distrubed at the drama that Kit seemed to discover in these long-familiar narratives." (p. 86, The Witch of Blackbird Pond)
+
+* "Today she chose the parable of the Good Samaritan. 'Now a certain man,' she began, 'went down from Jerusalem to Jericho and fell among thieves - Suddenly she had an inspiration. Years ago, her grandfather had taken her to see a masque in Bridgetown, in which a troupe of players from England had acted out the ancient Christmas story." (p. 86, The Witch of Blackbird Pond)
 
 
 ----------
