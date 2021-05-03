@@ -153,3 +153,5 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The quality or fact of being able to grip something firmly; grip
 * The quality or fact of being very determine
 
+## Gracious: ##
+* Courteous, kind, and pleasant
