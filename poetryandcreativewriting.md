@@ -134,7 +134,23 @@ Maps show visually the relationships of places culturally and historically, and 
 ## The Purpose of Studying History ##
 The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
-# Creative Writing #
+## Bricks ##
+Day by day
+brick by brick
+stone by stone
+this house is being built.
+The ground is laid.
+The space is new and fresh.
+The light shines through the windows.
+
+Act by act
+Greeting by greeting
+Morning by morning
+this day is alive.
+The town is living.
+The neighborhood is vivid and moving.
+The sun shines down with heat.
+
 ## Tennessee and Nashville ##
 Tennessee used to be the west, and the state of the frontier, not just the south.
 
