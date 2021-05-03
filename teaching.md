@@ -212,6 +212,12 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * soft pink // skin
 * blue-veined // hands
 * brilliant blue // sky
+* clear // white // skin
+* blue // eyes
+* dark // fringe
+* peacock // blue gown
+* pink // cheeks
+* blue // wool
 
 ### Adjectives ###
 * long // voyage
@@ -254,6 +260,35 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * sinful // nature
 * solemn // words
 * gentle // voice
+* bushy // eyebrows
+* bouncing // spirits
+* drifting // mist
+* unbroken // forest
+* cavernous // wooden structures
+* yapping // dogs
+* dainty // kid
+* mud // puddle
+* slimy // ruts
+* mere // settlement
+* soaked // ruffles
+* cow //path
+* iron // knocker
+* shallow // hallway
+* great // kitchen
+* small // chin
+* quiet // sympathy
+* heavy // door
+* corn // bread
+* homespun // skirt
+* unwilling // respect
+* carding // wool
+* awkward // things
+* alarmning // meaning
+* irksome // procedure
+* lumpy // indigestible // mass
+* damp // pillow
+* single // sniff
+* bushy // eyebrows
 
 ### Vocabulary ###
 * Sparkled
@@ -287,6 +322,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Indignation
 * Reproof
 * Repel
+* Auspiciously
+* Vigorously
+* Planking
+* Idleness
+* Rejoicing
+* Drained
+* Repented
+* Protest
 
 ### Allusions ###
 * Africa, Ports, Traveling, Colonies
@@ -311,6 +354,14 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "With the narrowing of the river the fresh sea breeze dropped behind, and by sunset it died away altogether. The sails sagged limp and soundless, and the Dolphin rolled sickeningly in midstream. On one or two evenings a temporary breeze raised their hopes and sent the ship ahead a few miles, only to die away again. In the morning Kit could scarcely tell that they had moved." (p. 15, The Witch of Blackbird Pond)
 
 * "Two sailors in a small boat went some distance ahead bearing a long rope fastened to a small anchor. Rowing as far as the rope would stretch, they dropped the anchor. On the deck of the ship the crew lined up, ten hearty men bared to the waist, each grasping the rope, and began a rhythmical march from one end of the ship to the other. As one man reached the end, he dropped the rope, and raced back to grasp it again at the end of the line. Painfully, almost imperceptibly, the Dolphin inched forward through the water. In an hour's time they had reached the anchor and the rowboat went ahead a second time. Over and over, hour after hour, the men moved, hauling the ship by the sheer force of straining muscle and gasping breath." (p. 21, The Witch of Blackbird Pond)
+
+* "Along with her pretty shoes Kit's spirits sank lower at each step. She had clutched at a hope that the dark fringe of dripping trees might somehow be concealing the town she had anticipated." (p. 29, The Witch of Blackbird Pond)
+
+* "In her eagerness to make a good impression Kit had selected this dress with care, but here in this plain room it seemed overelegant. The three other women were all wearing some nondescript sort of coarse gray stuff." (p. 33, The Witch of Blackbird Pond)
+
+* "After the candles were lit, Rachel and the two girls picked up skeins of yarn and began to knit as Matthew drew the great Bible toward him across the table. Matthew's voice was harsh and monotonous. Kit could not keep her mind on the words. Every muscle in her body ached with weariness. As the reading went on her head grew heavier, and twice she jerked herself painfully back from the bring of sleep. The others, intent on their knitting, did not notice. Only when her uncle closed the Book and bent his head for the long evening prayer, did the clicking needles cease." (p. 49, The Witch of Blackbird Pond)
+
+* "There was no Church of England in Wethersfield, her uncle had informed her, and furthermore, since she was now a member of his household she would forget her popish ideas and attend Meeting like a God-fearing woman. This time, however, he was baffled; he knew as well as she that there were no garments to spare in that house." (p. 51, The Witch of Blackbird Pond)
 
 
 ----------
