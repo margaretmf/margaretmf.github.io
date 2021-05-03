@@ -69,6 +69,9 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## La Tenacidad (f) (noun, sustantivo): ##
 * Tenacity
 
+## Encender (verb, verbo): ##
+* To turn on, to ignite, to light up within
+
 ----------
 
 ## Encontrar (verb, verbo): ##
