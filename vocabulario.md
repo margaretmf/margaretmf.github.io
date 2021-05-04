@@ -72,6 +72,9 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Encender (verb, verbo): ##
 * To turn on, to ignite, to light up within
 
+## Conversar (verb, verbo): ##
+* To converse
+
 ----------
 
 ## Encontrar (verb, verbo): ##
