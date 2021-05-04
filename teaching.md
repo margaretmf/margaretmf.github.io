@@ -181,17 +181,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * black // line, gray // harbor, turquoise // bay, wind-reddened // cheeks, tangled brown // curls, blue // eyes, wide-brimmed, black // hat, brown // forest, gray, silk-clad // figure, green // palms, warm turquoise // ocean, white // beaches, soft pink // skin, blue-veined // hands, brilliant blue // sky, clear // white // skin, blue // eyes, dark // fringe, peacock // blue gown, pink // cheeks, blue // wool, black // flies, white // sepulcher, cinnamon // broadcloth coat, fluffy // white kernels, pale // cheeks, white // oak, gray // wool, gray // figure, black // covers
 
 ### Adjectives ###
-* long // voyage, dozen // words, sun-bleached // head
-* disheartening // contrast
-* earthen // wall
-* unimpressive// shacks
-* pure // relief
-* grim // place
-* little // pinnacles
-* natural // sailor
-* unbearable // stench
-* stout // one
-* blue // jackets
+* long // voyage, dozen // words, sun-bleached // head, disheartening // contrast, earthen // wall, unimpressive// shacks, pure // relief, grim // place, little // pinnacles, natural // sailor, unbearable // stench, stout // one, blue // jackets
 * bright // kerchiefs
 * trip // upriver
 * forbidding // shore
