@@ -155,3 +155,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 
 ## Gracious: ##
 * Courteous, kind, and pleasant
+
+## Fluid: ##
+* A substance that has no fixed shape and yields easily to external pressure; a gas or (especially) a liquid
+* Able to flow easily
