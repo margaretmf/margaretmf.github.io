@@ -273,6 +273,26 @@ Doing the same thing throught he spirit in a different form.
 ## Engineering, A Career of Singing ##
 The work of engineering, a career of singing, and nature, and where the constructions of mankind meet nature.
 
+## Let It Crash ##
+Let it crash
+Let it fully crash
+Let it crash
+Let the waves crash
+Then rise back up to meet the tide
+
+The crashing washes it out
+The cleansing is in the crash
+The crash supports the moment to begin again, and receive the help
+
+The crash is the dirt moving out with the purifying waters
+The irritants flesh out
+The cleansing salt water is found
+
+There's a way
+The ocean is always moving
+The water is always stirring
+The storm will die down
+
 ## Words of Wisdom ##
 The older I grow the more I learn and the more I realize I did not create this world.
 The older I grow the humbler I become.
