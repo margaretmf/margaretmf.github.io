@@ -181,170 +181,12 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * black // line, gray // harbor, turquoise // bay, wind-reddened // cheeks, tangled brown // curls, blue // eyes, wide-brimmed, black // hat, brown // forest, gray, silk-clad // figure, green // palms, warm turquoise // ocean, white // beaches, soft pink // skin, blue-veined // hands, brilliant blue // sky, clear // white // skin, blue // eyes, dark // fringe, peacock // blue gown, pink // cheeks, blue // wool, black // flies, white // sepulcher, cinnamon // broadcloth coat, fluffy // white kernels, pale // cheeks, white // oak, gray // wool, gray // figure, black // covers
 
 ### Adjectives ###
-* long // voyage, dozen // words, sun-bleached // head, disheartening // contrast, earthen // wall, unimpressive// shacks, pure // relief, grim // place, little // pinnacles, natural // sailor, unbearable // stench, stout // one, blue // jackets
-* bright // kerchiefs
-* trip // upriver
-* forbidding // shore
-* shining // eyes
-* boxlike // houses
-* impulsive // trip
-* stiff // courtesy
-* comforting // smile
-* heathen // island
-* famous // town
-* fine // streets
-* windless // hours
-* civil // word
-* unpromising // child
-* punctilious // caution
-* dull // history
-* livelong // day
-* curious // device
-* agonizing // slowness
-* hot spring // sun
-* filthy // ship
-* touchy // temper
-* brocaded // gown
-* leather // bindings
-* sinful // nature
-* solemn // words
-* gentle // voice
-* bushy // eyebrows
-* bouncing // spirits
-* drifting // mist
-* unbroken // forest
-* cavernous // wooden structures
-* yapping // dogs
-* dainty // kid
-* mud // puddle
-* slimy // ruts
-* mere // settlement
-* soaked // ruffles
-* cow //path
-* iron // knocker
-* shallow // hallway
-* great // kitchen
-* small // chin
-* quiet // sympathy
-* heavy // door
-* corn // bread
-* homespun // skirt
-* unwilling // respect
-* carding // wool
-* awkward // things
-* alarmning // meaning
-* irksome // procedure
-* lumpy // indigestible // mass
-* damp // pillow
-* single // sniff
-* bushy // eyebrows
-* nasal // voice
-* reverent // silence
-* rustling // sound
-* constant // jerking
-* fleeting // motion
-* imprisoned // fly
-* downright // hostility
-* impulsive // greeeting
-* remarkable // sermon
-* new // pupil
-* gracious // acceptance
-* plain // features
-* sturdy // frame
-* helpless // rage
-* evil // results
-* musical // cadence
-* deliberate // appraisal
-* fulsome // words
-* good // standing
-* folded // hands
-* urgent // prayer
-* outside // door
-* parlor // door
-* understanding // glance
-* unclaimed // land
-* soft // life
-* bare // hands
-* single // winter
-* substantial // way
-* breath // tightening
-* brief // leasure
-* veritable // mountain
-* steady // admiration
-* easier // relationship
-* river // floods
-* rich // soil
-* marshy // pond
-* little // soil
-* creepy // feeling
-* long // stick
-* lonely // figure
-* encroaching // weeds
-* primer // readers
-* stout-handled // wooden
-* narrow // leather
-* blurred // letters
-* breathless // eagerness
-* every // motion
-* delighted // expectation
-* stocky small // edition
-* simple // method
-* daily // scrambling
-* lovely // composure
-* chanting // syllables
-* enforced // discipline
+* long // voyage, dozen // words, sun-bleached // head, disheartening // contrast, earthen // wall, unimpressive// shacks, pure // relief, grim // place, little // pinnacles, natural // sailor, unbearable // stench, stout // one, blue // jackets, bright // kerchiefs, trip // upriver, forbidding // shore, shining // eyes, boxlike // houses, impulsive // trip, stiff // courtesy, comforting // smile, heathen // island, famous // town, fine // streets, windless // hours, civil // word, unpromising // child, punctilious // caution, dull // history, livelong // day, curious // device, agonizing // slowness, hot spring // sun, filthy // ship, touchy // temper, brocaded // gown, leather // bindings, sinful // nature, solemn // words, gentle // voice, bushy // eyebrows, bouncing // spirits, drifting // mist, unbroken // forest, cavernous // wooden structures, yapping // dogs, dainty // kid, mud // puddle, slimy // ruts, mere // settlement, soaked // ruffles, cow // path, iron // knocker, shallow // hallway, great // kitchen, small // chin, quiet // sympathy, heavy // door, corn // bread, homespun // skirt, unwilling // respect, carding // wool, awkward // things, alarming // meaning, irksome // procedure, lumpy // indigestible // mass, damp // pillow, single // sniff, bushy // eyebrows, nasal // voice, reverent // silence, rustling // sound, constant // jerking, fleeting // motion, imprisoned // fly, downright // hostility, impulsive // greeting, remarkable // sermon, new // pupil, gracious // acceptance, plain // features, sturdy // frame, helpless // rage, evil // results, musical // cadence, deliberate // appraisal, fulsome // words, good // standing, folded // hands, urgent // prayer, outside // door, parlor // door understanding // glance, unclaimed // land, soft // life, bare // hands, single // winter,  substantial // way, breath // tightening, brief // leasure, veritable // mountain, steady // admiration, easier // relationship, river // floods, rich // soil, marshy // pond, little // soil, creepy // feeling, long // stick, lonely // figure, encroaching // weeds, primer // readers, stout-handled // wooden, narrow // leather, blurred // letters, breathless // eagerness, every // motion, delighted // expectation, stocky small // edition, simple // method, daily // scrambling, lovely // composure, chanting // syllables, enforced // discipline
 
 ### Vocabulary ###
-* Sparkled
-* Hankering
-* Twinkle
-* Anticipation
-* Embarassment
-* Presumed
-* Stow
-* Provisions
-* Impulsive
-* Anguish
-* Sway
-* Teeter
-* Scrambled
-* Gasped
-* Civilized
-* Divest
-* Nonchalance
-* Mocking
-* Punctilious
-* Reluctantly
-* Appallingly
-* Deliberation
-* Shameful
-* Scandalized
-* Thrashing
-* Frizzle
-* Paddled
-* Relief
-* Indignation
-* Reproof
-* Repel
-* Auspiciously
-* Vigorously
-* Planking
-* Idleness
-* Rejoicing
-* Drained
-* Repented
-* Protest
-* Recoiled
-* Convulse
-* Menacingly
-* Pompous
-* Shrivel
-* Timorous
-* Venture
-* Desperation
-* Rebel
-* Solemnness
-* Indulgence
+* Sparkled, Hankering, Twinkle, Anticipation, Embarassment, Presumed, Stow, Provisions, Impulsive, Anguish, Sway, Teeter, Scrambled, Gasped, Civilized, Divest, Nonchalance, Mocking, Punctilious, Reluctantly, Appallingly, Deliberation, Shameful, Scandalized, Thrashing, Frizzle, Paddled, Relief, Indignation, Reproof,
+Repel, Auspiciously, Vigorously, Planking, Idleness, Rejoicing, Drained, Repented, Protest, Recoiled, Convulse, Menacingly, Pompous, Shrivel, Timorous, 
+Venture, Desperation, Rebel, Solemnness, Indulgence
 
 ### Allusions ###
 * Africa, Ports, Traveling, Colonies
@@ -399,7 +241,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## Frightful's Mountain by Jean Craighead George ##
 ### Author ###
-* "In 1986, I met Jean Craighead George at a friend's home in the upstate New York town were we all live. I grew up admiring the Craigheads, a fmily of naturalists, whose adventures I followed in *National Geographic* magazine, where they always seemed to be attaching transmitters to grizzly bears, banding bald eagles, or paddling canoes and fiberglass kayaks on first descents down the best western white waters. Always, there were flocks of children participating in every adventure and experiment. I thought the Craigheads might be the only family in America that was having more fun than the Kennedys. Obsessed with falcons as I was from birth, I read *My Side of the Mountain* in 1964. When I met Jean Craighead George that day in New York, she reminded me about the letter that I had written her"
+* "In 1986, I met Jean Craighead George at a friend's home in the upstate New York town were we all live. I grew up admiring the Craigheads, a family of naturalists, whose adventures I followed in *National Geographic* magazine, where they always seemed to be attaching transmitters to grizzly bears, banding bald eagles, or paddling canoes and fiberglass kayaks on first descents down the best western white waters. Always, there were flocks of children participating in every adventure and experiment. I thought the Craigheads might be the only family in America that was having more fun than the Kennedys. Obsessed with falcons as I was from birth, I read *My Side of the Mountain* in 1964. When I met Jean Craighead George that day in New York, she reminded me about the letter that I had written her"
 
 * "trap fifty hawks: peregrines, Cooper's hawks, sharp-shins, red-tails, goshawks, merlins, and golden eagles"
 
