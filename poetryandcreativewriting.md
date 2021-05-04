@@ -134,6 +134,17 @@ Maps show visually the relationships of places culturally and historically, and 
 ## The Purpose of Studying History ##
 The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
+## An Aerial View ##
+The moment of death and wanting to escape. 
+Thought lifts up.
+Thought lifts up and flys freely up above.
+Angels lift the thoughts up.
+The inner sight lifts into the sky.
+It feels like flying mentally above and seeing the whole city, all the mountains, all the clouds.
+Everything can be seen from a birds-eye view.
+Inner freedom, freedom from the entrapment of the physicality.
+Living fully inwardly in the sky like a bird mentally.
+
 ## Bricks ##
 Day by day
 brick by brick
@@ -147,9 +158,19 @@ Act by act
 Greeting by greeting
 Morning by morning
 this day is alive.
-The town is living.
-The neighborhood is vivid and moving.
+The town is moving.
+The neighborhood is vivid.
 The sun shines down with heat.
+
+Meeting by meeting
+Outing by outing
+setting by setting
+this day is done.
+The home is at peace.
+The greenery spreads on the fence.
+The lights are dimmed.
+The time is there for rest.
+The darkness draws near.
 
 ## Tennessee and Nashville ##
 Tennessee used to be the west, and the state of the frontier, not just the south.
