@@ -2,20 +2,12 @@
 
 The top three books for children I have read are "The River", "Hatchet", and "Where the Wild Fern Grows".
 
-Additional books include "Mandy", "The Indian in the Cupboard", "Mr. Popper's Penguins", "Island of the Blue Dolphins", "The Secret of the Indian", "Brian's Winter", "The Return of the Indian", "My Side of the Mountain", "The Call of the Wild", "On the Far Side of the Mountain", and "Out of the Dust".
-
 Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
-
-Children's books on a list include: "Chasing Vermeer", "A Dog's Life", "Elijah of Buxton", "Freak the Mighty", "George", "Gregor the Overlander", "Missing May", "My Brother Sam is Dead", "A Night Divided", "Rules", "Save Me a Seat", "A Snicker of Magic", "Esperanza Rising", and "Witness".
 
 
 # Critical Reading #
 ## Tragedy ##
 * A dramatic composition, often in verse, dealing with a serious or somber theme, typically that of a great person destined through a flaw of character or conflict with some overpowering force, as fate or society, to downfall or destruction.
-* The art and theory of writing and producing tragedies.
-* Any literary composition, as a novel, dealing with a somber theme carried to a tragic conclusion.
-* The tragic element of drama, of literature generally, or of life.
-* A lamentable, dreadful, or fatal event or affair.
 * A drama or literary work in which the main character is brought to ruin or suffers extreme sorrow, especially as a consequence of a tragic flaw, moral weakness, or inability to cope with unfavorable circumstances.
 
 ## Crucible ##
@@ -177,61 +169,19 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## The Witch of Blackbird Pond by Elizabeth George Speare ##
 ### Who? ###
-* the brigantine Dolphin
-* Nathanial Eaton, Nat
+* The Brigantine Dolphin and Nathaniel Eaton, Nat.
 
 ### Where? ###
-* leaving open sea, sailing birskly, across the Sound and the Connecticut River, Saybrook harbor
-* Connecticut Colony
+* They leave open sea, sail briskly across the Sound and the Connecticut River, Saybrook Harbor. They work in the Connecticut Colony.
 
 ### What? ###
-* catching "the first sight of land"
-* "she found this first glimpse of America"
-* "this is the port of Saybrook"
-* "Home to us Eatons. There's my father's shipyard; just beyond the dock."
-* "ride to shore with you", "but there is America"
-* "readied their oars"
-* 43 mile voyage from Saybrook to Wethersfield, Dolphin
-
-### When? ###
-* mid-April 1687
+* They catch "the first sight of land" where "she found this first glimpse of America". "This is the port of Saybrook", "home to Eatons", where the "shipyard" is "just beyond the dock." They "ride to shore with each other", "but there is America" and they "ready their oars". 43 mile voyage from Saybrook to Wethersfield, Dolphin. This all happened in Mid-April 1687.
 
 ### Color ###
-* black // line
-* gray // harbor
-* turquoise // bay
-* wind-reddened // cheeks
-* tangled // brown // curls
-* blue // eyes
-* wide-brimmed // black // hat
-* brown // forest
-* gray, silk-clad // figure
-* green // palms
-* warm turquoise // ocean
-* white // beaches 
-* soft pink // skin
-* blue-veined // hands
-* brilliant blue // sky
-* clear // white // skin
-* blue // eyes
-* dark // fringe
-* peacock // blue gown
-* pink // cheeks
-* blue // wool
-* black // flies
-* white // sepulcher
-* cinnamon // broadcloth coat
-* fluffy // white kernels
-* pale // cheeks
-* white // oak
-* gray // wool
-* gray // figure
-* black // covers
+* black // line, gray // harbor, turquoise // bay, wind-reddened // cheeks, tangled brown // curls, blue // eyes, wide-brimmed, black // hat, brown // forest, gray, silk-clad // figure, green // palms, warm turquoise // ocean, white // beaches, soft pink // skin, blue-veined // hands, brilliant blue // sky, clear // white // skin, blue // eyes, dark // fringe, peacock // blue gown, pink // cheeks, blue // wool, black // flies, white // sepulcher, cinnamon // broadcloth coat, fluffy // white kernels, pale // cheeks, white // oak, gray // wool, gray // figure, black // covers
 
 ### Adjectives ###
-* long // voyage
-* dozen // words
-* sun-bleached // head
+* long // voyage, dozen // words, sun-bleached // head
 * disheartening // contrast
 * earthen // wall
 * unimpressive// shacks
@@ -425,7 +375,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * "To make matters worse, America was behaving strangely underfoot. As she stepped forward, the wharf tilted upward, and she felt curiously lightheaded." (p. 6, The Witch of Blackbird Pond)
 
-* "The shock of cold, totally unexpected, almost knocked her senseless. As her head came to the surface she could not catch her breath at all. But after a dazed second she sighted the bobbing piece of wood and instinctively struck out after it in vigorous strokes that set her blood moving again. She had the doll in her hand before her numbed mind realized that there had been a second splah, and as she turned back she saw that Nathaniel was in the water beside her, thrashing with a clumsy paddling motion. She could not help laughing as she passed him, and with a feeling of triumph she beat him to the boat." (p. 8, The Witch of Blackbird Pond)
+* "The shock of cold, totally unexpected, almost knocked her senseless. As her head came to the surface she could not catch her breath at all. But after a dazed second she sighted the bobbing piece of wood and instinctively struck out after it in vigorous strokes that set her blood moving again. She had the doll in her hand before her numbed mind realized that there had been a second splash, and as she turned back she saw that Nathaniel was in the water beside her, thrashing with a clumsy paddling motion. She could not help laughing as she passed him, and with a feeling of triumph she beat him to the boat." (p. 8, The Witch of Blackbird Pond)
 
 * "Her high spirits plunged." (p. 10, The Witch of Blackbird Pond)
 
