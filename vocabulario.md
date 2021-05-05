@@ -75,6 +75,9 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Conversar (verb, verbo): ##
 * To converse
 
+## Dificil (adjective): ##
+* Hard, difficult
+
 ----------
 
 ## Encontrar (verb, verbo): ##
