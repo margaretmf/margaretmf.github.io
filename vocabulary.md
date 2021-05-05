@@ -159,3 +159,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Fluid: ##
 * A substance that has no fixed shape and yields easily to external pressure; a gas or (especially) a liquid
 * Able to flow easily
+
+## Venomous: ##
+* Secreting venom; capable of injecting venom by means of a bite or sting
+* Full of malice or spite
+
