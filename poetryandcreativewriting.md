@@ -1913,6 +1913,14 @@ She holds her covenant with all mankind.
 
 ----------
 
+She's creative.
+She's independent.
+She's listening.
+She's thoughtful.
+She's perceptive.
+
+----------
+
 
 ## The Shadow Side ##
 "Yea, though I walk through the shadow of death, I shall fear no evil, for thy rod and thy staff shall comfort me for all the rest of the days of my life."
@@ -5946,20 +5954,6 @@ We all dwell in the Shadow of the Almighty at all times whether we know it or no
 My mom worked as a teacher like my grandmother did. As a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men working in the profession, and I remember feeling a constant mortal sense that I was dependent on men or desperate to be in a relationship with someone who would provide something.
 
 ...
-
-## A Draft That I Don't Like...Something to Toss Out ##
-"I denied that the music was for me, and prayed that there was another woman the song was for.
-I felt for him, and loved his heart, but felt guilt, rejected, and ignored, and ashamed, and I grew stronger.
-I felt ignored, and I wished him well, and encouraged him to move in another direction, and pushed him away.
-He broke away, and I trusted he was led to something better. 
-When seeing more deeply, I realized he was a cowboy, a real cowboy, and saw more innocence in the cowboy hat.
-When listening more deeply, it reminded me of my high school friend, and woke me up to how he viewed the world in a clearer light.
-I saw the beauty of the Medieval English country, and true chivalry, where women and men are equal.
-I fell down hard to the ground, learned some life lessons, and the Black man from the South saved my life with good cheer, good faith, and a good conversation.
-I had already felt eternity once, but I felt eternity for the whole country, all the people, and the touch of eternity I felt in my darkest hours.
-You can let this go, darling, your good, Southern uncles and aunts already calls you darling.
-So do not worry child, heaven has got a plan for you, always.
-You are a true Southerner, indeed, who is admitting to your wrongs, and seeking to understand and be better."
 
 
 ----------
