@@ -192,11 +192,7 @@ Venture, Desperation, Rebel, Solemnness, Indulgence
 * Africa, Ports, Traveling, Colonies
 
 ### Themes ###
-* Voyage
-* Relationship to Christianity
-* Society
-* Slave history
-* Education
+* Voyage. Relationship to Christianity, Society, Slave History, Education
 
 ### Interesting Sentences or Paragraphs ###
 * "His face lighted with admiration." (p. 3, The Witch of Blackbird Pond)
@@ -250,65 +246,18 @@ Venture, Desperation, Rebel, Solemnness, Indulgence
 * "The knowledge and experience I acquired from falconers have marked my life and made me a far more effective advocate on nature's behalf. I have to assume that thousands of other children outside my immediate circle were also inspired to varying degrees of ecological stewardship by their exposure to Sam Gribley's adventures in *My Side of the Mountain*. It's my hope that this wonderful sequel, *Frightful's Mountain*, will inspire thousands of new kids."
 
 ### Who? ###
-* Frightful, the peregrine falcon, quiet like daytime birds, whistling, wind music, images of strange woods and unknown to flowers, foreign sound, soft song of wind humming through the hemlock needles of home
-* Sam Gribley, and his relationship with the falcon
+Frightful, the peregrine falcon is the main character and enjoys quiet like daytime birds with whistling, wind music, and images of strange woods, unknown flowers, foreign sound, soft song of wind humming through the hemlock needles of home. Sam Gribley has a relationship with the falcon.
 
 ### Where? ###
-* Nature
-* The Sky, winds
-* the Mountain
-* "forest clearing edged with bushes were song sparrows and cardinals lived"
+* It takes place in nature with the sky and the winds, the mountain, and the "forest clearing edged with bushes that were song sparrows and cardinals lived".
 
 ### What? ###
-* Sam lifted the falcon from the nest on the cliff, and she jabbed him
-* Sam names her "Frightful", and says, that she is "a raving beuaty" and a "gigantic hemlock tree on the mountain"
-* He nurtured her like a peregrine falcon mother would
-* He made a perch for her
-* Hunting, memory
-* Frightful loved the sky
-* wind, feathers
-* relationship to engineering, trucks, industry
-* bells tinkling along with the Falcons
+* Sam lifted the falcon from the nest on the cliff, and she jabbed him. Sam names her "Frightful", and she says, that she is "a raving beauty" and "a gigantic hemlock tree on the mountain". He nurtured her like a peregrine falcon mother would, and he made a perch for her. He hunted with her, and made memories with her. Frightful loved the sky, wind, and feathers. Sam names her "Frightful", and says, that she is "a raving beauty" and a "gigantic hemlock tree on the mountain". He shares the relationship between nature, engineering, trucks, and industry. He hears the bells tinkling along with the Falcons.
 
 ### When? ###
 
 ### Color ###
-* red // air
-* sea-blue // eyes
-* yellow // hair
-* rosy // face
-* yellow-white-and-brown // dog
-* dark // back feathers
-* striking // black head
-* blond // head
-* black // head
-* black-brown // eyes
-* white // down
-* pink // blazing star flowers
-* bright red // beak
-* yellow // beak
-* brown-gray // color
-* blue // jay
-* silver // river
-* blue-green // landscape
-* orange, yellow, and purple // leaves
-* purple-red // clouds
-* blue-gray // clouds
-* white-yellow // colors of a rain-cleansed day
-* pale blue // colors of a rain-cleansed day
-* twilight purple // sky
-* light and dark // shapes
-* yellow // face
-* blue // heron
-* red-winged // black // birds
-* black // head
-* black // spots
-* golden // foot
-* blue // sky
-* purple // mountains
-* dark brown // feathers
-* yellow // eyes
-* orange-red // sun
+* red // air, sea-blue // eyes, yellow // hair, rosy // face, yellow-white-and-brown // dog, dark // back feathers, striking // black head, blond // head, black // head, black-brown // eyes, white // down, pink // blazing star flowers, bright red // beak, yellow // beak, brown-gray // color, blue // jay, silver // river, blue-green // landscape // orange, yellow, and purple // leaves, purple-red // clouds, blue-gray // clouds, white-yellow // colors of a rain-cleansed day, pale blue // colors of a rain-cleansed day, twilight purple // sky, light and dark // shapes, yellow // face, blue // heron, red-winged // black // birds, black // head, black // spots, golden // foot, blue / sky, purple // mountains, dark brown // feathers, yellow // eyes, orange-red // sun
 
 ### Adjectives ###
 * huge // old // tree
