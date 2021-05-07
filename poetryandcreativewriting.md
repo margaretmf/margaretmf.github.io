@@ -88,7 +88,7 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 ## Relationship to Art ##
-* Learned about history through a song; learned about light in the darkness and healing through a children's books; appreciate the artwork in office spaces
+* Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness and healing through a children's books; appreciate the artwork in office spaces
 
 ## Relationship to Nature ##
 * Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (3 days)
@@ -225,6 +225,7 @@ Margaret
 * "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
 * [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
 * "One Voice" by The Wailin' Jennys
+* Southern Gospel Norton Hall Band
 
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
@@ -299,7 +300,7 @@ The darkness draws near.
 Falling under, falling under all the mistakes
 Wanting to bury oneself in the ground
 Wanting to dig a greater hole
-Hiding for the shamefu things done
+Hiding for the shameful things done
 In this moment, there's a choice to live another day
 There's a choice to lift oneself up
 Let life carry through
