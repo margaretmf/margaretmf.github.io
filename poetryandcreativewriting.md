@@ -134,44 +134,6 @@ Maps show visually the relationships of places culturally and historically, and 
 ## The Purpose of Studying History ##
 The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
-## An Aerial View ##
-The moment of death and wanting to escape. 
-Thought lifts up.
-Thought lifts up and flys freely up above.
-Angels lift the thoughts up.
-The inner sight lifts into the sky.
-It feels like flying mentally above and seeing the whole city, all the mountains, all the clouds.
-Everything can be seen from a birds-eye view.
-Inner freedom, freedom from the entrapment of the physicality.
-Living fully inwardly in the sky like a bird mentally.
-
-## Bricks ##
-Day by day
-brick by brick
-stone by stone
-this house is being built.
-The ground is laid.
-The space is new and fresh.
-The light shines through the windows.
-
-Act by act
-Greeting by greeting
-Morning by morning
-this day is alive.
-The town is moving.
-The neighborhood is vivid.
-The sun shines down with heat.
-
-Meeting by meeting
-Outing by outing
-setting by setting
-this day is done.
-The home is at peace.
-The greenery spreads on the fence.
-The lights are dimmed.
-The time is there for rest.
-The darkness draws near.
-
 ## Tennessee and Nashville ##
 Tennessee used to be the west, and the state of the frontier, not just the south.
 
@@ -293,6 +255,68 @@ Doing the same thing throught he spirit in a different form.
 
 ## Engineering, A Career of Singing ##
 The work of engineering, a career of singing, and nature, and where the constructions of mankind meet nature.
+
+## An Aerial View ##
+The moment of death and wanting to escape. 
+Thought lifts up.
+Thought lifts up and flys freely up above.
+Angels lift the thoughts up.
+The inner sight lifts into the sky.
+It feels like flying mentally above and seeing the whole city, all the mountains, all the clouds.
+Everything can be seen from a birds-eye view.
+Inner freedom, freedom from the entrapment of the physicality.
+Living fully inwardly in the sky like a bird mentally.
+
+## Bricks ##
+Day by day
+brick by brick
+stone by stone
+woodpiece by woodpiece 
+this house is being built.
+The ground is laid.
+The space is new and fresh.
+The light shines through the windows.
+
+Act by act
+Greeting by greeting
+Morning by morning
+this day is alive.
+The town is moving.
+The neighborhood is vivid.
+The sun shines down with heat.
+
+Meeting by meeting
+Outing by outing
+setting by setting
+this day is done.
+The home is at peace.
+The greenery spreads on the fence.
+The lights are dimmed.
+The time is there for rest.
+The darkness draws near.
+
+## Falling Under ##
+Falling under, falling under all the mistakes
+Wanting to bury oneself in the ground
+Wanting to dig a greater hole
+Hiding for the shamefu things done
+In this moment, there's a choice to live another day
+There's a choice to lift oneself up
+Let life carry through
+Meet the demands of the day
+See the sun rise
+
+## God Knows the Room ##
+God knows the room.
+Thank you for knowing my need.
+Thank you for knowing who to place me with.
+Than you for being there through the fall.
+It's a city of angels. The strangers know.
+
+## Independence ##
+You can stand on your own two feet.
+You can give it a whirl.
+You can rise back up and forgive yourself.
 
 ## Let It Crash ##
 Let it crash
@@ -1505,6 +1529,8 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for conversations with him about a key African American leader.
 * Grateful for the friendly policeman this morning
 * Grateful for the dignity of people in the car while driving
+* Grateful for the woman in Rural Virginia who sympathized and empathized
+* Grateful for new insights and fresh thoughts
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
