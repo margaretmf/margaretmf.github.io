@@ -164,3 +164,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Secreting venom; capable of injecting venom by means of a bite or sting
 * Full of malice or spite
 
+## Earth: ##
+* The substance of the land surface; soil
+* The planet on which we live; the world
+
