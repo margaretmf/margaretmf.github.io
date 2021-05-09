@@ -277,6 +277,7 @@ Frightful, the peregrine falcon is the main character and enjoys quiet like dayt
 
 ## Themes ##
 * "She must find one mountain amoung thousands, one hemlock tree among millions, and the one boy who called himself Sam Gribley. The one mountain was her territory; the one tree was Sam's house; the perch beside it, her place. And Sam Gribley was life."
+
 * Man
 * Falcons
 * Man's relationship to nature
@@ -419,8 +420,7 @@ He glanced at Mole. The dog's eyes were closed. 'We're on page one hundred thirt
 * Haze, dense
 
 ### Color ###
-* black // marks, gray blue // Falcon, large black // eyes, white // feathers, black // bear, green // uniform, berry-dyed // T-shirt, yellow // tufts of hair, blue and white crystal // irises // eyes, white // oak, blue // eyes, brown // eye, red-tailed // hawk, yellowdock and mustard // greens, big // storm, plastering // holes, quarter-acre // pond, building // blocks, black // paws, orange // crate, green // frog pipes, brown // felt, dead // geraniums // blue // heron nests,
-* raspberry // thicket, dark blue // jacket, silver // combs, brown // lines, directional // arrow, brown // contour lines, violet // leaves, blue // line, yellow /ibrhces, white-footed // deer mouse, yellow // birch, large white // farmhouse, white // nose, black // spots, white // ash, white // threads, big gray // coyote, gray // steak
+* black // marks, gray blue // Falcon, large black // eyes, white // feathers, black // bear, green // uniform, berry-dyed // T-shirt, yellow // tufts of hair, blue and white crystal // irises // eyes, white // oak, blue // eyes, brown // eye, red-tailed // hawk, yellowdock and mustard // greens, big // storm, plastering // holes, quarter-acre // pond, building // blocks, black // paws, orange // crate, green // frog pipes, brown // felt, dead // geraniums // blue // heron nests, raspberry // thicket, dark blue // jacket, silver // combs, brown // lines, directional // arrow, brown // contour lines, violet // leaves, blue // line, yellow /ibrhces, white-footed // deer mouse, yellow // birch, large white // farmhouse, white // nose, black // spots, white // ash, white // threads, big gray // coyote, gray // steak
 
 ### Adjectives ###
 * lounging // chair, primitive // forest, strawberry // picking, tree // house, hot dry // wind, peregrine // Falcon, tawny // breast, high-pitched // creees, wild // tercel, vanishing // eastern peregrine falcons, dandelion // seed, gorgeous // creatures, meadow // garden, warning // signals, musky // scent, endangered // species, endangered // animals, hazeless // sky, artificial // insemination, artificial // breeding, captive // birds, perfect // opportunity, large // eyes, bony // arms and legs, deerskin // door, hemlock // home, outgrown // sapling bed, clay // fireplace, abandoned // fields, elaborate // stone, soil // conservation, wild // plants, poor // soil, spring // fiddling, lost // puppy, louder // voice, happiest // girl, eyes // crackled, plumping // mill, tree // house, blank // page, leather // hinges, root // cellar, birch-bark // note, deerskin // clothes, big // territory, environmental // confiscation, road // kill, damp // soil, shady // basswoods, rushing // stream, domestic // birds, rocky // stream bed, basswood // tree, inner // bark, several // branches, slender // rope, bark // rope, smoked // fish, fresh // fish, fresh // vegetables, largemouth // bass, leafy // ground, silent // moon, steep // trail, difficult // chores, clay // pots, blueberry // jam, dirt // road, log // walls, oak-plank // floors, small // logs, unpeeled // branches, pond // hill, empty // perch, irrigation // ditch, rocky // meadow, electric // heaters, static // electricity, regal // bird, perfect // blocks, millhouse // roof, gabled // roof, big // hemlock, tree // snap, carpentry // compass, house // lumber, huge // circle, fitted // boards, dougnut-shaped // structures, productive // tree, county // road,
@@ -620,217 +620,13 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 * "the steamer", "great railway depot", "deposited in an express car"
 
 ### Color ###
-* yellow // metal 
-* red // sweater
-* white // plain
-* gray of dawn
-* yellow // metal
-* white-hot // knife
-* white // woods
-* black // dog
+* yellow // metal, red // sweater, white // plain, gray of dawn, yellow // metal, white-hot // knife, white // woods, black // dog
 
 ### Adjectives ###
-* heavy // dogs
-* strong // muscles
-* gravelled // driveays
-* wide-spreading // lawns
-* interlacing // boughs of tall poplars
-* dozen // grooms
-* endless and ordelry array // outhouses
-* pumping // plant
-* morning // plunge
-* hot // afternoon
-* populous // kennels
-* strange // creatures
-* fearless // promises
-* besetting // weakness
-* little // flag // station
-* quiet // dignity
-* unwonted // performance
-* intolerable // pain
-* evil-looking // creatures
-* detestable // dogs
-* raging // friend
-* splintering // wood
-* blood-shot // eyes
-* exquisite // agony
-* complete // circle
-* primitive // law
-* unwonted // demand
-* unfair // sum
-* gloomy, morose // fellow
-* wolfish // creatures
-* unforgettable // lesson
-* sun-kissed // life
-* vicarious // experience
-* husky // dog
-* bloody, trampled // snow
-* fair // play
-* deathless // hatred
-* tragic // passing
-* instant // obedience
-* draught // animal
-* sharp // reproof
-* remarkable // progress
-* perpetual // snarl
-* malignant // eye
-* belligerent // fear
-* battle-scarred // face
-* single // eye
-* excessive // good nature
-* comradely // fashion
-* savage // dogs
-* confined // space
-* bad // dreams
-* supreme // expression
-* timber // line
-* cold // darkness
-* hunger // pangs
-* good // condition
-* moral // nature
-* vain // thing
-* ruthless // struggle
-* conspicuous // trait
-* forgotten // ancestors
-* domesticated // generations
-* ancient // song
-* small // copies
-* fierce // conditions
-* secret // growth
-* precipitate // action
-* bitter // hatred
-* perpendicular // wall of rock
-* sheltering / rock
-* warning // snarl
-* timid // dog
-* disrupted // nest
-* sheer // rage
-* astonished // team-dogs
-* famished // beasts
-* sorry // plight
-* exhausting // toil
-* weazened // face
-* frowning // shores
-* masterful // dog
-* open // mutiny
-* great // fight
-* steep // bank
-* warm // blood
-* living // meat
-* supreme // moods
-* faintest // whisper
-* expectant // circle
-* open // revolt
-* excellent // condition
-* strange // sounds
-* quick // alertness
-* weary // distance
-* soft // snow
-* wretched // state
-* inexorable // elimination
-* savage // environment
-* copious/ opinions
-* sufficient // reason
-* new / existence
-* murmured // oaths
-* kindly // greeting
-* cheering // word
-* keenest // interest
-* occasional // movements
-* terrible // antagonist
-* mighty // rhythm
-* fighting // spirit
-* cheery // words
-* oldest // tradition
-* boundless // delight
-* obliterated // trails
-* various // things
-* splendid // flod
-* terrible // transformation
-* savage // temper
-* new // stir
+* heavy // dogs, strong // muscles, gravelled // driveays, wide-spreading // lawns, interlacing // boughs of tall poplars, dozen // grooms, endless and ordelry array // outhouses, pumping // plant, morning // plunge, hot // afternoon, populous // kennels, strange // creatures, fearless // promises, besetting // weakness, little // flag // station, quiet // dignity, unwonted // performance, intolerable // pain, evil-looking // creatures, detestable // dogs, raging // friend, splintering // wood, blood-shot // eyes, exquisite // agony, complete // circle, primitive // law, unwonted // demand, unfair // sum, gloomy, morose // fellow, wolfish // creatures, unforgettable // lesson, sun-kissed // life, vicarious // experience, husky // dog, bloody, trampled // snow, fair // play, deathless // hatred, tragic // passing, instant // obedience, draught // animal, sharp // reproof, remarkable // progress, perpetual // snarl, malignant // eye, belligerent // fear, battle-scarred // face, single // eye, excessive // good nature, comradely // fashion, savage // dogs, confined // space, bad // dreams, supreme // expression, timber // line, cold // darkness, hunger // pangs, good // condition, moral // nature, vain // thing, ruthless // struggle, conspicuous // trait, forgotten // ancestors, domesticated // generations, ancient // song, small // copies, fierce // conditions, secret // growth, precipitate // action, bitter // hatred, perpendicular // wall of rock, sheltering / rock, warning // snarl, timid // dog, disrupted // nest, sheer // rage, astonished // team-dogs, famished // beasts, sorry // plight, exhausting // toil, weazened // face, frowning // shores, masterful // dog, open // mutiny, great // fight, steep // bank, warm // blood, living // meat, supreme // moods, faintest // whisper, expectant // circle, open // revolt, excellent // condition, strange // sounds, quick // alertness, weary // distance, soft // snow, wretched // state, inexorable // elimination,savage // environment, copious/ opinions, sufficient // reason, new / existence, murmured // oaths, kindly // greeting, cheering // word, keenest // interest, occasional // movements, terrible // antagonist, mighty // rhythm, fighting // spirit, cheery // words, oldest // tradition, boundless // delight, obliterated // trails, various // things, splendid // flood, terrible // transformation, savage // temper, new // stir
 
 ### Vocabulary ###
-* Conveyance
-* Grumbled
-* Ragged
-* Unkempt
-* Dragged
-* Throttled
-* Attempted
-* Choked
-* Assailed
-* Quivering
-* Frothing
-* Surging
-* Wrestling
-* Snarl
-* Conciliate
-* Morose
-* Civilization
-* Primordial
-* Peril
-* Imperative
-* Perpetual
-* Malignant
-* Despatches
-* Appeasement
-* Incarnation
-* Gaunt
-* Prowess
-* Peculiarity
-* Consternation
-* Ignominiously
-* Venom
-* Disconslate
-* Miserable
-* Unmolested
-* Arduous
-* Animate
-* Eagerness
-* Passivness
-* Toiled
-* Fastidiousness
-* Characterized
-* Dainty
-* Remedy
-* Duplicated
-* Unsuspected
-* Decivilization
-* Deliberateness
-* Rashness
-* Astonished
-* Whimpered
-* Daunt
-* Inevitable
-* Transforming
-* Blundered
-* Shirked
-* Unearthed
-* Despatches
-* Recuperate
-* Arrange
-* Misdemeanor
-* Insidious
-* Imagination
-* Forevalued
-* Sympathetically
-* Scattered
-* Thoroughfare
-* Importuned
-* Demonstrative
-* Convalescence
-* Peremptorily
-* Grappling
-* Instinctively
-* Miscalculated
-* Bluff
-* Quibble
-* Hauling
-* Musing
-* Triumphantly
-* Branching
-* Cessation
+* Conveyance, Grumbled, Ragged, Unkempt, Dragged, Throttled, Attempted, Choked, Assailed, Quivering, Frothing, Surging, Wrestling, Snarl, Conciliate, Morose, Civilization, Primordial, Peril, Imperative, Perpetual, Malignant, Despatches, Appeasement, Incarnation, Gaunt, Prowess, Peculiarity, Consternation, Ignominiously, Venom, Disconslate, Miserable, Unmolested, Arduous, Animate, Eagerness, Passivness, Toiled, Fastidiousness, Characterized, Dainty, Remedy, Duplicated, Unsuspected, Decivilization, Deliberateness, Rashness, Astonished, Whimpered, Daunt, Inevitable, Transforming, Blundered, Shirked, Unearthed, Despatches, Recuperate, Arrange, Misdemeanor, Insidious, Imagination, Forevalued, Sympathetically, Scattered, Thoroughfare, Importuned, Demonstrative, Convalescence, Peremptorily, Grappling, Instinctively, Miscalculated, Bluff, Quibble, Hauling, Musing, Triumphantly, Branching, Cessation
 
 ### Themes ###
 * Emotions, storming, raging
@@ -901,147 +697,13 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 * Survival Packet, Hatched, Radio Signal, Rescuing
 
 ### Color ###
-* blue // jays
-* shades of pink
-* mostly gold
-* red, scattered bits of color
-* flat coppery blue
-* ugly gray
-* red // velvet
-* gray // sky
-* blue // sky
-* red // venison
-* red // meat
-* smooth, slow // movement
-* white // light
-* great // weight 
-* red // berries
+* blue // jays, shades of pink, mostly gold, red, scattered bits of color, flat coppery blue, ugly gray, red // velvet, gray // sky, blue // sky, red // venison, red // meat, smooth, slow // movement, white // light, great // weight, red // berries
 
 ### Adjectives ###
-* new-cool // air
-* dirt // hump
-* brush // cover
-* small // clump
-* heated // flame
-* rock // wall
-* fishing // line
-* small // panfish
-* night // fire
-* glorious // weather
-* true // happiness 
-* soft / afternoons
-* gray // light
-* solitary // wolf
-* rotten // stump
-* stronger // weapon
-* larger // bow
-* stronger // bow
-* arrow // shafts
-* warm // clothing
-* good // shelter
-* dead // leaves
-* stiffer // shafts
-* oil // stove
-* beautiful // collection
-* hunting // rabbits
-* large // patch
-* ancient // fire
-* brushy // area
-* reflexive // shot
-* stick // figure
-* lighter // bow
-* plane // crash
-* constant // drizzle
-* sputtering // fire
-* hunting // knife
-* tough // muscle
-* dawn // sunlight
-* dry // rock
-* hot // sun
-* small // draft
-* watertight // dam
-* fresh // mud
-* hitting // rocks
-* fracture // lines
-* true // arrowhead
-* hunting // knife
-* rekindled // fire
-* small // clearing
-* good // deal
-* feather // stash
-* smooth, slow // movement
-* pet // skunk
-* soft // rustle
-* whoofing // sound
-* enormous // form
-* new // smell
-* rank, foul, sulfurous, gagging // smell
-* chipping // arrowheads
-* hardwood // spears
-* strange // things
-* flat // rock
-* braided // nylon
-* hardwood // spears
-* soften // leather
-* white // spots
-* nearby // bush
-* killing // lance
-* same // world
-* plane // crash 
-* butcher // shop
-* crude // mittens
-* estsimate // temperature
-* stacked // moose
-* rabbit-skin // shirt
-* scraggly // trees
-* blistering // crack
-* narrow // highway
-* exploding // trees
-* small // bits
+* new-cool // air, dirt // hump, brush // cover, small // clump, heated // flame, rock // wall, fishing // line, small // panfish, night // fire, glorious // weather, true // happiness, soft / afternoons, gray // light, solitary // wolf, rotten // stump, stronger // weapon, larger // bow, stronger // bow, arrow // shafts, warm // clothing, good // shelter, dead // leaves, stiffer // shafts, oil // stove, beautiful // collection, hunting // rabbits, large // patch, ancient // fire, brushy // area, reflexive // shot, stick // figure, lighter // bow, plane // crash, constant // drizzle, sputtering // fire, hunting // knife, tough // muscle, dawn // sunlight, dry // rock, hot // sun, small // draft, watertight // dam, fresh // mud, hitting // rocks, fracture // lines, true // arrowhead, hunting // knife, rekindled // fire, small // clearing, good // deal, feather // stash, smooth, slow // movement, pet // skunk, soft // rustle, whoofing // sound, enormous // form, new // smell, rank, foul, sulfurous, gagging // smell, chipping // arrowheads, hardwood // spears, strange // things, flat // rock, braided // nylon, hardwood // spears, soften // leather, white // spots, nearby // bush, killing // lance, same // world, plane // crash, butcher // shop, crude // mittens, estsimate // temperature, stacked // moose, rabbit-skin // shirt, scraggly // trees, blistering // crack, narrow // highway, exploding // trees, small // bits
 
 ### Vocabulary ###
-* Softness ["describing how the Fall came on"]
-* Hard-spined
-* Relieved
-* Glutted
-* Torment
-* Wanting
-* Slamming
-* Relief
-* Angry
-* Whiff
-* Relished
-* Snuggled
-* Rummaging
-* special // significance
-* Winterized
-* Insulated
-* Clearing
-* Gorged
-* Amazed
-* Awakened
-* Bulging
-* Concentrate
-* Rummaged
-* Kindled
-* Waddled
-* Hummed
-* Shrugged
-* Stymied
-* Fading
-* Fluke
-* Mutation
-* Brambles
-* Maneuver
-* Blazing
-* Grinning
-* Stiffness
-* Crystallized
-* Shattered
-* Stumbling
-* Splurged
-* Gorging
-* Fooledii
+* Softness ["describing how the Fall came on"], Hard-spined, Relieved, Glutted, Torment, Wanting, Slamming, Relief, Angry, Whiff, Relished, Snuggled, Rummaging, Special // Significance, Winterized, Insulated, Clearing, Gorged, Amazed, Awakened, Bulging, Concentrate, Rummaged, Kindled, Waddled, Hummed, Shrugged, Stymied, Fading, Fluke, Mutation, Brambles, Maneuver, Blazing, Grinning, Stiffness, Crystallized, Shattered, Stumbling, Splurged, Gorging, Fooledii
 
 ### Themes ###
 * Hunting
@@ -1178,204 +840,13 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * the beach, the rocks, a small rock, the cliff
 
 ### Color ###
-* red // sails
-* black // eyes ["like a Lizard's"]
-* blue // stone
-* red // ship
-* blue // ones
-* black // ones
-* red // whale
-* heavy // brush
-* good // hunter
-* blue // eyes
-* black // beard
-* black // eyes
-* longest // string
-* blue // bracelets
-* iron // spearheads
-* green // sinew
-* gray // hair
-* black // sea
-* blue // dolphins
-* blue // water
-* black // rock
-* yellow // eyes
-* big gray // dog
-* black // dog
-* red // shells
-* star-shaped // creature
-* gold // eyes
-* black // rims
-* black, shining // walls
-* green and gold // colors
+* red // sails, black // eyes ["like a Lizard's"], blue // stone, red // ship, blue // ones, black // ones, red // whale, heavy // brush, good // hunter, blue // eyes, black // beard, black // eyes, longest // string, blue // bracelets, iron // spearheads, green // sinew, gray // hair, black // sea, blue // dolphins, blue // water, black // rock, yellow // eyes, big gray // dog, black // dog, red // shells, star-shaped // creature, gold // eyes, black // rims, black, shining // walls, green and gold // colors
 
 ### Adjectives ###
-* sleepy // eyes
-* rising // sun
-* pointed // stick
-* flat // stone
-* sea // cliffs
-* long // oars - rowing
-* little // harbor
-* tall // man
-* bare // shoulders
-* toyon // bushes
-* higher // ground
-* polished // hills
-* small, twisted // trees
-* curious // news
-* fur // cap
-* poor // season
-* early // spring
-* heavy // seas
-* deep // water
-* harvested // seas
-* good // fortune
-* stormy // afternoon
-* bigget // waves
-* wide // beds
-* slain // otter
-* sea // otter
-* kelp // beds
-* sunless // day
-* deep // waves
-* narrow // beach
-* otter // pelts
-* white // smoke
-* secret // name
-* terrible // time
-* south // headland
-* snared // fowl
-* deep // water
-* built // canoes
-* wild // pack
-* ample // food
-* real // reason
-* every // house
-* big // canoe
-* rising // sun
-* silver // trail
-* wind // blew
-* one // moon
-* every // day
-* fog
-* next // sun
-* few // storms
-* red // sails
-* stout // rope
-* otter // cape
-* faint // light
-* growing // pale
-* small // quantity
-* deep // breath 
-* wind // grows
-* scraping // hides
-* cooking // pots
-* small // box
-* fierce // gusts
-* high // waves
-* two // boats
-* biggest // canoes
-* wind // drowned
-* beautiful // skirt
-* yucca // fibers
-* dogs // scurryings
-* small // fire
-* gull // eggs
-* gathering // food
-* tide // pools
-* flat // rock
-* big // canoe
-* wild // dogs
-* short // distance
-* growing // dark
-* small // valley
-* two // hills
-* gathered // bush
-* clear // place
-* safe // place
-* slain // dog
-* spearing // fish
-* small // holes
-* wide // circle
-* terrible // flood
-* sea // rise
-* proper // strength
-* whale // spouting
-* big // waves
-* endless // waters
-* wild // dogs
-* large // rocks
-* slippery // bed
-* high // cliffs
-* faint // noises
-* leaking // canoe
-* calm // sea
-* good // distance
-* wild // dogs
-* gulls // flying
-* good // pole
-* cooking // seeds
-* clear // light
-* sea // elephant
-* crying // sounds
-* gray // boulders
-* deep // scars
-* ripped // deep
-* cactus // bush
-* low // bushes
-* broken // shaft
-* sea-elephant // teeth
-* wild // dogs
-* speckled/ eggs
-* beatuiful // feathers
-* clear // water
-* twisting // arms
-* giant // stalk
-* weak // light
-* jagged // crack
-* sound // echoed
-* whole // ocean
-* different // direction
-* beautiful // skirt
-* little // fish
-* brush // singing
-* strong // winds
-* wild // seas
-* graceful // stride
-* gleaming // stretch
+* sleepy // eyes, rising // sun, pointed // stick, flat // stone, sea // cliffs, long // oars - rowing, little // harbor, tall // man, bare // shoulders, toyon // bushes, higher // ground, polished // hills, small, twisted // trees, curious // news, fur // cap, poor // season, early // spring, heavy // seas, deep // water, harvested // seas, good // fortune, stormy // afternoon, bigget // waves, wide // beds, slain // otter, sea // otter, kelp // beds, sunless // day, deep // waves, narrow // beach, otter // pelts, white // smoke, secret // name, terrible // time, south // headland, snared // fowl, deep // water, built // canoes, wild // pack, ample // food, real // reason, every // house, big // canoe, rising // sun, silver // trail, wind // blew, one // moon, every // day, fog, next // sun, few // storms, red // sails, stout // rope, otter // cape, faint // light, growing // pale, small // quantity, deep // breath, wind // grows, scraping // hides, cooking // pots, small // box, fierce // gusts, high // waves, two // boats, biggest // canoes, wind // drowned, beautiful // skirt, yucca // fibers, dogs // scurryings, small // fire, gull // eggs, gathering // food, tide // pools, flat // rock, big // canoe, wild // dogs, short // distance, growing // dark, small // valley, two // hills, gathered // bush, clear // place, safe // place, slain // dog, spearing // fish, small // holes, wide // circle, terrible // flood, sea // rise, proper // strength, whale // spouting, big // waves, endless // waters, wild // dogs, large // rocks, slippery // bed, high // cliffs, faint // noises, leaking // canoe, calm // sea, good // distance, wild // dogs, gulls // flying, good // pole, cooking // seeds, clear // light, sea // elephant, crying // sounds, gray // boulders, deep // scars, ripped // deep, cactus // bush, low // bushes, broken // shaft, sea-elephant // teeth, wild // dogs, speckled/ eggs, beatuiful // feathers, clear // water, twisting // arms, giant // stalk, weak // light, jagged // crack, sound // echoed, whole // ocean, different // direction, beautiful // skirt, little // fish, brush // singing, strong // winds, wild // seas, graceful // stride, gleaming // stretch
 
 ### Vocabulary ###
-* Foolishness
-* Stunted
-* Preparations
-* Stiffly
-* Barred
-* Rushed
-* Whirring
-* Gathering
-* Plentiful
-* Roamed
-* Decreed
-* Mischief
-* Disappeared
-* Shrouded
-* Alarm
-* Fastened
-* Hidden
-* Fearful
-* Motioning
-* Anchored
-* Gorged
-* Thrust
-* Frightened
-* Ravine
-* Forbade
-* Raviness
-* Waddling
-* Bellowings
-* Abandoned
-* Entangled
+* Foolishness,Stunted, Preparations, Stiffly, Barred, Rushed, Whirring, Gathering, Plentiful, Roamed, Decreed, Mischief, Disappeared, Shrouded, Alarm, Fastened, Hidden, Fearful, Motioning, Anchored, Gorged, Thrust, Frightened, Ravine, Forbade, Raviness, Waddling, Bellowings, Abandoned, Entangled
 
 ### Themes ###
 * Exploration
@@ -2511,40 +1982,12 @@ It was really a lovely place, far better than their old garden. It was not just 
 * "plain, good-natured woman"
 
 ### Color ###
-* black // wrough-iron railing runs
-* green // lawn
-* silvery-green // trunk
-* blue // sky
-* soft white // little house
-* gray // dusk
-* white // trumpetlike flowers
-* glorious colors of red, orange, yellow, and gold
-* green // ferns "growing on the banks"
-* gorgeous red, flamelike color
-* brown // spots
-* white // patch
-* brown // conkers
-* "still and gray"
-* gray, bleak // day
-* yellow // stalks
-* sparkling // frost
-* russet and golden // blooms
-* dark // shape
-* fuzzy // feeling
-* hot // drink
-* dark // jacket
-* gray // clouds
-* gray // sky
-* black // spinning darkness
-* soft, rose-colored // silk
-* golden // sounds
-* white // flakes
-* black // hair
+* black // wrough-iron railing runs, green // lawn, silvery-green // trunk, blue // sky, soft white // little house, gray // dusk, white // trumpetlike flowers, glorious colors of red, orange, yellow, and gold, green // ferns "growing on the banks", gorgeous red, flamelike color, brown // spots, white // patch, brown // conkers, "still and gray", gray, bleak // day, yellow // stalks, sparkling // frost, russet and golden // blooms, dark // shape, fuzzy // feeling, hot // drink, dark // jacket, gray // clouds, gray // sky, black // spinning darkness, soft, rose-colored // silk, golden // sounds, white // flakes, black // hair
 
 ### Adjectives ###
-* soft // countryside
-* disturbing // feelings
-* high stone // wall
+* soft // countryside,
+* disturbing // feelings,
+* high stone // wall,
 * large // apple tree
 * pink-and-white-blossomed // branches
 * yellow // stones
@@ -2595,17 +2038,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * seed box
 
 ### Vocabulary ###
-* "excursion"
-* "savored"
-* "vaguely"
-* "copiously"
-* "distress"
-* "resentment"
-* "turbulent"
-* "defiantly"
-* "inevitably"
-* "trudged"
-* "exuded"
+* "excursion", "savored", "vaguely", "copiously", "distress", "resentment", "turbulent", "defiantly", "inevitably", "trudged", "exuded"
 
 ### Allusions ###
 * Alludes to "the wonders of Robinson Crusoe"
@@ -2748,28 +2181,10 @@ It was really a lovely place, far better than their old garden. It was not just 
 * rifle 
 
 ### Color ###
-* green // water
-* green // wall
-* green // foliage, thick
-* red // sunsets, blazing
-* black // star studded skies
+* green // water, green // wall, green // foliage, thick, red // sunsets, blazing, black // star studded skies
 
 ### Adjectives ###
-* warm // sun
-* beautiful // day
-* small, plastic // briefcase
-* small / fire pit
-* beautiful // day
-* summer // rain
-* soft // thunder
-* bright / light
-* broad // daylight
-* steeper // hills
-* deeper / channel
-* partial // moon
-* clean // river
-* narrow // banks
-* good // light
+* warm // sun, beautiful // day, small, plastic // briefcase, small / fire pit, beautiful // day, summer // rain, soft // thunder, bright / light, broad // daylight, steeper // hills, deeper / channel, partial // moon, clean // river, narrow // banks, good // light
 
 ### Interesting Sentences or Paragraphs ###
 * "Neat, he thought, neat and clean. The thought came into his mind that it was a beautiful day. The sun was out, there were small popcorn clouds moving across the sky, it was a soft summer afternoon." (p. 25)
@@ -2851,19 +2266,11 @@ It was really a lovely place, far better than their old garden. It was not just 
 
 
 ### Color ###
-* Red - explicit
-* Brown, green, blue - implicit
-* Green - implicit
-* Black, dark blue - explicit
+* Red - explicit, Brown, green, blue - implicit, Green - implicit, Black, dark blue - explicit
 
 
 ### Adjectives ###
-* Frigid // Temperatures
-* Remote // Hills
-* Snarling, growling, twisting, slashing
-* Rich, black, fertile // land 
-* Virgin // soil
-* Rich, Black // soil
+* Frigid // Temperatures, Remote // Hills, Snarling, growling, twisting, slashing, Rich, black, fertile // land, Virgin // soil, Rich, Black // soil
 
 
 ### Themes ###
