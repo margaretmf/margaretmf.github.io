@@ -91,7 +91,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness and healing through a children's books; appreciate the artwork in office spaces
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (3 days)
+* Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (4 days)
 
 ## Relationship to Spirituality ##
 * Appreciate the architecture of all the churches in the community
@@ -418,7 +418,7 @@ Paper books I love to read. It feels like an amazing experience to go into a boo
 Regular books promote children's intellect and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
 
 ## What do you look for when deciding whether or not to date someone? ##
-Genuine compsasion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
+Genuine compassion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
 
 ## What makes you feel humble? ##
 Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
@@ -881,7 +881,7 @@ Humanity circling around
 Different Perspectives
 
 You and me - we live under the same Sun
-It shines on us from different angels
+It shines on us from different angles
 It lights us up in different ways
 365 days per year
 
@@ -946,7 +946,7 @@ Awakening from up above to what life is all about
 
 Circling around this place called home again
 All the memories from the past come alive
-THey unearth themselves and revive a sense of childlike wonder so deep
+They unearth themselves and revive a sense of childlike wonder so deep
 So much good has happened, and so much good is waiting to be born again
 
 ## Truth ##
@@ -965,7 +965,7 @@ The truth is free
 The flickering lights-
 The flickering lights in the hearts of all the people throughout the nation and the earth
 The flickering lights in the homes and office buildings united
-You can see them from u p above in theplane looking down through the seat window
+You can see them from up above in the plane looking down through the seat window
 
 A society run by electric lines, power grids, and lightbulbs.
 
@@ -1030,6 +1030,7 @@ Where I am hurt, you provide love
 
 ## A Long Road ##
 There's a long road ahead
+The road goes on and on into the horizon with yellow lines down the middle
 It's uncertain where it's heading
 I set my head straight with a vision
 I hope to move through with love and hope
@@ -1037,7 +1038,9 @@ I hope to move through with love and hope
 There's a long road ahead
 I hope to move through committed
 There are new views and new jobs
-There is old to resurrect and re-appreciate
+There are old buildings to resurrect and re-appreciate
+There are old songs to sing
+There are new colors to paint with
 
 ## It's Ok ##
 It's ok to cry
@@ -1532,6 +1535,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the dignity of people in the car while driving
 * Grateful for the woman in Rural Virginia who sympathized and empathized
 * Grateful for new insights and fresh thoughts
+* Grateful for the Southern Gospel Music at the church down the street
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
