@@ -729,7 +729,7 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 
 * "The plane, [crashing], [dream[ing] many times]" (p. 6, Brian's Winter)
 
-* "But with the supplies from the plane his dreams changed back to food and when it was gone - in what seemed a very short time - a kidn of wanting, hunger returned that he ahd not felt since the first week. For a week or two he was in torment, never satisfied; even when he ahd plenty of  fish and rabbit or foolbird to eat he thought of the things he didn't have. It somehow was never enough and he seemed to be angry all the time, so angry that he wasted a whole day just slamming things around and swearing at his luck." (p. 6, Brian's Winter)
+* "But with the supplies from the plane his dreams changed back to food and when it was gone - in what seemed a very short time - a kind of wanting, hunger returned that he ahd not felt since the first week. For a week or two he was in torment, never satisfied; even when he ahd plenty of  fish and rabbit or foolbird to eat he thought of the things he didn't have. It somehow was never enough and he seemed to be angry all the time, so angry that he wasted a whole day just slamming things around and swearing at his luck." (p. 6, Brian's Winter)
 
 * "Almost a whiff, soemthing he could smell. He was hutning with the rifle when he sensed the change. He had awakened early, just before first light, and had decided to spend the entire day hunting and get maybe two or three foolbirds. He blew on the coals from the fire the night before until they glowed red, added some bits of dry grass, which burst into flame at once, and heated water in one of the aluminum pots that had come in the plane's survival pack." (p. 7, Brian's Winter)
 
@@ -783,7 +783,7 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 
 * "He made a circle of the camp, walked out on the lake ice - which was covered with  snow as well - and back around and saw no tracks other than rabbit and mouse. (p. 99, Brian's Winter)
 
-Then he started to move toward where the sound had come from, workign slowly, amazed that he was starting to warm up and even feel comfortable. Back in the hood the air was kept from moving and his face grew warmer and the fact that his head was warm seemed to warm his whole body and once he became accustomed to the cold he could look around and appreciate the world around him. (p. 99, Brian's Winter)
+Then he started to move toward where the sound had come from, working slowly, amazed that he was starting to warm up and even feel comfortable. Back in the hood the air was kept from moving and his face grew warmer and the fact that his head was warm seemed to warm his whole body and once he became accustomed to the cold he could look around and appreciate the world around him. (p. 99, Brian's Winter)
 
 It was a world of beauty. It's like being inside glass, he thought, a beautiful glass crystal. The air was so clear he could see tiny twigs, needles on pine trees fifty, seventy-five yards away, and so still that when a chickadee flew from a tree to the meat piled near the entrace - where they flocked and picked at the meat - he could actually hear the rush of air as the bird flapped its wings." (p. 99, Brian's Winter)
 
@@ -1299,63 +1299,13 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Peace finally coming to him
 
 ### Color ###
-* green // trees
-* blue-sky // day
-* green // death trees
-* light // gray // sky
-* blue // water
-* green-blue blur
-* reddish, orange / birds
-* glistening // red
-* red // berries
-* cinnamon-colored
-* gray // dim light
-* chalky // granite
-* red // glow
-* forest, green // carpet
-* golden, brown
-* green // willows
-* reddish // fur
-* large, gray // ones // rabbits
+* green // trees, blue-sky // day, green // death trees, light // gray // sky, blue // water, green-blue blur, reddish, orange / birds, glistening // red, red // berries, cinnamon-colored, gray // dim light, chalky // granite, red // glow, forest, green // carpet, golden, brown, green // willows, reddish // fur, large, gray // ones // rabbits
 
 ### Adjectives ###
-* comfortable // smiles
-* breaking // word
-* wandering // streams and rivers
-* sudden // silence
-* crashing // sound
-* thick // "darkness of night"
-* small // tree
-* direct // sunlight
-* thick // grass
-* small // brush
-* rocky // ridge
-* birds // singing
-* murky // water
-* great // gulps
-* buzzing // insect
-* sloshing // oil
-* deep // woods
-* thick // beaks
-* slender // branches
-* light // breeze
-* full and ripe // berries
-* damp // sand
-* deeper // water
-* feathered // bomb
-* secret // key
-* flying // pear
-* thick // evergreen
-* broken // sap
-* top // branches
-* healing // sleep
-* fishing // gear
+* comfortable // smiles, breaking // word, wandering // streams and rivers, sudden // silence, crashing // sound, thick // "darkness of night", small // tree, direct // sunlight, thick // grass, small // brush, rocky // ridge, birds // singing, murky // water, great // gulps, buzzing // insect, sloshing // oil, deep // woods, thick // beaks, slender // branches, light // breeze, full and ripe // berries, damp // sand, deeper // water, feathered // bomb, secret // key, flying // pear, thick // evergreen, broken // sap, top // branches, healing // sleep, fishing // gear
 
 ### Vocabulary ###
-* Viciously
-* Raged
-* Abated
-* Self-pity
+* Viciously, Raged, Abated, Self-pity
 
 ### Themes ###
 * Divorce, Family
@@ -1482,66 +1432,13 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Rough treatment
 
 ### Color ###
-* brown // paper and string
-* white // metal cupboard
-* red // satin ribbon
-* darkest // corner
-* black // eyes \\ and fierce and frightened
-* white // teeth
-* black // hair
-* bronze // shoulder
-* white // paint
-* blue-black // hair 
-* white // feet
-* brown // horse
-* snow-white // horse
-* pale-blue // desert
-* red // dress
+* brown // paper and string, white // metal cupboard, red // satin ribbon, darkest // corner, black // eyes \\ and fierce and frightened, white // teeth, black // hair, bronze // shoulder, white // paint, blue-black // hair, white // feet, brown // horse, snow-white // horse, pale-blue // desert, red // dress
 
 ### Adjectives ###
-* large // parcel
-* twisty // key
-* dawn // light
-* fierce and frightened // eyes \\ and black
-* little // knife
-* thundering // heart
-* plastic // bows and arrows
-* early // sunlight
-* intricate // details
-* splendid // sight
-* dark // passage
-* ferocious and hidden // faces
-* bright // dyes
-* painted // symbols
-* beaten // earth
-* small // stones
-* riding // ground
-* huge // boulders
-* living // things
-* passing // bird
-* cotton // wool
-* magic // cupboard
-* trembling // hand
-* quick // temper
-* awe-struck // admiration
-* anxious // glance
-* ungratifying // stench
-* quick // movement
-* infinite // slowness
-* lifeless // plastic figures
-* grass // cuttings
+* large // parcel, twisty // key, dawn // light, fierce and frightened // eyes \\ and black, little // knife, thundering // heart, plastic // bows and arrows, early // sunlight, intricate // details, splendid // sight, dark // passage, ferocious and hidden // faces, bright // dyes, painted // symbols, beaten // earth, small // stones, riding // ground, huge // boulders, living // things, passing // bird, cotton // wool, magic // cupboard, trembling // hand, quick // temper, awe-struck // admiration, anxious // glance, ungratifying // stench, quick // movement, infinite // slowness, lifeless // plastic figures, grass // cuttings
 
 ### Vocabulary ###
-* Arrange
-* Astonishment
-* Ransacked
-* Magnifying
-* Bewilderment
-* Spiritous
-* Reluctant
-* Exclamations
-* Apprehension
-* Insulation
+* Arrange, Astonishment, Ransacked, Magnifying, Bewilderment, Spiritous, Reluctant, Exclamations, Apprehension, Insulation
 
 ### Allusions ###
 * "On the Trail of the Iroquois"
