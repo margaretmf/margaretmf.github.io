@@ -239,7 +239,7 @@ I also remember listening to the song "Memphis Soul Song". There's an angel on o
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
 ## A Spanish Lense ##
-It brings an interesting feeling, a new perception, a beautiufl insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
+It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
 
 ## EVERFI, Book ##
 With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older male in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business.
@@ -995,6 +995,7 @@ I remember taking a photo.
 I remember feeling concerned about healing from racial prejudices.
 I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
 I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
+I remember the story of my grandfather standing up for African American people on the bus in the 1900s.
 
 ## My Mom and I ##
 My mom and I are on different journeys.
