@@ -846,7 +846,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * sleepy // eyes, rising // sun, pointed // stick, flat // stone, sea // cliffs, long // oars - rowing, little // harbor, tall // man, bare // shoulders, toyon // bushes, higher // ground, polished // hills, small, twisted // trees, curious // news, fur // cap, poor // season, early // spring, heavy // seas, deep // water, harvested // seas, good // fortune, stormy // afternoon, bigget // waves, wide // beds, slain // otter, sea // otter, kelp // beds, sunless // day, deep // waves, narrow // beach, otter // pelts, white // smoke, secret // name, terrible // time, south // headland, snared // fowl, deep // water, built // canoes, wild // pack, ample // food, real // reason, every // house, big // canoe, rising // sun, silver // trail, wind // blew, one // moon, every // day, fog, next // sun, few // storms, red // sails, stout // rope, otter // cape, faint // light, growing // pale, small // quantity, deep // breath, wind // grows, scraping // hides, cooking // pots, small // box, fierce // gusts, high // waves, two // boats, biggest // canoes, wind // drowned, beautiful // skirt, yucca // fibers, dogs // scurryings, small // fire, gull // eggs, gathering // food, tide // pools, flat // rock, big // canoe, wild // dogs, short // distance, growing // dark, small // valley, two // hills, gathered // bush, clear // place, safe // place, slain // dog, spearing // fish, small // holes, wide // circle, terrible // flood, sea // rise, proper // strength, whale // spouting, big // waves, endless // waters, wild // dogs, large // rocks, slippery // bed, high // cliffs, faint // noises, leaking // canoe, calm // sea, good // distance, wild // dogs, gulls // flying, good // pole, cooking // seeds, clear // light, sea // elephant, crying // sounds, gray // boulders, deep // scars, ripped // deep, cactus // bush, low // bushes, broken // shaft, sea-elephant // teeth, wild // dogs, speckled/ eggs, beatuiful // feathers, clear // water, twisting // arms, giant // stalk, weak // light, jagged // crack, sound // echoed, whole // ocean, different // direction, beautiful // skirt, little // fish, brush // singing, strong // winds, wild // seas, graceful // stride, gleaming // stretch
 
 ### Vocabulary ###
-* Foolishness,Stunted, Preparations, Stiffly, Barred, Rushed, Whirring, Gathering, Plentiful, Roamed, Decreed, Mischief, Disappeared, Shrouded, Alarm, Fastened, Hidden, Fearful, Motioning, Anchored, Gorged, Thrust, Frightened, Ravine, Forbade, Raviness, Waddling, Bellowings, Abandoned, Entangled
+* Foolishness, Stunted, Preparations, Stiffly, Barred, Rushed, Whirring, Gathering, Plentiful, Roamed, Decreed, Mischief, Disappeared, Shrouded, Alarm, Fastened, Hidden, Fearful, Motioning, Anchored, Gorged, Thrust, Frightened, Ravine, Forbade, Raviness, Waddling, Bellowings, Abandoned, Entangled
 
 ### Themes ###
 * Exploration
@@ -1047,93 +1047,10 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * practically // dark, black // trousers, gray // pullover, black and white // cat, red // dress, brown, living // skin, khaki / bandages, white // bands, red // ball, the sun
 
 ### Adjectives ###
-* gloomy // afternoon
-* mindless // antagonism
-* positively // lit
-* Books // scattered
-* well-lit // living room
-* familiar // furniture
-* astonishing // adventures
-* vividly // real
-* strange // look
-* wide // open
-* goggle-eyed // expression
-* deep // glow
-* hot // coals
-* open // doorway
-* fairly // dragged
-* breathed // reverently
-* incredible // excitement
-* shamingly // softhearted
-* dire // possibility
-* comical // amazement
-* gleeful // laugh
-* misty // smile
-* utterly // amazing
-* snubby, cheerful // face
-* gentle / hands
-* ghastly // shock
-* imaginary // weapon
-* miniature // people
-* modern // weapons
-* munching // grass
-* eyes // glowing
-* lovely // place
-* favorite // corner
-* fearsome-looking // blade
-* big // lawn
-* monstrous // wilderness
-* well-oiled // defense
-* profound // silence
-* murky // water
-* physically // linked
-* intense anticlimax
-* little // house
-* plastic // figure
-* rocky // hillside
-* central // fire
-* dark // heart
-* night // sky
-* ruined // longhouse
-* clean // pages
-* bright // light
-* biggest // skinhead
-* life // force
+* gloomy // afternoon, mindless // antagonism, positively // lit, Books // scattered, well-lit // living room, familiar // furniture, astonishing // adventures, vividly // real, strange // look, wide // open, goggle-eyed // expression, deep // glow, hot // coals, open // doorway, fairly // dragged, breathed // reverently, incredible // excitement, shamingly // softhearted, dire // possibility, comical // amazement, gleeful // laugh, misty // smile, utterly // amazing, snubby, cheerful // face, gentle / hands, ghastly // shock, imaginary // weapon, miniature // people, modern // weapons, munching // grass, eyes // glowing, lovely // place, favorite // corner, fearsome-looking // blade, big // lawn, monstrous // wilderness, well-oiled // defense, profound // silence, murky // water, physically // linked, intense anticlimax, little // house, plastic // figure, rocky // hillside, central // fire, dark // heart, night // sky, ruined // longhouse, clean // pages, bright // light, biggest // skinhead, life // force
 
 ### Vocabulary ###
-* Gauntlet
-* Antagonism
-* Bursting
-* Fright
-* Astonished
-* Brilliant
-* Beaming
-* Confessed
-* Mananimous
-* Generous
-* Sarcasm
-* Admiration
-* Relish
-* Acquisition
-* Coincidence
-* Superstitious
-* Tormented
-* Temptation
-* Reactivate
-* Magic
-* Gibbering
-* Pestering
-* Carlessness
-* Pretended
-* Original
-* Extricated
-* Hovering
-* Heedlessness
-* Impatience
-* Trusting
-* Waiting
-* Pitiful
-* Extraordinary
+* Gauntlet, Antagonism, Bursting, Fright, Astonished, Brilliant, Beaming, Confessed, Mananimous, Generous, Sarcasm, Admiration, Relish, Acquisition, Coincidence, Superstitious, Tormented, Temptation, Reactivate, Magic, Gibbering, Pestering, Carlessness, Pretended, Original, Extricated, Hovering, Heedlessness, Impatience, Trusting, Waiting, Pitiful, Extraordinary
 
 ### Themes ###
 * Feelings - "felt scared"
@@ -1219,60 +1136,10 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Tigers in India, climbing the peaks of the Himalayas, dived for pearls in the South Seas, the Poles
 
 ### Color ###
-* Kitchen // green
-* Other side // yellow
-* Two-colored // kitchens
-* White // expanses of ice, snow
-* Red // beak
-* Busy // bird
-* White-circled // eyes
-* White // tie
-* White // flannel
-* Bright // tan
-* Black // evening
-* Polar // snow 
-* Delicate // music
+* Kitchen // green, Other side // yellow, Two-colored // kitchens, White // expanses of ice, snow, Red // beak, Busy // bird, White-circled // eyes,White // tie, White // flannel, Bright // tan, Black // evening, Polar // snow, Delicate // music
 
 ### Adjectives ###
-* Great // shining
-* House // painter
-* Cold // regions
-* Little // globe
-* Exact // spot
-* Decorating // season
-* Whole // winter
-* Very // intelligent
-* Faint // voice
-* Strange, pompous little // strut
-* Living // room
-* Upholstered // chair
-* Fresh // air
-* Right // temperature
-* Flying // tools
-* Violent // slamming 
-* Service // man 
-* Usual // curiosity
-* Public // streets
-* New // voice
-* Splendid // bird
-* Busy // thoroughness
-* Subdued // cries
-* Prettie // birdie
-* Elegant // picture
-* Determined // bird
-* Large // cities
-* Great // reader
-* Railway // station 
-* Distant // countries
-* Riotous // success
-* Opening // performance
-* High, shrill // note
-* Bright // lights
-* Large // hotel
-* Brass // buttons
-* Sparkling // lights
-* Merry // games
-* Greatest // delight 
+* Great // shining, House // painter, Cold // regions, Little // globe, Exact // spot, Decorating // season, Whole // winter, Very // intelligent, Faint // voice, Strange, pompous little // strut, Living // room, Upholstered // chair, Fresh // air, Right // temperature, Flying // tools, Violent // slamming, Service // man, Usual // curiosity, Public // streets, New // voice, Splendid // bird, Busy // thoroughness, Subdued // cries, Prettie // birdie, Elegant // picture, Determined // bird, Large // cities, Great // reader, Railway // station, Distant // countries, Riotous // success, Opening // performance, High, shrill // note, Bright // lights, Large // hotel, Brass // buttons, Sparkling // lights, Merry // games, Greatest // delight 
 
 ### Vocabulary ###
 * Spatttered, paint and calcimine, wallpaper
@@ -1323,68 +1190,14 @@ It was really a lovely place, far better than their old garden. It was not just 
 * "live off the land, make a home"
 
 ### Color ###
-* blue, blue, blue // sky
-* black // clouds
-* old gray // stones
-* black // rocks
-* golden // summer
-* blue // beak
-* silky, black // eyes
-* blue // summer
+* blue, blue, blue // sky, black // clouds, old gray // stones, black // rocks, golden // summer, blue // beak, silky, black // eyes, blue // summer
 
 ### Adjectives ###
-* edible // fruits
-* basswood // tree
-* huge // tree
-* sentinel // crow
-* tree // home
-* turtle // soup
-* smooth, white // meadow
-* sleeping // stages
-* old // logs
-* undercut // banks
-* overhanging // bushes
-* calm // water
-* deep undercut // bank
-* overhanging // bushes
-* internal // organs
-* main // highway
-* cold // winds
-* warm and cozy // house
-* old // map
-* steep // mountain
-* big, old // catfish
-* dry // grass
-* big // creek
-* apple // tree
-* spring // beauty
-* strawberry // patch
-* fancy // gear
-* deer // trap
-* poplar // tree
-* inner // bark
-* tedious // work
-* gay // gathering
-* scrub // mussels
-* spring // water
-* best-spelling // tree
-* sad // tunes
-* willow // whistles
-* deep // pools
-* air // warm
-* big // boulder
-* silent // trees
-* perfect // feathers
-* teaberry // leaves
-* beautiful // details
+* edible // fruits, basswood // tree, huge // tree, sentinel // crow, tree // home, turtle // soup, smooth, white // meadow, sleeping // stages, old // logs, undercut // banks, overhanging // bushes, calm // water, deep undercut // bank, overhanging // bushes, internal // organs, main // highway, cold // winds
+* warm and cozy // house, old // map, steep // mountain, big, old // catfish, dry // grass, big // creek, apple // tree, spring // beauty, strawberry // patch, fancy // gear, deer // trap, poplar // tree, inner // bark, tedious // work, gay // gathering, scrub // mussels, spring // water, best-spelling // tree, sad // tunes, willow // whistles, deep // pools, air // warm, big // boulder, silent // trees, perfect // feathers, teaberry // leaves, beautiful // details
 
 ### Vocabulary ###
-* Edible
-* Dangled 
-* Acreage
-* Marksmanship
-* Peaceful
-* Moral
+* Edible, Dangled, Acreage, Marksmanship, Peaceful, Moral
 
 ### Allusions ###
 * Catskill Mountains
@@ -1852,57 +1665,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * black // wrough-iron railing runs, green // lawn, silvery-green // trunk, blue // sky, soft white // little house, gray // dusk, white // trumpetlike flowers, glorious colors of red, orange, yellow, and gold, green // ferns "growing on the banks", gorgeous red, flamelike color, brown // spots, white // patch, brown // conkers, "still and gray", gray, bleak // day, yellow // stalks, sparkling // frost, russet and golden // blooms, dark // shape, fuzzy // feeling, hot // drink, dark // jacket, gray // clouds, gray // sky, black // spinning darkness, soft, rose-colored // silk, golden // sounds, white // flakes, black // hair
 
 ### Adjectives ###
-* soft // countryside,
-* disturbing // feelings,
-* high stone // wall,
-* large // apple tree
-* pink-and-white-blossomed // branches
-* yellow // stones
-* soft, frothy // blossoms
-* new // world
-* fine-textured // bark
-* open and clear // woods
-* open and sunny // clearing
-* old, garden // rake
-* little // brook
-* silken // strands (cobwebs hung)
-* secret // place
-* darkening // sky
-* night // sky
-* kitchen // garden
-* surprised // look
-* wild-rose // tree
-* wild // flowers
-* thieving // eyes
-* untidy // hedges
-* ragged // lawn
-* distracted // woman
-* glorious // outdoors
-* slippery // sound
-* wretched // things
-* bigger // branches
-* mossy // bank
-* thick // branches
-* disastrous // thing
-* willful // stealing
-* muddy // earth
-* dripping // wet
-* gusty // winds
-* brave // folowers
-* bare // trees
-* damp, cold // cottage
-* paralyzing // moment
-* weak // smile
-* faint // sounds
-* foolish // decision
-* ominous // clouds
-* stormy // sky
-* terrible // nightmare
-* virgin // snow
-* comforting // sounds
-* silvery // light
-* scrambling // sound
-* seed box
+* soft // countryside, disturbing // feelings, high stone // wall, large // apple tree, pink-and-white-blossomed // branches, yellow // stones, soft, frothy // blossoms, new // world, fine-textured // bark, open and clear // woods, open and sunny // clearing, old, garden // rake, little // brook, silken // strands (cobwebs hung), secret // place, darkening // sky, night // sky, kitchen // garden, surprised // look, wild-rose // tree, wild // flowers, thieving // eyes, untidy // hedges, ragged // lawn, distracted // woman, glorious // outdoors, slippery // sound, wretched // things, bigger // branches, mossy // bank, thick // branches, disastrous // thing, willful // stealing, muddy // earth, dripping // wet, gusty // winds, brave // folowers, bare // trees, damp, cold // cottage, paralyzing // moment, weak // smile, faint // sounds, foolish // decision, ominous // clouds, stormy // sky, terrible // nightmare, virgin // snow, comforting // sounds, silvery // light, scrambling // sound, seed box
 
 ### Vocabulary ###
 * "excursion", "savored", "vaguely", "copiously", "distress", "resentment", "turbulent", "defiantly", "inevitably", "trudged", "exuded"
