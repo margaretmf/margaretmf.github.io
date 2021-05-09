@@ -966,139 +966,13 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * The Indian, the Key, the Cupboard
 
 ### Color ###
-* very distressed // black // horsehuge, smooth, pale-brown // riverbed
-* black // mountain range
-* white // petticoats
-* red satin // dress
-* red // laces
-* red satin // ribbon
+* very distressed // black // horsehuge, smooth, pale-brown // riverbed, black // mountain range, white // petticoats, red satin // dress, red // laces, red satin // ribbon
 
 ### Adjectives ###
-* wretched // baby-sitter
-* remote // island
-* cold, shaky // hands
-* dividing // door
-* little // pinholes
-* tiny // bullets
-* miniature // mortars
-* spiked // tools
-* burnt-out // candle
-* fateful // night
-* secret // cupboards, drawers, rooms
-* hiding // places
-* prying // eyes
-* favorite // things
-* rummaging // brothers
-* little // man
-* common // plight
-* marvelous // tale
-* vital // part
-* musket // balls
-* horrific // battle
-* modern // weapons
-* plastic // Marines
-* low // voices
-* heavy // silence
-* sick // joke
-* bloodstained // bodies
-* special // rituals
-* crybaby // cowboy
-* new // horse
-* bunk // bed
-* magic // cupboard
-* impatient // voice
-* amazing // idea
-* fantastic // one
-* desparate // hope
-* handmade // magnificence 
-* doubtful // tone
-* cautiously // forward
-* doomful // look
-* harsh // sun
-* endless // expanse of sun
-* glaring // sun
-* gigantic // hat
-* soft-cornered // building
-* immediate // danger
-* glassy // shingle
-* overwhelming // sorrow
-* flicking // movement
-* shattered // sweater
-* expert // attention
-* urgent // desire
-* fine // friend
-* conflicting // efforts
-* bounding // curves
-* thick // flannel
-* distant // thunder
-* sickening // motion
-* gigantic // feet
-* ten-lane // highway
-* whole // sky
-* street // sounds
-* swinging // doors
-* soft // heart
-* little // ride
-* slight // embarassment
-* old-fashioned // gallon
-* heavy // stirrup
-* skycraper // height
-* meaningful // swallow
-* liqueur // glass
-* red sattin // ribbon
-* powerful // vittles
-* appalling // danger
-* old-fashioned // stethoscope
-* copper // hairpins
-* marble // pillar
-* whirling // leaves
-* old // fragments
-* open // sky
-* angry // sky
-* spurred // boots
-* freak // storm
-* absolute // disaster
-* real, tiny // frying pan
-* marvelous // occasion
-* piano // stool
+* wretched // baby-sitter, remote // island, cold, shaky // hands, dividing // door, little // pinholes, tiny // bullets, miniature // mortars, spiked // tools, burnt-out // candle, fateful // night, secret // cupboards, drawers, rooms, hiding // places, prying // eyes, favorite // things, rummaging // brothers, little // man, common // plight, marvelous // tale, vital // part, musket // balls, horrific // battle, modern // weapons, plastic // Marines, low // voices, heavy // silence, sick // joke, bloodstained // bodies, special // rituals, crybaby // cowboy, new // horse, bunk // bed, magic // cupboard, impatient // voice, amazing // idea, fantastic // one, desparate // hope, handmade // magnificence, doubtful // tone, cautiously // forward, doomful // look, harsh // sun, endless // expanse of sun, glaring // sun, gigantic // hat, soft-cornered // building, immediate // danger, glassy // shingle, overwhelming // sorrow, flicking // movement, shattered // sweater, expert // attention, urgent // desire, fine // friend, conflicting // efforts, bounding // curves, thick // flannel, distant // thunder, sickening // motion, gigantic // feet, ten-lane // highway, whole // sky, street // sounds, swinging // doors, soft // heart, little // ride, slight // embarassment, old-fashioned // gallon, heavy // stirrup, skycraper // height, meaningful // swallow, liqueur // glass, red sattin // ribbon, powerful // vittles, appalling // danger, old-fashioned // stethoscope, copper // hairpins, marble // pillar, whirling // leaves, old // fragments, open // sky, angry // sky, spurred // boots, freak // storm, absolute // disaster, real, tiny // frying pan, marvelous // occasion, piano // stool
 
 ### Vocabulary ###
-* Frantically
-* Lopsidedly
-* Stamping
-* Criminally
-* Exclamations
-* Ludicrous
-* Intruders
-* Reluctance
-* Conferred
-* Chuckle
-* Sniffling
-* Shuddered
-* Promontory
-* Tottered
-* Oblivion
-* Suspense
-* Vulnerable
-* Exclamation
-* Tantalizingly
-* Grinned
-* Ecstatically
-* Vicinity
-* Intrepid
-* Suffocated
-* Incredulous
-* Mumbled
-* Conscience
-* Appalled
-* Hissing
-* Peeping
-* Querulous
-* Phenomenon
-* Vanished
-* Detonated
-* Gazing
-* Abrupt
+* Frantically, Lopsidedly, Stamping, Criminally, Exclamations, Ludicrous, Intruders, Reluctance, Conferred, Chuckle, Sniffling, Shuddered, Promontory, Tottered, Oblivion, Suspense, Vulnerable, Exclamation, Tantalizingly, Grinned, Ecstatically, Vicinity, Intrepid, Suffocated, Incredulous, Mumbled, Conscience, Appalled, Hissing, Peeping, Querulous, Phenomenon, Vanished, Detonated, Gazing, Abrupt
 
 ### Themes ###
 * Home Life
@@ -1170,14 +1044,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 * Plastic figures, cardboard box of them - not just soldiers or Indians, they were professional people, a judge, lawyers, businessmen, scientists, a nurse, doctors, surgeon
 
 ### Color ###
-* practically // dark
-* black // trousers, gray // pullover
-* black and white // cat
-* red // dress
-* brown, living // skin
-* khaki / bandages
-* white // bands
-* red // ball, the sun
+* practically // dark, black // trousers, gray // pullover, black and white // cat, red // dress, brown, living // skin, khaki / bandages, white // bands, red // ball, the sun
 
 ### Adjectives ###
 * gloomy // afternoon
