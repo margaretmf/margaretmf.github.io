@@ -172,3 +172,8 @@ Something exists in consciousness. The image in mind has not been consciously co
 * A bond or other security with no fixed maturity date
 * A restriction making an estate inalienable perpetually or for a period beyond certain limits fixed by law
 * An annuity payable forever
+
+## Resonant: ##
+* Deep, clear, and continuing to sound or ring
+* Tending to reinforce or prolong sounds, especially by synchronous vibration
+
