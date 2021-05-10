@@ -296,6 +296,17 @@ The lights are dimmed.
 The time is there for rest.
 The darkness draws near.
 
+## "Boys Will Be Boys" and Mistakes ##
+They say "boys will be boys" and "boys make mistakes", but I have made mistakes also and said and done dumb things.
+It's ok.
+It's tough.
+Things happen.
+Get back up to live another day.
+Learn from the mistake.
+Become a better person.
+Start fresh.
+Do something new.
+
 ## Falling Under ##
 Falling under, falling under all the mistakes
 Wanting to bury oneself in the ground
