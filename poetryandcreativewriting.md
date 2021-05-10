@@ -1050,6 +1050,7 @@ It should feel good to sing
 
 Thank you for holding the door and making me feel like a lady
 Thank you for touching my heart and making me remember home
+Thank you for the song and helping me feel loved
 Thank you for the head nod and helping me feel cool
 Thank you for the concern for my health and helping me recover
 Thank you for asking me to dance and not making me feel bad
@@ -1113,7 +1114,6 @@ So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of 
 Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
 I felt like... 
 #IWasJustAFan 
-#IWasJustAListener 
 #IWasJustAClient 
 #IWasJustAnIntern 
 then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
@@ -1121,9 +1121,7 @@ The Truth is…I discovered that my ancestors were the Confidante to Thomas Jeff
 the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
 Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
 
-I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
-
-Ultimately, the Truth is...it's unfair to say that #IWasJustAClient, it may be ok to say #IWasJustAFan, I am glad to say #IWasAnIntern, and I rejoice in saying #IAmAnActiveListener.
+I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't Sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
 ## She Is ##
 She's a whole-souled woman
