@@ -1142,13 +1142,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 * Great // shining, House // painter, Cold // regions, Little // globe, Exact // spot, Decorating // season, Whole // winter, Very // intelligent, Faint // voice, Strange, pompous little // strut, Living // room, Upholstered // chair, Fresh // air, Right // temperature, Flying // tools, Violent // slamming, Service // man, Usual // curiosity, Public // streets, New // voice, Splendid // bird, Busy // thoroughness, Subdued // cries, Prettie // birdie, Elegant // picture, Determined // bird, Large // cities, Great // reader, Railway // station, Distant // countries, Riotous // success, Opening // performance, High, shrill // note, Bright // lights, Large // hotel, Brass // buttons, Sparkling // lights, Merry // games, Greatest // delight 
 
 ### Vocabulary ###
-* Spatttered, paint and calcimine, wallpaper
-* Mysteriously
-* Ventilating
-* "Curiosity, surprise, and pleasure"
-* Vigorously
-* Rotogravure
-* Irritable
+* Spatttered, paint and calcimine, wallpaper, Mysteriously, Ventilating, "Curiosity, surprise, and pleasure", Vigorously, Rotogravure, Irritable
 
 ### Themes ###
 * Dreaming
@@ -1230,7 +1224,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 
 "Birds were dripping from the trees, little birds, singing and flying and pouring over the limbs." (p. 25)
 
-"The summer was wonderful. There was food in abudance and I gathered it most of the morning, and stored it away in the afternoon. I could now see that my niches were not going to be big enough for the amount of food i owuld need for the winter, so I began burning out another tree. When the hickory nuts, walnuts, and acorns appeared, I was going to need a bin. You'd be surprised what a pile of nuts it takes to make one turtle shell full of nut meants - and not a snapping-turtle shell either, just a box-turtle shell!" (p. 63)
+"The summer was wonderful. There was food in abundance and I gathered it most of the morning, and stored it away in the afternoon. I could now see that my niches were not going to be big enough for the amount of food i owuld need for the winter, so I began burning out another tree. When the hickory nuts, walnuts, and acorns appeared, I was going to need a bin. You'd be surprised what a pile of nuts it takes to make one turtle shell full of nut meants - and not a snapping-turtle shell either, just a box-turtle shell!" (p. 63)
 
 "This was tedius work, too, but now that I had a home and smoked venison and did not have to hunt food every minute, I could do things like make flour. I would simply add spring water to the flour and bake this on a piece of tin. When done, I had the best pancakes ever. They were flat and hard, like I imagined Indian bread to be. I liked them, and would carry the leftovers in my pcokets for lunch." (p. 67)
 
