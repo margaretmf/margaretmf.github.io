@@ -78,13 +78,13 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Dificil (adjective): ##
 * Hard, difficult
 
-## Enseñar (verb): ##
+## Enseñar (verb, verbo): ##
 * To teach
 
-## Agresar (verb): ##
+## Agresar (verb, verbo): ##
 * To assault
 
-## Encantar (verb): ##
+## Encantar (verb, verbo): ##
 * To love
 
 ----------
