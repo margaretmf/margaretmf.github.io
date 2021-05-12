@@ -1539,13 +1539,15 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for homes aligned in rows next to each other
 * Grateful for the sense of renewal at UVA
 * Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
-* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men.
+* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men
 * Grateful for conversations with him about a key African American leader.
 * Grateful for the friendly policeman this morning
 * Grateful for the dignity of people in the car while driving
 * Grateful for the woman in Rural Virginia who sympathized and empathized
 * Grateful for new insights and fresh thoughts
 * Grateful for the Southern Gospel Music at the church down the street
+* Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
+* Grateful to walk around Norfolk
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
