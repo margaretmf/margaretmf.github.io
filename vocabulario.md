@@ -87,6 +87,9 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Encantar (verb): ##
 * To love
 
+## El jeroglífico (f) (noun, sustantivo): ##
+* Hieroglyphic
+
 ----------
 
 ## Encontrar (verb, verbo): ##
