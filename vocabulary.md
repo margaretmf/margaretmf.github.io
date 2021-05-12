@@ -177,3 +177,5 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Deep, clear, and continuing to sound or ring
 * Tending to reinforce or prolong sounds, especially by synchronous vibration
 
+## Creator: ##
+* A person or thing or being that brings something into existence
