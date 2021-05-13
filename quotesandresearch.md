@@ -75,6 +75,15 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
 
+## [The Making of Home]() ##
+"The paintings rarely depict candlesticks or lamps, and very few fireplaces or stoves, the standard forms of lighting and heating." (p. 9, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"By the mid-nineteenth century, living without curtains would have seemed as odd to the British as living without corridors. No longer simply a protective barrier to shield those inside from the gaze of strangers outside, curtains had now come to be viewed also as a way to protect the inside of the house, more generally, from everything outside, even light. In the seventeenth century, Enlightenment thinkers had used light as a symbol of the age of reason." (p. 87, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"particualrly for the sake of seeing and being seen, that is, automatically equating light and knowledge" (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"And as it did so, many began to see light itself as breaching the household's privacy. Hard, sharp sunlight', previously in scarce supply and therefore valued, was no seen as a nuisance, 'a glaring mass of light'. The sheer availability of cheap and easy daylight had increased the value of darkness across the home countries." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
 
 ----------
 
