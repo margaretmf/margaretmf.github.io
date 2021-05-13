@@ -169,6 +169,35 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 ## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
 "Even before the appearance of these new technologies, candles had always been a luxury. In most agricultural and even many urban districts, well into the nineteenth century, most tasks were performed by firelight, including many involving skills that today are thoguht to require a bright light, such as sewing or reading. Given both the relative scarcity of windows, and, in North America, the continued use of shuttered, unglazed windows, artificial light was frequently needed indoors during the day as well as at night. As fires were necessary for cooking, they were often the primary light source as well. Candles were used chiefly to provide light when moving from one room to another, ..." (p. 222, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"His household ate dinner in daylight, and the bulk of social engagements - parties, dancing, visiting neighbours - were also scheduled before 'day-light-End'. The hours after dusk and before bedtime were reserved for leisure activities that needed some light: reading, conversation and music. The most festive occasions in this sophisticated household still used far less light than we might iamgine. One party for seven adutls and an unspecified number of children was described as having a 'splendid' appearance, owing to the seven candles that illuminated the room." (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"the level of lighting...the marvelled, 'was so well lighted we could see everybody'" (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"Candles and fires were not the only pre-industrial sources of artifical light. From classical times, oil lamps had been in daily use in many housholds across Europe..." (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+"...sews by light of a lamp..." (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"In retrospect, lighting technology appears to have followed a simple trajectory: first oil, then candles, then gas, then electricity. The reality was more complex. No household used only candles, or only gas, or only oil. A single family may well have used an Argand lamp for those who sat sewing or doing similar types of close work at the family's central table, while others read or drew or played the piano by the light of the fire,..." "...rushlights" (p. 227,
+
+"...no one type of lighting predominated"
+"gas lighting" (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"Like gas, electric lighting was initially expected to be an outdoor technology."
+"But while arc lighting was very bright, and very focused in lack of diffusion left large areas in darkness." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"Given the range of options, technologies and costs, no one type of lighting predominated. Gas was welcomed for its ease of use, but it remainex expensive, and many districts were beyond the reach of the gas mains." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+"...when heated by a gas flame, gave a light which was ten times brighter..." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+"Safer, cleaner, brighter, once the mantles began to be made commercially their benefits led to a marked increase in the adoption of gas lighting." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"Indoors, it was too glaringly bright to be used at all. It was only with the invenion of the incandescent filament that light bulbs began to be tamed, domesticated, and therefore to win favour for electricity: by 1881, a great house in Scotland had been fully electrified." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
+
+"There is no danger of stumbling against furniture in the dark when a room can be illuminated with the rasp of a match." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
+
+"...brighter lighting" (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
+
+"As is often the case, the design for each new technology was drawn from the design of older ones. With electricity, the method of turning lights on and off was adapted from gas, and so at first each lamp, or sometimes each branch of a chandelier, ahd its own swithc.. It was soem time before it was realized that swithces could be separated from the light source..." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
+
+"The conceptual leap, from light fixture to wall, was enormous. Just as windowpanes had once been furniture rather than part of a building, so too had lighting been beofre gas and electricity. Today we no more think of selling a hosue without glazing than we think of removing the wiring and taking it with us when we move. Lighting became, for the first time, not an independent unit, but part of the fabric of the house." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
  
  
 ----------
