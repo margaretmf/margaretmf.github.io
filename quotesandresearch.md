@@ -126,6 +126,10 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "In the final decade of the seventeenth century, Amsterdam was far more brightly lit than Paris - the city of light was still in the future." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+"And while Amsteradam's street lights were fixed to the houses, Parisian street lights hung from ropes that ran across the streets of Paris were lined with more than eight thousand lights. In 1680, Prussia, too, started to experiment with street lighting, adopting yet another system. Here the lamps were hung from poles erected for the purpose, a precursor to lamp posts. Of all northern Europe's major urban centres, London lagged furthest behind. Late into the eighteenth century, its civic authorities only required lamps to be affixed to houses, without regulating the type of light, nor attempting to enforce technological improvements, as Amsterdam had. It was 1736 before London's local parishes took control of the supervision of street lighting." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+"Parish control suggested that lighting was now considered to be a civic good for all London's citizens. In Paris, by contrast, it was the police who set the standards and supervised street lighting..." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
 
 ----------
 
