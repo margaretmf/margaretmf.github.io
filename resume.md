@@ -74,12 +74,21 @@ Christianity
  
 ## RELEVANT WORK EXPERIENCE
 
-### INDEPENDENT Work
+### INDEPENDENT WORK
+American Credo Project
+* Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
+
+Music Composer
+* Composing 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo"
+
 Children's Book Analyst
 * Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career
 
 Photographer 
 * Working on two series - "Light in the Darkness" and "American Flags"
+
+Researcher
+* Research themes in books
 
 ### VIBRANT WORLD
 Trends and News Reviewer, Data Science Project Application Reviewer, Blog Writer, Media Manager, Researcher, Sketcher, Ideator, & Musician | January 2019 - Present
