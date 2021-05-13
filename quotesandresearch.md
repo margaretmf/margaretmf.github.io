@@ -51,6 +51,9 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "All you had to do was look out your window, or get out of your rickshaw a little before your destination, and there it all was, the swirling mass of humanity all at once, in every direction. But perhaps many people, the world over, didn't een do that, when it came to life around them. And those women didn't ride in rickshaws, anyway." (p. 274, "Mother Land", Leah Franqui)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
+"A family was therefore not an absolute grouping, but one that expanded and contracted with time and circumstances." (p. 29, "
+
 
 ----------
 
@@ -75,108 +78,112 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "The paintings rarely depict candlesticks or lamps, and very few fireplaces or stoves, the standard forms of lighting and heating." (p. 9, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "By the mid-nineteenth century, living without curtains would have seemed as odd to the British as living without corridors. No longer simply a protective barrier to shield those inside from the gaze of strangers outside, curtains had now come to be viewed also as a way to protect the inside of the house, more generally, from everything outside, even light. In the seventeenth century, Enlightenment thinkers had used light as a symbol of the age of reason." (p. 87, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "particualrly for the sake of seeing and being seen, that is, automatically equating light and knowledge" (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "And as it did so, many began to see light itself as breaching the household's privacy. Hard, sharp sunlight', previously in scarce supply and therefore valued, was no seen as a nuisance, 'a glaring mass of light'. The sheer availability of cheap and easy daylight had increased the value of darkness across the home countries." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "By the mid-nineteenth century, living without curtains would have seemed as odd to the British as living without corridors. No longer simply a protective barrier to shield those inside from the gaze of strangers outside, curtains had now come to be viewed also as a way to protect the inside of the house, more generally, from everything outside, even light. In the seventeenth century, Enlightenment thinkers had used light as a symbol of the age of reason." (p. 87, "The Making of Home: The 500-Year Story of How Our Houses Beecame Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "particularly for the sake of seeing and being seen, that is, automatically equating light and knowledge" (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "In the nineteenth century, light became more available - new technologies produced cheaper glass in bigger panes, artificial lighting technologies proliferated; improvements to heating meant the size of windows could increase. And as it did so, many began to see light itself as breaching the household's privacy. Hard, sharp sunlight', previously in scarce supply and therefore valued, was now seen as a nuisance, 'a glaring mass of light'. The sheer availability of cheap and easy daylight had increased the value of darkness across the home countries." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "As a consequence, home-makers, and those who wrote on home-making, were united in rejecting clear, unfiltered light indoors." (p 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Instead, light must be 'educated' - that is, filtered, softened, and dulled - to accord with indoor life'." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Curtains, by keeping light out, became not just useful, but acted as an indicator of the morality of the household, a way of showing that, through the 'educating' of the light, the residents twoo were educated. *How to Furnish a House and Make it a Home (c. 1853) was clear that curtains were there to 'show order to the outside', to indicate to passers-by that decent people lived inside.* As darkness became more desirable curtains alone were no longer enough, and stained-glass was recommended for domestic settings - Jakob von Falke, the author of the influential *Die Kunst im Hause (Art in the House, 1871), thought clear glass indicated 'banality'.* (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "'How unfinished and cold a room can be without coloured glass lowering the light.'" (p. 89, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+ ## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "an hour to fetch water, an hour to feed the children and keep the fire alight" (p. 103, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Household cleaning took longer more generally. Coal fires were dirtier than wood ones, while the new lighting technolgoies and improved glass for windows meant that the dirt was also more visible." (p. 114, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Central heating and lighting technologies increased privacy too. The cost and labour-intensive nature of fires meant that the family, and often their servants, routineely gathered in the one room that had a fire. Gas lighting and oil lamps also promoted the group nature of activities; keeping the family around a central table that was used for sewing, reading, and writing." (p. 114, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Now small tables were set beside a chair to provide a place to put down a book, or next to a sofa for a cup and saucer, or nestled by the door to hold the household's bedroom candles; sewing tables were moved to whichever seat had the best light." (p. 138, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "So too with lighting technology. With servants to tend candles and oil lamps, the rich could afford not to acquire the more efficient, but smelly and dirty, gas lighting. (p. 151, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Heat and light, the two essentials of the technology of home. For much of history, both were provided by fire. Fire was the essence of home, the centre of the house." (p. 199, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "the two purposes of windows, light and ventilation, were commonly treated separately. Generally, the top section was glazed, for light, and did not open, while an unglazed lower section was covered with shutters, for ventilation." (p. 210, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Then as, the cost of glass dropped dramatically over the course of the century, the builders of Elizabethan and Jacobean great houses embraced glass as a building material, using it in a way previously unknown, and to an extent that went far beyond any need for light." (p. 211, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "French windows, instead of bringing light to the many, remained a luxury of the wealthiest few." (p. 214, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "It was instead, the English and the Dutch who most thoroughly domesticated light, in the seventeenth century creating a new style that was quickly emanated across the home countries, literally enlightening the homes of millions." (p. 214, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "The new technology increased the amount of light indoors; at the same time, the problem of lighting more generally was one that was being addressed. Across Europe, as cities expanded, and buildings grew taller, as population density increased, and as streets therefore became darker and more filled with strangers, how to light the streets became a civic preoccupation. Some cities tried to rebuild their narrow medieval streets, either widening individual routes, or, more ambitioiusly, replacing the meandering medieval roads with streets laid out in a grid pattern, to allow more moonlight to penetrate. But improving artificial lighting was a simpler, and cheaper, solution." (p. 216, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "In the final decade of the seventeenth century, Amsterdam was far more brightly lit than Paris - the city of light was still in the future." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "And while Amsteradam's street lights were fixed to the houses, Parisian street lights hung from ropes that ran across the streets of Paris were lined with more than eight thousand lights. In 1680, Prussia, too, started to experiment with street lighting, adopting yet another system. Here the lamps were hung from poles erected for the purpose, a precursor to lamp posts. Of all northern Europe's major urban centres, London lagged furthest behind. Late into the eighteenth century, its civic authorities only required lamps to be affixed to houses, without regulating the type of light, nor attempting to enforce technological improvements, as Amsterdam had. It was 1736 before London's local parishes took control of the supervision of street lighting." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Parish control suggested that lighting was now considered to be a civic good for all London's citizens. In Paris, by contrast, it was the police who set the standards and supervised street lighting..." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Throughout the eighteenth century, most major cities, as well as smaller towns that had no official arrangements for lighting, continued to rely on link-bearers - men carrying torches of burning pitch - to cover areas where there was no street lighting, or where the dark was so profound that the lamps were inadequate. The sources of funding for street lighting predictably influenced public attitudes to link-bearers, even though these men were not paid by the city, or the government, but were in business independently. In Paris, where lighting was a police matter, the bearers were widely believed to be informers who sold information about night-movements to the police." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "It was, however, only the major cities that had populations large enough for street lighting to be practical. In smaller towns, and in the countryside, throughout the eighteenth and into the nineteenth century, people relied on the oldest lighting of all, moonlight, and the nights of the full moon were nights of sociability" (p. 218, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "The USA was even slower to adopt what was there initally regared as an outdoor form of lighting, for the most part holding out until the mid-1860s...anonymous reviewer of a book on the new gas lighting in 1829, 'has the new light of all the preachers done for the morality and order of London, compared to what had been affected by this new light..." (p. 219, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Before the stars became biddable, developments in lighting had been a matter of evolution, not revolution. Oil lamps had been in use since classical times, as had candles and rushlights. The candles is an ancient technology,..."
 "...the larger wick in turn produces a bigger flame, which lacks oxygen at tis centre and therefore makes the unburnt carbon smoke heavily"
 "Otherwise as northern Europeans used resinous pinewoods to make torches for exterior lighting, or small splints for interior, so colonists relied on candlewood, or on wax from bayberry trees." (p. 220, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "The first technological advance on wax and tallow candles came at the end of the eighteenth century, when spermaceti, the fat from sperm whales, was found to burn more cleanly than tallow, and began to be commercially processed. By the mid-nineteenth century, stearine, extracted from tallow, but less smelly, was also available, as were palm- or coconut-oil candles." (p. 222, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Even before the appearance of these new technologies, candles had always been a luxury. In most agricultural and even many urban districts, well into the nineteenth century, most tasks were performed by firelight, including many involving skills that today are thoguht to require a bright light, such as sewing or reading. Given both the relative scarcity of windows, and, in North America, the continued use of shuttered, unglazed windows, artificial light was frequently needed indoors during the day as well as at night. As fires were necessary for cooking, they were often the primary light source as well. Candles were used chiefly to provide light when moving from one room to another, ..." (p. 222, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "His household ate dinner in daylight, and the bulk of social engagements - parties, dancing, visiting neighbours - were also scheduled before 'day-light-End'. The hours after dusk and before bedtime were reserved for leisure activities that needed some light: reading, conversation and music. The most festive occasions in this sophisticated household still used far less light than we might iamgine. One party for seven adutls and an unspecified number of children was described as having a 'splendid' appearance, owing to the seven candles that illuminated the room." (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "the level of lighting...the marvelled, 'was so well lighted we could see everybody'" (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Candles and fires were not the only pre-industrial sources of artifical light. From classical times, oil lamps had been in daily use in many housholds across Europe..." (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 "...sews by light of a lamp..." (p. 225, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "In retrospect, lighting technology appears to have followed a simple trajectory: first oil, then candles, then gas, then electricity. The reality was more complex. No household used only candles, or only gas, or only oil. A single family may well have used an Argand lamp for those who sat sewing or doing similar types of close work at the family's central table, while others read or drew or played the piano by the light of the fire,..." "...rushlights" (p. 227,
 
 "...no one type of lighting predominated"
@@ -185,19 +192,31 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 "Like gas, electric lighting was initially expected to be an outdoor technology."
 "But while arc lighting was very bright, and very focused in lack of diffusion left large areas in darkness." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Given the range of options, technologies and costs, no one type of lighting predominated. Gas was welcomed for its ease of use, but it remainex expensive, and many districts were beyond the reach of the gas mains." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 "...when heated by a gas flame, gave a light which was ten times brighter..." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 "Safer, cleaner, brighter, once the mantles began to be made commercially their benefits led to a marked increase in the adoption of gas lighting." (p. 228, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Indoors, it was too glaringly bright to be used at all. It was only with the invenion of the incandescent filament that light bulbs began to be tamed, domesticated, and therefore to win favour for electricity: by 1881, a great house in Scotland had been fully electrified." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "There is no danger of stumbling against furniture in the dark when a room can be illuminated with the rasp of a match." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
 
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "...brighter lighting" (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
 
-"As is often the case, the design for each new technology was drawn from the design of older ones. With electricity, the method of turning lights on and off was adapted from gas, and so at first each lamp, or sometimes each branch of a chandelier, ahd its own swithc.. It was soem time before it was realized that swithces could be separated from the light source..." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
+"As is often the case, the design for each new technology was drawn from the design of older ones. With electricity, the method of turning lights on and off was adapted from gas, and so at first each lamp, or sometimes each branch of a chandelier, ahd its own swithc.. It was soem time before it was realized that swithces could be separated from the light source..." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
 
-"The conceptual leap, from light fixture to wall, was enormous. Just as windowpanes had once been furniture rather than part of a building, so too had lighting been beofre gas and electricity. Today we no more think of selling a hosue without glazing than we think of removing the wiring and taking it with us when we move. Lighting became, for the first time, not an independent unit, but part of the fabric of the house." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders")
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
+"The conceptual leap, from light fixture to wall, was enormous. Just as windowpanes had once been furniture rather than part of a building, so too had lighting been beofre gas and electricity. Today we no more think of selling a hosue without glazing than we think of removing the wiring and taking it with us when we move. Lighting became, for the first time, not an independent unit, but part of the fabric of the house." (p. 229, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
+"For as with lighting, technological development did not follow a linear progression, with one improvement succeeding another. At any one time, a variety of systems of water supply coexisted." (p. 251, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
+"Water, sewage, gas, electricity - these technologies connected the house to the networks of modern life around them, and they also enforced standardization on them. Builders now had to use pipes of a fixed size, and, eventually, to conform to new safety regulations..." (p. 252, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
  
  
 ----------
