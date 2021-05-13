@@ -1161,6 +1161,41 @@ is_contact: true
 (4) Sunday afternoon lunches
 (5) Crumbling of dirt
 
+## **Day 75** ##
+## **Images** ##
+(1) People under a green tree
+(2) Note cards on tree leaves
+(3) The light in the darkness at night, the light coming from windows
+(4) A shadow
+(5) The long road ahead with two yellow lines with the street touching the trees
+
+## **Sounds** ##
+(1) 
+(2)
+(3)
+(4)
+(5)
+
+## **Day 76** ##
+## **Images** ##
+(1) Flowers, stop sign in the reflection
+(2) Water droplets on a flower
+(3) Concentric circles on a sidewalk
+(4) Snow on a flower
+(5) Golden sunlight
+
+## **Sounds** ##
+
+## **Day 77** ##
+## **Images** ##
+(1) Blue blanket
+(2) Old rickety basement
+(3) Brown houses
+(4) Dark red windows
+(5) Blue painting on a house
+
+## **Sounds** ##
+
 <br>
 
 <br>
