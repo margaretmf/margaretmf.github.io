@@ -79,7 +79,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ----------
 
 
-## [The Making of Home]() ##
+## [The Making of Home: The 500-Year Story of How Our Houses Became Homes]() ##
 "The paintings rarely depict candlesticks or lamps, and very few fireplaces or stoves, the standard forms of lighting and heating." (p. 9, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
 "By the mid-nineteenth century, living without curtains would have seemed as odd to the British as living without corridors. No longer simply a protective barrier to shield those inside from the gaze of strangers outside, curtains had now come to be viewed also as a way to protect the inside of the house, more generally, from everything outside, even light. In the seventeenth century, Enlightenment thinkers had used light as a symbol of the age of reason." (p. 87, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
@@ -98,9 +98,19 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "Instead, light must be 'educated' - that is, filtered, softened, and dulled - to accord with indoor life'." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
-"Curtains, by keeping light out, became not just useful, but acted as an indicator of the morality of the household, a way of showing that, through the 'educating' of the light, the residents twoo were educated. *How to Furnish a House and Make it a Home (c. 1853) was clear that curtains were there to 'show order to the outside', to indicate to passers-by that decent people lived inside.* As darkness became more desirable curtains alone were no longer enough, and stained-glass was recommended for domestic settings - Jakob von Falke, the author of the influential *Die Kunst im Hause (Art int he House, 1871), thought clear glass indicated 'banality'.* (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+"Curtains, by keeping light out, became not just useful, but acted as an indicator of the morality of the household, a way of showing that, through the 'educating' of the light, the residents twoo were educated. *How to Furnish a House and Make it a Home (c. 1853) was clear that curtains were there to 'show order to the outside', to indicate to passers-by that decent people lived inside.* As darkness became more desirable curtains alone were no longer enough, and stained-glass was recommended for domestic settings - Jakob von Falke, the author of the influential *Die Kunst im Hause (Art in the House, 1871), thought clear glass indicated 'banality'.* (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
 "'How unfinished and cold a room can be without coloured glass lowering the light.'" (p. 89, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"an hour to fetch water, an hour to feed the children and keep the fire alight" (p. 103, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"Household cleaning took longer more generally. Coal fires were dirtier than wood ones, while the new lighting technolgoies and improved glass for windows meant that the dirt was also more visible." (p. 114, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"Central heating and lighting technologies increased privacy too. The cost and labour-intensive nature of fires meant that the family, and often their servants, routineely gathered in the one room that had a fire. Gas lighting and oil lamps also promoted the group nature of activities; keeping the family around a central table that was used for sewing, reading, and writing." (p. 114, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"Now small tables were set beside a chair to provide a place to put down a book, or next to a sofa for a cup and saucer, or nestled by the door to hold the household's bedroom candles; sewing tables were moved to whichever seat had the best light." (p. 138, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"So too with lighting technology. With servants to tend candles and oil lamps, the rich could afford not to acquire the more efficient, but smelly and dirty, gas lighting. (p. 151, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
 
 ----------
