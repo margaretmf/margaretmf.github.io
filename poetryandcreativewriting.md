@@ -1607,6 +1607,7 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the Southern Gospel Music at the church down the street
 * Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
 * Grateful to walk around Norfolk
+* Grateful for the little kids on the playground
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
