@@ -358,6 +358,14 @@ Let life carry through
 Meet the demands of the day
 See the sun rise
 
+## Circling Back ##
+Circling back trhough time.
+Unwinding the clock.
+Turning to pen and paper.
+
+## Old Dream Dying, New Dream Awakening ##
+The old dream dying is a new dream awakening.
+
 ## God Knows the Room ##
 God knows the room.
 Thank you for knowing my need.
