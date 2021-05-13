@@ -112,6 +112,20 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "So too with lighting technology. With servants to tend candles and oil lamps, the rich could afford not to acquire the more efficient, but smelly and dirty, gas lighting. (p. 151, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
+"Heat and light, the two essentials of the technology of home. For much of history, both were provided by fire. Fire was the essence of home, the centre of the house." (p. 199, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"the two purposes of windows, light and ventilation, were commonly treated separately. Generally, the top section was glazed, for light, and did not open, while an unglazed lower section was covered with shutters, for ventilation." (p. 210, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"Then as, the cost of glass dropped dramatically over the course of the century, the builders of Elizabethan and Jacobean great houses embraced glass as a building material, using it in a way previously unknown, and to an extent that went far beyond any need for light." (p. 211, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"French windows, instead of bringing light to the many, remained a luxury of the wealthiest few." (p. 214, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"It was instead, the English and the Dutch who most thoroughly domesticated light, in the seventeenth century creating a new style that was quickly emanated across the home countries, literally enlightening the homes of millions." (p. 214, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"The new technology increased the amount of light indoors; at the same time, the problem of lighting more generally was one that was being addressed. Across Europe, as cities expanded, and buildings grew taller, as population density increased, and as streets therefore became darker and more filled with strangers, how to light the streets became a civic preoccupation. Some cities tried to rebuild their narrow medieval streets, either widening individual routes, or, more ambitioiusly, replacing the meandering medieval roads with streets laid out in a grid pattern, to allow more moonlight to penetrate. But improving artificial lighting was a simpler, and cheaper, solution." (p. 216, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"In the final decade of the seventeenth century, Amsterdam was far more brightly lit than Paris - the city of light was still in the future." (p. 217, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
 
 ----------
 
