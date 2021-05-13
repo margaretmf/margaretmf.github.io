@@ -51,7 +51,7 @@ Composing music expresses both the head and the heart, and writing songs helps t
 *I believe* participation in the fine arts brings joy [in 2009, 2010]
  
 *Do I still believe this?*
-I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. [2021]
+I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
