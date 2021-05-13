@@ -75,6 +75,10 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "The sun was setting as the rickshaw ascended the highway ramp. Taking the fragile little vehicles on the highway should have terrified Rachel, but instead, it gave her a sense of exhilerated delight. She could be crushed at any moment. She could roll right out of the open sides of the rickshaw and slam her body into the highway. The interior became a wind tunnel, and she closed her eyes, inhaling the polluted air, which, nevertheless, refreshed her. Her hair whipped around her face and her eyes stung when she opened them again, but it didn't matter." (p. 271, "Mother Land", Leah Franqui)
 
+
+----------
+
+
 ## [The Making of Home]() ##
 "The paintings rarely depict candlesticks or lamps, and very few fireplaces or stoves, the standard forms of lighting and heating." (p. 9, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
@@ -83,6 +87,20 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 "particualrly for the sake of seeing and being seen, that is, automatically equating light and knowledge" (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
 "And as it did so, many began to see light itself as breaching the household's privacy. Hard, sharp sunlight', previously in scarce supply and therefore valued, was no seen as a nuisance, 'a glaring mass of light'. The sheer availability of cheap and easy daylight had increased the value of darkness across the home countries." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"By the mid-nineteenth century, living without curtains would have seemed as odd to the British as living without corridors. No longer simply a protective barrier to shield those inside from the gaze of strangers outside, curtains had now come to be viewed also as a way to protect the inside of the house, more generally, from everything outside, even light. In the seventeenth century, Enlightenment thinkers had used light as a symbol of the age of reason." (p. 87, "The Making of Home: The 500-Year Story of How Our Houses Beecame Homes", Judith Flanders)
+
+"particularly for the sake of seeing and being seen, that is, automatically equating light and knowledge" (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"In the nineteenth century, light became more available - new technologies produced cheaper glass in bigger panes, artificial lighting technologies proliferated; improvements to heating meant the size of windows could increase. And as it did so, many began to see light itself as breaching the household's privacy. Hard, sharp sunlight', previously in scarce supply and therefore valued, was now seen as a nuisance, 'a glaring mass of light'. The sheer availability of cheap and easy daylight had increased the value of darkness across the home countries." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"As a consequence, home-makers, and those who wrote on home-making, were united in rejecting clear, unfiltered light indoors." (p 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"Instead, light must be 'educated' - that is, filtered, softened, and dulled - to accord with indoor life'." (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"Curtains, by keeping light out, became not just useful, but acted as an indicator of the morality of the household, a way of showing that, through the 'educating' of the light, the residents twoo were educated. *How to Furnish a House and Make it a Home (c. 1853) was clear that curtains were there to 'show order to the outside', to indicate to passers-by that decent people lived inside.* As darkness became more desirable curtains alone were no longer enough, and stained-glass was recommended for domestic settings - Jakob von Falke, the author of the influential *Die Kunst im Hause (Art int he House, 1871), thought clear glass indicated 'banality'.* (p. 88, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
+
+"'How unfinished and cold a room can be without coloured glass lowering the light.'" (p. 89, "The Making of Home: The 500-Year Story of How Our Houses Became Homes", Judith Flanders)
 
 
 ----------
@@ -106,7 +124,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "'You are American. That is what American stories are like. Maybe he made it like that.'" (p. 58, "Mother Land", Leah Franqui)
 
-"What did all this look like to her? Swati wondered. She had seen some movies set in Aemrica, and everything looked so orderly there. The shops where you bought food were air-condition and white and everything was all together." (p. 60, "Mother Land", Leah Franqui)
+"What did all this look like to her? Swati wondered. She had seen some movies set in America, and everything looked so orderly there. The shops where you bought food were air-condition and white and everything was all together." (p. 60, "Mother Land", Leah Franqui)
 
 "Luckily Rachel's parents were American, and couldn't tell anyone in India, therefore didn't matter, but still." (p. 87, "Mother Land", Leah Franqui)
 
@@ -114,7 +132,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "'Why should I adapt to her just because she is American? She is living here,' Swati said, with more force than she intended. But it was true, wasn't it, it was what she had been telling herself day after day, that Rachel had to adapt, she had no choice. But wasn't that part of why you left Vinod? For choices?" (p. 178, "Mother Land", Leah Franqui)
 
-"'Not like I thought she might. It's not like America, people getting divorces all the time. We value marraige here.'" (p. 182, "Mother Land", Leah Franqui)
+"'Not like I thought she might. It's not like America, people getting divorces all the time. We value marriage here.'" (p. 182, "Mother Land", Leah Franqui)
 
 
 ----------
