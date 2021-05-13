@@ -21,13 +21,15 @@ Every day I seek to learn something new to stay alive. It's amazing how all huma
 
 **Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para la emprendedora de los límites de que posible, con esperanza que es "en el nombre de la mayor bien." Es también estupendo cultivar talentos latentes y jugar como niñas pequeñas.**
 
-I have done and said dumb things, retaliated, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. 
+I have retaliated after being hurt by people, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. 
 
 I am exploring how to sketch and how to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
 
 Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
+
+**Niños pequeños y niñas son cicatrización, organizando es mi pasión, y expresando buen animo en la Oficina Correo,...**
 
 I love world cultures, includng African, Arab, Chinese, Spanish, and Native cultures. 
 
