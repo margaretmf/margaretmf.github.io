@@ -211,7 +211,6 @@ Margaret
 
 ## Top Songs ##
 * "When You Say Nothing at All" --- **interested in this**
-* "Memphis Soul Song"
 * "I'm So Tired of Being Alone" --- **interested in this**
 * "Be Thou My Vision"
 * "Lo, How a Rose Ere Blooming"
@@ -243,6 +242,40 @@ It brings an interesting feeling, a new perception, a beautiful insight to look 
 
 ## EVERFI, Book ##
 With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older male in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business.
+
+## The Collective ##
+We are all one of the same.
+We are all made with the same blood.
+We all have faces with two eyes, a noise, a mouth, and a smile.
+We all have two arms, two hands, two legs, and two feet.
+We all have hearts with interests, passions, a way of viewing and perceiving the world.
+There exist many of us humans like there exist many leaves on a tree, many trees in the forest, many flowers in the field, many berries in a patch, and many homes in a city.
+
+## What I Want ##
+I want to know you without words being spoken.
+I want to love you in the peace and quiet.
+I want to feel like it's true love on the other side of the Earth.
+I want to see through the window to your Soul.
+
+## Weaving In and Out ##
+Weaving in and out.
+At one with the giving and the receiving of the aid.
+In union with the recipient of the help.
+A coincidence in what is being overcome.
+A sharing of hearts to meet mutually the end goal.
+A trust in the progress of mankind and the harmony of the universe.
+
+## God Knows the Room ##
+God knows the room really well.
+Thank you for knowing my need.
+Thank you for knowing who to place me with.
+Thank you for being there through the fall.
+It's a city of strangers, it's a city of angels. The strangers become friends, the strangers welcome each other with friendly eyes.
+
+## Eyes ##
+The eyes, the window to one's self.
+They share a good laugh, and a smile.
+They speak one's history that goes back to before time existed.
 
 ## First Impressions, and Expressions ##
 First impressions, they don't capture the whole story.
@@ -306,6 +339,13 @@ Learn from the mistake.
 Become a better person.
 Start fresh.
 Do something new.
+
+## The Ripple Effect ##
+He throws a coin into the pool of water.
+Plop. Plip. Tlop.
+The coin causes the water to ripple.
+One ripple continues to ripple outwardly into other ripples.
+An outflowing of water rippling and flowing.
 
 ## Falling Under ##
 Falling under, falling under all the mistakes
@@ -1102,7 +1142,14 @@ He knew my deepest flaws
 He knew my worst fears
 He knew my loudest secrets
 He knew my strongest weak points
+He knew how to box me in
 He knew just how to strike a chord with all that was wrong with me and make me change, force me to change, force me to look in the mirror
+
+It's making me crazy
+I'm making a scene
+It's so funny to watch, it's so funny to ridicule and condemn
+I can't read between the lines
+I was falling for it
 
 ## A Real Man ##
 A real man would say go for it, do it
