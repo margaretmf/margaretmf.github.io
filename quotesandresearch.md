@@ -52,7 +52,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 "All you had to do was look out your window, or get out of your rickshaw a little before your destination, and there it all was, the swirling mass of humanity all at once, in every direction. But perhaps many people, the world over, didn't een do that, when it came to life around them. And those women didn't ride in rickshaws, anyway." (p. 274, "Mother Land", Leah Franqui)
 
 ## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
-"A family was therefore not an absolute grouping, but one that expanded and contracted with time and circumstances." (p. 29, "
+"A family was therefore not an absolute grouping, but one that expanded and contracted with time and circumstances." (p. 29, "The Making of Home: The 500-Year Story of How Our Houses Became Homes)
 
 
 ----------
