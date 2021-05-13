@@ -88,7 +88,7 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 ## Relationship to Art ##
-* Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness and healing through a children's books; appreciate the artwork in office spaces
+* Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness through my own memories of seeing the light in the darkness; appreciate the artwork in office spaces
 
 ## Relationship to Nature ##
 * Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (6 days)
@@ -824,7 +824,11 @@ Let the glow shine.
 It is yours to share.
 It is yours to wear.
 
-## Coming around the Bend ##
+## Shattered Glass ##
+It's another step away from the past.
+The past is fading behind like shattered glass.
+
+## Coming Around the Bend ##
 Coming around the bend, returning home to where you belong.
 
 ## Books ##
