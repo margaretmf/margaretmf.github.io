@@ -78,10 +78,10 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 ## Relationship to Art ##
-* Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness through my own memories of seeing the light in the darkness; appreciate the artwork in office spaces
+* Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness through my own memories of seeing the light in the darkness; appreciate the artwork in office spaces; work on composing music and playing around
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (6 days)
+* Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (7 days)
 
 ## Relationship to Spirituality ##
 * Appreciate the architecture of all the churches in the community
