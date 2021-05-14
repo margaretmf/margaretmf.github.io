@@ -13,14 +13,8 @@ is_contact: true
 
 ## Through a career, I hope to work as a liberal engineer, bringing together culture, social sciences, history, literature, and engineering. I also hope to explore teaching students at the elementary, high school, or college levels. ##
 
-## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
 
-'You're a poet, and you know it.
-Long before we had cities of stone or the technology to write, our ancestors were expressing their wants, needs, and personalities through singing and reciting poetry. Poetry was a record of history, an art form for every age, and a weapon capable of swaying any battle. It was the simplest and most reveed form of communication for centuries.
-
-Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
-
-In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
+----------
 
 
 ## Currently, revising this piece of writing and learning to self-actualize what it means. ##
@@ -36,11 +30,6 @@ Finally, in January 2009, on the Inaugaration Day, although I was not there, I w
 Throughout Obama's campaign and these three events, because I have grown love my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the "Homework Help" program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
 
 Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop" (577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people."
-
-## Singer-Songwriting ##
-Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound.
-
-## There is some other writing at the bottom. ##
 
 
 ----------
@@ -84,6 +73,7 @@ I believe in the next generation of humanity and all that they can learn each da
 I believe in every individual as individual.
 I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
 
+
 ----------
 
 
@@ -124,6 +114,18 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 # Creative Writing #
+## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
+
+'You're a poet, and you know it.
+Long before we had cities of stone or the technology to write, our ancestors were expressing their wants, needs, and personalities through singing and reciting poetry. Poetry was a record of history, an art form for every age, and a weapon capable of swaying any battle. It was the simplest and most reveed form of communication for centuries.
+
+Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
+
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
+
+## Singer-Songwriting ##
+Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. There is some writing below that contributes to singer-songwriting.
+
 ## Maps ##
 Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
 
