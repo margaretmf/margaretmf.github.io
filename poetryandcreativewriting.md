@@ -123,9 +123,6 @@ Connecting you to the legacy of poetry, this journal helps you dive into writing
 
 In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
-## Singer-Songwriting ##
-Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. There is some writing below that contributes to singer-songwriting.
-
 ## Maps ##
 Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
 
@@ -211,6 +208,13 @@ I appreciate your time.
 Love,
 Margaret
 
+
+----------
+
+
+## Singer-Songwriting ##
+Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. There is some writing below that contributes to singer-songwriting.
+
 ## Top Songs ##
 * "When You Say Nothing at All" --- **interested in this**
 * "I'm So Tired of Being Alone" --- **interested in this**
@@ -238,6 +242,10 @@ From across the room, the silent heart-to-heart that cares and concerns, and kno
 I also remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
+
+
+----------
+
 
 ## A Spanish Lense ##
 It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
