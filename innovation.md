@@ -12,6 +12,8 @@ is_contact: true
 (3) River flowing
 (4) Homes on Cumberland Plateau
 (5) Brown trees, natural pristine in the dawn of winter along American highway
+
+------
 (6) An old school bus
 (7) Run down gas station
 
@@ -1185,6 +1187,11 @@ is_contact: true
 (5) Golden sunlight
 
 ## **Sounds** ##
+(1) The sound of children playing
+(2) The sound of music playing
+(3) The lawn mower
+(4) A motorcycle zooming
+(5) These sounds and activities are going off far away in another country
 
 ## **Day 77** ##
 ## **Images** ##
