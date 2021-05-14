@@ -1,8 +1,10 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-The top three books for children I have read are "The River", "Hatchet", and "Where the Wild Fern Grows".
+### The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", and "Charlie and the Chocolate Factory".
 
-Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
+Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt". ###
+
+### I am interested in how filmmakers turn children's books into films, and I am interested in how teachers use children's books in Social-Emotional Learning. ###
 
 
 # Critical Reading #
@@ -179,20 +181,21 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * A wooden house, on the edge of a great town
 
 ### What? ###
+
 ### Color ###
-* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, friendly // smiling faces
+* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, golden // ticket
 
 ### Adjectives ###
-* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper
+* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // girl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front // door, marvelous // grin, fantastic // leap, whole // business, tremendous // things
 
 ### Vocabulary ###
-* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantastic, Delicious, Absurd
+* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantastic, Delicious, Absurd, Mutter, Glistening, Hooligan, Know, Impossible, Frantically, Eagerly, Peering, Glint, Murmur, Nervously, Ridiculous, Disappointment, Suspense, Intently, Smiled, Shrugged, Comfortable, Trampled, Thrilled, Crammed, Excited, Snoring, Trembling, Fumble, Whisper, Sniff, Motionless, Exhaustion, Hurrying, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish
 
 ### Allusions ###
 * Factory Working
 
 ### Themes ###
-* Family, 4 Grandparents under One Roof, Stories, The Biggest Chocolate Factory in the World, The Whole World, all the four corners of the Earth, Childlike Enthusiasm, Hope for a Better Day and Better Supply, Factory Workers
+* Family, 4 Grandparents under One Roof, Stories, The Biggest Chocolate Factory in the World, The Whole World, all the four corners of the Earth, Childlike Enthusiasm, Hope for a Better Day and Better Supply, Factory Workers, 5 Tickets
 
 ### Interesting Sentences or Paragraphs ##
 * "Every one of these old people was over ninety. They were as shriveled as prunes, and as bony as skeletons, and throughout the day, until Charlie made his appearance, they lay huddled in their one bed, two at either end, with nightcaps on to keep their heads warm, dozing the tiem away with nothing to do. But as soon as they heard the door opening, and heard Charlie's voice saying, 'Good evening, Grandpa Joe and Grandma Josephine, and Grandpa George and Grandma Georina,' then all four of them would suddenly sit up, and their wrinkled faces would light up with smiles of pleasure - and the talking would begin. For they loved this little boy. He was the only bright thing in their lives." (p. 8, "Charlie and the Chocolate Factory")
@@ -202,6 +205,18 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "'But the factory is working!' the people shouted. 'Listen! You can hear the machines! They're all whirring again! And you can smell the smell of melting choclate in the air!'" (p. 17, "Charlie and the Chocolate Factory")
 
 * "'The place is full of workers!' the people shouted. "But nobody's gone in! The gates are locked! It's crazy! Nobody ever comes out, either!'" (p. 17, "Charlie and the Chocolate Factory)
+
+* "'The man's dotty!' muttered Grandma Josephine.
+
+'He's briliant', cried Grandpa Joe. 'He's a magician! Just imagine what will happen now! The whole world will be searching for those Golden Tickets! Everyone will be buying Wonka's candy bars in the hope of finding one! He'll sell more than ever before! Oh, how exciting it would be to find one!'
+
+'And all the chocolate and candies that you could eat for the rest of your life - free!' said Grandpa George. 'Just imagine that!'" (p. 20, "Charlie and the Chocolate Factory")
+
+* "Then suddenly, as though he couldn't bear the suspense any longer, Charlie tore the wrapper right down the middle...and on to his lap, there fell....a light-brown creamy-colored chocolate candy bar." (pp. 28-29, "Charlie and the Chocolate Factory")
+
+* "Charlie looked up. Four kind old faces were watching him intently from the bed. He smiled at them, a small sad smile, and then he shrugged his shoulders and picked up the candy bar and held it out to his mother, and said, 'Here Mother, have a bit. We'll share it. I want everybody to taste it.'" (p. 29, "Charlie and the Chocolate Factory)
+
+* "Charlie burst through the front door, shouting, 'Mother! Mother! Mother!' Mrs. Bucket was in the old grandparents' room, serving them their evening soup. 'Mother!' yelled Charlie, rushing in on them like a hurricane. 'Look! I've got it! Look, Mother, look! The last Golden Ticket! It's mine! I found some money in the street and I bought two candy bars and the second one had the Golden Ticket and there were crowds of people all around me wanting to see it and the shopkeeper rescued me and I ran all the way home and here I am! It's The Fifth Golden Ticket, Mother, and I've found it!'" (pp. 46-47, "Charlie and the Chocolate Factory")
 
 
 ----------
