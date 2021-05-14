@@ -13,7 +13,8 @@ is_contact: true
 (4) Homes on Cumberland Plateau
 (5) Brown trees, natural pristine in the dawn of winter along American highway
 
-------
+----------
+
 (6) An old school bus
 (7) Run down gas station
 
@@ -38,6 +39,9 @@ is_contact: true
 (3) Jazz music playing in the home
 (4) Classical music playing in the hotel in Wilwaukee, Wisconsin
 (5) The spirit of Thomas Jefferson's work in farmland
+
+----------
+
 (6) COVID-19 talk
 
 ## **Day 3** ##
@@ -100,6 +104,9 @@ is_contact: true
 (3) Bank loan buildings
 (4) A yellow bridge besides other bridges
 (5) The river in Kentucky
+
+----------
+
 (6) Clouds in the sky that represent a childlike adventure in Life
 (7) The America Kentucky brother birds in the diner
 
@@ -109,6 +116,9 @@ is_contact: true
 (3) Birds chirping
 (4) People praying for Brianna Taylor with the fire
 (3) "Jesus Loves" and Christian bumper sticker
+
+----------
+
 (6) The voice of Nam saying "good morning"
 (7) Faf's Christmas music playing on the piano
 
@@ -126,6 +136,9 @@ is_contact: true
 (3) Church bells ringing on a Sunday
 (4) A boy yelling while on a bike
 (5) Boys yelling "warm water, warm water"
+
+----------
+
 (6) Girls saying "hello" sweetly and innocently
 
 ## **Day 11** ##
@@ -142,6 +155,9 @@ is_contact: true
 (3) The trucks driving at night
 (4) The train whistling 
 (5) A telephone ringing
+
+----------
+
 (6) A refrigerator
 
 ## **Day 12** ##
@@ -159,6 +175,9 @@ is_contact: true
 (3) Birds flying in the sky
 (4) Green leaves on trees
 (5) Tuesday afternoon truck drive
+
+----------
+
 (6) Southern restaurant
 (7) Train car outside of the white house
 
@@ -176,6 +195,9 @@ is_contact: true
 (3) Cable lines in the sky in the country
 (4) Farm house with an American flag
 (5) White car stopped on the right of the road and black car stopped on the left
+
+----------
+
 (6) Black lives on the country highway
 
 ### **Sounds** ##
@@ -184,6 +206,9 @@ is_contact: true
 (3) A man whistling
 (4) A door opening
 (5) A train driving by in Memphis in the morning
+
+----------
+
 (6) Birds tweeting - tweet, taweet, taweet, taweet
 (7) A second home
 (8) Water overflowing in the pool in Memphis
@@ -195,6 +220,9 @@ is_contact: true
 (3) Woman pushing stollers
 (4) Women walking with a young girl
 (5) Homes united in Indiana from a blue house to a white house with the sunlight shining through
+
+----------
+
 (6) Christmas decorations on white picket fences
 (7) A man on an orange ladder putting Christmas lights on a house
 (8) Red trucks in driveway, and on streets
@@ -206,6 +234,9 @@ is_contact: true
 (3) The motor of a car
 (4) Big House Christian music playing in the car
 (5) Rock music playing in the car
+
+----------
+
 (6) Silence
 (7) Trucks driving by
 (8) Missionary hymn - "hearts and homes and churches united under the same Sun, the same Father-Mother"
@@ -223,6 +254,9 @@ is_contact: true
 (2) The innocence of the girls
 (4) Animals cricketing outside the hotel in the land
 (5) The sigh of a young girl
+
+----------
+
 (6) Kids' show on the TV
 
 ## **Day 17** ##
@@ -247,6 +281,9 @@ is_contact: true
 (3) Forest green trees on the side of the highway
 (4) Wind farms
 (5) Center for Housing and Healing Building
+
+----------
+
 (6) Salvation Army Building
 
 ### **Sounds** ##
@@ -255,6 +292,9 @@ is_contact: true
 (3) A honk of a car
 (4) Car motors as cars
 (5) The wind
+
+----------
+
 (6) The motorcycle driving through the city 
 
 ## **Day 19** ##
@@ -264,6 +304,9 @@ is_contact: true
 (3) Halloween decorations on houses
 (4) Innocence and dignity of women from the South
 (5) City horizon on the interstate
+
+----------
+
 (6) Farmland, gate in VA country
 (7) Mountains in TN
 
@@ -273,6 +316,9 @@ is_contact: true
 (3) A vacuum zooming zmzmmzm zmmrmrmmrm
 (4) Tweet tweet tweet tweet of the birds
 (5) A guy calling me in the morning
+
+----------
+
 (6) A plate touching the kitchen counter
 
 ## **Day 20** ##
@@ -297,6 +343,9 @@ is_contact: true
 (3) Piles of clothes to give away
 (4) The church in Norfolk
 (5) The vision of free Black people and full integration in Memphis
+
+----------
+
 (6) Stars inside every individual in the US
 
 ### **Sounds** ###
@@ -305,6 +354,9 @@ is_contact: true
 (3) Blank sound
 (4) An innocent heart
 (5) Paper turning
+
+----------
+
 (6) The song of an innocent heart
 
 ## **Day 22** ##
@@ -337,6 +389,9 @@ is_contact: true
 (3) Mainland
 (4) Cleansing rain washing the sin and pain away
 (5)  Christmas peace
+
+----------
+
 (6) Glittery brown gray tree branches with colored leaves falling off
 
 ### **Sounds** ###
@@ -353,6 +408,9 @@ is_contact: true
 (3) Gates opening and closing with workers
 (4) Crossroads with trucks driving above
 (5) Line of cars driving to school
+
+----------
+
 (6) The sun refelcting through specks of water on the black road
 
 ### **Sounds** ###
@@ -369,6 +427,9 @@ is_contact: true
 (3) A beautiful family and beautiful home
 (4) Crossroads on the street
 (5) Red flowers in front of someone's home
+
+----------
+
 (6) Peace in the morning at the airport
 (7) Old-fashioned cars
 (8) Red painted truck
@@ -383,6 +444,9 @@ is_contact: true
 (3) People talking on the radio about self-made artist lifestyle
 (4) Parents talking to their baby
 (5) Uber alert
+
+----------
+
 (6) Christmas music playing on the radio
 
 ## **Day 26** ##
@@ -392,6 +456,9 @@ is_contact: true
 (3) Loving, honest men at the carwash
 (4) Interracial harmony at Starbucks
 (5) People enjoying a Thanksgiving meal
+
+----------
+
 (6) Innocent young girls
 
 ### **Sounds** ##
@@ -430,6 +497,9 @@ is_contact: true
 (3) The sounds of cars moving and sounding like ocean waves
 (4) Peace, be still; sin no more in the morning after acknowledging a sinful act
 (5) Peace holding onto childlike innocence
+
+----------
+
 (6) Freedom from anger within the heart
 (7) Christian radio station
 (8) The sound of prayer in Christian Science reading rooms
@@ -442,6 +512,9 @@ is_contact: true
 (3) The sun shining through the traffic in Nashville
 (4) Red, blue, yellow brown townhouses in Nashville
 (5) Sun shining through the banks like Sun Trust and PNC
+
+----------
+
 (6) Gas stations - freedom at them
 (7) Fed Ex trucks on the interstate in front of me and then in traffic and then on the over-pass
 (8) The orange and purple, the green and purple Fed Ex trucks
@@ -467,6 +540,9 @@ is_contact: true
 (3) Toilet flushing
 (4) Birds singing
 (5) The sound of every day activity with love in our hearts
+
+----------
+
 (6) The sound of respect for all races
 (7) The sound of a man calling on the phone and sharing good cheer with someone
 
@@ -499,6 +575,9 @@ is_contact: true
 (3) Leaves hitting the window
 (4) A cheerful voice
 (5) A coffee cup hitting the table
+
+----------
+
 (6) The shutting of a coffee jug
 (7) The squeezing of a coffee cup top on the cup
 (8) Southern sounding "hey, darling" from an aunt
@@ -511,6 +590,9 @@ is_contact: true
 (3) Red ink on a coloring book page
 (4) Fog on a rear view window
 (5) A new day in the local coffee shop
+
+----------
+
 (6) The whole system of cars and people
 (7) Yellow truck
 
@@ -519,7 +601,7 @@ is_contact: true
 (2) Birds tweeting outside my bedroom
 (3) Birds tweeting outside when walking outside
 (4) THe consciousness of good
-() The train whistling and blowing
+(5) The train whistling and blowing
 
 ## **Day 33** ##
 ### **Images** ###
@@ -598,6 +680,9 @@ is_contact: true
 (3) Bank loan buildings
 (4) A yellow bridge besides other bridges
 (5) The river in Kentucky
+
+----------
+
 (6) Clouds in the sky, foaming through a childlike adventure in Life
 (7) The America Kentucky brother birds in the diner
 
@@ -606,9 +691,12 @@ is_contact: true
 (2) People talking in the driver seat with a grough voice
 (3) Birds chirping
 (4) People praying for Brianna Taylor
-(6) Jesus songs and 
-(7) The voice of Nam saying "good morning"
-(8) Faf's Christmas music playing on the piano
+(5) Jesus songs and 
+
+----------
+
+(6) The voice of Nam saying "good morning"
+(7) Faf's Christmas music playing on the piano
 
 ## ** Day 39 ** ##
 ## **Images** ##
@@ -660,6 +748,9 @@ is_contact: true
 (3) River flowing
 (4) Homes on Cumberland Plateau
 (5) Brown trees, natural pristine, in the dawn of winter, along American highway
+
+----------
+
 (6) An school bus
 (7) Run down gas stations
 (8) The fishermen
@@ -671,6 +762,9 @@ is_contact: true
 (3) A vacuum zoming zmzmmzm zmmzmzmmmzm
 (4) Tweet tweet tweet of the birds
 (5) A guy calling me in the morning
+
+----------
+
 (6) A plate touching the kitchen counter
 
 ## **Images** ##
@@ -679,6 +773,9 @@ is_contact: true
 (3) Halloween decorations on houses
 (4) Innocence of where a woman from the South
 (5) Dignity of a Black woman from the South
+
+----------
+
 (6) City horizon on the interstate
 (7) Farmland, gate in VA county
 (8) Mountains in TN
@@ -705,6 +802,9 @@ is_contact: true
 (3) Piles of clothes to give away
 (4) The church in Norfolk
 (5) The vision of free Black people and full integration in Memphis
+
+----------
+
 (6) Stars inside every individual in the US
 
 ## **Sounds** ##
@@ -728,6 +828,9 @@ is_contact: true
 (3) The trucks
 (4) The train whistling
 (5) A telephone ringing
+
+----------
+
 (6) A refrigerator 
 
 ## **Day 47** ##
@@ -737,6 +840,9 @@ is_contact: true
 (3) Forest green trees on the side of the highway
 (4) Wind farms
 (5) Center for Housing and Healing building
+
+----------
+
 (6) Salvation Army building
 
 ## **Sounds** ##
@@ -745,6 +851,9 @@ is_contact: true
 (3) A honk of a car
 (4) Car motors as cars
 (5) The wind
+
+----------
+
 (6) The motorcyle drive through the city
 
 ## **Day 48** ##
@@ -814,6 +923,9 @@ is_contact: true
 (3) The sun shining through the traffic in Nashville
 (4) Red, blue, yellow, brown townhouses in Nashville
 (5) Sun shining through the banks like Sun Trust and PNC
+
+----------
+
 (6) Gas stations and freedom at them
 
 ## **Day 53** ##
@@ -837,6 +949,9 @@ is_contact: true
 (3) Loving, honest men at the carwash
 (4) Interracial harmony at Starbucks
 (5) People enjoying a Thanksgiving meal
+
+----------
+
 (6) Innocent young girls
 (7) White truck with a blinker
 
@@ -891,6 +1006,9 @@ is_contact: true
 (3) Cable lines in the sky in the country
 (4) Farm house with an American flag
 (5) White car stopped on the right of the road and black car stopped on the left
+
+----------
+
 (6) Black lives on the country highway
 
 ## **Sounds** ##
@@ -905,6 +1023,9 @@ is_contact: true
 (3) Gates opening and closing with workers
 (4) Crossroads with trucks driving above
 (5) Line of cars driving to school
+
+----------
+
 (6) The sun reflects through puddles of water on the Black road
 
 ## **Images** ##
@@ -921,6 +1042,9 @@ is_contact: true
 (3) Birds flying in the sky
 (4) Green leaves on trees
 (5) Tuesday afternoon dry
+
+----------
+
 (6) Southern restaurant
 
 ## **Day 60** ##
@@ -957,6 +1081,9 @@ is_contact: true
 (3) Innocence and freedom for all race in Nashville - it's 2020
 (4) Brick buildings that look like Ireland
 (5) Bridge with the sun shining
+
+----------
+
 (6) Green leaves near the water
 (7) The construction workers working
 
@@ -980,6 +1107,9 @@ is_contact: true
 (3) The motor of a car
 (4) Big House Christian music playing in the car
 (5) Rock music playing in the car
+
+----------
+
 (6) Silence
 
 ## **Day 64** ##
@@ -1004,6 +1134,9 @@ is_contact: true
 (3) A beautiful family and beautiful name
 (4) Crossroads ont he street
 (5) Red flowers in front of someone's home
+
+----------
+
 (6) Peace in the morning at the airport
 
 ## **Sounds** ##
@@ -1050,6 +1183,9 @@ is_contact: true
 (3) Church domes
 (4) A police car turning right
 (5) A hand outside the window with a cigarette
+
+----------
+
 (6) The oceanfront Ferris Wheel
 (7) American flag at a construction site
 (8) Gas station
@@ -1098,6 +1234,9 @@ is_contact: true
 (3) Playgrounds
 (4) White and red home in the Virginia country
 (5) Red truck on the road
+
+----------
+
 (6) Red signals on a truck
 (7) Four yellow buses
 (8) A dual language church
@@ -1116,6 +1255,9 @@ is_contact: true
 (3) Cellphone towers
 (4) A bird sailing through the sky
 (5) A car stopped on the road
+
+----------
+
 (6) A red wall with a red door
 (7) A sunshine balloon
 (8) 91st psalm on a store in the country
@@ -1123,7 +1265,7 @@ is_contact: true
 (10) Ribbons on a tree
 (11) A cross on a tree
 (12) A balloon hitting a car
-(130 Dogs in the back of a pickup truck
+(13) Dogs in the back of a pickup truck
 
 ## **Sounds** ##
 (1) A woman with a Spanish voice
@@ -1131,6 +1273,9 @@ is_contact: true
 (3) Car door shutting
 (4) A man yelling outside
 (5) The computer machine running
+
+----------
+
 (6) A man yelling with his son cheerfully
 
 ## **Day 73** ##
