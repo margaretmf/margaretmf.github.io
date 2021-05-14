@@ -167,6 +167,46 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## [Charlie and the Chocolate Factory]() by Roald Dahl
+### Who? ###
+* 2 very old people, the father and mother of Mr. Bucket; Grandpa Joe and Grandma Josephine
+* 2 other grandparents, Grandpa George and Grandma Georgina
+* small boy, Charlie Bucket
+* the whole family living together under one roof
+* Mr. Willy Wonka, the owner of the chocolate factory
+
+### Where? ###
+* A wooden house, on the edge of a great town
+
+### What? ###
+### Color ###
+* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, friendly // smiling faces
+
+### Adjectives ###
+* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper
+
+### Vocabulary ###
+* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantastic, Delicious, Absurd
+
+### Allusions ###
+* Factory Working
+
+### Themes ###
+* Family, 4 Grandparents under One Roof, Stories, The Biggest Chocolate Factory in the World, The Whole World, all the four corners of the Earth, Childlike Enthusiasm, Hope for a Better Day and Better Supply, Factory Workers
+
+### Interesting Sentences or Paragraphs ##
+* "Every one of these old people was over ninety. They were as shriveled as prunes, and as bony as skeletons, and throughout the day, until Charlie made his appearance, they lay huddled in their one bed, two at either end, with nightcaps on to keep their heads warm, dozing the tiem away with nothing to do. But as soon as they heard the door opening, and heard Charlie's voice saying, 'Good evening, Grandpa Joe and Grandma Josephine, and Grandpa George and Grandma Georina,' then all four of them would suddenly sit up, and their wrinkled faces would light up with smiles of pleasure - and the talking would begin. For they loved this little boy. He was the only bright thing in their lives." (p. 8, "Charlie and the Chocolate Factory")
+
+* "'You see, Charlie,' he said, 'not so very long ago there used to be thousands of people working in Mr. Willy Wonka's factory. Then one day, all of a sudden, Mr. Wonka had to ask every single one of them to leave, to go home, never to come back.'" (p. 15, "Charlie and the Chocolate Factory)
+
+* "'But the factory is working!' the people shouted. 'Listen! You can hear the machines! They're all whirring again! And you can smell the smell of melting choclate in the air!'" (p. 17, "Charlie and the Chocolate Factory")
+
+* "'The place is full of workers!' the people shouted. "But nobody's gone in! The gates are locked! It's crazy! Nobody ever comes out, either!'" (p. 17, "Charlie and the Chocolate Factory)
+
+
+----------
+
+
 ## The Witch of Blackbird Pond by Elizabeth George Speare ##
 ### Who? ###
 * The Brigantine Dolphin and Nathaniel Eaton, Nat.
