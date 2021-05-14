@@ -1618,6 +1618,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
 * Grateful to walk around Norfolk
 * Grateful for the little kids on the playground
+* Grateful for a good conversation at 7-11 with someone
+* Grateful for the ways people give their change to charity
+* Grateful to meet an old friend outside
+* Grateful for the warmth of the Sun
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
