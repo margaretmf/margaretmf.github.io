@@ -179,3 +179,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 
 ## Creator: ##
 * A person or thing or being that brings something into existence
+
+## Upheld: ##
+* To confirm or support (something which has been questioned)
+* To maintain (a custom or practice)
