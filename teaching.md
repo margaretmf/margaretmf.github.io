@@ -167,7 +167,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
-## [Charlie and the Chocolate Factory]() by Roald Dahl
+## Charlie and the Chocolate Factory by Roald Dahl
 ### Who? ###
 * 2 very old people, the father and mother of Mr. Bucket; Grandpa Joe and Grandma Josephine
 * 2 other grandparents, Grandpa George and Grandma Georgina
