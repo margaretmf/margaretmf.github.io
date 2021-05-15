@@ -135,6 +135,15 @@ Around the south, there exist many individual perspectives. Someone sings about 
 
 South is also South America, Mexico.
 
+## This Experience ##
+This is good for you.
+This experience is good for you.
+This experience is teaching you how to trust.
+This experience is showing you a part of you.
+THis experience is shining a light on something to learn.
+This experience is revealing something about humanity.
+This is good for you.
+
 ## Professionalization ##
 The world will try to define you.
 People will try to box you in.
@@ -1599,6 +1608,10 @@ I love the songs of peace "like a river" sung through my great grandmother.
 * Grateful for the ways people give their change to charity
 * Grateful to meet an old friend outside
 * Grateful for the warmth of the Sun
+* Grateful for the Arab world
+* Grateful for the Israel world
+* Grateful for a morning wake-up call with my sister
+* Grateful to learn about posture at camp
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
