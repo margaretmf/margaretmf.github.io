@@ -90,18 +90,13 @@ I believe in the older generation's ability to learn something new even if they 
 
 
 ## Questions ##
+* How do people use a Liberal Arts or Humanities degree in the world?
+* How do people engage in interracial relationships and homes?
 * What is democracy?
 * What does it mean to democratize?
 * What is a republic?
 * What does it mean to localize?
-* Do you attend church?
-* What church do you attend?
-* Why do you like the church you attend?
-* Describe the theology?
-* How strong is your faith? What leads you to have doubt?
-* How do you describe your relationship to God?
-* Do you believe in a higher power?
-* How do you feel Church and Democracy are related?
+* Do people attend church? What church do they attend? Why do people like the church they attend? What is the theology? How strong is the faith? What leads people to doubt? How do people describe a relationship to God? How do people feel Church and Democracy are related? Do people believe in a higher power?
 
 
 ----------
