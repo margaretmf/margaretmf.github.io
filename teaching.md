@@ -625,7 +625,7 @@ He glanced at Mole. The dog's eyes were closed. 'We're on page one hundred thirt
 * "I can barely see the huge hemlock tree in which I live. I like the haze. It has erased all but the great tree trunks, making my mountaintop home as simple as it was whne i first cam here more than two years ago."
 * "saplings held together with rope made from the inner bark of the basswood tree"
 * "A wind rises as the sun warms the earth. The haze moves off, and I see my. pond, my millhouse, and the root cellar."
-* * "The first year I lived here I had only a tree, a bed, and a fireplace. But one idea led to another, and the next thing I knew, I had built myself a habitat. Things just kept evolving. Take this lounging chair, for instance. One day I replaced the old stump I sat on with a three-legged stool,a nd then I replaced the three-legged stool with this comfortable chair."
+* "The first year I lived here I had only a tree, a bed, and a fireplace. But one idea led to another, and the next thing I knew, I had built myself a habitat. Things just kept evolving. Take this lounging chair, for instance. One day I replaced the old stump I sat on with a three-legged stool,a nd then I replaced the three-legged stool with this comfortable chair."
 
 * the Falcon's flying - "When she flies, she is still a crossbow in the sky, and she still 'waits on' above my head until I kick up a pheasant or a rabbit.'"
 * "she is flying high above"
