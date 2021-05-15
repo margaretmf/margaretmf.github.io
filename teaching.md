@@ -168,36 +168,43 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
-## Charlie and the Chocolate Factory by Roald Dahl
+## Charlie and the Chocolate Factory by Roald Dahl (c. 1964)
 ### Who? ###
 * 2 very old people, the father and mother of Mr. Bucket; Grandpa Joe and Grandma Josephine
 * 2 other grandparents, Grandpa George and Grandma Georgina
 * small boy, Charlie Bucket
 * the whole family living together under one roof
 * Mr. Willy Wonka, the owner of the chocolate factory
+* Augustus Gloop
+* Veruca Salt
 
 ### Where? ###
 * A wooden house, on the edge of a great town
 
 ### What? ###
+* A boy wins a ticket to the Chocolate Factory with 4 other children and helps his family overcome poverty
+* A childlike adventure with a boy, 4 other families, and a boy's family
 
 ### Color ###
-* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, golden // ticket
+* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, g/olden // ticket, black // beard, plum-colored // velvet, gold-topped // walking cane, bottle green // trousers, pearly gray // glovesy // green // meadows, great brown // river, brownish // muddy water, pink and red and mauve // blossoms, green // caterpillars, red // beetles, brown // surface, white // teeth, rosy-white // skin, golden-brown // hair
 
 ### Adjectives ###
-* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // girl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front // door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession
+* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // girl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front // door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession, tasty // morsels, marvelous // surprises,  complete // pandemomium, full // story, loud // knock, big  // day, lucky // ticket holders, old // people, expensive // gloves, absolute // whiz-banger, famous //  children, extraordinary // little // man, sparkling // eyes, interesting // name, small nervous // voice, muffled // roar, gigantic // machine, important // corridor, every // direction, gigantic // rabbit, lovely // valley, churning // whirlpool, graceful // trees, soft, minty // sugar, world-recording // chewing gum, wonderful // workers, fresh // leaves, packing // cases, hot melted // chocolate, enormous // stomach, great // pipes, powerful // suction, solid // mass, little // journey, colossal // joke, wretched // boy, tiny // man
+
+## Adverbs ##
+* eagerly // peering, nervously // smiling, intently // watching, tightly // holding, slightly // giggling
 
 ### Vocabulary ###
-* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantastic, Delicious, Absurd, Mutter, Glistening, Hooligan, Know, Impossible, Frantically, Eagerly, Peering, Glint, Murmur, Nervously, Ridiculous, Disappointment, Suspense, Intently, Smiled, Shrugged, Comfortable, Trampled, Thrilled, Crammed, Excited, Snoring, Trembling, Fumble, Whisper, Sniff, Motionless, Exhaustion, Hurrying, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish, Yanking, Jostling
+* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantareng, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish, Yanking, Jostling, Exciting, Marvelous, Fantastic, Intrigue, Astonish, Perplex, Preparations, Tremendously, Pandemomium, Pretending, Invent, Trudging, Link, Glimpse, Trotting, Overjoyed, Enraptured, Enhancted, Alright, Excellent, Cried, Staggered, Bewildered, Dazzled, Dumfounded, Screams (of excitement), Frantically, Gorge, Smugglederful // workers, Mischievous, Insist, Swishing, Shriek, Unthinkable, Inconceivable, Absurd, Snap
 
-### Allusions ###
+### Allusions ###sels
 * Factory Working
 
 ### Themes ###
 * Family, 4 Grandparents under One Roof, Stories, The Biggest Chocolate Factory in the World, The Whole World, all the four corners of the Earth, Childlike Enthusiasm, Hope for a Better Day and Better Supply, Factory Workers, 5 Tickets
 
 ### Interesting Sentences or Paragraphs ##
-* "Every one of these old people was over ninety. They were as shriveled as prunes, and as bony as skeletons, and throughout the day, until Charlie made his appearance, they lay huddled in their one bed, two at either end, with nightcaps on to keep their heads warm, dozing the tiem away with nothing to do. But as soon as they heard the door opening, and heard Charlie's voice saying, 'Good evening, Grandpa Joe and Grandma Josephine, and Grandpa George and Grandma Georina,' then all four of them would suddenly sit up, and their wrinkled faces would light up with smiles of pleasure - and the talking would begin. For they loved this little boy. He was the only bright thing in their lives." (p. 8, "Charlie and the Chocolate Factory")
+* "Every one of these old people was over ninety. They were as shriveled as prunes, and as bony as skeletons, and throughout the day, until Charlie made his appearance, they lay huddled in their one bed, two at either end, with nightcaps on to keep their heads warm, dozing the time away with nothing to do. But as soon as they heard the door opening, and heard Charlie's voice saying, 'Good evening, Grandpa Joe and Grandma Josephine, and Grandpa George and Grandma Georina,' then all four of them would suddenly sit up, and their wrinkled faces would light up with smiles of pleasure - and the talking would begin. For they loved this little boy. He was the only bright thing in their lives." (p. 8, "Charlie and the Chocolate Factory")
 
 * "'You see, Charlie,' he said, 'not so very long ago there used to be thousands of people working in Mr. Willy Wonka's factory. Then one day, all of a sudden, Mr. Wonka had to ask every single one of them to leave, to go home, never to come back.'" (p. 15, "Charlie and the Chocolate Factory)
 
@@ -234,6 +241,85 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 Charlie's heart stood still.
 
 'It's a Golden Ticket!' screamed the shopkeeper, leaping about a foot in the air. 'You've got a Golden Ticket! You've found the last Golden Ticket! Hey, what do you know! Come and look at this, everybody! The kid's found Wonka's last Golden Ticket! There it is! It's right there in his hands!" (p. 44, "Charlie and the Chocolate Factory")
+
+* "Greetings to you, the lucky finder of this golden ticket, from Mr. Willy Wonka! I shake you warmly by the hand! Tremendous things are in store for you! Many wonderful surprises await you! For now, I do invite you to come to my factory and be my guest for one whole day - you and all others who are lucky enough to find my GOlden Tickets. I, Willy Wonka, will conduct you around the factory myself, showing you everything that there is to see, and afterwards, when it is time to leave, you will be escorted home by a procession of large trucks. These trucks, I can promise you, will be loaded with enough delicious eatables to last you and your entire household for many years. If, at any time thereafter, you should run out of supplies, you have only to come back to the factory and show this Golden Ticket, and I shall be happy to refill your cupboard with whatever you want. In this way, you will be able to keep yourself supplied with tasty morsels for the rest of your life." (p. 50, "Charlie and the Chocolate Factory")
+
+* "'Yippeeeeee!' shouted Grandpa Joe, seizing Charlie by the hands and dancing round the room." (p. 52, "Charlie and the Chocolate Factory")
+* "'Hallelujah!' yelled Grandpa Joe. 'Praise the Lord!'" (p. 53, "Charlie and the Chocolate Factory")
+
+* "At that point, there came a loud knock on the front door. Mr. Bucket went to open it, and the next moment, swarms of newspaperment and photographers were pouring into the house. They had tracked down the finder of the fifth Golden Ticket, and now they all wanted to get the full story for the front pages of morning papers. For several hours, there was complete pandemomium in the little house, and it must have been nearly midnight before Mr. Bucket was able to get rid of them so that Charlie could go to bed." (p. 53, "Charlie and the Chocolate Factory")
+
+* "The sun was shining brightly on the morning of the big day, but the ground was still white with snow and the air was very cold." (p. 53, "Charlie and the Chocolate Factory")
+
+* "Outside the gates of Wonka's factory, enormous crowds of people had gathered to watch the five lucky ticket holders going in. The excitement was tremendous. It was just before ten o'clock. The crowds were pushing and shouting, and policemen with arms linked were trying to hold them back from the gates." (p. 53, "Charlie and the Chocolate Factory")
+
+* "Mr. Wonka was standing all alone just inside the open gates of the factory.
+
+And what an extraordinary little man he was!
+
+He had a black top hat on his head.
+
+He wore a tail coat made of a beautiful plum-colored velvet.
+
+His trousers were bottle green.
+
+His gloves were pearly gray.
+
+And in one hand he carried a fine gold-topped walking cane.
+
+Covering his chin, there was a small neat pointed black beard - a goatee. And his eyes - his eyes were most marvelously bright. They seemed to be sparkling and twinkling at you all the time. The whole face, in fact, was alight with fun and alughter." (p. 57, "Charlie and the Chocolate Factory")
+
+"'An important room, this!' cried Mr. Wonka, taking a bunch of keys from his pocket and slipping one into the keyhole of the door. 'This is the nerve center of the whole factory, the heart of the whole business! And so beautiful! I insist upon my rooms being beautiful! I can't abide ugliness in factories! In we go, then! But do be careful, my dear children! Don't lose your heads! Don't get overexcited! Keep very calm!" (p. 63, "Charlie and the Chocolate Factory")
+
+* "They were looking down upon a lovely valley. There were green meadows on either side of the valley, and along the bottom of it there flowed a great brown river." (p. 63, "Charlie and the Chocolate Factory")
+
+* "'There!' cried Mr. Wonka, dancing up and down and pointing his gold-topped cane at the great brown river. 'It's all chocolate! Every drop of that river is hot melted chocolate of the finest quality. The very finest quality. There's enough chocolate in there to fill every bathtup in the entire country! And all the swimming pools as well! Isn't it terrific? And just look at my pipes! They suck up the chocolate and carry it away to all the other rooms in the factory where it is needed! Thousands of gallons an hour, my dear children! Thousands and thousands of gallons!'" (p. 64, "Charlie and the Chocolate Factory")
+
+* "'The waterfall is most important!' Mr. Wonka went on. 'It mixes the chocolate! It churns it up! It pounds it and beats it. It makes it light and frothy! No other factory in the world mixes its chocolate by waterfall! But it's the only way to do it properly! The only way! And do you like my trees?,' he cried, pointing with his stick. 'And my lovely bushes?' Don't you think they look pretty? I told you I hated ugliness! And of course they are all eatable! All made of something different and delicious! And do you like my meadows? Do you like my grass and my buttercups?" (p. 66, "Charlie and the Chocolate Factory")
+
+* "When I went out there, I found the little Oompa-Loompas living in tree-houses. They *had* to live in tree-houses to escape from the whangdoodles and the hornswogglers and the snozzwangers. And they were practically starving to death. They were living on green caterpillars, and the caterpillars tasted revolting and the Oompa-Loompas spent every moment of their days climbing through the treetops looking for other things to mash up with the caterpillars to make them taste better - red beetles, for instance, and eucalyptus leaves, and the bark of the bong-bong tree, all of them beastly, but not quite so beastly as the caterpillars." (p. 69, "Charlie and the Chocolate Factory")
+
+* "Chocolate tastes even better than cacao beans because it's got milk and sugar added." (p. 71, "Charlie and the Chocolate Factory")
+
+* "So I shipped them all over here, every man, woman, and child in the Oompa-Loompa tribe. It was easy. I smuggled them over in large packing cases with holes in them, and they all got here safely. They are wonderful workers. They all speak English now. They love dancing and music. They are always making up songs. I expect you will hear a good deal of singing today from time to time. I must warn you, though, that they are rather mischievous. They like jokes. They still wear the same kind of clothes they wore in the jungle. They insist upon that. The men, as you can see for yourselves across the river, wear only deerskins. The women wear leaves, and the children wear nothing at all. The women use fresh leaves every day...'" (p. 71, "Charlie and the Chocolate Factory")
+
+* "When Mr. Wonka turned round and saw what Augustus Gloop was doing, he cried out, 'Oh, no! Please, Augustus, please! I beg of you not to do that. My chocolate must be untouched by human hands!'
+
+'Augustus!' called out Mrs. Gloop. 'Didn't you hear what the man said? Come away from that river at once!'
+
+'This stuff is tee-riffic!' said Augustus, taking not the slightest notice of his mother or Mr. Wonka. 'Oh boy, I need a bucket to drink it properly!'" (p. 72, "Charlie and the Chocolate Factory")
+
+* "'Be careful, Augustus!' shouted Mr. Gloop. 'You're leaning too far out!'
+
+Mr. Gloop was absolutely right. For suddenly there was a shriek, and then a splash, and into the river went Augustus Gloop, and in one second he had disappeared under the brown surface.
+
+'Save him!' screamed Mrs. Gloop, going white in the face, and waving her umbrella about. 'He'll drown! He can't swim a yard! Save him! Save him!
+
+'Good heavens, woman,' said Mr. Gloop, 'I'm not diving in there! I've got my best suit on!'
+
+Augustus Gloop's face came up again to the surface, painted brown with chocolate. 'Help! Help! Help!' he yelled. 'Fish me out!'" (p. 73, "Charlie and the Chocolate Factory")
+
+* "'Good heavens, woman,' said Mr. Gloop, 'I'm not diving in there! I've got my best suit on!'
+
+Augustus Gloop's face came up again to the surface, painted brown with chocolate. 'Help! Help! Help!' he yelled. 'Fish me out!'
+
+'Don't just *stand* there!' Mrs. Gloop screamed at Mr. Gloop. '*Do* something!'
+
+'I *am* doing something! said Mr. Gloop, who was now taking off his jacket and getting ready to dive into the chocolate. But while he was doing this, the wretched boy was being sucked closer and closer toward the mouth of one of the great pipes that was dangling down into the river. Then all at once, the powerful suction took hold of him completely, and he was pulled under the surface and then into the mouth of the pipe.
+
+The crowd on the riverbank waited breathlessly to see where he would come out." (pp. 73-74, "Charlie and the Chocolate Factory")
+
+* "The watchers below could see the choclate swishing around the boy in the pipe, and they could see it building up behind him in a solid mass, pushing against the blockage. The pressure was terrific. Something had to give. Something did give, and that something was Augustus. *Whoof!* Up he shot again like a bullet in the barrel of a gun." (p. 74, "Charlie and the Chocolate Factory")
+
+* "'You think it's a joke, do you? You think that sucking my boy up into your Fudge Room like that is just one great big colossal joke?'
+
+'He'll be perfectly safe,' said Mr. Wonka, giggling slightly.
+
+'He'll be chocolate fudge!' shrieked Mr. Gloop.
+
+'Never!' cried Mr. Wonka.
+
+'Of course he will!' shriekd Mrs. Gloop." (p. 76, "Charlie and the Chocolate Factory")
 
 
 ----------
