@@ -183,3 +183,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Upheld: ##
 * To confirm or support (something which has been questioned)
 * To maintain (a custom or practice)
+
+## Free: ##
+* Not under the control or in the power of another; able to act or be done as one wishes
+* Not or no longer confined or imprisoned
+* Release from captivity, confinement, or slavery
+ 
