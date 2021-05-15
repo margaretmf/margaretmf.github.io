@@ -16,15 +16,13 @@ layout: default
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
-* [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
 * [Traffic]() by tom vanderbilt
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
-* [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
 * [American Gospel: God, the Founding Fathers, and the Making of a Nation](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1537414852) by Jon Meacham
 * [My Sixty Years on the Plains: Trapping, Trading, and Indian Fighting](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1695768930/ref=pd_lpo_14_t_0/140-1164491-0949269?_encoding=UTF8&pd_rd_i=1695768930&pd_rd_r=b4345087-d11f-4ad2-9ec3-64ab247604d2&pd_rd_w=otZJk&pd_rd_wg=ohqCU&pf_rd_p=a0d6e967-6561-454c-84f8-2ce2c92b79a6&pf_rd_r=MHKQFHX5BASM0DW17AHK&psc=1&refRID=MHKQFHX5BASM0DW17AHK) by W. T. Hamilton
-* [Mother Land: A Novel](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) by Leah Franqui
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
+* [And Then They Stopped Talking To Me: Making Sense of Middle School]() by Judith Warner
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
@@ -44,6 +42,9 @@ layout: default
 * [On the Other Side of the Mountain](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_2?dchild=1&keywords=on+the+other+side+of+the+mountain&qid=1619275239&sr=8-2) by Jean Craighead George
 * [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1619275259&sr=8-1) by Jean Craighead George
 * [A Most Beautiful Thing: The True story of America's First All-Black High School Rowing Team](https://www.amazon.com/Most-Beautiful-Thing-Americas-All-Black/dp/1250754771/ref=sr_1_2?dchild=1&keywords=a+most+beautiful+thing&qid=1619549425&sr=8-2) by Arshay Cooper
+* [Mother Land: A Novel](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) by Leah Franqui
+* [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
+* [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
 
 
 ## 2020
