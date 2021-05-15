@@ -186,16 +186,15 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * A childlike adventure with a boy, 4 other families, and a boy's family
 
 ### Color ###
-* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, g/olden // ticket, black // beard, plum-colored // velvet, gold-topped // walking cane, bottle green // trousers, pearly gray // glovesy // green // meadows, great brown // river, brownish // muddy water, pink and red and mauve // blossoms, green // caterpillars, red // beetles, brown // surface, white // teeth, rosy-white // skin, golden-brown // hair
+* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, golden // ticket, black // beard, plum-colored // velvet, gold-topped // walking cane, bottle green // trousers, pearly gray // glovesy // green // meadows, great brown // river, brownish // muddy water, pink and red and mauve // blossoms, green // caterpillars, red // beetles, brown // surface, white // teeth, rosy-white // skin, golden-brown // hair, pink // boat, bright pink // glass, pink boiled-sweet // boat, dark // tunnels, green // door, black // door, bright red // door, gold-topped // cane, black // metal pots, purplish // treacle
 
-### Adjectives ###
-* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // girl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front // door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession, tasty // morsels, marvelous // surprises,  complete // pandemomium, full // story, loud // knock, big  // day, lucky // ticket holders, old // people, expensive // gloves, absolute // whiz-banger, famous //  children, extraordinary // little // man, sparkling // eyes, interesting // name, small nervous // voice, muffled // roar, gigantic // machine, important // corridor, every // direction, gigantic // rabbit, lovely // valley, churning // whirlpool, graceful // trees, soft, minty // sugar, world-recording // chewing gum, wonderful // workers, fresh // leaves, packing // cases, hot melted // chocolate, enormous // stomach, great // pipes, powerful // suction, solid // mass, little // journey, colossal // joke, wretched // boy, tiny // man
+* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // girl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front // door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession, tasty // morsels, marvelous // surprises,  complete // pandemomium, full // story, loud // knock, big  // day, lucky // ticket holders, old // people, expensive // gloves, absolute // whiz-banger, famous //  children, extraordinary // little // man, sparkling // eyes, interesting // name, small nervous // voice, muffled // roar, gigantic // machine, important // corridor, every // direction, gigantic // rabbit, lovely // valley, churning // whirlpool, graceful // trees, soft, minty // sugar, world-recording // chewing gum, wonderful // workers, fresh // leaves, packing // cases, hot melted // chocolate, enormous // stomach, great // pipes, powerful // suction, solid // mass, little // journey, colossal // joke, wretched // boy, tiny // man, chocolate-mixing // barrel, steamy // mist, sucking // pipes, intense // happiness, frightened // shouting, furious // pace, huge // stoves, rich // smells, gigantic // oven, shiny // affair
 
 ## Adverbs ##
-* eagerly // peering, nervously // smiling, intently // watching, tightly // holding, slightly // giggling
+* eagerly // peerings, nervously // smiling, intently // watching, tightly // holding, slightly // giggling, anxiously // peer
 
 ### Vocabulary ###
-* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantareng, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish, Yanking, Jostling, Exciting, Marvelous, Fantastic, Intrigue, Astonish, Perplex, Preparations, Tremendously, Pandemomium, Pretending, Invent, Trudging, Link, Glimpse, Trotting, Overjoyed, Enraptured, Enhancted, Alright, Excellent, Cried, Staggered, Bewildered, Dazzled, Dumfounded, Screams (of excitement), Frantically, Gorge, Smugglederful // workers, Mischievous, Insist, Swishing, Shriek, Unthinkable, Inconceivable, Absurd, Snap
+* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantareng, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish, Yanking, Jostling, Exciting, Marvelous, Fantastic, Intrigue, Astonish, Perplex, Preparations, Tremendously, Pandemomium, Pretending, Invent, Trudging, Link, Glimpse, Trotting, Overjoyed, Enraptured, Enhancted, Alright, Excellent, Cried, Staggered, Bewildered, Dazzled, Dumfounded, Screams (of excitement), Frantically, Gorge, Smugglederful // workers, Mischievous, Insist, Swishing, Shriek, Unthinkable, Inconceivable, Absurd, Snap, Whisper, Pour, Chant, Delightful, Charming, Furiously, Touch, Meddle, Taste
 
 ### Allusions ###sels
 * Factory Working
@@ -320,6 +319,70 @@ The crowd on the riverbank waited breathlessly to see where he would come out." 
 'Never!' cried Mr. Wonka.
 
 'Of course he will!' shriekd Mrs. Gloop." (p. 76, "Charlie and the Chocolate Factory")
+
+* "'Augustus Gloop!' chanted the Oompa-Loopmas.
+'Augustus Gloop!' Augustus Gloop!
+The great big greedy nincompoop!
+How long could we allow this beast
+To gorge and guzzle, feed and feast
+On everything he wanted to?
+Great Scott! It simply wouldn't do!
+However long this pig might live,
+We're positive he'd never give
+Even the smallest bit of fun
+Or happiness to anyone.
+So what we do in cases such
+As this, we use the gentle touch,
+ANd carefully we take the brat
+And turn him into something that
+Will give great pleasure to us all -
+A doll, for instance, or a ball,
+Or marbles or a rocking horse.
+But this revolting boy, of course,
+Was so unutterably vile,
+So greedy, foul, and infantile,
+He left a most disgusting taste
+Inside our mouths, and so in haste,
+We close a thing that, come what may,
+Would take the nasty taste away.
+'Come on!' we cried, 'The time is ripe
+To send him shooting up the pipe!
+He has to go! It has to be!
+And very soon, he's going to see
+Inside the room to which he's gone
+Some funny things are going on.
+But don't, dear children, be alarmed;
+Augustus Gloop will not be harmed,
+Although, of course, we must admit
+He will be altered quite a bit.
+He'll be quite changed from what he's been,
+When he goes through the fudge machine:
+Slowly, the wheels go round and round,
+The cogs begin to grind and pound;
+A hundred knives to slice, slice, slice;
+We add some sugar, cream, and spice;
+We boil him for a minute more,
+Until we're absolutely sure
+That all the greed and all the gall
+Is boiled away for once and all.
+Then out he comes! And now! By grace!
+A miracle has taken place!
+This boy, who only just before
+Was loathed by men from shore to shore,
+This greedy brute, this louse's ear,
+Is loved by people everywhere!
+For who could hate or bear a grudge
+Against a luscious bit of fudge'" (pp. 79-80, "Charlie and the Chocolate Factory")
+
+* "There's no earthly way of knowing
+Which direction they are going!
+There's no knowing where they're rowing,
+Or which way the river's flowing!
+Not a speck of light is showing,
+So the danger must be growing,
+For the rowers keep on rowing,
+And they're certainly not showing
+Any signs that they are slowing..." (pp. 84-85, "Charlie and the Chocolate Factory")
 
 
 ----------
