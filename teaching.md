@@ -175,34 +175,31 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * small boy, Charlie Bucket
 * the whole family living together under one roof
 * Mr. Willy Wonka, the owner of the chocolate factory
-* Augustus Gloop
-* Veruca Salt
-* Mike Teavee
+* Augustus Gloop, Veruca Salt, Violet Beauregarde
 
 ### Where? ###
 * A wooden house, on the edge of a great town
-* 5 Rooms - Chocolate Room, Inventing Room - Everlasting, the Nut Room, the Television Room, 
 
 ### What? ###
 * A boy wins a ticket to the Chocolate Factory with 4 other children and helps his family overcome poverty
 * A childlike adventure with a boy, 4 other families, and a boy's family
 
 ### Color ###
-* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, golden // ticket, black // beard, plum-colored // velvet, gold-topped // walking cane, bottle green // trousers, pearly gray // glovesy // green // meadows, great brown // river, brownish // muddy water, pink and red and mauve // blossoms, green // caterpillars, red // beetles, brown // surface, white // teeth, rosy-white // skin, golden-brown // hair, pink // boat, bright pink // glass, pink boiled-sweet // boat, dark // tunnels, green // door, black // door, bright red // door, gold-topped // cane, black // metal pots, purplish // treacle, black // top, white // room, dark // gasses, blue-white // light, bright-red // space suits, black // camera, scarlet // space suits, black // table
+* lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, golden // ticket, black // beard, plum-colored // velvet, gold-topped // walking cane, bottle green // trousers, pearly gray // glovesy // green // meadows, great brown // river, brownish // muddy water, pink and red and mauve // blossoms, green // caterpillars, red // beetles, brown // surface, white // teeth, rosy-white // skin, golden-brown // hair, pink // boat, bright pink // glass, pink boiled-sweet // boat, dark // tunnels, green // door, black // door, bright red // door, gold-topped // cane, black // metal pots, purplish // treacle, blue to white to green to brown to yellow and back to blue again // froth, blue // frothy mixture, grey // cardboard, blue // face, purplish-blue // hair, blueberry // juice, blue // ball, pink // corridor, black // top, plum-colored // velvet, white // square-shaped candies, black // beady eyes, brown // lightning
 
-* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // girl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front // door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession, tasty // morsels, marvelous // surprises,  complete // pandemomium, full // story, loud // knock, big  // day, lucky // ticket holders, old // people, expensive // gloves, absolute // whiz-banger, famous //  children, extraordinary // little // man, sparkling // eyes, interesting // name, small nervous // voice, muffled // roar, gigantic // machine, important // corridor, every // direction, gigantic // rabbit, lovely // valley, churning // whirlpool, graceful // trees, soft, minty // sugar, world-recording // chewing gum, wonderful // workers, fresh // leaves, packing // cases, hot melted // chocolate, enormous // stomach, great // pipes, powerful // suction, solid // mass, little // journey, colossal // joke, wretched // boy, tiny // man, chocolate-mixing // barrel, steamy // mist, sucking // pipes, intense // happiness, frightened // shouting, furious // pace, huge // stoves, rich // smells, gigantic // oven, shiny // affair, double // doors, ordinary // up-and-down elevator, tremendous // whizzing noise, enormous // spout, glass // walls, sudden // glimpses, wonderful // things, craggy // mountain, next // momen, sweaty // face, enormous // camera, whole // army, complete // silence, queer // sense, amazing // television, dangerous // rays, blinding // flash, tiny // figure, special // machine, foggiest // idea
+* freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // irl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front /ghty // groan/ door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession, tasty // morsels, marvelous // surprises,  complete // pandemomium, full // story, loud // knock, big  // day, lucky // ticket holders, old // people, expensive // gloves, absolute // whiz-banger, famous //  children, extraordinary // little // man, sparkling // eyes, interesting // name, small nervous // voice, muffled // roar, gigantic // machine, important // corridor, every // direction, gigantic // rabbit, lovely // valley, churning // whirlpool, graceful // trees, soft, minty // sugar, world-recording // chewing gum, wonderful // workers, fresh // leaves, packing // cases, hot melted // chocolate, enormous // stomach, great // pipes, powerful // suction, solid // mass, little // journey, colossal // joke, wretched // boy, tiny // man, chocolate-mixing // barrel, steamy // mist, sucking // pipes, intense // happiness, frightened // shouting, furious // pace, huge // stoves, rich // smells, gigantic // oven, shiny // affair, whole // rumbling, hissing // steam, different // color, giant // whizzer, mighty // groan, three-course // dinner, tomato  // soup, extraordinary // gum, rubbery // lips, little // children,  special // machine, covered // vans,great // gumchewers, loving // child, crazy // man, open // sky, entire // company
 
 ## Adverbs ##
-* eagerly // peerings, nervously // smiling, intently // watching, tightly // holding, slightly // giggling, anxiously // peering, swerved // violently
+* eagerly // peerings, nervously // smiling, intently // watching, tightly // holding, slightly // giggling, anxiously // peering, obstinately // said, beautifully // working, proudly // gazing, clanking // noises, terrifically // lifting, suddenly // skidding, intently // listening, ferociously // struggle, tightly // holding
 
 ### Vocabulary ###
-* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish, Yanking, Jostling, Exciting, Marvelous, Fantastic, Intrigue, Astonish, Perplex, Preparations, Tremendously, Pandemomium, Pretending, Invent, Trudging, Link, Glimpse, Trotting, Overjoyed, Enraptured, Enhancted, Alright, Excedinllent, Cried, Staggered, Bewildered, Dazzled, Dumfounded, Screams (of excitement), Frantically, Gorge, Mischievous, Insist, Swishing, Shriek, Unthinkable, Inconceivable, Absurd, Snap, Whisper, Pour, Chant, Delightful, Charming, Furiously, Touch, Meddle, Taste, Disappearing, Smuggle, Ordinary, Announce, Gallantly, Comfortingly, Hurtled, Magnificent, Tamper, Ordinary, Exactly
+* Amazing, Fantastic, Extraordinary, Absolutely, Clever, Astonishing, Fantareng, Crunching, Searching, Shivering, Rushing, Clatter, Explosion, Dervish, Yanking, Jostling, Exciting, Marvelous, Fantastic, Intrigue, Astonish, Perplex, Preparations, Tremendously, Pandemomium, Pretending, Invent, Trudging, Link, Glimpse, Trotting, Overjoyed, Enraptured, Enhancted, Alright, Excellent, Cried, Staggered, Bewildered, Dazzled, Dumfounded, Screams (of excitement), Frantically, Gorge, Smugglederful // workers, Mischievous, Insist, Swishing, Shriek, Unthinkable, Inconceivable, Absurd, Snap, Whisper, Pour, Chant, Delightful, Charming, Furiously, Touch, Meddle, Taste, Frothier, Fabulous, Sensational, Peculiar, Swell, Turn, Screech, Immediately, Scuttle, Remaining, Rush, Particular, Toppling, Swung, Exploded, Enormous, Arrangements, Twisting, Turning, T empted, Hover
 
-### Allusions ###selsar
-* Factory Working
+### Allusions ###
+* Factory Working, Christianity, Dragons, Gypsies, Queens, Whales, Treasure Isles, Distant Shores, Smugglers, Muffled Oars, Pirates, Sailing Ships, Elephants, Cannibals, Lifetime's Supply of Chocolate
 
 ### Themes ###
-* Family, 4 Grandparents under One Roof, Stories, The Biggest Chocolate Factory in the World, The Whole World, all the four corners of the Earth, Childlike Enthusiasm, Hope for a Better Day and Better Supply, Factory Workers, 5 Tickets - 5 Rooms - 5 Characters - 5 Troubles
+* Family, 4 Grandparents under One Roof, Stories, The Biggest Chocolate Factory in the World, The Whole World, all the four corners of the Earth, Childlike Enthusiasm, Hope for a Better Day and Better Supply, Factory Workers, 5 Tickets
 
 ### Interesting Sentences or Paragraphs ##
 * "Every one of these old people was over ninety. They were as shriveled as prunes, and as bony as skeletons, and throughout the day, until Charlie made his appearance, they lay huddled in their one bed, two at either end, with nightcaps on to keep their heads warm, dozing the time away with nothing to do. But as soon as they heard the door opening, and heard Charlie's voice saying, 'Good evening, Grandpa Joe and Grandma Josephine, and Grandpa George and Grandma Georina,' then all four of them would suddenly sit up, and their wrinkled faces would light up with smiles of pleasure - and the talking would begin. For they loved this little boy. He was the only bright thing in their lives." (p. 8, "Charlie and the Chocolate Factory")
@@ -386,30 +383,279 @@ For the rowers keep on rowing,
 And they're certainly not showing
 Any signs that they are slowing..." (pp. 84-85, "Charlie and the Chocolate Factory")
 
-* "Charlie Bucket stared around him in astonishment. This was the craziest elevator he had ever seen. There were buttons everywhere! The walls, and even the ceiling, were covered all over with rows and rows and rows of small, black push buttons! There must have been a thousand of them on each wall, and another thousand on the ceiling! And now Charlie noticed that every single button had a tiny printed label beside it telling you which room you would be taken to if you pressed it." (p. 119, "Charlie and the Chocolate Factory")
+* "There was a pause. Then suddenly, VIolet Beauregarde, the goofy gum-chewing girl, let out a yell of excitement/ 'By gum, it's gum!' she shrieked. 'It's a stick of chewing gum!' "Right you are!' cried Mr. Wonka, slapping Violet hard on the back. 'It's a stick of gum! It's a stick of the most *amazing* and *fabulous* and *sensational* gum in the world!'" (pp. 93-94, "Charlie and the Chocolate Factory")
 
-* "'This isn't just an ordinary up-and-down elevator!' announced Mr. Wonka proudly. 'This elevator can go sideways and longways and slantways and any other you can think of! It can visit any single room in the whole factory, no matter where it is! You simply press the button and zing!...you're off!'
+"'The gum,' Mr. Wonka went on, 'is my latest, my greatest, my most fascinating invention! It's a chewing-gum meal! It's..it's...it's...that tiny little strip of gum lying there is a whole three-course dinner all by itself!'" (p. 94, "Charlie and the Chocolate Factory")
 
-'Fantastic!' murmured Grandpa Joe. His eyes were shining with excitement as he stared at the rows and rows of buttons.
+* "'Stop!' said Mr. Wonka. 'The gum isn't ready yet! It's not right!'
 
-'The whole elevator is made of thick, clear glass!' Mr. Wonka declared. 'Walls, doors, ceiling, floor, everything is made of glass so that you can see out!'
+'Of course it's right!' said Violet. 'It's working beautifully! Oh my, what lovely soup this is!'
 
-'But there's nothign to see,' said Mike Teavee." (p. 119, "Charlie and the Chocolate Factory")
+'Spit it out!' said Mr. Wonka.
 
-* "The elevator rushed on at the speed of a rocket. Now it was beginning to climb. It was shooting up and up and up on a steep slanty course as if it were climbing a very steep hill. Then suddenly, as though it had come to the top of the hill and gone over a precipice, it dropped like a stone and Charlie felt his tummy coming right up into his throat, and Grandpa Joe shouted, 'Yippee! Here we go!' And Mrs. Teavee cried out, 'The rope has broken! We're going to crash! And Mr. Wonka said, 'Calm your self, my dear lady,' and patted her comfortingly on the arm. And then Grandpa Joe looked down at Charlie who was clinging to his legs, and he said, 'Are you all right, Charlie?' Charlie shouted, 'I love it! It's like being on a roller coaster!' And trough the glass walls of the elevator, as it rushed along, they caught sudden glimpses of strange and wonderful things going on in some of the other rooms: " (p. 122, "Charlie and the Chocolate Factory")
+'It's changing!' shouted Violet, chewing and grinning both at the same time. 'The second course is coming up! It's roast beef! It's tender and juicy! Oh boy, what a flavor! The baked potato is marvelous, too! It's got a crispy skin and it's all filled with butter inside!' 
 
-* "'Here we go! cried Mr. Wonka, hopping up and down with excitement. 'This is the Testing Room for my very latest and greatest invention - Television Chocolate!'
+'But how in-teresting, Violet,' siad Mrs. Beauregarde. 'You *are* a clever girl.'
 
-'But what *is* Television Chocolate?' asked Mike Teavee.
+'Keep chewing, kiddo!' said Mr. Beauregarde. 'Keep right on chewing, baby! This is a great day for the Beauregardes! Our little girl is the first person in the world to have a chewing-gum meal!
 
-'Good heavens, child, stop interrupting me!' said Mr. Wonka. 'It works by television. I don't like television myself. I suppose it's all right in small doses, but children never seem to be able to take it in small doses. They want to sit there all day long staring and staring at the screen...'" (p. 125, "Charlie and the Chocolate Factory")
+Everybody was watching Violet Beauregarde as she stood there chewing this extraordinary gum. Little Charlie Bucket was staring at her absolutely spellbound, watching her huge rubbery lips as they pressed and unpressed with the chewing, and Grandpa Joe stood beside him gaping at the girl. Mr. Wonka was wringing his hands and saying, 'No, no, no, no, no! It isn't ready for eating! It isn't right! You mustn't do it!'
 
-* "'Thank you,' said Mr. Wonka. 'I shall now tell you how this amazing television set of mine works. But first of all, do you know how ordinary television works? It is very simple. At one end, where the picture is being taken, you have a large movie camera and you start photographing something. The photographs are then split up into millions of tiny little pieces which are so small that you can't see them, and these little pieces are shot out into the sky by electricity. In the sky, they go whizzing around all over the place until suddenly they hit the antenna on the roof of somebody's house. They then go flashing down the wire that leads right into the back of the television set, and in there they get jiggled and joggled around until at last every single one of those millions of tiny pieces is fitted back into its right place (just like a jigsaw puzzle), and presto! - the photograph appears on the screen...'"
+'Blueberry pie and cream!' shouted Violet. 'Here it comes! Oh my, it's perfect! It's beautiful! It's...it's exactly as though I'm swallowing it! It's as though I'm chewing and swallowing great big spoonfuls of the most marvelous blueberry pie in the world!'" (p. 96, "Charlie and the Chocolate Factory")
 
-* "'It has to be big,' Mr. Wonka explained, 'because whenever you send something by television, it always comes out much smaller than it was when it went in. Even with *ordinary* television, when you photograph a big man, he never comes out on your screen any taller than a pencil, does he? Here we go, then! Get ready! No, no! Stop! Hold everything! You there! Mike Teavee! Stand back! You're too close to the camera! There are dangerous rays coming out of that thing! They could break you up into million tiny piece in one second! That's why the Oompa-Loompas are wearing space suits! The suits protect them! All right! That's better! Now, then! Switch on!" (p. 128, "Charlie and the Chocolate Factory")
+* "'Oh, be quiet, mother, and let me finish!' said Violet.
 
-* *"'The most important thing we've learned, 
+'It's turning blue!' screamed Mrs. Beauregarde. 'Your nose is turning blue as a blueberry!'
 
+'Your mother is right!' shouted Mr. Beauregarde. 'Your whole nose has gone purple!'
+
+'What do you mean?' said Violet, still chewing away.
+
+'Your cheeks!' screamed Mrs. Beauregarde. 'They're turning blue as well! So is your chin! Your whole face is turning blue!'
+
+'Split that gum out at once!' ordered Mr. Beauregarde.
+
+'Mercy! Save us!' yelled Mrs. Beauregarde. 'The girl's going blue and purple all over! Even her hair is changing color! Violet, you're turning violet, Violet! What is happening to you!'
+
+'I told you I hadn't got it quite right,' sighed Mr. Wonka, shaking his head sadly.
+
+'I'll say you haven't!' cried Mrs. Beauregarde. 'Just look at the girl now!'
+
+Everybody was staring at Violet. And what a terrible peculiar sight she was! Her face and hands and legs and neck, in fact the skin all over her body, as well as her great big mop of curly hair, had turned a brilliant, purplish-blue, the color of blueberry juice!
+
+'It always goes wrong whene we come to the dessert,' sighed Mr. Wonka. 'It's the blueberry pie that does it. But I'll get ti right one day you wait and see.'" (p. 97, "Charlie and the Chocolate Factory")
+
+* "'I'm not surprised! said Mr. Beauregarde.
+
+'Great heavens, girl!' screeched Mrs. Beauregarde. 'You're blowing up like a balloon!'
+
+'Like a blueberry,' said Mr. Wonka.
+
+'Call a doctor!' shouted Mr. Beauregarde.
+
+'Prick her with a pin!' said one of the other fathers.
+
+'Save her!' cried Mrs. Beauregarde, wringing her hands. 
+
+But there was no saving her now. Her body was swelling up and changing shape at such a rate that within a minute it had turned into nothing less than an enormous round blue ball - a gigantic blueberry, in fact - and all that remained of Violet Beauregarde herself was a tiny pair of legs and a tiny pair of arms sticking out of the great round fruit and a little head on top." (p. 98, "Charlie and the Chocolate Factory")
+
+* "The voices, one hundred of them singing together, came loud and clear into the room:
+
+*"Dear friends, we surely all agree
+There's almost nothing worse to see
+Than some repulsive little bum
+Who's always chewing chewing gum.
+(It's very near as bad as those
+Who sit around and pick the nose).
+So please believe us when we say
+That chewing gum will never pay.
+This sticky habit's bound to send
+The chewer to a sticky end.
+Did any of you ever know
+A person called Miss Bigelow?
+This dreadful woman saw no wrong
+In chewing, chewing all day long.
+She chewed while bathing in the tub.
+She chewed while dancing at her club.
+She chewed in church and on the bus.
+It really was quite ludicrous!
+And when she couldn't find her gum,
+She'd chew up the linoleum,
+Or anything that happened near -
+A pair of botos, the postmans' ear,
+Or other people's underclothes,
+And once she chewed her boy friend's nose.
+She went on chewing till, at last,
+Her chewing muscles grew so vast
+That from her face her giant chin
+Stuck out just like a violin.
+For years and years she chewed away.
+Consuming fifty packs a day,
+Until one summer's eve, alas,
+A horrid business came to past.
+Miss Bigelow went late to bed,
+For half an hour she lay and read,
+Chewing and chewing all the while
+Like some great clockwork crocodile.
+At last, she put her gum away.
+Upon a special little tray.
+And settled back and went to sleep -
+(She managed this by coutning sheep).
+But now, how strange! Although she slept,
+Those massive jaws of hers still kept
+On chewing, chewing through the night,
+Even with nothing there to bite,
+They were, you see, in such a groove
+They positive had to move.
+And very grim it was to hear
+In pitch darkness, loud and clear,
+This sleeping woman's great big tap
+Opening and shutting, snap-snap-snap!
+Faster and faster, chop-chop-chop.
+The noise went on, it wouldn't stop.
+Until at last her jaws decide
+To pause and open extra wide,
+And with the most tremendous chew
+They bit the lady's tongue in two.'
+Thereafter, just from chewing gum,
+Miss Bigelow was always dumb,
+And spent her life shut up in some
+Disgusting sanatorium.
+And that is why we'll try so hard
+To save Miss Violet Beauregarde
+From suffereing an equal fate.
+She's still quite young. It's not too late
+Provided she survives the cure.
+We hope she does. We can't be sure."* (pp. 99-101, "Charlie and the Chocolate Factory)
+
+*"'Veruca Salt!' sang the Oompa-Loompas.
+'Veruca Salt, the little brute,
+Has just gone down the garbage chute,
+(And as we very rightly thought
+That in a case like this we ought
+To see the thing completely through,
+We've polished off her parents, too.)
+Down goes Veruca! Down the drain!
+And here, perhaps, we should explain
+That she will meet, as she descends.
+A rather different set of friends
+To those that she has left behind -
+These won't be nearly so refined.
+A fish bead, for example, cut
+This morning from a halibut.
+Hello! Good morning! How d'you do?
+How nice to meet you! How are you?'
+And then a little further down
+A mass of others gather round:'
+A bacon rind, some rancid lard,
+A loaf of bread gone stale and hard,
+A steak that nobody could chew,
+An oyster from an oyster stew
+Some liverwurst so old and gray
+One smelled it from a mile away,
+A rotten nut, a reeky pear,
+A thing the cat left on the stair,
+And lots of other things as well,
+Each with a rather horrid smell,
+These are Veruca's new found friends
+That she will meet as sche descends,
+And this is the price she has to pay
+For going so very far astray.
+But now, my dears, we think you might
+Be wondering -s it really right
+That every single bit of blame
+And all the scolding and the shame
+Should fall upon Veruca Salt?
+Is she the only one at fault?
+For though she's soiled, and dreadfully so,
+A girl can't spoil herself, you know
+Who spoiled her, then? Ah, who indeed?
+Who pandered to her every need?
+Who turned her into such a brat?
+Who are the culprits? Who did that?
+Alas! You needn't look so far,
+TO find out who these sinners are.
+They are (and this is very sad)
+Her loving parents, MUM and DAD
+And that is why we're glad they fell
+Into the garbage chute as well.*'" (pp. 117-118, "Charlie and the Chocolate Factory")
+
+*"'The most important thing we've learned,
+So far as children are concerned,
+Is never, NEVER, NEVER let 
+Them near your television set -
+Or better still, jsut don't install
+The idiotic thing at all.
+In almost every house we've been,
+We've watched them gaping at the screen.
+They loll and slop and lounge about.
+And stare until their eyes pop out.
+(Last week in someone's place we saw
+A dozen eyeballs on the floor.
+They sit and stare and stare and sit
+Until they're hypnotised by it
+Until they're absolutely drunk
+With all that shocking ghastly junk,
+Oh yes, we know it keeps them still,
+They don't climb out the window sill,
+They never fight or kick or punch,
+They leave you free to cook the lunch
+And wash the dishes in the sink -
+But did you ever stop to think,
+To wonder just exactly what
+This does to your beloved tot?
+It rots the senses in the head!
+It kills imagination dead!
+It clogs and clutters up the mind!
+It makes a child so dull and blind
+He can no longer understand
+a fantasy, a fairyland!
+His brain become as soft as cheese!
+His pwoers of thinking rust and freeze!
+He cannot think - he only sees!
+'All right!' you cry. 'All right!' you'' say,
+But if we take the set away,
+What shall we do to entertain
+Our darling children? Please explain!
+We'll answer this by asking you,
+What used the darling ones to do?
+How used they keep themselves contented
+Before this monster was invented?'
+Have you forgotten? Don't you know?
+We'll say it very loud and slow:
+They...used...to...read! They'd read and read, and read, and read...
+...reading books
+The nursery shelves held books galore!
+Books cluttered up the nrusery floor!
+And in the bedroom, by the bed,
+More books were waiting to be read!
+Such wondrous, fine, fantastic tales
+Of dragons, gypsies, queens, and whales,
+And treasure isles, and distant shores,
+Where smugglers rowed with muffled oars,
+And pirates wearing purple pants,
+And sailing ships and elephants,
+And cannibals crouching 'round the pot,
+Stirring away at something hot.
+(It smells so good, what can it be!
+Good gracious, it's Penelope.)
+The younger ones had Beatrix Potter
+With Mr. Tod, the dirty rotter,
+And Squirrel Nutkin, Pigling Bland
+And Mrs. Tiggy-Winkle and-
+Just How The Camel Got His Hump,
+And How The Monkey Lost His Pump,
+And Mr. Toad, and bless my soul,
+There's Mr. Rat and Mr. Mole -
+Oh, books, what books they used to know,
+Those children living long ago!
+So please, oh please, we beg, we pray,
+Go throw your TV set away,
+And in its place you can install
+A lovely bookshelf on the wall.
+Then fill the shelves with lots of books,
+Ignoring all the dirty looks, 
+The screams and yells, the bites and kicks,
+And children hitting you with sticks - 
+Fear not, because we promise you
+That, in about a week or two
+Of having nothing else to do,
+They'll now begin to feel the need
+Of having something good to read.
+And once they start - oh boy, oh boy!
+You watch the slowly growing joy
+THat fills their hearts. They'll grow so keen
+They'll wonder what they'd ever seen
+In that ridiculous machine,
+That nauseating, foul, unclean,
+Repulsive television screen!
+And later, each and every kid
+Will love you more for what you did.
+P.S. Regarding Mike Teavee,
+We very much regret that we 
+Shall simply have to wait and see
+If we can get him back his height
+But if we can't - it serves him right.'* " (pp. 139-141, "Charlie and the Chocolate Factory")
 
 
 ----------
