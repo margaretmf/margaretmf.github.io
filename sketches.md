@@ -25,3 +25,12 @@
 
 <img class="profile-picture" src="Stoplights.jpg">
 
+<img class="profile-picture" src="Brown&PinkLines&Shapes.jpg">
+
+<img class="profile-picture" src="Black&ColoredLines.jpeg">
+
+<img class="profile-picture" src="Green&BrownLines.jpeg">
+
+<img class="profile-picture" src="Black&GreenLines&Shapes.jpeg">
+
+<img class="profile-picture" src="Brown&BlueLines.jpeg">
