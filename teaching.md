@@ -1,8 +1,6 @@
 ### I have started reading children's books, and developing outlines for critically reading them. I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to teach critical reading of children's books to little ones. I hope to share outlines below. ###
 
-### The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", and "Charlie and the Chocolate Factory".
-
-Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt". ###
+### The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", and "Charlie and the Chocolate Factory". Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt". ###
 
 ### I am interested in how filmmakers turn children's books into films, and I am interested in how teachers use children's books in Social-Emotional Learning. ###
 
