@@ -1,9 +1,12 @@
 # Research Questions and Studies #
+* A Study on How People Use a Liberal Arts or Humanities Degree in the World
+* A Study on Democracy, What it Means to Democratize, What a Republic Is, What It Means to Localize
+* A Study on Whether People Attend Church, What Church They Attend, Why People Attend That Church, What is the Theology, How Strong is the Faith, What Leads People to Doubt, the Relationship to God, and How People Feel Church and Democracy are Related
 * A Study on the American Flag, and what the American flag represents through Text
 * A Study on Light in the Darkness, and Where This Comes Up in Books, and What This Means, and Its Spiritual Significance
 * A Study on Societal Wholeness, and Connectedness; This Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
 * A Study on Signs and Sybmols
-* A Study on Interracial Dating and Marriages 
+* A Study on Interracial Dating and Marriages, and Interracial Homes
 * A Study on Democracy and Church
 * A Study on Shays' Rebellion in Relationship to the Trump Election
 * A Study on Cultures that Influence and Shape Engineering
