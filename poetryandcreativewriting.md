@@ -142,7 +142,11 @@ This experience is teaching you how to trust.
 This experience is showing you a part of you.
 THis experience is shining a light on something to learn.
 This experience is revealing something about humanity.
-This is good for you.
+This experience is showing you how to love.
+This experience is helping you learn to be alone and be alone with confidence and joy.
+This experience is encouraging you to be yourself more.
+This experience is pushing you to put thoughts on other things, other deeper things.
+This is good for you. This is not bad.
 
 ## Professionalization ##
 The world will try to define you.
