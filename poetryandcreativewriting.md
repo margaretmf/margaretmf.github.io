@@ -46,6 +46,7 @@ I believe and have found that playing music and participating in improv brings j
 
 ## Relationship to Art ##
 * Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships. 
+* Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, and The Riverside Group.
 * Learned about light in the darkness through my own memories of seeing the light in the darkness. 
 * Appreciate the artwork in office spaces. 
 * Work on composing music and playing around. 
@@ -61,7 +62,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (8 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (9 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -149,24 +150,46 @@ This experience is pushing you to put thoughts on other things, other deeper thi
 This is good for you. This is not bad.
 
 ## Professionalization ##
-The world will try to define you.
-People will try to box you in.
-People who fit into a profession will try to limit you and tell you that you cannot be them, they have worked too hard.
-This is not true.
-A liberal education expands, and broadens, and helps people explore, and move out of their comfort zone.
-Anyone can learn something new. Anyone can try something out.
-People can work across disciplines, departments, try new things.
-The democratization of Life, Liberty, Happiness, and Education.
+The world will try to define you. People will try to box you in. People who fit into a profession will try to limit you and tell you that you cannot be them and that they have worked too hard. This is not true. A liberal education expands, and broadens, and helps people explore, and move out of their comfort zone. Anyone can learn something new. Anyone can try something out. People can work across disciplines, departments, try new things. The democratization of Life, Liberty, Happiness, and Education.
 
 ## Smile ##
-There's a reason to smile today.
-Appreciate the smiles you see from people.
-There's a reason to hope today.
-There's hope for everyone and what everyone is overcoming.
+There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
 
 ## The Seed Within ##
-The seed within lays buried deep.
-It's deep within and grows it roots to spread out throughout the earth.
+The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
+
+## In A Sea of Voices ##
+I am a voice in a sea of voices, a sea of sound.
+Why do I play music and keep the ringing of harmony in my heart?
+Why do I sing and keep on singing?
+Why do I mix in with the sea of voices if I am part of the crowd?
+I am one and the same with you all.
+
+Like a leafe in a sea of leaves, I am a voice in a sea of voices.
+Like a wave in a sea of waves, I am a voice in a sea of voices.
+Like a ray of light in a sea of rays, I am a voice in a sea of voices.
+Like a blade of grass in blades of grass, I am a note in a sea of notes.
+
+We are all one in the same.
+We all have hearts that love music and harmony because it's innate.
+I sing with my heart, not my voice, however, because I am part of the sea.
+I let the others sing, and I play second fiddle, and I let them crowd me out.
+I let my voice be quiet, subdued, so they can be someone, something.
+
+## I Am Looking For You ##
+I am looking for you.
+You are looking for me.
+I vaguely know you in another world.
+You already know how to reach me.
+I can feel your spirit running through the earth somewhere already.
+You can feel me and my heart beating and repenting.
+I know you're out there somewhere.
+I am here too becoming who I am destined to be.
+It's a match made in heaven.
+It's mutual and reciprocal.
+It's already there.
+It's something within.
+It has extended since the beginning of time.
 
 ## Bridges ##
 I just drove across another bridge today in Virginia, outside of Isle Wight County.
@@ -215,7 +238,9 @@ Composing music expresses both the head and the heart, and writing songs helps t
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
 * "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
 * [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
-* "One Voice" by The Wailin' Jennys
+* "One Voice" by The Wailin' Jennys + The Devil's Paintbrush Road by The Wailin' Jennys
+* Music by Ruth Moody
+* Music by The Riverside Group
 * Southern Gospel Norton Hall Band
 
 ## Song Lyrics ##
