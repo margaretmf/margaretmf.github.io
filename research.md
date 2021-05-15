@@ -15,7 +15,8 @@
 * A Study on Weaving Individual Narratives with Collective, National Narratives
 * A Study on Harassment - Why Do People Harass People? Men, Women, Women, Men; What's the Boundary Between Teasing, Flirting, Harassment
 * A Study on the Boundaries on the Internet; the Relationship Between the Boundaries on the Internet and the Boundaries on the Road - the Internet Highway
-* A Study on What People Choose to Study and Learn in College
+* A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
+* A Study on Names
 
 
 ----------
