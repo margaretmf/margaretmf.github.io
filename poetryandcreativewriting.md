@@ -40,7 +40,10 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 *I believe* participation in the fine arts brings joy [in 2009, 2010]
  
 *Do I still believe this?*
-I believe and have found that playing music and participating in improv brings joy. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
+I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
+
+## Relationship to Art ##
+* Learned about history through a song and learned about gender stereotyping through music. Learned about light in the darkness through my own memories of seeing the light in the darkness. Appreciate the artwork in office spaces. Work on composing music and playing around. Interested in how filmmakers turn children's books and other books into film.
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
@@ -50,6 +53,9 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
+## Relationship to Nature ##
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (8 days)
+
 ## Spirituality ##
 *I believe* "God is all and God is good" [in 2009, 2010]
 
@@ -57,6 +63,9 @@ I also believe that the land belongs to everyone, and that we all share the same
 I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others.
 I have found that I can see God's expression everyone through compassion, intelligence, joy, peace.
 I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas.
+
+## Relationship to Spirituality ##
+* Appreciate the architecture of all the churches in the community. Learning about a dual language church.
 
 ## Individual/Society ##
 *I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
@@ -73,23 +82,8 @@ I believe in the next generation of humanity and all that they can learn each da
 I believe in every individual as individual.
 I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
 
-
-----------
-
-
-## Relationship to Art ##
-* Learned about history through a song and learned about gender stereotyping through music; learned about light in the darkness through my own memories of seeing the light in the darkness; appreciate the artwork in office spaces; work on composing music and playing around
-
-## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside of Starbucks and other places to be a steward of the Earth (7 days)
-
-## Relationship to Spirituality ##
-* Appreciate the architecture of all the churches in the community
-* Learning about a dual language church
-
 ## Relationship to Individual and Society ##
-* Started learning a new language more deeply that part of the country speaks
-* Appreciated working in a diversity and inclusion business in Washington, DC
+* Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better.
 
 
 ----------
@@ -146,19 +140,7 @@ My favorite imagery are a flower with water droplets, green weeds, and a flower 
 Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green
 
 ## Perspective, Stories, the South ##
-Around the south, there are so many individual perspectives. 
-
-Someone sings about the South, and shares a story about the infrastructure, the culture, the group of people who created a land. 
-
-Every individual in the land, in the South associate different meanings with this land. 
-
-Everyone is coming from a different subjective standpoint. 
-
-Everyone associates his or her own meanings with what they hear. 
-
-Songs can help people recall people, events, ideas, knowledge in different ways based on their own subjective standpoints.
-
-Isn't it cool that so many people grew up in the Southern United States and share common experiences but also have different meanings associated based on the time in which they were born, the state in which they were born, and the stories their ancestors shared.
+Around the south, there exist many individual perspectives. Someone sings about the South, and shares a story about the infrastructure, the culture, the group of people who created a land. Every individual in the land, in the South associate different meanings with this land.  Everyone comes from a different subjective standpoint to contributing to this economy and this society. Everyone associates his or her own meanings with what they hear. Songs can help people recall people, events, ideas, knowledge in different ways based on their own subjective standpoints. It's interesting that so many people grew up in the Southern United States and share common experiences but also have different meanings associated based on the time in which they were born, the state in which they were born, and the stories their ancestors shared.
 
 South is also South America, Mexico.
 
