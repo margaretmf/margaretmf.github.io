@@ -3,11 +3,13 @@ layout: default
 is_contact: true
 ---
 
-## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. I work to write a little each day and edit a little each day. ##
+## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. I work to write a little each day and edit a little each day. I would love to teach youth in my life and help them learn to use their voice. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. ##
 
 ## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. I am continuing this journey of writing music and setting poetry to music. ##
+
+## In the Creative Writing class, I remember writing down goals to explore how children's books and the media help to teach children concepts. I compared Disney to PBS Kids, and I wrote down goals of writing children's books. I am continuing to explore best practices of writing children's books. ##
 
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
 
@@ -43,7 +45,12 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
 
 ## Relationship to Art ##
-* Learned about history through a song and learned about gender stereotyping through music. Learned about light in the darkness through my own memories of seeing the light in the darkness. Appreciate the artwork in office spaces. Work on composing music and playing around. Interested in how filmmakers turn children's books and other books into film.
+* Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships. 
+* Learned about light in the darkness through my own memories of seeing the light in the darkness. 
+* Appreciate the artwork in office spaces. 
+* Work on composing music and playing around. 
+* Interested in how filmmakers turn children's books and other books into film.
+* Learned about the idea of taking bold risks and "failing big" in an improv class, and how improv relates to entrepreneurship.
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
@@ -55,6 +62,7 @@ I also believe that the land belongs to everyone, and that we all share the same
 
 ## Relationship to Nature ##
 * Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (8 days)
+* Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
 *I believe* "God is all and God is good" [in 2009, 2010]
@@ -65,7 +73,8 @@ I have found that I can see God's expression everyone through compassion, intell
 I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas.
 
 ## Relationship to Spirituality ##
-* Appreciate the architecture of all the churches in the community. Learning about a dual language church.
+* Appreciate the architecture of all the churches in the community.
+* Learn about a dual language church.
 
 ## Individual/Society ##
 *I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
@@ -201,9 +210,13 @@ Songs share stories, human stories. Songs share stories of relationships. Songs 
 
 When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile - the engimatic smile, the generity of the laugh, and the charm of the care speaks to the heart. 
 
-From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required? Or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare feels like a prank, sinister, childish, aggressive, and insincere.
+From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required, or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare feels like a prank, sinister, childish, aggressive, and insincere.
 
-I also remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
+I also remember listening to the song "Hey Lady" by Thriving Ivory. These songs weren't about me, but I could relate to the feeling of not wanting to burn my heart out on love and not wanting to lose someone before they walk away.
+
+Finally, I remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
+
+More recently I analyzed music lyrics on "boys will be boys" and kind, and sweet girls. I used to feel like I was the big-hearted, kind, sweet girl who followed all the rules, and treating guys like I would my cousins or brother to look beyond the societal mask; I began to make mistakes however, and I realized more deeply that guys are not the only ones who do dumb things - girls do dumb things as well, and in a way this is a good thing.
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
@@ -215,8 +228,8 @@ It came back up through another's song of the enigmatic smile, the victim and th
 It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
 
 ## EVERFI, Book ##
-With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older male in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business.
-
+With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older man in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business. I remember witnessing the faith of colleagues that helped them to overcome challenges and that helped them to stay inspired.
+ 
 ## The Collective ##
 We are all one of the same.
 We are all made with the same blood.
