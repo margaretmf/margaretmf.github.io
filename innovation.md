@@ -1348,6 +1348,21 @@ is_contact: true
 
 ## **Sounds** ##
 
+## **Day 78** ##
+## **Images** ##
+(1) A pile of branches tied up
+(2) A back window outside of a house
+(3) Greenery on a home
+(4) Blue paint on a house
+(5) A swing
+
+## **Sounds** ##
+(1) The voice of the mail man
+(2) The sprinkler
+(3) The sound of a memory at the pool
+(4) Leaves crinkling when stepping on them
+(5) A clock ticking
+
 <br>
 
 <br>
