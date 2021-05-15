@@ -94,7 +94,7 @@ This is a page to share words that speak to me intuitively throughout the day an
 * Construction
 
 ## Million (f) (noun, sustantivo): ##
-* The number equivalent to the product of a thousand and a thousand; 1,000,000 or 106
+* The number equivalent to the product of a thousand and a thousand
 
 ----------
 
