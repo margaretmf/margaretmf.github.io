@@ -89,19 +89,6 @@ I believe in the older generation's ability to learn something new even if they 
 ----------
 
 
-## Questions ##
-* How do people use a Liberal Arts or Humanities degree in the world?
-* How do people engage in interracial relationships and homes?
-* What is democracy?
-* What does it mean to democratize?
-* What is a republic?
-* What does it mean to localize?
-* Do people attend church? What church do they attend? Why do people like the church they attend? What is the theology? How strong is the faith? What leads people to doubt? How do people describe a relationship to God? How do people feel Church and Democracy are related? Do people believe in a higher power?
-
-
-----------
-
-
 # Creative Writing #
 ## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
 
