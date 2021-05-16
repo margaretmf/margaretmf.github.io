@@ -34,3 +34,8 @@
 <img class="profile-picture" src="Black&GreenLines&Shapes.jpeg">
 
 <img class="profile-picture" src="Brown&BlueLines.jpeg">
+
+<img class="profile-picture" src="Blue&Black.jpg">
+
+<img class="profile-picture" src="Red&Yellow.jpg">
+
