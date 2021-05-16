@@ -17,8 +17,6 @@
 
 <img class="profile-picture" src="Green&BlackLines&Arrows.jpeg">
 
-<img class="profile-picture" src="Black&ColoredLines.jpeg">
-
 <img class="profile-picture" src="Red&BlackLines&Shapes.jpeg">
 
 <img class="profile-picture" src="Stoplights.jpg">
