@@ -189,3 +189,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Not or no longer confined or imprisoned
 * Release from captivity, confinement, or slavery
  
+ ## Understand: ##
+* Perceive the intended meaning of (words, a language, or a speaker)
+* Interpret or view (something) in a particular way
+* Be sympathetically or knowledgeably aware of the character or nature of
