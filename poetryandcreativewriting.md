@@ -45,8 +45,8 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
 
 ## Relationship to Art ##
-* Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships. 
-* Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, and The Riverside Group.
+* Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships and literature.
+* Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, The Riverside Group, and Corinne Bailey Rae.
 * Learned about light in the darkness through my own memories of seeing the light in the darkness. 
 * Appreciate the artwork in office spaces. 
 * Work on composing music and playing around. 
@@ -62,7 +62,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (9 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (11 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -82,9 +82,10 @@ I have also found God to be at my right hand in situations, voicing the Truth, a
  
 *Do I still believe this?*
 I do not know, but I love this concept, and I have felt reminded of this intuitively.
+I feel like I have failed morally, but I am still learning and growing deeper and understanding how to rise back up.
 I love learning about interconnectedness, and how we are all connecting each other to a higher sense of life.
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
-Christian Science teaches that "we are all tributary to the same source", but there are distinct differences between everyone in good ways. [2021]
+Christian Science teaches that 'we are all tributary to the same source', but there are distinct differences between everyone in good ways. [2021]
 I believe in the idea of "standing in union with everyone around in society and the world" as best as I can from this time forth
 
 ## What do I believe in? ##
@@ -99,7 +100,156 @@ I believe in the older generation's ability to learn something new even if they 
 ----------
 
 
-# Creative Writing #
+# Creative Writing - Gratitude List #
+## Gratitude List ##
+* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
+* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
+* Grateful for the sound of the laundry machine.
+* Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
+* Grateful for a home someone architected at a schoolhouse on a farm.
+* Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified.
+* Grateful for the voice on the news, representing ethics and good judgment.
+* Grateful or the Soaps and Suds in Norfolk that serves the community
+* Grateful for friends who share news articles and support my spiritual growth
+* Grateful for self-assessment, honesty with myself about self-justification
+* Grateful for Black History month
+* Grateful for the man singing with the Consortium in Memphis
+* Gratitude for Muslim prayers 
+* Gratitude for the world history teacher at Norfolk Academy
+* Grateful for the sound of the dishwasher
+* Grateful for a smile shared with someone in the car next to me
+* Grateful for American flags reflecting through glass doors
+* Grateful for positive memories of my grandmother
+* Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
+* Grateful for Medieval organ music
+* Grateful for global cultures
+* Grateful for sketches
+* Grateful for the workers in the post office
+* Grateful for piano playing
+* Grateful for two women on the street
+* Grateful for a phone call with someone from high school and meeting new friends
+* Grateful to play music on the piano intuitively - I have 3 drafts of songs
+* Grateful for the light in the Christian Science Mother Church
+* Grateful for the first responders
+* Grateful for the man working with the USPS in the postal service
+* Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
+* Grateful for the construction sites
+* Grateful for the men working on the street
+* Grateful for the memories of working as an aide at camp
+* Grateful for all of the ethnicities represented at camp
+* Grateful for the call of the geese in the morning
+* Grateful for the lessons learned in the shower
+* Grateful for the cooks at camp
+* Grateful for the signs on the road
+* Grateful for the construction workers
+* Grateful for my cousins in Suffolk, Whaleyville
+* Grateful to learn about Kentucky, Indiana, and the Rust Belt
+* Grateful for the Spanish language on the Screen in the CVS - "Cambiar El Idioma"
+* Grateful for the man working at CVS and his love for the work
+* Grateful for the African American engineer
+* Grateful for the architecture at The Mother Church
+* Grateful for the man in Memphis who loves Math and Music
+* Grateful for the natural love of the little kids at the Preschoo
+* Grateful for the spontaneous trip to the softball game
+* Grateful for the stoplights
+* Grateful for orange marker balls, they hang from power lines
+* Grateful for advertisements and billboards on highways
+* Grateful for the Post Office
+* Grateful for a society built on notes and letters, and the underground messaging
+* Grateful for the Matthew Code and bringing challenges directly to people
+* Grateful for a conversation with my aunt
+* Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
+* Grateful for positive memories of spending the summers reading in bunk beds with cousins
+* Grateful for the boys playing outside
+* Grateful for the stories of African Americans in Spain
+* Grateful for all the girls at Camp Nakanawa
+* Grateful for the people in the Courthouse
+* Grateful for the advertisement "Can you see me?"
+* Grateful for the walking challenge in the Sun with a friend from UVA
+* Grateful for the imagery of a rose
+* Grateful for all the neighbors outside walking, running, and driving
+* Grateful for the leader of Discipleship Training School who overcame darkness like gun violence with God
+* Grateful for the people with Discipleship Training School who whovercame darkness like porn addiction with God
+* Grateful for the lunch with a man from Africa, digging into his family's ancestory and roots in Cameroon and his shirt on Cameroonian Roots
+* Grateful for memories of the Operation Smile event in Virginia Beach
+* Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
+* Grateful for the construction workers
+* Grateful for the car ride with Nate
+* Grateful for the time with the missionaires
+* Grateful for memories on the airplane with the people from Brazil and Argentina
+* Grateful for the law of abundance
+* Grateful for a new perspective
+* Grateful for the children's books by Jean Craighead George
+* Grateful for memories of Camp Tabor at May Creek with kickball games, softball games, and other games led by two uncles, grateful for the harmony expressed by all 13 cousins
+* Grateful for the leaders of the chorus groups I have been in and the work to blend in and sing different parts, including Alto and Soprano
+* Grateful for the good cheer of a friend I drove around
+* Grateful for memories at camp of the cooks
+* Grateful for memories at camp of running
+* Grateful for the memories of singing Amazing Grace at Camp Nakanawa on Sundays
+* Grateful for memories of Shakespeare plays at Camp Tabor
+* Grateful for memories at the Beach Cottage with the Furr Family and the Talbot family
+* Grateful for my aunt
+* Grateful for the man on the street, Jamal, who blessed with a complement "you have a beautiful soul"
+* Grateful for the man at church who shared his testimony
+* Grateful for the Holy Bible in the hotel room
+* Grateful for the man on the street and his name
+* Grateful for the ways different people on social media share nature and observations
+* Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
+* Grateful for the sign "Today is a nice day"
+* Grateful for the Spanish signs
+* Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
+* Grateful for cheerfulness of the Construction workers
+* Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
+* Grateful for the Spanish music on the radio
+* Grateful for power lines
+* Grateful for the man sitting outside the Post Office
+* Grateful for the man sitting outside his home on runs when in Downtown
+* Grateful for the light in the darkness at the candlelight choral concert
+* Grateful for the woman working at CVS
+* Grateful for the woman working at the coffee shop
+* Grateful for the chiming of the bells outside
+* Grateful for how Taylor Swift expresses emotions, stories, and relationships through song
+* Grateful for the early learning center
+* Grateful for the student studying bilogy
+* Grateful for memories of rappelling with other Christians
+* Grateful for Christian music
+* Grateful for homes aligned in rows next to each other
+* Grateful for the sense of renewal at UVA
+* Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
+* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men
+* Grateful for conversations with him about a key African American leader.
+* Grateful for the friendly policeman this morning
+* Grateful for the dignity of people in the car while driving
+* Grateful for the woman in Rural Virginia who sympathized and empathized
+* Grateful for new insights and fresh thoughts
+* Grateful for the Southern Gospel Music at the church down the street
+* Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
+* Grateful to walk around Norfolk
+* Grateful for the little kids on the playground
+* Grateful for a good conversation at 7-11 with someone
+* Grateful for the ways people give their change to charity
+* Grateful to meet an old friend outside
+* Grateful for the warmth of the Sun
+* Grateful for the Arab world
+* Grateful for the Israel world
+* Grateful for a morning wake-up call with my sister
+* Grateful to learn about posture at camp
+* Grateful for the people I met in 7-11
+* Grateful for the woman working at 7-11
+* Grateful for a positive memory of singing in chorus with Norfolk Academy
+* Grateful for positive memories of studying Wuthering Heights with a teacher at Norfolk Academy
+* Grateful for the conversations at the grocery store
+* Grateful for a healthy Sunday
+* Grateful for the traffic signals
+* Grateful for new insights into Gothic literature and Southern Gothic literature as well as societal standards and self-destructiveness
+* Grateful for a sense of humor that breaks the ice
+* Grateful for people that have come into new life and broken out of the old man
+
+
+----------
+
+
+# Creative Writing - Structured Poetry #
 ## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
 
 'You're a poet, and you know it.
@@ -134,35 +284,33 @@ Forming memories that last day in and day out, and growing in union with one ano
 **Word Associations:** companion, bond, share, kindred, reciprocal, confide, trust, mutual, memories, secrets
 
 ## Love ##
-Love - a sacrifice for a team, a family, a church
-healthy communication filled with joy, honesty, appreciation, openness, and validation
-the trust to be able to pick oneself back up and restore to wholeness, clarity, and even better dynamics falling into an attraction to a common purpose, a common rhythm, a common heart
-a kiss of a heart-to-heart connection echoing and resounding throughout the universe that rings like church bells forever and ever
-a compromise to put a stop to the envy
-romantic fun and sense of humor
+Love - a sacrifice for a team, a family, a church.
+Healthy communication filled with joy, honesty, appreciation, openness, and validation.
+The trust to be able to pick oneself back up and restore to wholeness, clarity, and even better dynamics falling into an attraction to a common purpose, a common rhythm, a common heart.
+A kiss of a heart-to-heart connection echoing and resounding throughout the universe that rings like church bells forever and ever.
+A compromise to put a stop to the envy.
+Romantic fun and sense of humor.
 
 <br>
 
 **Word Associations:** kiss, sacrifice, romance, partner, trust, attraction, falling, communication, envy, compromise
 
 ## Quest ##
-On a quest to discover the rhyme and reason to the universe,
-the purpose to life on an adventure to discover endless possibilities,
-and the road to a deepening, enlivening sense of life and love
-in a story to appreciate the true vision, the heroism, and the exciting goal for the future of youth
-
-<br>
+On a quest to discover the rhyme and reason to the universe.
+On an adventurous search to understand the purpose to life and the endless possibilities.
+On the road to a deepening, enlivening sense of life and love.
+In a story to appreciate the true vision, the heroism, and the exciting goal for the future of youth.
 
 <br>
 
 **Word Associations:** goal, future, adveneture, possibility, road, vision, purpose, obstacle, story, hero
 
 ## Secrets ##
-Hidden lusts, and affections
-Latent talents, and memories
-Covered traumas, and painpoints and nightmares
-These lies and trusts within are there to be uncovered, and discovered, revealed, and unfolded
-In the mystery, all the secrets become vanished into a mortal dream of nothingness with nothing more to guard or protect but a true sense of Love and Truth
+Hidden lusts, and affections.
+Latent talents, and memories.
+Covered traumas, and painpoints and nightmares.
+These lies and trusts within are there to be uncovered, and discovered, revealed, and unfolded.
+In the mystery, all the secrets become vanished into a mortal dream of nothingness with nothing more to guard or protect but a true sense of Love and Truth.
 
 <br>
 
@@ -181,7 +329,7 @@ Different conduits for voices and paper to share these secrets.
 ## Lie ##
 Subliminal messages, and an image-saturated world.
 Detecting the sneaky, snakey deceiving suggestions that speak to us when half asleep.
-The falsehood, the fake bubbles up louder and louder ntil it finds the truth, and the arrogance of the mask of slights, doubts, attachments, and error using the tongue.
+The falsehood, the fake bubbles up louder and louder until it finds the truth, and the arrogance of the mask of slights, doubts, attachments, and error using the tongue.
 Detect the sneakiness, remove it, and the Truth can find its proper place.
 
 <br>
@@ -207,7 +355,7 @@ The clouds.
 They sit like a blanket covering the sky, and looking like puff, they sit in the sky for a divinely childlike adventure.
 The clouds.
 They hold the water and the mist.
-And when there is a lot of water, they become thunderheads.
+When there is a lot of water, they become thunderheads.
 The clouds.
 They are so beautiful in the sky.
 People imagine different things about them and how they support our ecosystem.
@@ -340,7 +488,7 @@ Illness is a great malady.
 There is breakdown, affliction, ailing, disability, relapse.
 Illness is emotional wailing, cellular destruction, tears, pain.
 It leads people to want to die.
-But recovery is normal, a desire to sing is normal.
+Recovery is normal, a desire to sing is normal.
 Illness leads to perfect health, recovery.
 
 <br>
@@ -360,9 +508,9 @@ Smiling through all the Earth, our mankind is beautiful, whole, integrated.
 ## Music ##
 Life is a symphony.
 The breeze moves the trees, and cars move around on the highway in a beautifully orchestrated way.
-There is constant rhythm when we tune into the underlying reality and let ourselves be instrument of good cheer.
+There is constant rhythm when we tune into the underlying reality and let ourselves be instruments of good cheer.
 There is constant melody in the interconnectedness of Life.
-Our experience is a living hymn.
+Our experiences are living hymns.
 
 <br>
 
@@ -413,7 +561,7 @@ Parents, the guardians and educators of youth.
 They bring mankind up to know what is right spiritually and morally.
 Childhood is protected by nurturing motherhood and protective fatherhood.
 Parents teach what is right, or real, from wrong or unreal.
-God, good, is the parent mind for everyone.
+God, the awareness of goodness all around, is the parent mind for everyone.
 
 <br>
 
@@ -465,7 +613,7 @@ The clock never stops. It continues to circle around for eternity, with the same
 An era of sunlight unfolds, and the night is taken back so that the clock runs towards the right side of history.
 Tick-tock it goes for infinite time.
 For infinite time, the truth for why mankind exists will march onward.
-And moment by moment, we choose to stand in that goodness.
+Moment by moment, we choose to stand in that goodness.
 
 <br>
 
@@ -484,11 +632,11 @@ The cycle of light continues through history forever.
 
 ## The Future ##
 No one knows what the future will bring.
-We put our hope in the prospects of a better day tomorrow.
-We carry the weight of concerns over imminent threats to our being next week.
-We trust that there are opportunities for new modes of life in a year.
-Prophesying for good, not for evil, shall be our goal in the uncertainty and questioned destiny.
-Our fate is good, and the cycle of light continues forever out of the darkness.
+Putting hope in the prospects of a better day tomorrow rests thought in the right place.
+Carrying the weight of concerns over imminent threats to our being next week brings heaviness.
+Trusting that there are opportunities for new modes of life in a year brings a reason to keep going.
+Prophesying for good, not for evil, shall be the goal in the uncertainty and questioned destiny.
+The fate is good, and the cycle of light continues forever out of the darkness.
 
 <br>
 
@@ -505,18 +653,19 @@ He was a hero, a leader, though he was flawed, and he set the foundation for the
 **Word Associations:** president, activist, revolutionary, captain, author, conqueror, hero, leader
 
 ## Responsbility ##
-Humbling yourself to take responsibility for the wrongs done.
-Letting God carry our burdens, our cross.
+Humbling myself to take responsibility for the wrongs done.
+Letting God carry my burdens, my cross.
 There is an obligation, a charge to be moral, to be pure, to be just, to respect boundaries.
 God's leadership, God's voice is active today to set all in motion, upright, free, joyful, and light.
-There is a constant safeguard around us, keeping us safe.
+There is a constant safeguard around me, keeping me safe.
 
 <br>
 
 **Word Associations:** cross, burden, leadership, obligation, safeguard, onus, charge, bond
 
 ## Truth ##
-Waking up to the Truth of being, the Reality underlying our lives, the fact that goodness reigns, the genuity within every heart.
+Waking up to the Truth of being, the Reality underlying my life, and our lives.
+Realizing the fact that goodness reigns and tuning into the genuity within every heart.
 Being honest with oneself, being authentic within, and waking up to the purity that is within the Christ.
 
 <br>
@@ -626,8 +775,7 @@ The peaks of green, blue in summer - orange, red, yellow in fall -
 White in winter, pink in spring, touching the horizion.
 It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird.
 The ascent is freeing, and walking down the slope is humbling.
-Mountains cover the Earth, and as love smiles within through the mountains with
-humanity emnbracing it, all the Earth sings as one.
+Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one.
 
 <br>
 
@@ -636,7 +784,7 @@ humanity emnbracing it, all the Earth sings as one.
 ## Stranger ##
 Someone new on the street who I have never met.
 A visitor on Earth who looks familiar, yet so different, like a stranger.
-A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in in disguise, the strangeness of humanity.
+A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity.
 Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation.
 There's no stranger to God.
 
@@ -657,12 +805,12 @@ Say no to the enemy, and say yes to Love.
 **Word Associations:** combat, hostility, strife, bloodshed, allies, enemy, army, conflict
 
 ## Cowardice ##
-Not being able to own up to mistakes
-Too weak to own up to iniquity
-A fraud to accept rebukes, admonishment
-Too wimpy, pathetic to accept the penalty, the repercussion
-Spineless morally, unable to speak up, or accept what's going on
-A deserter of what's right,
+Not being able to own up to mistakes.
+Too weak to own up to iniquity.
+A fraud to accept rebukes, admonishment.
+Too wimpy, pathetic to accept the penalty, the repercussion.
+Spineless morally, unable to speak up, or accept what's going on.
+A deserter of what's right,.
 Leaving others in harm's way, and not able to accept the criminal recount.
 
 <br>
@@ -670,9 +818,8 @@ Leaving others in harm's way, and not able to accept the criminal recount.
 **Word Associations:** spineless, weak, timid, afraid, abject, pathetic, wimp, deserter
 
 ## Brotherhood ##
-Brotherhood expressed through playing sports with neighbors, 
-going on walks in the neighborhood, helping out a friend
-Loyal, steadfast, and true for life brothers
+Brotherhood expressed through playing sports with neighbors, going on walks in the neighborhood, and helping out a friend.
+Loyal, steadfast, and true for life brothers.
 Standing in unity and solidarity.
 
 <br>
@@ -682,8 +829,7 @@ Standing in unity and solidarity.
 ## A Work of Art ##
 The Earth we live on is a work of art.
 There is divine interconnectedness expressed all around through people's actions.
-The light of the sun shines on every one slightly differently,
-from a different perspective through the landscape.
+The light of the sun shines on every one slightly differently, from a different perspective through the landscape.
 The colors, the hues are beautiful brushstrokes revealing the prism of light.
 Thank you for this beautiful craft that all of humanity can cherish and love.
 
@@ -717,7 +863,7 @@ The lunar eclipse shines also.
 The Sun is always there.
 Never will there be a day when mankind questions whether the sun is there.
 Sometimes the clouds obstruct the light shining from the sun in its full effulgence, radiance.
-But always the sun is golden, bringing its heart to the people, humanity.
+Always the sun is golden, bringing its heart to the people, humanity.
 All of our hearts, and minds, like the sun can come to full effulgence, beyond the shadow of human existence and reign and every day.
 
 <br>
@@ -725,11 +871,11 @@ All of our hearts, and minds, like the sun can come to full effulgence, beyond t
 **Word Associations:** golden, effulgence, solstice, radiance, heat, dappled, shadow, zenith
 
 # Imperfection ##
-I am not perfect,
-I fall short,
-I have blemishes,
-I have made mistakes
-but I do not let this mar me from what perfection and good nature there is to lean on!
+I am not perfect.
+I fall short.
+I have blemishes.
+I have made mistakes.
+I do not let this mar me from what perfection and good nature there is to lean on!
 Foibles can't stop me from continuing to live, love.
 Divine Love is omnipresent, there to wake up everyone and open up every one to his whole, limitless mind with faculites in tact.
 
@@ -762,8 +908,7 @@ A new paragon exists for God to reign supremely.
 ## A Window ## 
 A window lets in the light.
 It opens people to a beautiful view.
-The light shines in various ways through the glass, 
-sometimes dim, sometimes really light.
+The light shines in various ways through the glass, sometimes dim, sometimes really light.
 Curtains and shutters protect people's privacy, and shut out the light when it's too light.
 
 <br>
@@ -2252,7 +2397,7 @@ modernity created
 
 <br>
 
-Word Associations: maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
+**Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
 
 ## Voice ##
 Use your voice,
@@ -2267,7 +2412,7 @@ get things off your chest
 
 <br>
 
-Word Associations: mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
+**Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
 
 ## Water ##
 The deep, clear water thatn runneth through the earth and separates the country
@@ -2277,7 +2422,7 @@ THe sky soaks it up, it changes elements, becomes vapor, and is a flood
 
 <br>
 
-Word Associations: vapor, ocean, sky, life, cycle, shallow, sprinkle, flow, element, flood
+**Word Associations:** vapor, ocean, sky, life, cycle, shallow, sprinkle, flow, element, flood
 
 ## Reliable ##
 Being consistently on time, ready to go, ready to help
@@ -2288,14 +2433,17 @@ Always there, ready to go, reliable
 
 <br>
 
-Word Associations: quality, stability, bias, error, prediction, test, guarantee, safety, foundation, sense
+**Word Associations:** quality, stability, bias, error, prediction, test, guarantee, safety, foundation, sense
 
 ## Letter ##
-Remembering all of the letters friends and fmily members sent at camp.
+Remembering all of the letters friends and family members sent at camp.
 What a joy to write with pen on a card and put the card in an envelope, and lick the envolope and stamp it.
 Writing slows thought down.
 What a joy to receive a card in the mailbox from someone.
 
+<br>
+
+**Word Associations:** letter, memories, pen, card, envelope, send, stamp, write, reception, mail
 
 ## Chore ##
 The grace expressed in doing chores, stackig clothes, cleaning dishes, running the laundry machine.
@@ -2305,7 +2453,7 @@ Not a robot but like Cinderella singing and not neglecting a single detail.
 
 <br>
 
-Word Associations: errand, sing, novice, fix, childhood, task, routine, Cinderella, neglect, robot
+**Word Associations:** errand, sing, novice, fix, childhood, task, routine, Cinderella, neglect, robot
 
 ## Style ##
 She's a woman with style, grace, and flair.
@@ -2316,7 +2464,7 @@ Everything on display fits her and every sign supports her decoration.
 
 <br>
 
-Word Associations: flair, grace, fashion, figure, display, ornament, sign, dress, royalty, decorate
+**Word Associations:** flair, grace, fashion, figure, display, ornament, sign, dress, royalty, decorate
 
 ## Face ##
 The face fo God reflected through all the face of humanity, smiling, and laughing, or sometimes crying.
@@ -2327,7 +2475,7 @@ The head is Life.
 
 <br>
 
-Word Associations: beard, mask, expression, head, image, reputation, surface, makeup, confront, mirror
+**Word Associations:** beard, mask, expression, head, image, reputation, surface, makeup, confront, mirror
 
 ## Swallow ##
 The truth is hard to swallow.
@@ -2342,13 +2490,15 @@ Everything will pass.
 
 <br>
 
-Word Associations: poison, flight, draught, serpent, pride, potion, reflex, patient, pop, grimace
+**Word Associations:** poison, flight, draught, serpent, pride, potion, reflex, patient, pop, grimace
 
 ## A Seed in the Ground ##
 There's a seed in the ground, buried.
 It contains the treasures of ancestors, our family's past.
-It grows and grows through the ground to wake the heart up, and
-acuse it to live and flourish.
+It grows and grows through the ground to wake the heart up, and support a true becoming.
+With the nourishment of water, it becomes something lives and flourishes with wider roots.
+
+**Word Associations:** seed, buried, growth, ground, heart, life, flourish, nourish, water, become
 
 ## Destiny ##
 The epic course for life that God designed.
@@ -2357,7 +2507,7 @@ It's epic that an omniscient source of inteligence guides, and shapes the paths 
 
 <br>
 
-Word Associations: fate, manifest, birth, epic, course, prophecy, shape, guide, tragic, seed
+**Word Associations:** fate, manifest, birth, epic, course, prophecy, shape, guide, tragic, seed
 
 ## Letter ##
 Your song is a secret letter speaking to the deepest darkness and lightest light of my heart
@@ -2367,7 +2517,7 @@ by law you help me, your will is good, it almost feels like it comes straight ou
 
 <br>
 
-Word Associations: missive, diary, pen, will, intent, law, note, forge, figure, envelope
+**Word Associations:** missive, diary, pen, will, intent, law, note, forge, figure, envelope
 
 ## Mystery ##
 In the mystery of it all, unexpected wonders come out of left field.
@@ -2379,7 +2529,7 @@ No question about it, in God's mysterious workings and intuitions, he connects o
 
 <br>
 
-Word Associations: surprise, unexpected, curiosity, wonder, clue, suspect, question, riddle, darkness, secret
+**Word Associations:** surprise, unexpected, curiosity, wonder, clue, suspect, question, riddle, darkness, secret
 
 ## Men ##
 Men, the best people in the world.
@@ -2392,7 +2542,7 @@ They are the king of all kigns, with the glory of true fatherhood, sonship, and 
 
 <br>
 
-Word Associations: power, father, husband, brother, son, alpha, defense, war, provision, king
+**Word Associations:** power, father, husband, brother, son, alpha, defense, war, provision, king
 
 ## Distance ##
 Finding the space to think things through, understand, and process emotions
@@ -2404,7 +2554,7 @@ Standing at the line of coldness and lack of sympathy of others hearing the true
 
 <br>
 
-Word Associations: space, point, measure, difference, line, void,t ravel, eomtion, pace, cold
+**Word Associations:** space, point, measure, difference, line, void,t ravel, eomtion, pace, cold
 
 ## Forbidden ##
 The forbidden forest
@@ -2419,7 +2569,7 @@ It's shaky, that's why a rule through religion keeps the fruit contained and unt
 
 <br>
 
-Word Associations: fruit, taboo, danger, ban, rule, sin, untouchable, snake, religion, zone
+**Word Associations:** fruit, taboo, danger, ban, rule, sin, untouchable, snake, religion, zone
 
 ## Fight ##
 It's really a fight, within and without
@@ -2432,7 +2582,7 @@ Finding allies to help win and overcome the numbered enemy's voices
 
 <br>
 
-Word Associations: duel, enemy, odds, rebel, ally, blood, win, surrender, number, power
+**Word Associations:** duel, enemy, odds, rebel, ally, blood, win, surrender, number, power
 
 ## Holy ##
 The holy ground
@@ -2447,7 +2597,7 @@ the true religion
 
 <br>
 
-Word Associations: divine, religion, spirit, bless, book, prophet, soul, vow, sin, angel
+**Word Associations:** divine, religion, spirit, bless, book, prophet, soul, vow, sin, angel
 
 ## Music ##
 The metaphor of music in life has lied, echoed, and resounded since the beginning of time.
@@ -2458,7 +2608,7 @@ Some words become a lyric in line with the rest of the band.
 
 <br>
 
-Word Associations: lyric, funk, rap, melody, harmony, chord, note, line, lute, band
+**Word Associations:** lyric, funk, rap, melody, harmony, chord, note, line, lute, band
 
 ## Cycle ##
 A new cycle of life beginning.
@@ -2472,7 +2622,7 @@ The dropping of old past, old baggage.
  
  <br>
  
- Word Associations: water, rotation, bike, life, vertex, carbon, music, circle, routine, sequence
+ **Word Associations:** water, rotation, bike, life, vertex, carbon, music, circle, routine, sequence
  
 ## Stranger ##
 Someone on the outside, living in the shadows of life's existence.
@@ -2481,7 +2631,7 @@ She's foreign, she's different, she's unfamiliar, yet she ha something new to of
 
 <br>
 
-Word Associations: lonely, outsider, shadow, unknown, darkness, mystery, new, foreign, different, unfamiliar
+**Word Associations:** lonely, outsider, shadow, unknown, darkness, mystery, new, foreign, different, unfamiliar
 
 ## Money ##
 Every day, people exchange money for goods.
@@ -2491,7 +2641,7 @@ It's a luxury to make these exchanges everyday.
 
 <br>
 
-Word Associations: luxury, value, purse, price, greed, steal, operation, exchange, attraction, bank
+**Word Associations:** luxury, value, purse, price, greed, steal, operation, exchange, attraction, bank
 
 ## Undergound ##
 Deep undergound, where the soul goes to find respite
@@ -2501,7 +2651,7 @@ I can be a fugitive from this hostile earth's existence and live in the subway t
 
 <br>
 
-Word Associations: mine, treasure, coffin, tunnel, subway, well, crypt, chamber, magma, fugitive
+**Word Associations:** mine, treasure, coffin, tunnel, subway, well, crypt, chamber, magma, fugitive
 
 ## Betrayal ##
 Failing to stay loyal to people
@@ -2513,7 +2663,7 @@ Alliances to help community, someone like Judas, a traitor
 
 <br>
 
-Word Associations: enemy, turst, spy, manipulation, traitor, vengeance, Judas, stab, alliance, loyalty
+**Word Associations:** enemy, turst, spy, manipulation, traitor, vengeance, Judas, stab, alliance, loyalty
 
 ## Education ##
 Life is continuous education
@@ -2524,7 +2674,7 @@ A larger instituion of improving, and giving
 
 <br>
 
-Word Associations: trian, skill, judgment, class, refine, bachelor, test, institution, program, segregate
+**Word Associations:** trian, skill, judgment, class, refine, bachelor, test, institution, program, segregate
 
 ## Stolen ##
 A gem of great price within that feels stolen, trampled upon, violated
@@ -2535,7 +2685,7 @@ The good in human character villainized
 
 <br>
 
-Word Associations: dreams, crook, gem, villian, price, ranson, lurk, thunder, land, guard
+**Word Associations:** dreams, crook, gem, villian, price, ranson, lurk, thunder, land, guard
 
 ## Charge ##
 Taking charge of what needs to be accomplished
@@ -2544,7 +2694,7 @@ In the moment of guilt-riddenness, fine, thoughts of peace explode and come to t
 
 <br>
 
-Word Associations: horse, bill, electric, murder, spy, guilt, fine, conspire, plea, explode
+**Word Associations:** horse, bill, electric, murder, spy, guilt, fine, conspire, plea, explode
 
 ## Bloom ## 
 My heart longs to hide in the deepness of the dirt where the seedling is buried and the roots spread throughout
@@ -2555,7 +2705,7 @@ everything else is plucked out and flows out like honey
 
 <br>
 
-Word Associations: flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
+**Word Associations:** flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
 
 ## Color ##
 All of the colors of the rainbow reflected thorugh everything in our world
@@ -2574,7 +2724,7 @@ we are all part of this great photo
 
 <br>
 
-Word Associations: shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
+**Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
 ## Details ##
 The devil is in the details
@@ -2587,7 +2737,7 @@ They matter to the diary, the biography, the whole travel
 
 <br>
 
-Word Associations: small, diary, biography, outline, whole, fact, specific, mundane, travel, personal
+**Word Associations:** small, diary, biography, outline, whole, fact, specific, mundane, travel, personal
 
 ## Culture ##
 Ways of living and behaving that belong to a group people share these ways through assimilation
@@ -2598,7 +2748,7 @@ Art is an expression
 
 <br>
 
-Word Associations: art, map, bacteria, build, assimilate, civilization, lifestyle, stereotype, value, character
+**Word Associations:** art, map, bacteria, build, assimilate, civilization, lifestyle, stereotype, value, character
 
 ## Comedy ##
 The breakdown, the reaction is so ridiculous, it's like slapstick comedy, giving people a reason to laugh
@@ -2609,7 +2759,7 @@ A direct sketch of everything comical in every day life
 
 <br>
 
-Word Associations: sketch, showtime, direct, laugh, satire, gag, tragic, art, drama, stage
+**Word Associations:** sketch, showtime, direct, laugh, satire, gag, tragic, art, drama, stage
 
 ## Symbol ##
 A representation for something to be known, and understood
@@ -2619,7 +2769,7 @@ A code expressing metaphors, and constellations
 
 <br>
 
-Word Associations: tattoo, sign, code, talisman, metaphor, constellation, mascot, meaning, representation, importance
+**Word Associations:** tattoo, sign, code, talisman, metaphor, constellation, mascot, meaning, representation, importance
 
 ## Mutation ##
 A change in the code to life,
@@ -2633,7 +2783,7 @@ a random event that leads to a structural cleavage
 
 <br>
 
-Word Associations: change, inherit, trigger, code, offspring, monster, experiment, cleave, random, breed
+**Word Associations:** change, inherit, trigger, code, offspring, monster, experiment, cleave, random, breed
 
 ## Fire ##
 The fire within that lights someone up.
@@ -2646,7 +2796,7 @@ The red drag of reactions and lashing out and hurting people.
 
 <br>
 
-Word Assocations: heat, flame, camp, explode, bomb, kindle, Hell, passion, dragon, cook
+**Word Assocations:** heat, flame, camp, explode, bomb, kindle, Hell, passion, dragon, cook
 
 ## Story ##
 Every one has a story of faith transforming them.
@@ -2656,7 +2806,7 @@ Incorporating the sides of African Americans into the publishing of stories and 
 
 <br>
 
-Word Associations: lie, plot, epic, myth, beat, edit, entertain, account, publish, picture
+**Word Associations:** lie, plot, epic, myth, beat, edit, entertain, account, publish, picture
 
 ## Peace ##
 The kingdom of heaven within, 
@@ -2670,7 +2820,7 @@ the pact to stop throwing a fight.
 
 <br>
 
-Word Associations: award, relation, civil, envoy, olive, quiet, pact, garden, offering, go
+**Word Associations:** award, relation, civil, envoy, olive, quiet, pact, garden, offering, go
 
 ## Silence ##
 The silent truth echoes down the ages from heart to heart,
@@ -2684,7 +2834,7 @@ It has great command over the serpent, and is able to tread on them.
 
 <br>
 
-Word Associations: sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
+**Word Associations:** sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
 
 ## Women ##
 Gentle beams of living love
@@ -2696,7 +2846,7 @@ People who can help the women nearby adjust their crowns with a rejoicing heart
 
 <br>
 
-Word Associations: life, protection, attraction, sense, nature, sister, mother, wife, queen, anchor
+**Word Associations:** life, protection, attraction, sense, nature, sister, mother, wife, queen, anchor
 
 ## Temptation ##
 The lure to engage in something that's not right for oneself, that's wrong
@@ -2708,7 +2858,7 @@ The voice of the devil belitting, patronizing, defining someone as less than pur
 
 <br>
 
-Word Associations: devil, lure, wild, shame, sin, resist, snake, craving, struggle, desire
+**Word Associations:** devil, lure, wild, shame, sin, resist, snake, craving, struggle, desire
 
 ## Monster ##
 The monstrous ego that wants to promote itself, compare itself to others, boast, speak only about itself
@@ -2720,7 +2870,7 @@ The feeling of being hit by truck with hate, and foolishness, and teasing, and r
 
 <br>
 
-Word Associations: terror, beast, myth, labyrinth, creature, truck, unleaed, closet, hunt, supernatural
+**Word Associations:** terror, beast, myth, labyrinth, creature, truck, unleaed, closet, hunt, supernatural
 
 ## Identity ##
 Identity - what gives one meaning, and a purpose
@@ -2734,7 +2884,7 @@ Beliefs cover up the appearance, and personality comes as a disguise
 
 <br>
 
-Word Associations: theft, mask, appearance, disguise, authentic, self, meaning, person, privacy, proof
+**Word Associations:** theft, mask, appearance, disguise, authentic, self, meaning, person, privacy, proof
 
 ## Boundary ##
 A limit within oneself for what is acceptable in relations with others.
@@ -2746,7 +2896,7 @@ The line that shuts out the outlwas from those that belong in the territory.
 
 <br>
 
-Word Associations: edge, coastline, frontier, territory, fault, limit, outlaw, cross, map, citizen
+**Word Associations:** edge, coastline, frontier, territory, fault, limit, outlaw, cross, map, citizen
 
 ## Honor ##
 The loss of honor, the loss of the pledge to mankind and society,
@@ -2758,7 +2908,7 @@ The loss of the king within, the armor of good.
 
 <br>
 
-Word Associations: war, ceremony, legacy, dignity, state, pledge, king, armor, value, trust
+**Word Associations:** war, ceremony, legacy, dignity, state, pledge, king, armor, value, trust
 
 ## Bottom ##
 It got to the bottom of it,
@@ -2773,7 +2923,7 @@ the part of humanity that leads to immaturity and immorality, and a sinking ship
 
 <br>
 
-Word Associations: hole, layer, sense, fall, sink, cargo, low, despair, plug, decompose
+**Word Associations:** hole, layer, sense, fall, sink, cargo, low, despair, plug, decompose
 
 ## Dreams ##
 Dreams of the pain, 
@@ -2787,7 +2937,7 @@ the victory is hard to attain.
 
 <br>
 
-Word Associations: shadows, goals, memories, nightmares, night, hopes, anxiety, fears, terror, victory
+**Word Associations:** shadows, goals, memories, nightmares, night, hopes, anxiety, fears, terror, victory
 
 ## Crisis ##
 Crisis of one's worth, one does not believe in oneself, one does not trust in oneself, others do not believe or trust.
@@ -2798,7 +2948,7 @@ One is changing and falling out and impacted by the social norms that peope dict
 
 <br>
 
-Word Associations: collapse, resolve, turn, change, hostage, bankrupt, danger, crucial, ultimatum, nuclear
+**Word Associations:** collapse, resolve, turn, change, hostage, bankrupt, danger, crucial, ultimatum, nuclear
 
 ## Folk ##
 Good folk live all around us.
@@ -2809,7 +2959,7 @@ The love of ordinary moments in the spirit, feeling the culture expressed.
 
 <br>
 
-Word Associations: common, culture, tradition, history, lore, tale, influence, ordinary, custom, spirit
+**Word Associations:** common, culture, tradition, history, lore, tale, influence, ordinary, custom, spirit
 
 ## Courage ##
 The courage to take another step after falling.
@@ -2821,7 +2971,7 @@ The heroism to overcome cowardly ways.
 
 <br>
 
-Word Associatiosn: hero, virtue, muster, coward, display, fail, spirit, danger, fear, war
+**Word Associatiosn:** hero, virtue, muster, coward, display, fail, spirit, danger, fear, war
 
 ## Art ##
 Art, a mirror to hold up to people to show them the dark corners of thought no one wants to be exposed, yet waiting to be exposed.
@@ -2832,7 +2982,7 @@ It's abstract in its forms, its a creation that can lead to a revolution, or a 1
 
 <br>
 
-Word Associations: design, pattern, color, achieve, civilization, perspective, abstract, creation, form, revolution
+**Word Associations:** design, pattern, color, achieve, civilization, perspective, abstract, creation, form, revolution
 
 ## Movement ##
 A step taken closer to the Truth that operates through a dance, both collective and individual through the universe that changes and moves forward, only through the lens of the illusioins of change
@@ -2842,7 +2992,7 @@ The graceful shifting of perception from wrong to right
 
 <br>
 
-Word Associations: motion, revolution, resistance, forward, progress, grace, dance, trend, change, illusion
+**Word Associations:** motion, revolution, resistance, forward, progress, grace, dance, trend, change, illusion
 
 ## Ladder ##
 The beauty of the carpenter climbing up the ladder and standing on top of the roof.
@@ -2852,7 +3002,7 @@ Metaphysically climbing the stairs of being.
 
 <br>
 
-Word Associations: stair, ascend, snake, passage, top, capture, rung, scale, damsel, goal
+**Word Associations:** stair, ascend, snake, passage, top, capture, rung, scale, damsel, goal
 
 ## News ##
 The good news is that you are free, you can choose to express joy today, and you can fly like a bird.
@@ -2860,7 +3010,7 @@ The fake story, the one to ignore is such a teaser, leaked online in sketchy doc
 
 <br>
 
-Word Associations: document, wire, anchor, air, leak, alert, hack, network, fake, story
+**Word Associations:** document, wire, anchor, air, leak, alert, hack, network, fake, story
 
 ## Nostalgia ##
 A sense of childlike innocence, of home, a childhood memory that remains pure and unexlored.
@@ -2870,13 +3020,17 @@ A vintage piece of something that losts throughout time.
 
 <br>
 
-Word Associations: innocence, home, childhood, memory, lost, sense, longing, vintage, haunt, time
+**Word Associations:** innocence, home, childhood, memory, lost, sense, longing, vintage, haunt, time
 
 ## Coming Full Circle ##
 It all began like this.
 It's coming back home to restore not break.
 It's reminding you where you came from, not where you are going.
 It's showing you who you can become.
+
+<br>
+
+**Word Associations:** none
 
 ## Home ##
 A place deep within, deep within the family tree more broadly that shares the love of things that bring joy to everyone and all mankind,
@@ -2885,7 +3039,7 @@ the memories of past ancestors and common roots that help us grow past the loss 
 
 <br>
 
-Word Associations: family, roots, love, ancestor, safety, memory, growth, loss, damage, past
+**Word Associations:** family, roots, love, ancestor, safety, memory, growth, loss, damage, past
 
 ## Noise ##
 The noise vs. the sound.
@@ -2903,7 +3057,7 @@ With observation, the noise can become sound.
 
 <br>
 
-Word Associations: roar, sound, click, rumor, commotion, complaint, music, crash, filter, drown
+**Word Associations:** roar, sound, click, rumor, commotion, complaint, music, crash, filter, drown
 
 ## Light ##
 The light in the darkness heals everything.
@@ -2917,7 +3071,7 @@ The inner truth voicing good in one's heart.
 
 <br>
 
-Word Associations: spirit, intelligence, fire, star, sun, window, dark, extinguish, shadow, heart
+**Word Associations:** spirit, intelligence, fire, star, sun, window, dark, extinguish, shadow, heart
 
 ## Challenge ##
 A challenge, an obstacle to overcome, something to create a soltuion for so that people can become better.
@@ -2925,7 +3079,7 @@ The success that comes from beating down the odds, the opposition, the face of a
 
 <br>
 
-Word Associations: duel,d are, wrestle, possession, champion, success, opposition, monopoly, ballot, face
+**Word Associations:** duel,d are, wrestle, possession, champion, success, opposition, monopoly, ballot, face
 
 ## Go ##
 Go forth as if all of the past can be left behind.
@@ -2935,7 +3089,7 @@ Go, march, proceed.
 
 <br>
 
-Word Association: errand, wilt, bathroom, fare, nowhere, move, beyond, stall, travel, leave
+**Word Association:** errand, wilt, bathroom, fare, nowhere, move, beyond, stall, travel, leave
 
 ## Future ##
 The opportunity that exists tomorrow provides reason to live today.
@@ -2945,7 +3099,7 @@ Endless promises and possibilities for those who lean on God and are able to ima
 
 <br> 
 
-Word Associations: legacy, questions, uncertainty, hope, fear, promise, possibility, prediction, bleak, imagination
+**Word Associations:** legacy, questions, uncertainty, hope, fear, promise, possibility, prediction, bleak, imagination
 
 ## Discipline ##
 The discipline within to stay silent, quiet, and in meditation with the Lord.
@@ -2957,7 +3111,7 @@ The force for good that works intuitively.
 
 <br>
 
-Word Associations: control, force, system, submission, authority, train, drill, strucutre, skill, prison
+**Word Associations:** control, force, system, submission, authority, train, drill, strucutre, skill, prison
 
 ## Veil ##
 The true light within someone or a situation unveiled, unhidden.
@@ -2967,7 +3121,7 @@ The curtain opening to show what's shielded.
 
 <br>
 
-Word Associations: shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
+**Word Associations:** shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
 
 ## Time ##
 Past, present, future weaving together.
@@ -2977,7 +3131,7 @@ Time flowing forever through the river and cycling throughout with growth, decay
 
 <br>
 
-Word Associations: past, present, future, watch, flow, forever, cycle, growth, decay, legacy
+**Word Associations:** past, present, future, watch, flow, forever, cycle, growth, decay, legacy
 
 ## Perfection ##
 The state of excellence, refinement.
@@ -2992,7 +3146,7 @@ The desire to make the right decisions to overcome flaws.
 
 <br>
 
-Word Associations: high, excellence, quality, harmony, transcend, spiritual, utopia, infinite, flaw, quest
+**Word Associations:** high, excellence, quality, harmony, transcend, spiritual, utopia, infinite, flaw, quest
 
 ## Evolution ##
 The evolution of thinking.
@@ -3003,7 +3157,7 @@ The renewal of a population.
 
 <br>
 
-Word Associations: process, human, gene, diversity, extinction, origin, order, body, population, ape
+**Word Associations:** process, human, gene, diversity, extinction, origin, order, body, population, ape
 
 ## Punish ##
 Anger, guilt, loss, deprivation, a negative conscience, the worst punishment.
@@ -3012,7 +3166,7 @@ Punishment is the way to seek justifce for an offence, correct behavior, and dic
 
 <br>
 
-Word Associations: crime, justice, offense, anger, rebel, conduct, harm, innocent, dictator, defy
+**Word Associations:** crime, justice, offense, anger, rebel, conduct, harm, innocent, dictator, defy
 
 ## Maturity ##
 The ripening of potential.
@@ -3022,7 +3176,7 @@ The life within that is whole, and spanning across the world.
 
 <br>
 
-Word Associations: life, adulthood, seed, potential, ripe, ahrvest, age, span, account, mind
+**Word Associations:** life, adulthood, seed, potential, ripe, ahrvest, age, span, account, mind
 
 ## Faith ##
 The belief in something outside of oneself or within oneself motivating someone to live another day.
@@ -3032,7 +3186,7 @@ The love of God, and letting go of sin that supports waking up, and walking forw
 
 <br>
 
-Word Associations: question, sin, God, belief, truth, miracle, religion, doubt, trust, leap
+**Word Associations:** question, sin, God, belief, truth, miracle, religion, doubt, trust, leap
 
 ## Space ##
 The flight to outer space.
@@ -3041,7 +3195,7 @@ The journey to the infinite vastne
 
 <br>
 
-Word Associations: time, sphere, star, air, void, infinite, empty, open, curtain, gravity
+**Word Associations:** time, sphere, star, air, void, infinite, empty, open, curtain, gravity
 
 ## Touch ##
 The touch of a stranger who turns a life around in a different direction.
@@ -3051,7 +3205,7 @@ The power within to transform and be effected by heartfelt notions.
 
 <br>
 
-Word Associations: feel, glove, bare, sense, contact, distrub, land, effect, power, manipulate
+**Word Associations:** feel, glove, bare, sense, contact, distrub, land, effect, power, manipulate
 
 ## Lines ##
 The lines on the road that guard, draw boundaries, and protect.
@@ -3064,7 +3218,7 @@ The lines and shapes draw a dimension around a geography of movement for people.
 
 <br>
 
-Word Associations: mark, continue, dimension, commute, figure, geography, rope, communication, border, ancestor
+**Word Associations:** mark, continue, dimension, commute, figure, geography, rope, communication, border, ancestor
 
 ## Connection ##
 A connection through the spirit, through God that supports the divine interconnectedness, the whole family.
@@ -3075,7 +3229,7 @@ The plumbing that supports a massive consciousness cleaning and shifting.
 
 <br>
 
-Word Associations: brain, nerve, network, transit, mafia, plumbing, family, blood, sever, tie
+**Word Associations:** brain, nerve, network, transit, mafia, plumbing, family, blood, sever, tie
 
 ## Power ##
 The power within moving through the currents spreading through the lives that light up the world on a daily basis.
@@ -3085,7 +3239,7 @@ The drive within our ecosystem that keeps everyone living and under control in t
 
 <br>
 
-Word Associations: hight, fall, force, strength, sacrifice, royalty, energy, drive, control, current
+**Word Associations:** hight, fall, force, strength, sacrifice, royalty, energy, drive, control, current
 
 ## Resolution ##
 The resolution to shift a thought, and change a habit.
@@ -3094,7 +3248,7 @@ The vote to affirm an idea.
 
 <br>
 
-Word Associations: meditation, image, scan, telescope, decision, unanimous, affirm, withdraw, war, vote
+**Word Associations:** meditation, image, scan, telescope, decision, unanimous, affirm, withdraw, war, vote
 
 ## Bully ##
 A bystander of the bribing, the taunting, the torment, leading to an imbalance.
@@ -3104,7 +3258,7 @@ The failure to bring out a full child in school with security.
 
 <br>
 
-Word Associations: bystander, kid, bribe, target, school, imbalance, rage, security, torment, tyrant
+**Word Associations:** bystander, kid, bribe, target, school, imbalance, rage, security, torment, tyrant
 
 ## Trouble ##
 Trouble ahead, a crisis moment, trouble trusting in oneself, and beliefing in oneself because of the mischief.
@@ -3112,7 +3266,7 @@ Rebelling against everyone, questioning, robbing, accusing of mistakes, and puni
 
 <br>
 
-Word Associations: punish, pain, crisis, mischief, thief, loss, law, rebellion, youth, mistake
+**Word Associations:** punish, pain, crisis, mischief, thief, loss, law, rebellion, youth, mistake
 
 ## Guilt ##
 The guilt from another mistake made.
@@ -3122,7 +3276,7 @@ The plea for atonement.
 
 <br>
 
-Word Associations: wrong, awareness, atonement, jury, sin, verdict, confess, offense, trip, haunt
+**Word Associations:** wrong, awareness, atonement, jury, sin, verdict, confess, offense, trip, haunt
 
 ## Smoke ##
 The smoke coming up from a truck captures my eyes.
@@ -3132,7 +3286,7 @@ An illusion, a mirror.
 
 <br>
 
-Word Associations: chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haze
+**Word Associations:** chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haze
 
 ## Joy ##
 Nothing, no one can rob the joy within to be a giver, sharer, and seer of light.
@@ -3141,7 +3295,7 @@ The wish is to take another day to appreciate some form of beauty in the ocean, 
 
 <br>
 
-Word Assocations: feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
+**Word Assocations:** feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
 
 ## Heroism ##
 Everywhere life is filled with heroism,
@@ -3152,7 +3306,7 @@ the slaying of demons in the face of adversity when seeing someone suffering
 
 <br>
 
-Word Associations: bravery, model, villain, fable, legend, superhuman, tragedy, slay, sandwhich, icon
+**Word Associations:** bravery, model, villain, fable, legend, superhuman, tragedy, slay, sandwhich, icon
 
 ## Cherish ##
 The peace within I cherish
@@ -3168,7 +3322,7 @@ a care for the future and what's dearest to one's heart.
 
 <br>
 
-Word Associations: love, dear, feeling, memory, protect, promise, treasure, forever, hope, care
+**Word Associations:** love, dear, feeling, memory, protect, promise, treasure, forever, hope, care
 
 ## Sanity ##
 The sanity within to know what's real, and what's causing imbalance.
@@ -3176,7 +3330,7 @@ The freedom from the joker, the ongoing question of who one is, the release from
 
 <br>
 
-Word Associations: madness, chaos, erosion, question, mind, cling, fear, balance, mask, joker
+**Word Associations:** madness, chaos, erosion, question, mind, cling, fear, balance, mask, joker
 
 ## Disturbance ##
 A disturbance, an event that shocks the human mind and wakes it up to more of the reality within and without.
@@ -3185,7 +3339,7 @@ A disease of the senses because of the noise, and the magnetic fragments of the 
 
 <br>
 
-Word Associations: insomnia, fragment, disease, mind, madness, sense, noise, mood, magnet, earthquake
+**Word Associations:** insomnia, fragment, disease, mind, madness, sense, noise, mood, magnet, earthquake
 
 ## Freedom ##
 The freedom to take off the chains, the weight of the oppression that slows people down.
@@ -3196,7 +3350,7 @@ The right to express, share the ideas that spring up from within, from the sourc
 
 <br>
 
-Word Associations: opportunity, chains, rights, oppression, safety, protection, trap, spirit, genie, life
+**Word Associations:** opportunity, chains, rights, oppression, safety, protection, trap, spirit, genie, life
 
 ## Nature ##
 Nature, the earth, the land, the place where people belong and deeply connect to the seed of the universe.
@@ -3204,7 +3358,7 @@ Forces for good, beauteous things, a good environment, mother instinct, healing 
 
 <br>
 
-Word Associations: force, beuaty, instinct, violence, chaos, human, environment, passion, seed, weather
+**Word Associations:** force, beuaty, instinct, violence, chaos, human, environment, passion, seed, weather
 
 ## School ##
 The best place to learn, to develop habits of the mind, and to make new friends.
@@ -3213,7 +3367,7 @@ It can be a palce for safety, a place for growth, a place for discipline with pe
 
 <br>
 
-Word Associations: competition, segregate, safety, peers, growth, intelligence, lesson, discipline, compulsory, class
+**Word Associations:** competition, segregate, safety, peers, growth, intelligence, lesson, discipline, compulsory, class
 
 ## Reason ##
 A reason for everything.
@@ -3223,7 +3377,7 @@ Arguments, suspicions, excuses.
 
 <br>
 
-Word Associations: argument, suspect, revelation, instinct, justice, compel, logic, error, motive, excuse
+**Word Associations:** argument, suspect, revelation, instinct, justice, compel, logic, error, motive, excuse
 
 ## Family ##
 A unviersal family with mothers and fathers, and children, and homes.
@@ -3233,7 +3387,7 @@ Names reflect values of tribes and clans.
 
 <br>
 
-Word Associations: tree, roots, ancestors, mother, father, children, home, name, tribe, clan
+**Word Associations:** tree, roots, ancestors, mother, father, children, home, name, tribe, clan
 
 ## Treasure ##
 The treasures within acnient cultures that bring us closer to stories we can uncover to know ourselves better.
@@ -3244,7 +3398,7 @@ the shifts in view that people can explain through maps.
 
 <br>
 
-Word Associations: gold, hunt, danger, map, relic, guard, legend, hidden, buried, pirate
+**Word Associations:** gold, hunt, danger, map, relic, guard, legend, hidden, buried, pirate
 
 ## Struggle ##
 The struggle to break the chains and shackles of pain,
@@ -3256,13 +3410,13 @@ The hope to begin again is have the struggle.
 
 <br>
 
-Word Associations: adversity, obstacles, goal, perseverance, chains, shackles, growth, chance, pain, hope
+**Word Associations:** adversity, obstacles, goal, perseverance, chains, shackles, growth, chance, pain, hope
 
 
 ----------
 
 
-# Creative Writing #
+# Creative Writing - Independent Writing #
 ## Maps ##
 Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
 
@@ -3379,11 +3533,15 @@ Margaret
 Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. There is some writing below that contributes to singer-songwriting.
 
 ## Top Songs ##
-* "When You Say Nothing at All" --- **interested in this**
-* "I'm So Tired of Being Alone" --- **interested in this**
 * "Be Thou My Vision"
 * "Lo, How a Rose Ere Blooming"
+* Southern Gospel Norton Hall Band
 * "My Life Goes On In Endless Song Above Earth's Lamentations"
+* "One Voice" by The Wailin' Jennys + The Devil's Paintbrush Road by The Wailin' Jennys
+* Music by Ruth Moody
+* Music by The Riverside Group
+* "When You Say Nothing at All" --- **interested in this**
+* "I'm So Tired of Being Alone" --- **interested in this**
 * "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
 * "What a Wonderful World" --- **interested in writing and composing a song called 'A New Day' inspired by this**
 * "Jailhouse Rock" --- **interested in female version of this song**
@@ -3392,10 +3550,6 @@ Composing music expresses both the head and the heart, and writing songs helps t
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
 * "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
 * [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
-* "One Voice" by The Wailin' Jennys + The Devil's Paintbrush Road by The Wailin' Jennys
-* Music by Ruth Moody
-* Music by The Riverside Group
-* Southern Gospel Norton Hall Band
 
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
@@ -3584,347 +3738,6 @@ Once in college before reaching a breaking point, I had read "Frankenstein" and 
 No, something created me.
 This was the beginning of the destruction of the ego, the false self.
 I was humbled, humiliated, and through rising back up out of the ashes, I discovered more of who God is and how God lives and moves through me, and supports me.
-
-## Where do you feel most like yourself? ##
-I feel most like myself while driving. I pray when I drive, love all of my surroundings, and have good conversations with God. I love the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
-
-She prays when she drives
-She loves her surroundings
-She loves having good conversations
-She loves the sound of the highway and the trucks
-
-## In what way do you not fit in with the family you grew up with? ##
-Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
-
-## Write about a time you watched the sun rise. ##
-This morning, I watched the sun rising in Norfolk, VA through the reflection shown in a car window. Watching the sun rise brings freshness to the day. The light causes people to want to rise up, learn something new, and contribute to humanity for another day. The sun will always rise in every corner of the Earth, for all people in all nations.
-
-## What do you think is the most important question in life? ##
-'How do I love someone?' and 'What am I learning?' are the two most important questions in life. Answers to these questions provide the motives for staying active, moving, and being. With love for someone, if not all of humanity throughout the day, there is vibrancy in and a cause for the day. With the desire to understand a topic or a concept, there is reason and a cause for each day. A life well-lived includes loving the people around, learnnig more about love and the reason for living, and creating something to support people.
-
-## What book do you wish you had written? What would you change in your version? ##
-A book I wish to write is one on the cultural influences on 'Made in America'. Many ideas, and engineering and mathematical concepts come from other countries - Scotland, Egypt, India, China, and Italy and Greece. It would be fun to write a book about the cultural influences and 'Made in America'.
-
-## Write about a time you felt loved. ##
-Today, I have felt loved and fully forgiven inside. I feel so loved that it feels as if all the things wrong in my consciousness have been detached, and removed. I am grateful to feel the love from new friends and old friends. I am also grateful to feel the love for new friends and old. As the giving of love, so the receiving.
-
-## What compliments have people given you? ##
-(1) I have a good smile
-(2) I have a good laugh, and sense of humor
-(3) I am intellectual
-(4) I am friendly, like most Southerners
-(5) I seem focused on the high goal even when upset, working through adversity, and addressing challenges
-
-## What do you have to do today that you really would rather not do? ##
-Looking for my passport feels like something I dread doing. It does not feel fun to search around for a passport; it feels like such a drag. Many items live on the to-do list, including this one, and this is the last I want to do. I drag my feet in doing it. Many items I'd rather do before it.
-
-## Who was your favorite band or singer when you were young? ##
-My favorite bands were U2 and Coldplay. I love U2's song, "It's a Beautiful Day". There's light reflected in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
-
-## If you had a child who had done something very wrong, such as stealing, how would you punish them? ##
-If a child of mine had done something wrong, I would correct them and help them understand why committing that wrong is wrong. I would not make them feel ashamed of themselves; but rather, I would guide them to better ways of being and show them alternatives. I would punish them by showing another way of being, and ask them to reflect on the wrong, how they can be better, and why. I would trust that God is supplying all the childs needs through a righteous approach.
-
-## What is a priority for you right now? ##
-Disciplining thought and speech on social media and in interaction with people seems to be a priority. Social media, a virtual place where temptations to compare, stalk, harass lurk. Social media, a virtual place with beautiful imagery and intellectual conversations. It's good to go outside, run, skip, and take a break from social media.
-
-## If you had a 'do-over' button, what one event in your life would you like to have a second chance at? ##
-If I had a 'do-over' button, over a year ago, I would never have sent the letter with the guns and the gun emojis. Instead I would have continued to appreciate the African Americans and people in my life expressing love. I am grateful for freedom and trust expressed with African Americans, and spiritual guidance to understand Malcolm X's vision for racial harmony. I would not have sent the awful letter and awful notes, and I am grateul for an interracial society and freedom to feel connected with all of humanity at once.
-
-## Write a letter to someone you see every day. ##
-I see myself every day, and I was severely bullied and excluded in school.
-
-Dear Margaret,
-
-It is not God's will for you to be in this much pain, and this isolated at school, on the bus, at lunch, and elsewhere. All of the people around you express the light, and God always leads to the right relationships.
-
-Love,
-Margaret
-
-## Write a one-minute 'Thank You' note to someone. ##
-"Thank you" Nate Jones for helping me grow spiritually and be free. Thank you for your spiritual maturity, awareness, ability to overcome challenges, and love of humanity. Thank you for the love of your daughers and the love of people. I am happy for your new opportunity in North Carolina. God is leading everyone at once.
-
-## Have you ever been significantly more or less physically fit than you are today? What was different about that? What was easier? Harder? Did others treat you any differently? ##
-In high school, I swam and rowed. As a member of the swimming and rowing teams, I became fit with six abs and a lean body. I felt significantly mroe fit then than I do now. It felt harder to maintain that fitness. I feel more confident about myself when rowing, and I was grateful for the experience. Now, I am not as fit, and it feels signfiicantly harder to return to the state I was in, but maybe I will someday return. I don't think others treated me differently, but I felt mroe confident with people.
-
-## What takes too long? ##
-Writing a paper takes too long. In college, it felt like what took some people to write a paper in 1 day took me 3-5 times as long. It was fun to write, but it felt like I never had time to enjoy socializing with people. Most work requires patience, time, and endurance, and persistence; however, it felt painful when what took peers 1 day took me 3-5 days.
-
-## Do you prefer to read electronic books or paper books? Why? ##
-Paper books I love to read. It feels like an amazing experience to go into a bookstore and look through all of the paper books. I love the physical experience of underlining key passages and taking notes.
-
-## There is a strong current trend among kids to read comic books or graphic novels instead of regular books. What do you think about that? ##
-Regular books promote children's intellect and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
-
-## What do you look for when deciding whether or not to date someone? ##
-Genuine compassion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
-
-## What makes you feel humble? ##
-Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
-
-## As a kid, what job did you dream you would have as an adult? What job do you have now? ##
-Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
-
-## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Would you live on the coast if you could, or is it better just for a visit? ##
-My family ventured out to the beach for the 4th of July. Young girls played in the sand with castles, shells, and waters. They loved the holiday, and their moms were ok with me waving at them. I love the foaminess of the ocean. I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
-
-## Where do you like to do your journaling? At a desk, in your bed, at the coffee shop? ##
-In bed, I love to journal, and do my best thinking. In bed, I find the comfort of the squishy mattress, and the soft sheets. I love the feel of my head on the pillow in the dark, while writing in the journal. While writing, the sun shines through the window, and I can hear the geese calls.
-
-## Write about someone, living or dead, who you would you like to have back in your life. ##
-I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, make decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibrancy in the world. Every voice is vital in the light, and every life is vital in the light.
-
-## If you had the opportunity to write as a career, what would you write? ##
-In a career, I would love to write a book about unity and oneness, and the power of the people. I would also love to write music. In a writing career, I would love to take the emphasis off of self and put the emphasis on Soul. I love the work she is showing on social media.
-
-## What traffic sign best refelcts your life right now? ##
-The sign guiding people to 'slow down' with children playing and running best reflects my life. I love this sign because of the childlike innocence expressed in it. In life, I am slowing down, and seeking ways to paay attention to the light, the joy, and the love of children more.
-
-## Describe your most recent dream you can remember. ##
-I had a vision come to thought before going to sleep of an African American woman with beautiful eyes and a lovely smile. It was a wonderful dream, peaceful and inspirational. In life, every day, I wake up to the amazing beauty and life of African Americans.
-
-## What do you want more out of life: happiness or success? ##
-Out of life, I seek joy and freedom. Success flows from doing work joyfully. I don't always feel free, but I seek freedom. It would feel wonderful in life to express love, compassion, intellect, creativity, adaptability, originality, vibrancy, independence, and interdependence.
-
-## What is the best piece of advice you have ever been given? ##
-The best piece of advice people have given me is to forgive myself and others, and wipe the tears, the sin, and the anger away. God has always moved me with a strong conscience and a strong heart. People react, but it's ok to forgive. People bully people, but God wants people to belong.
-
-## Why do you think some people are successful in life and others are not? ##
-I think people succeed in life when they express patience in the process of doing the work and love for humanity in the day-to-day moments. Sometimes people do things and get lost in the wrong beliefs, chains, reactions, idols, and situations, but it's never too late to turn around a life and become better and succeed.
-
-## What song is in your head right now, and why? ##
-A song in my head right now is one that I am producing on a new day. Through the song, I convey the light and nature in the world to wake up to. It feels light amidst all of the emotionally heavy things going on in the world, but I have been in situations helping people through the darkness. I have met people struggling to know how to live another day, and through the song running in my head and resounding in my heart, I desire to convey a sense of love and hope for the simple beauty going on beneath the suffering, and loss.
-
-## Journey Writing ##
-## Do you have a tattoo? What is it and why did you get it? If not, would you ever get one? What would the tattoo be, and what would it symbolize to you? ##
-No. I think that tattoos look good on people and that people with tattoos break cultural traditions. I do not want to get a tattoo just to buy into a trend that others are buying into. If I were to get a tattoo to break free from traditional value systems, I would not get a tattoo.
-
-## Write about someone you aspire to be like. ##
-President Barack Obama is a figure I look up to. When facing adversity, he exudes great qualities. He does not seek fame. He did not seek to live and work in the noble office. He does not bicker and complain when facing criticism, attacks, and name-calling. He does not seek to be a prima donna. I aspire to be like him. I seek to express humility, patience, confidence, love, meekness, and graciousness. I hope to treat everyone in the nation as he treats people, and appreciate the interdependencies in human relationships throughout the land. Everyone has a voice, a right to sing, a right to express, a right to love nature, and a right to truly live and learn and heal. I seemed abusive and monstrous when sending images of guns? Would someone in a celebrity photo with the President send guns? Would someone in a celebrity photo with the President gossip, attack, complain, and cry? No, and no.
-
-## How do you soothe yourself when you are upset? ##
-When upset, I soothe myself through telling myself that it's ok to cry. I feel pain when I make mistakes. People make mistakes. It is ok. I will see beauty another day. I will survive another day. It's ok to not want to live. I will progress and expand and live life more to the fullest, however. I love the joy that comes from looking someone in the eye, giving them full attention and appreciation, and listening to understand.
-
-## Does writing change you? How does writing make you a better person? ##
-Writing changes me. Writing, a tool for expressing thoughts, feelings, experiences in words, helps to articulate and process the inner and outer worlds. Using the right words, forming the right sentence structure exercises the process of sharing what goes on within and around through speech. Writing transforms my thinking and helps me better connect to people.
-
-## What bad habit would you like to change? ##
-I would love to *stop* looking people up on Instagram and Google. I would love to stop sending hostile emails. Through loving the glory of a new day, the beauty in a smile, and the lessons taught in computer class, I will break the habit. Through writing down thoughts on Github, and in journals, and working with my hands, I will break the pattern, and the habit.
-
-## What keeps you from getting a good night's sleep? ##
-Ruminating over the past, the things done wrong, and the missed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of God's provisions.
-
-## Write about a time you broke something. ##
-Once, I was fighting within so much that I broke everything in my house. It was a continuation of what it was like as a child when kicking doors and windows. There's a loud fight within, and it leads me to break things. I am building back up now.
-
-## What, in your opinion, is strength? ##
-Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
-
-## What has made you angry this week? ##
-All of the emphasis on self, comparing, and competing made me feel angry. Feeling rejected, teased, and mocked made me feel inferior. It feels like none of my work never measures up. Other people look like opera divas while people tell me I have seemed high maintenance, like an opera diva when I can't fully express myself, and like I have a fragile ego underneath.
-
-## Struggling vs. Suffering ##
-Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
-
-Suffering - pain in silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts, feeling guilt and shame and guilt and shame, and endless ties to people who do not care.
-
-Pain - empathizing with the needs with someone else, feeling the inflicted harm of someone, feeling the negative energy from another's heart.
-
-## When was the last time you pulled an all-nighter? Why did you do it? How did you feel afterwards? ##
-The last time I remember pulling an all-nighter was seven years ago. I worked through the night in the bottom of the library. Other students I could see studying in there. Doing the work was the last thing I wanted to do, but I pushed myself with eyes feeling heavy, and me becoming a zombie. Then I remember walking back to the dorm really early in the morning with the dark sky.
-
-## Write about a memory you associate with the color blue. ##
-Associated with the color blue, I have memories of my cousin playing soccer at the ocean front, and being my friend at the beach cottage. I remember blue pipes on the ceiling at the beach cottage, and I remember hanging on them with my cousins Mary, and Kim, as well as Mary's friends.
-
-## What, in your opinion, is strength? ##
-Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
-
-## Do you have any dreams that recur? Why do you think you continue to have that dream? ##
-A recurring dream I have is the one of the imagery of The Mother Church coming to thought before Association. I am grateful for the purity of the Church Architecture, and the light shining through all the churches. I am grateful for healing across the land, and respect for all cultures besides my own.
-
-## What crime or faux pas would you commit if you knew you would get away with it? ##
-Don't worry. I have already committed a crime. I have committed a crime on social media that in the 21st century leads to divorce, cheating, and trouble. I have created fake, faux accounts, stalked people, and called people out. I have spread people's names, and hurt people with words. I must stop. The social media companies are doing with my account what they are doing with President Trump's. If I get away with it, great - it's mortal mind. I must stop the crime.
-
-## List 25 things you will never do. ##
-(1) I will never carry a gun.
-(2) I will never shoot a gun.
-(3) I will never engage in a sexual relationship before marriage.
-(4) I will never intrude on someone's home in another state.
-(5) I will never aim to be a celebrity.
-(6) I will never attempt to commit suicide again.
-(7) I will never sell anything to my uncles.
-(8) I will never criticize an interracial marriage.
-(9) I will never do a PhD...I don't think I will...but never say never...because I might actually do it...
-(10) I will never step in front of someone else in line.
-(11) I will never mention someone else in an email again.
-I can't think of 25, so this is the list of 10.
-
-## You are on the cover of a magazine. What are you famous for? ##
-I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively.
-
-## Complete this thought: 'Today I hope...' ##
-Today I hope to clean my room, do business work, go to Nate's house.
-Today I hope to live with love.
-Today I hope not to use social media.
-Today I hope to take a shower.
-Today I hope to uplift my thought for humanity.
-Today I hope to live in peace.
-Today I hope to pray the prayers we prayed in school for all schools nationwide.
-Today I hope someone feels free of a claim that holds them in hostage and in bondage.
-
-## What is a memory you would like to erase? ##
-As a free agent, I would like to erase the memory of being 'a heartbroken cowgirl', a criminal, and a damsel in distress within. I am a free agent, I am able, I am intelligent, I have a good sense of humor, and I am quick to forgive.
-
-## In what way are you selfish? ##
-I can be a selfish person. When I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
-
-## Write about a good discovery you have made (big or small). ##
-The biggest discovery I have made over the past year and in this life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
-
-## What modern technological device takes up most of your time? ##
-Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. She looks like the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
-
-## What would you like to apolgoize to you, and for what? ##
-I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apologize. There was never a response. All I felt was pulled to face my loudest triggers and insecurities.
-
-## Write about something nice a stranger did for you. ##
-Once, I lost my temper at Starbucks. I threw the coffee cup on the ground. I looked pathetic. I was a horrible person. One stranger pardoned me and prayed for me from her car. Another straner prayed with me near a tree to help me stay grounded in reality.
-
-## Have you ever lived in another country besides your country of birth? Would you want to? ##
-I have lived in Scotland, Ireland, and Argentina. I am grateful I rowed with the Scottish. I remember being alone in the dark and feeling lost when miraculously my Scottish rowing coach found me walking before practice. I love that I went to music concerts in Ireland. I am grateful for the readings and church services in Spanish in Argentina.
-
-## Which is stronger, love or hate? ##
-Hate seems to be strong. It seems to tear one's heart up and throw one's life into shambles. Unconditional love is the most powerful force in the world, however. It overcomes the strongest, most monstrous waves of hate. Unconditional love overcomes all through to the ends of the world.
-
-## What do you think is the most important thing for today's kids to learn in school? ##
-I think that the most important thing for today's kids to identify emotions, and develop healthy relationships with people that are different from them. I also think it is improtant for kids to learn how to manage money but not worship money. I believe in the next generation! :) :)
-
-**Name** became a **type of career/success** because he was **trait**, **trait**, and **trait**.
-"Colin Powel became an **inspiring leader** because he is **brave**, **intelligent**, and **ambitious**."
-"Sandy Koufax was a **remarkable sports hero** because of his **work ethic**, **amazing athletic ability**, and **teamwork**."
-"Because of his **determination**, **Martin Luther King Jr.** was able to overcome **educational barriers**, **prejudice**, and **violence** to become a **political leader** who changed America.
-
-## For people who have made awful, horrible mistakes -- what questions would you ask them? ##
-(1) How have you changed over the past 1 year - 5 years - 10 years?
-(2) What have you learned in relationships?
-(3) What challenges have you overcome?
-(4) How have you rediscovered aspects of your true self?
-
-## Periodically we have tension build up in our lives that requires a release of some kind. Some people cry, others punch, and some find a creative outlet. What is your release? ##
-I have experienced heartbreak, and I had been listening to popular music in the music industry targeting heartbreaking females. It felt comforting on the one hand to listen to the music, but on the other hand I didn't know how the music would fully heal heartbreak, or an emotional wound. As soon as the musician posted photos of his girlfriend, with a guitar, looking like a strong woman to make it worse, in NOLA, where my grandmother was from, so much tension came to the surface. I didn't want to cry. I kicked a door, and threw my cowboy boots in the trash can, and I became a criminal online. I yelled out, and ultimately I learned to give my tears to God.
-
-## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
-It's not a dangerous thing to do, but with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
-
-## What is a personality trait you admire in other people? ##
-I admire the quality of integrity the most in people. I think this means that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
-
-## Is our world today a better or worse place than it was when you were a kid? ##
-I think our world is in a better place today. I think a lot has shifted, many lessons have been learned, and people are more mature, active, and expressive than when I was a kid. I think family relationship ties have grown deeper, harmony has increased, but everyone, mostly myself, has to watch for regressions.
-
-## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to? ##
-I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we express similar qualities. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words, puzzles, and math like my grandmother also. 
-
-I share the same name as Margaret Thatcher as well, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret.
-
-'Margaret' means 'daisy' in French, and flowers turn to the sun. Margaret in Sanskrit means 'pearl'. Pearls grow in oysters. Sometimes irritants come up, but the irritants grind against the 'pearl of great price' within.
-
-My name is a Western-European name, and I love that people from other cultures share similar experiences with names being tied to meanings and ancestry.
-
-If I were to go by another name, I would go by "Meg", but "Margaret" is amazing as well :)
-
-## What is the last thing (or one of the last things you searched for on the Internet? ##
-One of the last things I searched for on the Internet is the medieval music. I drew the connection between the cowboy culture and the knight culture. Love songs come into being from both cultures. People used to use the medieval organ to play love songs, "country" music, as well as church music. During the late medieval period, and the Scientific Revolution, people understood music through science.
-
-## Write about a real or imagined train ride you have taken. ##
-I have taken real train rides to Pennsylvania and back, and to Boston and back. I love looking out the windows, and seeing the scenery. People from different walks of life come on and come off the platform. I appreciate the hustle and the bustle in the train station. It's beautiful to imagine the dance of life in the situation, and on the train. What a wonderful experience it is to share affection with family members on and off the train.
-
-## Write about a time you felt alone. ##
-Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
-
-## If you could do one thing every day for the rest of your life, what would it be, and why? ##
-For the rest of my life, if I could do something, I would take up the life of a naturalist.
-I would observe and truly listen to nature.
-I would take field notes.
-I would write down 5 images, and 5 sounds every day.
-I would talk to someone in person every day.
-I would love family members, including distant family members, every day.
-I would appreciate the study of history, a natural science.
-I would appreciate the stories told in families, and people's ancestors, lineage, and heritage.
-I would play music, take photography, and love more every day.
-[The Concept of Scientific History](https://www.jstor.org/stable/2504255?seq=1)
-
-## What makes you smile or laugh every time you think of it? ##
-Today, I randomly smiled at a stranger at Starbucks. She was so beautiful. She smiled right back. We recriprocated our love for one another. Our eyes met. We connected truly. I helped her. She helped me even more. I love how God puts a smile right on our faces even when we feel the need to cry, and break down. It's wonderful that God is always at work.
-
-## What historical figure would you like to interview? What would you ask? ##
-W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interview. I would love to learn more about their experiences as African Americans in the old American country. 
-
-* What were your greatest challenges?
-* How did you overcome these challenges?
-* What did you discover in relation to white people?
-* What were your hopes for the next generations of African Americans?
-* Did you believe in God? How did God communicate to you?
-* What was some interesting are people in your generation of African Americans?
-* What did you enjoy about writing?
-
-## Have you done any research into your ancestors? What interesting surprises have you discovered? ##
-Through my grandmother, and my intuition underly someone's country music on "Going South", I discovered surprises about my ancestor, Dr. Thomas Walker, who discovered the Cumberland Gap. He surveyed the land, led the country West, and explored Kentucky before Daniel Boone. With the Indians as guides, they passed through the native land and discovered the birth of America.
-
-## What do you look forward to every week? ##
-Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
-
-## Were you ever bullied as a child? Tell a story of a time you were bullied, or a time you observed someone being bullied. ##
-Yes! People bullied me as a child. I work on letting go of the sense of being bullied, and love people and forgive people. I remember on the late bus I desired to communicate and connect with people, but they made me feel bad for listening in, and people did not let me sit with them at the lunch table. It was awful! But I open up to the Holy Spirit's new ways of blessing people.
-
-## What is one of your greatest blessings? ##
-My family has blessed me with love, music, laughs, cheerfulness, athletics, and commitment since I was young I am grateful for many memories of our family reunions where we met and participated in activities harmoniously. I love that this family continues to bless me with emotional support and gatherings on farms and old houses. I trust that there will be many, many, many more good years ahead as adults with the next generation to come.
-
-## When was the last time you felt needed? ##
-Every time Nate calls me and asks me to give him a ride, I feel needed. I love hearing his voice, his faith, and his love for his family and the community. I have felt loved when he shared that his mom wanted to meet me, and he made me feel better when he said 'I would be a good mom'. I love feeling the motherly love for his precious daughters. I am grateful to know the Salvation Army and the Up Center, and feel needed there when I compassionately share items with them.
-
-## If you had to do it all over again, how would you reinvent your life? ##
-I would not reinvent anything in life. Yes, I have made mistakes. Yes, I have made people afraid of me. Yes, I have felt like I have failed and become angry. I know that if I choose to keep seeing the good in situations, trusting my higher self, and expanding on what I love, that all will reinvent itself for my future in the best way possible.
-
-## What musical instruments would you like to learn how to play, and why? ##
-With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
-
-## What keeps you from getting a good night's sleep? ##
-Ruminating over the past, the things done wrong, and the missed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of Love, God's provision.
-
-## Are there any lines that you simply will not cross? ##
-Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. The evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
-
-## What would you like to be forgiven for? ##
-When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loud that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
-
-## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
-Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
-
-## Describe the most beautiful sound you have ever heard. ##
-The church bells ringing through my ears make me feel so good. I think them chiming are a beautiful sound. I love the sound of the trees moving with the breeze, and I find peace in the sound of the harmonious silence. There exists a power in silence. Beautiful sounds fill the Earth each and every day. Another one I love is the sound of children laughing from an apartment window.
-
-## You have a child and you have written one piece of advice that will be carried in his/her pocket for life. What is that advice? ##
-There is a child within you first. She is innocent, free, light-hearted, and joyful. She has a good sense of humor, and she's quick to get back up and try new things. She loves to sing, and play music, and play with little ones. she also loves the sound of children playing.
-
-For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
-
-## Write about the last time you felt guilty. ##
-Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mean because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awful. I move on to new, and healthier relationships.
-
-## What is something you have dreamed about? ##
-This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
-
-In the past, I have listened to music by Al Green and appreciated the African American music in Memphis. It turned from dream to reality, when I met the man whose father played music with Al Green in Memphis. I love the history of African Americans in the city.
-
-## Do you prefer taking risks or having a safety net? ##
-Having a net to fall back on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, I drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
-
-## What is the best thing you have ever been given? ##
-While roaming the streets of Wahsington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
-
-## Diary Entry - 10 Years in the Future ##
-Dear Margaret,
-Remember how on this day, 10 years ago, how forgiven you felt for the first time for all the crimes done, and all the wrongs done. You had so much deep love and deep thought for humanity. You started growing in new ways, and waking up old passions for English writing and children's books. You started understanding cultural nuances more clearly, and finding full freedom from suicidal thinking. You had love for family so much on this day 10 years ago, as well as love for the little ones on the street. You let go of the things you needed to be letting go of, and you started learning some of the deeper things you needed to learn. Thank God for moving you forward for 10 years and bringing healing, color, good relationships, full freedom from suicide, and and fulfillment into your life. The sun continues to shine every day.
 
 ## Vocabulary Usage ##
 There was once a beautiful, *roan* horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the *purling* river, the horses enjoyed racing each other. The *cohesive* pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given *farina*. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an *incoherent* group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's *renown* for his *inherent* speed, they *denominated* him as their leader. Upon being chosen, Rapido *hesitated*. He did not believe he would serve as a good leader and claimed that it had to be a *misnomer*. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses *adhered* to each other. Their *adhesion* made them stronger. After a very close battle, the roan horses won.
@@ -4603,142 +4416,6 @@ I love the song of the South singing through the lumber industry and the railroa
 I love the beauty of Soul reflected through my great grandmother during the age of Jazz music in Memphis.
 I love the good luck rushing through my great grandfather McCardell's Irish blood.
 I love the songs of peace "like a river" sung through my great grandmother.
-
-## Gratitude List ##
-* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
-* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
-* Grateful for the sound of the laundry machine.
-* Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
-* Grateful for a home someone architected at a schoolhouse on a farm.
-* Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified.
-* Grateful for the voice on the news, representing ethics and good judgment.
-* Grateful or the Soaps and Suds in Norfolk that serves the community
-* Grateful for friends who share news articles and support my spiritual growth
-* Grateful for self-assessment, honesty with myself about self-justification
-* Grateful for Black History month
-* Grateful for the man singing with the Consortium in Memphis
-* Gratitude for Muslim prayers 
-* Gratitude for the world history teacher at Norfolk Academy
-* Grateful for the sound of the dishwasher
-* Grateful for a smile shared with someone in the car next to me
-* Grateful for American flags reflecting through glass doors
-* Grateful for positive memories of my grandmother
-* Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
-* Grateful for Medieval organ music
-* Grateful for global cultures
-* Grateful for sketches
-* Grateful for the workers in the post office
-* Grateful for piano playing
-* Grateful for two women on the street
-* Grateful for a phone call with someone from high school and meeting new friends
-* Grateful to play music on the piano intuitively - I have 3 drafts of songs
-* Grateful for the light in the Christian Science Mother Church
-* Grateful for the first responders
-* Grateful for the man working with the USPS in the postal service
-* Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
-* Grateful for the construction sites
-* Grateful for the men working on the street
-* Grateful for the memories of working as an aide at camp
-* Grateful for all of the ethnicities represented at camp
-* Grateful for the call of the geese in the morning
-* Grateful for the lessons learned in the shower
-* Grateful for the cooks at camp
-* Grateful for the signs on the road
-* Grateful for the construction workers
-* Grateful for my cousins in Suffolk, Whaleyville
-* Grateful to learn about Kentucky, Indiana, and the Rust Belt
-* Grateful for the Spanish language on the Screen in the CVS - "Cambiar El Idioma"
-* Grateful for the man working at CVS and his love for the work
-* Grateful for the African American engineer
-* Grateful for the architecture at The Mother Church
-* Grateful for the man in Memphis who loves Math and Music
-* Grateful for the natural love of the little kids at the Preschoo
-* Grateful for the spontaneous trip to the softball game
-* Grateful for the stoplights
-* Grateful for orange marker balls, they hang from power lines
-* Grateful for advertisements and billboards on highways
-* Grateful for the Post Office
-* Grateful for a society built on notes and letters, and the underground messaging
-* Grateful for the Matthew Code and bringing challenges directly to people
-* Grateful for a conversation with my aunt
-* Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
-* Grateful for positive memories of spending the summers reading in bunk beds with cousins
-* Grateful for the boys playing outside
-* Grateful for the stories of African Americans in Spain
-* Grateful for all the girls at Camp Nakanawa
-* Grateful for the people in the Courthouse
-* Grateful for the advertisement "Can you see me?"
-* Grateful for the walking challenge in the Sun with a friend from UVA
-* Grateful for the imagery of a rose
-* Grateful for all the neighbors outside walking, running, and driving
-* Grateful for the leader of Discipleship Training School who overcame darkness like gun violence with God
-* Grateful for the people with Discipleship Training School who whovercame darkness like porn addiction with God
-* Grateful for the lunch with a man from Africa, digging into his family's ancestory and roots in Cameroon and his shirt on Cameroonian Roots
-* Grateful for memories of the Operation Smile event in Virginia Beach
-* Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
-* Grateful for the construction workers
-* Grateful for the car ride with Nate
-* Grateful for the time with the missionaires
-* Grateful for memories on the airplane with the people from Brazil and Argentina
-* Grateful for the law of abundance
-* Grateful for a new perspective
-* Grateful for the children's books by Jean Craighead George
-* Grateful for memories of Camp Tabor at May Creek with kickball games, softball games, and other games led by two uncles, grateful for the harmony expressed by all 13 cousins
-* Grateful for the leaders of the chorus groups I have been in and the work to blend in and sing different parts, including Alto and Soprano
-* Grateful for the good cheer of a friend I drove around
-* Grateful for memories at camp of the cooks
-* Grateful for memories at camp of running
-* Grateful for the memories of singing Amazing Grace at Camp Nakanawa on Sundays
-* Grateful for memories of Shakespeare plays at Camp Tabor
-* Grateful for memories at the Beach Cottage with the Furr Family and the Talbot family
-* Grateful for my aunt
-* Grateful for the man on the street, Jamal, who blessed with a complement "you have a beautiful soul"
-* Grateful for the man at church who shared his testimony
-* Grateful for the Holy Bible in the hotel room
-* Grateful for the man on the street and his name
-* Grateful for the ways different people on social media share nature and observations
-* Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
-* Grateful for the sign "Today is a nice day"
-* Grateful for the Spanish signs
-* Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
-* Grateful for cheerfulness of the Construction workers
-* Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
-* Grateful for the Spanish music on the radio
-* Grateful for power lines
-* Grateful for the man sitting outside the Post Office
-* Grateful for the man sitting outside his home on runs when in Downtown
-* Grateful for the light in the darkness at the candlelight choral concert
-* Grateful for the woman working at CVS
-* Grateful for the woman working at the coffee shop
-* Grateful for the chiming of the bells outside
-* Grateful for how Taylor Swift expresses emotions, stories, and relationships through song
-* Grateful for the early learning center
-* Grateful for the student studying bilogy
-* Grateful for memories of rappelling with other Christians
-* Grateful for Christian music
-* Grateful for homes aligned in rows next to each other
-* Grateful for the sense of renewal at UVA
-* Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
-* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men
-* Grateful for conversations with him about a key African American leader.
-* Grateful for the friendly policeman this morning
-* Grateful for the dignity of people in the car while driving
-* Grateful for the woman in Rural Virginia who sympathized and empathized
-* Grateful for new insights and fresh thoughts
-* Grateful for the Southern Gospel Music at the church down the street
-* Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
-* Grateful to walk around Norfolk
-* Grateful for the little kids on the playground
-* Grateful for a good conversation at 7-11 with someone
-* Grateful for the ways people give their change to charity
-* Grateful to meet an old friend outside
-* Grateful for the warmth of the Sun
-* Grateful for the Arab world
-* Grateful for the Israel world
-* Grateful for a morning wake-up call with my sister
-* Grateful to learn about posture at camp
-* Grateful for the people I met in 7-11
-* Grateful for the woman working at 7-11
 
 ## Interracial Couples ##
 The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
@@ -5495,6 +5172,19 @@ More broadly, I love home on earth with all of humanity.
 
 ## **Listening to country music inspired me to write some poetry on solitude, being single, independence and breaking up with beliefs.** ##
 
+## Transportation ##
+From port to port across this large, moving world,
+everyone is on a journey,
+carrying freight, goods, and objects through ships trains, and trucks.
+The freedom to share cultures across the world, through traveling drivers, expressing freedom, loving those roots, and paying these tools.
+Life is a journey, America is the land free to shift its foundation from one that appreicates the colonized version of the world to one that appreciates the de-colonized version fo the world.
+
+
+## Me ##
+In the alienation and the doubt, your true identity can become stronger.
+Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress.
+Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience.
+
 ## The Lone Bird ##
 The bird flies in solitude across the land.
 It lifts its wings alone so gracefully.
@@ -6036,23 +5726,6 @@ That I ne sholde wedded be but ones."
 <br>
 
 
-
-
-## Transportation ##
-From port to port across this large, moving world,
-everyone is on a journey,
-carrying freight, goods, and objects through ships trains, and trucks.
-The freedom to share cultures across the world, through traveling drivers, expressing freedom, loving those roots, and paying these tools.
-Life is a journey, America is the land free to shift its foundation from one that appreicates the colonized version of the world to one that appreciates the de-colonized version fo the world.
-
-
-## Me ##
-In the alienation and the doubt, your true identity can become stronger.
-Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress.
-Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience.
-
-
-
 ----------
 
 
@@ -6074,6 +5747,354 @@ We all dwell in the Shadow of the Almighty at all times whether we know it or no
 My mom worked as a teacher like my grandmother did. As a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men working in the profession, and I remember feeling a constant mortal sense that I was dependent on men or desperate to be in a relationship with someone who would provide something.
 
 ...
+
+
+----------
+
+
+## Where do you feel most like yourself? ##
+I feel most like myself while driving. I pray when I drive, love all of my surroundings, and have good conversations with God. I love the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
+
+She prays when she drives
+She loves her surroundings
+She loves having good conversations
+She loves the sound of the highway and the trucks
+
+## In what way do you not fit in with the family you grew up with? ##
+Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
+
+## Write about a time you watched the sun rise. ##
+This morning, I watched the sun rising in Norfolk, VA through the reflection shown in a car window. Watching the sun rise brings freshness to the day. The light causes people to want to rise up, learn something new, and contribute to humanity for another day. The sun will always rise in every corner of the Earth, for all people in all nations.
+
+## What do you think is the most important question in life? ##
+'How do I love someone?' and 'What am I learning?' are the two most important questions in life. Answers to these questions provide the motives for staying active, moving, and being. With love for someone, if not all of humanity throughout the day, there is vibrancy in and a cause for the day. With the desire to understand a topic or a concept, there is reason and a cause for each day. A life well-lived includes loving the people around, learnnig more about love and the reason for living, and creating something to support people.
+
+## What book do you wish you had written? What would you change in your version? ##
+A book I wish to write is one on the cultural influences on 'Made in America'. Many ideas, and engineering and mathematical concepts come from other countries - Scotland, Egypt, India, China, and Italy and Greece. It would be fun to write a book about the cultural influences and 'Made in America'.
+
+## Write about a time you felt loved. ##
+Today, I have felt loved and fully forgiven inside. I feel so loved that it feels as if all the things wrong in my consciousness have been detached, and removed. I am grateful to feel the love from new friends and old friends. I am also grateful to feel the love for new friends and old. As the giving of love, so the receiving.
+
+## What compliments have people given you? ##
+(1) I have a good smile
+(2) I have a good laugh, and sense of humor
+(3) I am intellectual
+(4) I am friendly, like most Southerners
+(5) I seem focused on the high goal even when upset, working through adversity, and addressing challenges
+
+## What do you have to do today that you really would rather not do? ##
+Looking for my passport feels like something I dread doing. It does not feel fun to search around for a passport; it feels like such a drag. Many items live on the to-do list, including this one, and this is the last I want to do. I drag my feet in doing it. Many items I'd rather do before it.
+
+## Who was your favorite band or singer when you were young? ##
+My favorite bands were U2 and Coldplay. I love U2's song, "It's a Beautiful Day". There's light reflected in the music, and it speaks to people. I also love Coldplay's song, "Heaven has a Plan for You, God Put A Smile on Your Face". These two songs are popular songs, and uplift people in non-sexual ways.
+
+## If you had a child who had done something very wrong, such as stealing, how would you punish them? ##
+If a child of mine had done something wrong, I would correct them and help them understand why committing that wrong is wrong. I would not make them feel ashamed of themselves; but rather, I would guide them to better ways of being and show them alternatives. I would punish them by showing another way of being, and ask them to reflect on the wrong, how they can be better, and why. I would trust that God is supplying all the childs needs through a righteous approach.
+
+## What is a priority for you right now? ##
+Disciplining thought and speech on social media and in interaction with people seems to be a priority. Social media, a virtual place where temptations to compare, stalk, harass lurk. Social media, a virtual place with beautiful imagery and intellectual conversations. It's good to go outside, run, skip, and take a break from social media.
+
+## If you had a 'do-over' button, what one event in your life would you like to have a second chance at? ##
+If I had a 'do-over' button, over a year ago, I would never have sent the letter with the guns and the gun emojis. Instead I would have continued to appreciate the African Americans and people in my life expressing love. I am grateful for freedom and trust expressed with African Americans, and spiritual guidance to understand Malcolm X's vision for racial harmony. I would not have sent the awful letter and awful notes, and I am grateul for an interracial society and freedom to feel connected with all of humanity at once.
+
+## Write a letter to someone you see every day. ##
+I see myself every day, and I was severely bullied and excluded in school.
+
+Dear Margaret,
+
+It is not God's will for you to be in this much pain, and this isolated at school, on the bus, at lunch, and elsewhere. All of the people around you express the light, and God always leads to the right relationships.
+
+Love,
+Margaret
+
+## Write a one-minute 'Thank You' note to someone. ##
+"Thank you" Nate Jones for helping me grow spiritually and be free. Thank you for your spiritual maturity, awareness, ability to overcome challenges, and love of humanity. Thank you for the love of your daughers and the love of people. I am happy for your new opportunity in North Carolina. God is leading everyone at once.
+
+## Have you ever been significantly more or less physically fit than you are today? What was different about that? What was easier? Harder? Did others treat you any differently? ##
+In high school, I swam and rowed. As a member of the swimming and rowing teams, I became fit with six abs and a lean body. I felt significantly mroe fit then than I do now. It felt harder to maintain that fitness. I feel more confident about myself when rowing, and I was grateful for the experience. Now, I am not as fit, and it feels signfiicantly harder to return to the state I was in, but maybe I will someday return. I don't think others treated me differently, but I felt mroe confident with people.
+
+## What takes too long? ##
+Writing a paper takes too long. In college, it felt like what took some people to write a paper in 1 day took me 3-5 times as long. It was fun to write, but it felt like I never had time to enjoy socializing with people. Most work requires patience, time, and endurance, and persistence; however, it felt painful when what took peers 1 day took me 3-5 days.
+
+## Do you prefer to read electronic books or paper books? Why? ##
+Paper books I love to read. It feels like an amazing experience to go into a bookstore and look through all of the paper books. I love the physical experience of underlining key passages and taking notes.
+
+## There is a strong current trend among kids to read comic books or graphic novels instead of regular books. What do you think about that? ##
+Regular books promote children's intellect and emotional capacity better. I think it's fine not to be too careful with kids reading comic books or graphic novels instead of regular books, and reading these in an educated way can help them become culturally literate. However, I think that regular books teach substance.
+
+## What do you look for when deciding whether or not to date someone? ##
+Genuine compassion, intellect, joy, and understanding I look for in people I date. Sharing strong conversations with people seems valuable when forming relationships so that people can understand one naother. Conversations require active, reflective listening, and a willingness to open up, forgive, and express honesty. Sharing common interests and love for activities also helps people form bonds. When dating, it's good for people to keep everything quiet and not show relationships so publicly. People don't have to know everything. Being able to commit to people also helps sustain lifelong goals and desire.
+
+## What makes you feel humble? ##
+Feeling rejected makes me feel humble. At a low moment of feeling rejected and humliated, oen must turn deeply within towards God, and ask God how to learn the life lessons, love more of humanity as brethren in the light, and feel purified, and renewed. Feeling rejected makes me feel humble because I must dig deeper, see more deeply, and really seek to know God 100% of the time. Feeling rejected makes me humble and helps me to grow in other ways.
+
+## As a kid, what job did you dream you would have as an adult? What job do you have now? ##
+Right now, my job is to help, heal, and pray. As a kid, I dreamed of teaching. I love nurturing people and helping people. I love inspiring people and uplifting people. I still would love to teach, but I would also love to innovate, to sing, to act, to dance, to help out at the post office, and also the Salvation Army. I love to organize, and clean, and systematize.
+
+## Write about the beach: your favorite memory of a trip, what you love, what you hate (e.g., sand gets everywhere). Would you live on the coast if you could, or is it better just for a visit? ##
+My family ventured out to the beach for the 4th of July. Young girls played in the sand with castles, shells, and waters. They loved the holiday, and their moms were ok with me waving at them. I love the foaminess of the ocean. I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+
+## Where do you like to do your journaling? At a desk, in your bed, at the coffee shop? ##
+In bed, I love to journal, and do my best thinking. In bed, I find the comfort of the squishy mattress, and the soft sheets. I love the feel of my head on the pillow in the dark, while writing in the journal. While writing, the sun shines through the window, and I can hear the geese calls.
+
+## Write about someone, living or dead, who you would you like to have back in your life. ##
+I think it would be great to have back in our lives the African American men that the police shoot. Through God, and the life in Christ, their lives have so much power, vibrancy, and graciousness. I am grateful for all of the ways African Americans lead, teach, sing, make decisions, and help people remove prejducies. I would love to have the African Americans, and Chinese Americans, and innocent children in our lives being shot back. Every life has so much potential, vitality, and vibrancy in the world. Every voice is vital in the light, and every life is vital in the light.
+
+## If you had the opportunity to write as a career, what would you write? ##
+In a career, I would love to write a book about unity and oneness, and the power of the people. I would also love to write music. In a writing career, I would love to take the emphasis off of self and put the emphasis on Soul. I love the work she is showing on social media.
+
+## What traffic sign best refelcts your life right now? ##
+The sign guiding people to 'slow down' with children playing and running best reflects my life. I love this sign because of the childlike innocence expressed in it. In life, I am slowing down, and seeking ways to paay attention to the light, the joy, and the love of children more.
+
+## Describe your most recent dream you can remember. ##
+I had a vision come to thought before going to sleep of an African American woman with beautiful eyes and a lovely smile. It was a wonderful dream, peaceful and inspirational. In life, every day, I wake up to the amazing beauty and life of African Americans.
+
+## What do you want more out of life: happiness or success? ##
+Out of life, I seek joy and freedom. Success flows from doing work joyfully. I don't always feel free, but I seek freedom. It would feel wonderful in life to express love, compassion, intellect, creativity, adaptability, originality, vibrancy, independence, and interdependence.
+
+## What is the best piece of advice you have ever been given? ##
+The best piece of advice people have given me is to forgive myself and others, and wipe the tears, the sin, and the anger away. God has always moved me with a strong conscience and a strong heart. People react, but it's ok to forgive. People bully people, but God wants people to belong.
+
+## Why do you think some people are successful in life and others are not? ##
+I think people succeed in life when they express patience in the process of doing the work and love for humanity in the day-to-day moments. Sometimes people do things and get lost in the wrong beliefs, chains, reactions, idols, and situations, but it's never too late to turn around a life and become better and succeed.
+
+## What song is in your head right now, and why? ##
+A song in my head right now is one that I am producing on a new day. Through the song, I convey the light and nature in the world to wake up to. It feels light amidst all of the emotionally heavy things going on in the world, but I have been in situations helping people through the darkness. I have met people struggling to know how to live another day, and through the song running in my head and resounding in my heart, I desire to convey a sense of love and hope for the simple beauty going on beneath the suffering, and loss.
+
+## Journey Writing ##
+## Do you have a tattoo? What is it and why did you get it? If not, would you ever get one? What would the tattoo be, and what would it symbolize to you? ##
+No. I think that tattoos look good on people and that people with tattoos break cultural traditions. I do not want to get a tattoo just to buy into a trend that others are buying into. If I were to get a tattoo to break free from traditional value systems, I would not get a tattoo.
+
+## Write about someone you aspire to be like. ##
+President Barack Obama is a figure I look up to. When facing adversity, he exudes great qualities. He does not seek fame. He did not seek to live and work in the noble office. He does not bicker and complain when facing criticism, attacks, and name-calling. He does not seek to be a prima donna. I aspire to be like him. I seek to express humility, patience, confidence, love, meekness, and graciousness. I hope to treat everyone in the nation as he treats people, and appreciate the interdependencies in human relationships throughout the land. Everyone has a voice, a right to sing, a right to express, a right to love nature, and a right to truly live and learn and heal. I seemed abusive and monstrous when sending images of guns? Would someone in a celebrity photo with the President send guns? Would someone in a celebrity photo with the President gossip, attack, complain, and cry? No, and no.
+
+## How do you soothe yourself when you are upset? ##
+When upset, I soothe myself through telling myself that it's ok to cry. I feel pain when I make mistakes. People make mistakes. It is ok. I will see beauty another day. I will survive another day. It's ok to not want to live. I will progress and expand and live life more to the fullest, however. I love the joy that comes from looking someone in the eye, giving them full attention and appreciation, and listening to understand.
+
+## Does writing change you? How does writing make you a better person? ##
+Writing changes me. Writing, a tool for expressing thoughts, feelings, experiences in words, helps to articulate and process the inner and outer worlds. Using the right words, forming the right sentence structure exercises the process of sharing what goes on within and around through speech. Writing transforms my thinking and helps me better connect to people.
+
+## What bad habit would you like to change? ##
+I would love to *stop* looking people up on Instagram and Google. I would love to stop sending hostile emails. Through loving the glory of a new day, the beauty in a smile, and the lessons taught in computer class, I will break the habit. Through writing down thoughts on Github, and in journals, and working with my hands, I will break the pattern, and the habit.
+
+## What keeps you from getting a good night's sleep? ##
+Ruminating over the past, the things done wrong, and the missed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of God's provisions.
+
+## Write about a time you broke something. ##
+Once, I was fighting within so much that I broke everything in my house. It was a continuation of what it was like as a child when kicking doors and windows. There's a loud fight within, and it leads me to break things. I am building back up now.
+
+## What, in your opinion, is strength? ##
+Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
+
+## What has made you angry this week? ##
+All of the emphasis on self, comparing, and competing made me feel angry. Feeling rejected, teased, and mocked made me feel inferior. It feels like none of my work never measures up. Other people look like opera divas while people tell me I have seemed high maintenance, like an opera diva when I can't fully express myself, and like I have a fragile ego underneath.
+
+## Struggling vs. Suffering ##
+Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
+
+Suffering - pain in silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts, feeling guilt and shame and guilt and shame, and endless ties to people who do not care.
+
+Pain - empathizing with the needs with someone else, feeling the inflicted harm of someone, feeling the negative energy from another's heart.
+
+## When was the last time you pulled an all-nighter? Why did you do it? How did you feel afterwards? ##
+The last time I remember pulling an all-nighter was seven years ago. I worked through the night in the bottom of the library. Other students I could see studying in there. Doing the work was the last thing I wanted to do, but I pushed myself with eyes feeling heavy, and me becoming a zombie. Then I remember walking back to the dorm really early in the morning with the dark sky.
+
+## Write about a memory you associate with the color blue. ##
+Associated with the color blue, I have memories of my cousin playing soccer at the ocean front, and being my friend at the beach cottage. I remember blue pipes on the ceiling at the beach cottage, and I remember hanging on them with my cousins Mary, and Kim, as well as Mary's friends.
+
+## What, in your opinion, is strength? ##
+Strength is the courage within to do what's right. Strength is the peace within to forgive and not react. Strength is the ability to accomplish tasks. Strength is the expression of love.
+
+## Do you have any dreams that recur? Why do you think you continue to have that dream? ##
+A recurring dream I have is the one of the imagery of The Mother Church coming to thought before Association. I am grateful for the purity of the Church Architecture, and the light shining through all the churches. I am grateful for healing across the land, and respect for all cultures besides my own.
+
+## What crime or faux pas would you commit if you knew you would get away with it? ##
+Don't worry. I have already committed a crime. I have committed a crime on social media that in the 21st century leads to divorce, cheating, and trouble. I have created fake, faux accounts, stalked people, and called people out. I have spread people's names, and hurt people with words. I must stop. The social media companies are doing with my account what they are doing with President Trump's. If I get away with it, great - it's mortal mind. I must stop the crime.
+
+## List 25 things you will never do. ##
+(1) I will never carry a gun.
+(2) I will never shoot a gun.
+(3) I will never engage in a sexual relationship before marriage.
+(4) I will never intrude on someone's home in another state.
+(5) I will never aim to be a celebrity.
+(6) I will never attempt to commit suicide again.
+(7) I will never sell anything to my uncles.
+(8) I will never criticize an interracial marriage.
+(9) I will never do a PhD...I don't think I will...but never say never...because I might actually do it...
+(10) I will never step in front of someone else in line.
+(11) I will never mention someone else in an email again.
+(12) I hope never to stalk someone on social media again.
+(13) I hope never to tease anyone heading into the future.
+(14) I hope never to play Truth or Dare again within anyone.
+I can't think of 25, so this is the list of 10.
+
+## You are on the cover of a magazine. What are you famous for? ##
+I don't care to be on the cover of a magazine. I don't enjoy taking a lot of selfies. I have no desire to be on the cover or front-and-center. I love working with a team and collaborating on projects. If I were on the cover of a magazine, I'd love to be with a team addressing a challenge collectively.
+
+## Complete this thought: 'Today I hope...' ##
+Today I hope to clean my room, do business work, go to Nate's house.
+Today I hope to live with love.
+Today I hope not to use social media.
+Today I hope to take a shower.
+Today I hope to uplift my thought for humanity.
+Today I hope to live in peace.
+Today I hope to pray the prayers we prayed in school for all schools nationwide.
+Today I hope someone feels free of a claim that holds them in hostage and in bondage.
+
+## What is a memory you would like to erase? ##
+As a free agent, I would like to erase the memory of being 'a heartbroken cowgirl', a criminal, and a damsel in distress within. I am a free agent, I am able, I am intelligent, I have a good sense of humor, and I am quick to forgive.
+
+## In what way are you selfish? ##
+I can be a selfish person. When I dwell in self-pity, and complain about rejection, the slights, the things done wrong, the ways others are perfect, and I am not. I am selfish when I use the word 'I' in every sentence and harass people. I am selfless when I do the right thing, see the needs of a neighbor, put in the extra work for no gain, and provide to people. 
+
+## Write about a good discovery you have made (big or small). ##
+The biggest discovery I have made over the past year and in this life is that African Americans are life-giving. They have deep faith, they live poetically, they are strong, and they are overcomers. They inspire me to let go of prejudices and live another day for the higher good set before mankind.
+
+## What modern technological device takes up most of your time? ##
+Instagram takes up most of my time. I see all the photos of someone grabbing my attention. She looks like the perfect, ideal Southern woman, and virgin. She looks like the able, cofident, free, and singing woman. This appears as everything I am not. I have actually let it eat up my time, and devour my heart with anger, and violence. I also use this device to share my photography and sketches. Why do I need to put everything online? It eats up everything.
+
+## What would you like to apolgoize to you, and for what? ##
+I would like to apologize to a musician for expressing all of my heartache and heartbreak and violence over womanhood and relationships. I guess I seem entitled. I could not, can not apologize. There was never a response. All I felt was pulled to face my loudest triggers and insecurities.
+
+## Write about something nice a stranger did for you. ##
+Once, I lost my temper at Starbucks. I threw the coffee cup on the ground. I looked pathetic. I was a horrible person. One stranger pardoned me and prayed for me from her car. Another straner prayed with me near a tree to help me stay grounded in reality.
+
+## Have you ever lived in another country besides your country of birth? Would you want to? ##
+I have lived in Scotland, Ireland, and Argentina. I am grateful I rowed with the Scottish. I remember being alone in the dark and feeling lost when miraculously my Scottish rowing coach found me walking before practice. I love that I went to music concerts in Ireland. I am grateful for the readings and church services in Spanish in Argentina.
+
+## Which is stronger, love or hate? ##
+Hate seems to be strong. It seems to tear one's heart up and throw one's life into shambles. Unconditional love is the most powerful force in the world, however. It overcomes the strongest, most monstrous waves of hate. Unconditional love overcomes all through to the ends of the world.
+
+## What do you think is the most important thing for today's kids to learn in school? ##
+I think that the most important thing for today's kids to identify emotions, and develop healthy relationships with people that are different from them. I also think it is improtant for kids to learn how to manage money but not worship money. I believe in the next generation! :) :)
+
+**Name** became a **type of career/success** because he was **trait**, **trait**, and **trait**.
+"Colin Powel became an **inspiring leader** because he is **brave**, **intelligent**, and **ambitious**."
+"Sandy Koufax was a **remarkable sports hero** because of his **work ethic**, **amazing athletic ability**, and **teamwork**."
+"Because of his **determination**, **Martin Luther King Jr.** was able to overcome **educational barriers**, **prejudice**, and **violence** to become a **political leader** who changed America.
+
+## For people who have made awful, horrible mistakes -- what questions would you ask them? ##
+(1) How have you changed over the past 1 year - 5 years - 10 years?
+(2) What have you learned in relationships?
+(3) What challenges have you overcome?
+(4) How have you rediscovered aspects of your true self?
+
+## Periodically we have tension build up in our lives that requires a release of some kind. Some people cry, others punch, and some find a creative outlet. What is your release? ##
+I have experienced heartbreak, and I had been listening to popular music in the music industry targeting heartbreaking females. It felt comforting on the one hand to listen to the music, but on the other hand I didn't know how the music would fully heal heartbreak, or an emotional wound. As soon as the musician posted photos of his girlfriend, with a guitar, looking like a strong woman to make it worse, in NOLA, where my grandmother was from, so much tension came to the surface. I didn't want to cry. I kicked a door, and threw my cowboy boots in the trash can, and I became a criminal online. I yelled out, and ultimately I learned to give my tears to God.
+
+## What very dangerous thing would you do in a heartbeat if given the opportunity? ##
+It's not a dangerous thing to do, but with a passion for music, in a heartbeat, I would work towards becoming a professional musician. I love playing music improv and composing music. I feel like I am becoming better. Also, in a heartbeat, I would take more painting classes.
+
+## What is a personality trait you admire in other people? ##
+I admire the quality of integrity the most in people. I think this means that one has to be true to oneself at heart, let God work through them intuitively, and strive to work ethically, morally, and compassionately. I admire thoughtfulness, and the quality of diving deeper into ideas once visited.
+
+## Is our world today a better or worse place than it was when you were a kid? ##
+I think our world is in a better place today. I think a lot has shifted, many lessons have been learned, and people are more mature, active, and expressive than when I was a kid. I think family relationship ties have grown deeper, harmony has increased, but everyone, mostly myself, has to watch for regressions.
+
+## Do you like your name? Do you feel like it suits you? If you could change your name, would you? What would you change it to? ##
+I love my name. My name is Margaret for a reason. I love that I am my grandmother's namesake. I feel that it suits me because we express similar qualities. I am intellectual, compassionate, and natural, and musical like my grandmother, Margaret. I love words, puzzles, and math like my grandmother also. 
+
+I share the same name as Margaret Thatcher as well, and people have reminded me that I express much strength despite my follies and vices. I love that I am unique, individual, Margaret.
+
+'Margaret' means 'daisy' in French, and flowers turn to the sun. Margaret in Sanskrit means 'pearl'. Pearls grow in oysters. Sometimes irritants come up, but the irritants grind against the 'pearl of great price' within.
+
+My name is a Western-European name, and I love that people from other cultures share similar experiences with names being tied to meanings and ancestry.
+
+If I were to go by another name, I would go by "Meg", but "Margaret" is amazing as well :)
+
+## What is the last thing (or one of the last things you searched for on the Internet? ##
+One of the last things I searched for on the Internet is the medieval music. I drew the connection between the cowboy culture and the knight culture. Love songs come into being from both cultures. People used to use the medieval organ to play love songs, "country" music, as well as church music. During the late medieval period, and the Scientific Revolution, people understood music through science.
+
+## Write about a real or imagined train ride you have taken. ##
+I have taken real train rides to Pennsylvania and back, and to Boston and back. I love looking out the windows, and seeing the scenery. People from different walks of life come on and come off the platform. I appreciate the hustle and the bustle in the train station. It's beautiful to imagine the dance of life in the situation, and on the train. What a wonderful experience it is to share affection with family members on and off the train.
+
+## Write about a time you felt alone. ##
+Alone, alone, alone, alone all the time I seemed like the epitome of a "damsel in distress". I made it very obvious to people that I was crying inside. I annoyed people. I held prejudices, and biases, and grievances, but I uncovered them; and I realized that I am never alone. People live all around me. I can be and am being a neighbor everyday in the neighborhoods, even the unsafe ones.
+
+## If you could do one thing every day for the rest of your life, what would it be, and why? ##
+For the rest of my life, if I could do something, I would take up the life of a naturalist.
+I would observe and truly listen to nature.
+I would take field notes.
+I would write down 5 images, and 5 sounds every day.
+I would talk to someone in person every day.
+I would love family members, including distant family members, every day.
+I would appreciate the study of history, a natural science.
+I would appreciate the stories told in families, and people's ancestors, lineage, and heritage.
+I would play music, take photography, and love more every day.
+[The Concept of Scientific History](https://www.jstor.org/stable/2504255?seq=1)
+
+## What makes you smile or laugh every time you think of it? ##
+Today, I randomly smiled at a stranger at Starbucks. She was so beautiful. She smiled right back. We recriprocated our love for one another. Our eyes met. We connected truly. I helped her. She helped me even more. I love how God puts a smile right on our faces even when we feel the need to cry, and break down. It's wonderful that God is always at work.
+
+## What historical figure would you like to interview? What would you ask? ##
+W. E. B. Dubois and Harriet Tubman are two historical figures I'd love to interview. I would love to learn more about their experiences as African Americans in the old American country. 
+
+* What were your greatest challenges?
+* How did you overcome these challenges?
+* What did you discover in relation to white people?
+* What were your hopes for the next generations of African Americans?
+* Did you believe in God? How did God communicate to you?
+* What was some interesting are people in your generation of African Americans?
+* What did you enjoy about writing?
+
+## Have you done any research into your ancestors? What interesting surprises have you discovered? ##
+Through my grandmother, and my intuition underly someone's country music on "Going South", I discovered surprises about my ancestor, Dr. Thomas Walker, who discovered the Cumberland Gap. He surveyed the land, led the country West, and explored Kentucky before Daniel Boone. With the Indians as guides, they passed through the native land and discovered the birth of America.
+
+## What do you look forward to every week? ##
+Every week, I look forward to Monday mornings. The time of the week to start all the work I have to do. It's a fresh time of the week, a time to restart, and a time to rejoice. On Monday mornings, I love going to school, hearing the laundry machine, and seeing people at Starbucks.
+
+## Were you ever bullied as a child? Tell a story of a time you were bullied, or a time you observed someone being bullied. ##
+Yes! People bullied me as a child. I work on letting go of the sense of being bullied, and love people and forgive people. I remember on the late bus I desired to communicate and connect with people, but they made me feel bad for listening in, and people did not let me sit with them at the lunch table. It was awful! But I open up to the Holy Spirit's new ways of blessing people.
+
+## What is one of your greatest blessings? ##
+My family has blessed me with love, music, laughs, cheerfulness, athletics, and commitment since I was young I am grateful for many memories of our family reunions where we met and participated in activities harmoniously. I love that this family continues to bless me with emotional support and gatherings on farms and old houses. I trust that there will be many, many, many more good years ahead as adults with the next generation to come.
+
+## When was the last time you felt needed? ##
+Every time Nate calls me and asks me to give him a ride, I feel needed. I love hearing his voice, his faith, and his love for his family and the community. I have felt loved when he shared that his mom wanted to meet me, and he made me feel better when he said 'I would be a good mom'. I love feeling the motherly love for his precious daughters. I am grateful to know the Salvation Army and the Up Center, and feel needed there when I compassionately share items with them.
+
+## If you had to do it all over again, how would you reinvent your life? ##
+I would not reinvent anything in life. Yes, I have made mistakes. Yes, I have made people afraid of me. Yes, I have felt like I have failed and become angry. I know that if I choose to keep seeing the good in situations, trusting my higher self, and expanding on what I love, that all will reinvent itself for my future in the best way possible.
+
+## What musical instruments would you like to learn how to play, and why? ##
+With music being the most romantic artistic expression, I would love to learn to play the mandolin. I come from Virginia, the birthplace of bluegrass-country music. The mandolin supports well playing this fine Virginian folk music that has ties to Scottish, Celtic music. My soul desires to play refined tunes that sound like the wind, the chimes, the birds, the grass, the rose, the flowers, and the river in harmony. The mandolin is a golden instrument, and I would love to play it along with the piano.
+
+## What keeps you from getting a good night's sleep? ##
+Ruminating over the past, the things done wrong, and the missed connections keeps me from getting a good night's sleep. There have been many nights when mortal, scary dreams and anxiety about the future or the things done wrong have prevented me from sleeping. I turn my thought to setting the right desires, loving God, and resting in the consciousness of Love, God's provision.
+
+## Are there any lines that you simply will not cross? ##
+Simply I will never cross the line of buying a gun and shooting it. I may have sent reactive, and hateful messages, but I am growing more in touch with the true self that lies beneath the mask. The evil threats masks a clouds of doubt, of insecurity, of disability. Though I have made these threats and sent these images, never will I ever purchase a gun and shoot someone.
+
+## What would you like to be forgiven for? ##
+When feeling provoked or made fun of, I have lashed out or lost control. The lash out became so loud that I threatened to kill people. I would like to be forgiven for these awful lashing out emails. It hurts so much to express compassion towards people and not have people reciprocate. I would like to be forgiven for lashing out towards people when no one has responded. I would also love to be forgiven in relationships so that if I find healthy relationships, and someone who feels like a 'soul mate' people will accept, and support me.
+
+## Do you have anyone in your life that has acted as a mentor to you? Have you ever helped someone else out in this way? ##
+Some individuals at EVERFI acted as signficant mentors to me. The lead systems and data architect at EVERFI mentored me, believed in me, and gave me opportunities to work with the Engineering team. A woman on the marketing team was also someone with a vibrant attitude who I looked up to a lot. I have helped people in this way when younger men have reacted out to ask about data science.
+
+## Describe the most beautiful sound you have ever heard. ##
+The church bells ringing through my ears make me feel so good. I think them chiming are a beautiful sound. I love the sound of the trees moving with the breeze, and I find peace in the sound of the harmonious silence. There exists a power in silence. Beautiful sounds fill the Earth each and every day. Another one I love is the sound of children laughing from an apartment window.
+
+## You have a child and you have written one piece of advice that will be carried in his/her pocket for life. What is that advice? ##
+There is a child within you first. She is innocent, free, light-hearted, and joyful. She has a good sense of humor, and she's quick to get back up and try new things. She loves to sing, and play music, and play with little ones. she also loves the sound of children playing.
+
+For my child, I hope she sees how much love there is for everyone around her. I hope she keeps her childlike sense of wonder and motherly love, and freedom to do what God leads her to do. I hope that she carries in her pocket the advice to not let the weight of the world, and human opinions touch her. I hope she proceeds with love each, and every day.
+
+## Write about the last time you felt guilty. ##
+Yesterday, I felt guilty. I reacted on social media yet again. I looked up those people that look like celebrities yet again. I was mean because I felt inescure. I am guilty of feeling insecure, jealous, and like a wretch. I am guilty of carrying that attitude that Emily Dickinson carries - "I am no one!" I am guilty of the need to let go of an infatuation. It is awful. I move on to new, and healthier relationships.
+
+## What is something you have dreamed about? ##
+This morning, I dreamed of a roommate, a friend, who recently had a daughter. I dreamed of how much love I had for her, her daughter, and her husband, the father. I love the motherly love, and fatherly love, and restored fatherly love with no insecurity, attacking - just pure fatherly-motherly love supporting in harmony.
+
+In the past, I have listened to music by Al Green and appreciated the African American music in Memphis. It turned from dream to reality, when I met the man whose father played music with Al Green in Memphis. I love the history of African Americans in the city.
+
+## Do you prefer taking risks or having a safety net? ##
+Having a net to fall back on supports taking risks. I love to express spontaneously, go on adventures, and test the boundaries to make new discoveries and build new creations. Taking risks supports me stretching myself. The last time I took a risk, I drove across the Arkansas Bridge and some other bridges. My family was there as a safety net, and so was my faith in a higher power.
+
+## What is the best thing you have ever been given? ##
+While roaming the streets of Wahsington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
+
+## Diary Entry - 10 Years in the Future ##
+Dear Margaret,
+Remember how on this day, 10 years ago, how forgiven you felt for the first time for all the crimes done, and all the wrongs done. You had so much deep love and deep thought for humanity. You started growing in new ways, and waking up old passions for English writing and children's books. You started understanding cultural nuances more clearly, and finding full freedom from suicidal thinking. You had love for family so much on this day 10 years ago, as well as love for the little ones on the street. You let go of the things you needed to be letting go of, and you started learning some of the deeper things you needed to learn. Thank God for moving you forward for 10 years and bringing healing, color, good relationships, full freedom from suicide, and and fulfillment into your life. The sun continues to shine every day.
 
 
 ----------
@@ -6104,3 +6125,7 @@ Popularity to me can be good or bad. It depends on who you are. If you were popu
 
 ## Competitiveness ##
 I think competitiveness is away to see whether you have improved. You can compete with yourself or against others. I like to compete. I use both ways. I feel that competitivenes is important. An example of me competing is in swimming. During swim practice, I compete against myself in seeing if my strokes are less than before and if the way I swim looks better.
+
+
+----------
+
