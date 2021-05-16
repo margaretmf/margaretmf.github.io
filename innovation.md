@@ -1317,11 +1317,11 @@ is_contact: true
 (5) The long road ahead with two yellow lines with the street touching the trees
 
 ## **Sounds** ##
-(1) 
-(2)
-(3)
-(4)
-(5)
+(1) People talking at a restaurant
+(2) A grocery basket rolling on the street - the clinking clacking clackity
+(3) An airplane launching in the sky
+(4) A train rolling by sounding like thunder
+(5) The cutting of food
 
 ## **Day 76** ##
 ## **Images** ##
@@ -1461,6 +1461,8 @@ African music, African land, Cairo
 * Hiding, opposites, sunshine, shadow
 * Building a house, gratitude, different roles, foundation strong, working together, all works together for good
 * Mountains, rainbow, tapestry, valley
+
+
 <br>
 
 <br>
