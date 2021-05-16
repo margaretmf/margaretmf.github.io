@@ -13,8 +13,6 @@
 
 <img class="profile-picture" src="Brown&BlueLines.jpg">
 
-<img class="profile-picture" src="Red&Green&BlackLines.jpg">
-
 <img class="profile-picture" src="Stoplight.jpg">
 
 <img class="profile-picture" src="Green&BlackLines&Arrows.jpeg">
