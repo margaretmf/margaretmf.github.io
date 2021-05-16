@@ -122,7 +122,7 @@ Everything private becomes public, everything public influences our private live
 
 <br>
 
-Word Associations: reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
+**Word Associations:** reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
 
 ## Friendship ##
 Feeling safe, and validated by someone kindred to trust them with information.
@@ -131,7 +131,7 @@ Forming memories that last day in and day out, and growing in union with one ano
 
 <br>
 
-Word Associations: companion, bond, share, kindred, reciprocal, confide, trust, mutual, memories, secrets
+**Word Associations:** companion, bond, share, kindred, reciprocal, confide, trust, mutual, memories, secrets
 
 ## Love ##
 Love - a sacrifice for a team, a family, a church
@@ -143,7 +143,7 @@ romantic fun and sense of humor
 
 <br>
 
-Word Associations: kiss, sacrifice, romance, partner, trust, attraction, falling, communication, envy, compromise
+**Word Associations:** kiss, sacrifice, romance, partner, trust, attraction, falling, communication, envy, compromise
 
 ## Quest ##
 On a quest to discover the rhyme and reason to the universe,
@@ -155,7 +155,7 @@ in a story to appreciate the true vision, the heroism, and the exciting goal for
 
 <br>
 
-Word Associations: goal, future, adveneture, possibility, road, vision, purpose, obstacle, story, hero
+**Word Associations:** goal, future, adveneture, possibility, road, vision, purpose, obstacle, story, hero
 
 ## Secrets ##
 Hidden lusts, and affections
@@ -166,7 +166,7 @@ In the mystery, all the secrets become vanished into a mortal dream of nothingne
 
 <br>
 
-Word Associations: spy, death, reveal, guard, protect, discovery, mystery, hidden, trust, lies
+**Word Associations:** spy, death, reveal, guard, protect, discovery, mystery, hidden, trust, lies
 
 ## Message ##
 A secret message signaling to someone information, and knowledge that should be known.
@@ -176,7 +176,7 @@ Different conduits for voices and paper to share these secrets.
 
 <br>
 
-Word Associations: send, encrypt, alert, bottle, secret, spy, prophet, phone, deliver, signal
+**Word Associations:** send, encrypt, alert, bottle, secret, spy, prophet, phone, deliver, signal
 
 ## Lie ##
 Subliminal messages, and an image-saturated world.
@@ -186,7 +186,7 @@ Detect the sneakiness, remove it, and the Truth can find its proper place.
 
 <br>
 
-Word Associations: detect, sleep, place, mask, false, truth, deception, snake, sneak, fake
+**Word Associations:** detect, sleep, place, mask, false, truth, deception, snake, sneak, fake
 
 ## The Ocean ##
 The ocean.
