@@ -255,6 +255,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for interracial couples I see outside and inside public spaces
 * Grateful for cool fashion and the brown shirt someone is wearing
 * Grateful for the people sweeping the floor
+* Grateful for memories of mentoring the girls in technology and STEM in Washington, DC
+* Grateful for memories of washing movies with Grandmama as a child
+* Grateful for memories of the meditation studio in Washington, DC
 
 
 ----------
