@@ -278,7 +278,7 @@ Charlie's heart stood still.
 
 'It's a Golden Ticket!' screamed the shopkeeper, leaping about a foot in the air. 'You've got a Golden Ticket! You've found the last Golden Ticket! Hey, what do you know! Come and look at this, everybody! The kid's found Wonka's last Golden Ticket! There it is! It's right there in his hands!" (p. 44, "Charlie and the Chocolate Factory")
 
-* "Greetings to you, the lucky finder of this golden ticket, from Mr. Willy Wonka! I shake you warmly by the hand! Tremendous things are in store for you! Many wonderful surprises await you! For now, I do invite you to come to my factory and be my guest for one whole day - you and all others who are lucky enough to find my GOlden Tickets. I, Willy Wonka, will conduct you around the factory myself, showing you everything that there is to see, and afterwards, when it is time to leave, you will be escorted home by a procession of large trucks. These trucks, I can promise you, will be loaded with enough delicious eatables to last you and your entire household for many years. If, at any time thereafter, you should run out of supplies, you have only to come back to the factory and show this Golden Ticket, and I shall be happy to refill your cupboard with whatever you want. In this way, you will be able to keep yourself supplied with tasty morsels for the rest of your life." (p. 50, "Charlie and the Chocolate Factory")
+* "Greetings to you, the lucky finder of this golden ticket, from Mr. Willy Wonka! I shake you warmly by the hand! Tremendous things are in store for you! Many wonderful surprises await you! For now, I do invite you to come to my factory and be my guest for one whole day - you and all others who are lucky enough to find my Golden Tickets. I, Willy Wonka, will conduct you around the factory myself, showing you everything that there is to see, and afterwards, when it is time to leave, you will be escorted home by a procession of large trucks. These trucks, I can promise you, will be loaded with enough delicious eatables to last you and your entire household for many years. If, at any time thereafter, you should run out of supplies, you have only to come back to the factory and show this Golden Ticket, and I shall be happy to refill your cupboard with whatever you want. In this way, you will be able to keep yourself supplied with tasty morsels for the rest of your life." (p. 50, "Charlie and the Chocolate Factory")
 
 * "'Yippeeeeee!' shouted Grandpa Joe, seizing Charlie by the hands and dancing round the room." (p. 52, "Charlie and the Chocolate Factory")
 * "'Hallelujah!' yelled Grandpa Joe. 'Praise the Lord!'" (p. 53, "Charlie and the Chocolate Factory")
@@ -357,8 +357,8 @@ The crowd on the riverbank waited breathlessly to see where he would come out." 
 
 'Of course he will!' shriekd Mrs. Gloop." (p. 76, "Charlie and the Chocolate Factory")
 
-* "'Augustus Gloop!' chanted the Oompa-Loopmas.
-'Augustus Gloop!' Augustus Gloop!
+* *"'Augustus Gloop!' chanted the Oompa-Loompas.
+*'Augustus Gloop!' Augustus Gloop!
 The great big greedy nincompoop!
 How long could we allow this beast
 To gorge and guzzle, feed and feast
@@ -367,10 +367,10 @@ Great Scott! It simply wouldn't do!
 However long this pig might live,
 We're positive he'd never give
 Even the smallest bit of fun
-Or happiness to anyone.
+Or happienss to anyone.
 So what we do in cases such
 As this, we use the gentle touch,
-ANd carefully we take the brat
+And carefully we take the brat
 And turn him into something that
 Will give great pleasure to us all -
 A doll, for instance, or a ball,
@@ -383,7 +383,7 @@ Inside our mouths, and so in haste,
 We close a thing that, come what may,
 Would take the nasty taste away.
 'Come on!' we cried, 'The time is ripe
-To send him shooting up the pipe!
+To send him shotting up the pipe!
 He has to go! It has to be!
 And very soon, he's going to see
 Inside the room to which he's gone
@@ -411,6 +411,13 @@ Is loved by people everywhere!
 For who could hate or bear a grudge
 Against a luscious bit of fudge'" (pp. 79-80, "Charlie and the Chocolate Factory")
 
+* *"There's no earthly way of knowing                                                                                                                            Which direction they are going!                                                                                                                                    There's no knowing where they're rowing,                                                                                                                                          Or which way the river's flowing!                                                                                                                                       Not a speck of light is showing,                                                                                                                                        So the danger must be growing,                         
+    
+                                                                     
+* For the rowers keep on rowing,
+* And they're certainly not showing
+* Any signs that they are slowing...' (pp. 84-85, "Charlie and the Chocolate Factory")
+
 * "There's no earthly way of knowing
 Which direction they are going!
 There's no knowing where they're rowing,
@@ -421,7 +428,7 @@ For the rowers keep on rowing,
 And they're certainly not showing
 Any signs that they are slowing..." (pp. 84-85, "Charlie and the Chocolate Factory")
 
-* "There was a pause. Then suddenly, VIolet Beauregarde, the goofy gum-chewing girl, let out a yell of excitement/ 'By gum, it's gum!' she shrieked. 'It's a stick of chewing gum!' "Right you are!' cried Mr. Wonka, slapping Violet hard on the back. 'It's a stick of gum! It's a stick of the most *amazing* and *fabulous* and *sensational* gum in the world!'" (pp. 93-94, "Charlie and the Chocolate Factory")
+* "There was a pause. Then suddenly, Violet Beauregarde, the goofy gum-chewing girl, let out a yell of excitement/ 'By gum, it's gum!' she shrieked. 'It's a stick of chewing gum!' "Right you are!' cried Mr. Wonka, slapping Violet hard on the back. 'It's a stick of gum! It's a stick of the most *amazing* and *fabulous* and *sensational* gum in the world!'" (pp. 93-94, "Charlie and the Chocolate Factory")
 
 "'The gum,' Mr. Wonka went on, 'is my latest, my greatest, my most fascinating invention! It's a chewing-gum meal! It's..it's...it's...that tiny little strip of gum lying there is a whole three-course dinner all by itself!'" (p. 94, "Charlie and the Chocolate Factory")
 
