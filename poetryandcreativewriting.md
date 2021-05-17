@@ -247,6 +247,14 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for people that have come into new life and broken out of the old man
 * Grateful for how the liberal arts adds value in the world
 * Grateful for professors who are Renaissance thinkers, find the interconnections, and help people break out of boxes
+* Grateful for the diversity in the mll
+* Grateful for the confidence and style that people exude
+* Grateful for Black leadership
+* Grateful for cheerfulness I see expressed
+* Grateful for the architecture in the mall
+* Grateful for interracial couples I see outside and inside public spaces
+* Grateful for cool fashion and the brown shirt someone is wearing
+* Grateful for the people sweeping the floor
 
 
 ----------
