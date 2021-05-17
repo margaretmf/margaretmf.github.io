@@ -172,34 +172,111 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Who? ###
 * Mary Poppins, the nanny, the Policeman
 * Mr. Banks, the father, and lead of the household, leader of the banking system
-* Jane and Michael, the two children
+* Jane and Michael, the two children (eldest, youngest)
 * Mrs. Banks, the mother in the household
+* Mrs. Brill, the cook
+* Katie Nanna, the older nanny that the children do not like
+* Ellen and Robertson Ay
+* Admiral Bloom
+* the Match-Man
+* Bert
 
 ### Where? ###
-* Cherry-Tree Lane
+* Number Seventeen, Cherry-Tree Lane, London
 
 ### What? ###
+* the East Wind
 
 ### Color ###
-* white-gloved // finger
+* white-gloved // finger, black // bag, peering // blue // eyes, white // apron, dark // crimson // fluid, red // feeling, white // gloves, coloured // chalks, brown // stripes, brown // curls, blue // sea, green // crisp grass, green // branches, coloured // flowers, diamond // buckles, black // coat, green // chairs
 
 ### Adjectives ###
-* particular // house, smallest // house, huge // finger, comfortable // house
+* particular // house, smallest // house, huge // finger, comfortable // house, lowest possible // wage, front // gate, gilt // weathercock, grandest // house, large // chair, large // desk, curious // thing, terrific // bang, whole // house, sharp // dig, old-fashioned // idea, top // landing, excellent // view, extraordinary // thing, large // bag, long, loud // sniff, signal // honour, empty // bag, large // bottle, delicious // taste, happy // smile, terrible // glance, miraculous // bottle, dim // light, carpet // bag, flannel // nightgowns, beautiful // handle, empty // motor-car, pavement // pictures, particular // day, ladylike // cough, important // person, stodgy // meal, gigantic // roses, fair // treat, bright green-and-red // striped coat, admiring // voice, round // eyes, artificial // silk, watery // patterns, curly // feather, little // wood
 
 ### Adverbs ###
-* scratch // [his head] // thoughtfully, push // [his helmet] // slightly
+* scratch // [his head] // thoughtfully, push // [his helmet] // slightly, absent-mindedly // kissed, suddenly // pointing, heavily // banged, curiously // gazed, suddenly // noticing, steadily // regarded, searchingly // regard, suddenly // discovered, ecstatically // said, deliciously // sliding, eagerly // lapped, solemnly // took threateningly // said, sternly // eyed, hurriedly // said, hurriedly // disappeared, haughtily // nodded, sadly // looked, said // brightly, apparently // thought, said // admiringly, huskily // rattling, steadily and delightedly // stare, open // space, big // brass, particular // phrase
 
 ### Vocabulary ###
-* Dilapidated
+* Dilapidated, Exactly, Dancing, Consideration, Conclusion, Advertise, Disappear, Queue, Pop, Spare, Wonder, Indicate, Proceeded, Wrinkled, Swallowed, Ecstatically, Gurgled, Smacking, Corking, Astonishment, Coax, Threateningly, Listening, Preside, Sternly, Littered, Indulge, Stoop, Stare, Admire
 
 ### Allusions ###
+* Queen Elizabeth
 
 ### Themes ###
-* Military
+* Military, Childlike Adventure, The City, The Nursery
 
 ### Interesting Sentences or Paragraphs ##
-* "'First to your right, second to your left, sharp right again, and you're there. Good-morning.'" (p. 1, "Mary Poppins")
-"And sure enough, if you follow his directions exactly, you *will* be there - right in the middle of Cherry-Tree Lane, where the houses run down one side and the Park runs down the other and the cherry-trees go dancing right down the middle." (p. 1, "Mary Poppins")
+* "If you want to find Cherry-Tree Lane all you have to do is ask the Policeman at the cross-roads. He will push his helmet slightly to one side, scratch his head thoughtfully, ad then he will point his huge white-gloved finger and say: 'First to your right, second to your left, sharp right again, and you're there. Good morning.'" (p. 1, "Mary Poppins")
+
+"And sure enough, if you follow his directions exactly, you will be there - right in the middle of Cherry-Tree Lane, where the houses run down one side and the Park runs down the other and the cherry-trees go dancing right down the middle." (p. 1, "Mary Poppins")
+
+* "Then I should wait and watch for the Nannies to queue up outside the front gate, and I should get very cross with them for holding up the traffic and making it necessary for me to give the policeman a shilling for putting him to so much trouble. Now I must be off. Whew, it's as cold as the North Pole. Which way is the wind blowing?'" (p. 3, "Mary Poppins")
+
+* "And as he said that, Mr. Banks popped his head out of the window and looked down the Lane to Admiral Bloom's house at the corner. This was the grandest house in the Lane, and the Lane was very proud of it because it was built exactly like a ship. There was a flagstaff in the garden, and on the roof was a gilt weathercock shaped like a telescope." (p. 3, "Mary Poppins")
+
+* "Now, the City was a place where Mr. Banks went every day - except Sundays, of course, and Bank Holidays - and while he was there he sat on a large chair in front of a large desk and made money. All day long he worked, cutting out pennies and shillings and half-crowns and threepenny-bits. And he brought them home with him in his little black bag. Sometimes he would give some to Jane and Michael for their money-boxes, and when he couldn't spare any he would say, 'The Bank is broken,' and they would know he hadn't made much money that day." (p. 3, "Mary Poppins")
+
+* "They were glad Katie Nanna had gone, for they had never liked her. She was old and fat and smelt of barley-water. Anything, they thought, would be better than Katie anna - if not *much* better." (p. 4, "Mary Poppins")
+
+* "'The nursury is upstairs --' And sh led the way towards the staircase, talking all the time, without stopping once. And because she was doing that Mrs. Banks did not notice what was happening behind her, but Jane and Michael, watching from the top landing, had an excellent view of the extraordinary thing the visitor now did." (p. 8, "Mary Poppins")
+
+* "Mary Poppins regarded them steadily, looking from one to the other as though she were making up her mind whether she liked them or not. 'Will we do?' said Michael. 'Michael, don't be naughty,' said his Mother. Mary Poppins continued to regard the four children searchingly. Then, with a long, loud sniff that seemed to indicate that she had made up her mind, she said: " (p. 9, "Mary Poppins")
+
+* "By this time the bag was open, and Jane and Michael were more than surprised to find it was completely empty.
+
+'Why,' said Jane, 'there's nothing in it!'
+
+'What do you mean - nothing?' demanded Mary Poppins, drawing herself up and looking as though she had been insulted. 'Nothing in it, did you say?'
+
+And with that she took out from the empty bag a starched white apron and tied it round her waist. Next she unpacked a large cake of Sunlight Soap, a toothbrush, a packet of hairpins, a bottle of scent, a small folding armchair and a box of throat lozenges.
+
+Jane and Michael stared.
+
+'But I *saw*,' whispered Michael. 'It *was* empty.'
+
+'Hush!' said Jane, as Mary Poppins took out a large bottle labelled 'One Tea-Spoon to be Taken at Bed-Time.'
+
+A spoon was attached to the neck of the bottle, and into this Mary Poppins poured a dark crimson fluid.
+
+'Is that your medicine?' enquired Michael, looking very interested.
+
+'No, yours,' said Mary Poppins, holding out the spoon to him. Michael stared. He wrinkled up his nose. He began to protest.
+
+'I don't want it. I don't need it. I won't!'" (pp. 10-11, "Mary Poppins")
+
+"But Mary Poppin's eyes were fixed upon him, and Michael suddenly discovered that you could not look at Mary Poppins and disobey here. There was soemthing strange and extraordinary about her - something that was frightening and at the same time most exciting. The spoon came nearer. He held his breath, shut his eyes and gulped. A delicious taste ran round his mouth. He turned his tongue in it. He swallowed, and a happy smile ran round his face. (p. 11, "Mary Poppins")
+
+"'Strawberry ice,' he said ecstatically. 'More, more, more!'
+
+But Mary Poppins, her face as stern as before, was pouring out a dose for Jane. It ran into the spoon, silvery, greeny, yellowy. Jane tasted it.
+
+'Lime-juice cordial,' she said, sliding her tongue deliciously over her lips. But when she saw Mary Poppins moving towards the Twins with the bottle Jane rushed at her." (p. 11, "Mary Poppins")
+
+* "Mary Poppins, however, took no notice, but with a warning, terrible glance at Jane, tipped the spoon towards John's mouth. He lapped at it eagerly, and by the few drops that were split on his bib, Jane and Michael could tell that the substance in the spoon this time was milk. Then Barbara had her share, and she gurgled and licked the spoon twice.
+
+Mary Poppins then poured out another dose and solemnly took it herself." (p. 12, "Mary Poppins")
+
+* "'Now', she said, 'spit-spot into bed.' And she began to undress them. They noticed that whereas buttons and hooks had needed all sorts of coaxing from Katie Nanna for Mary Poppins they flew apart almost at a look. In less than a minute they found themselves in bed and watching, by the dim light from the night-light, the rest of Mary Poppins's unpacking being performed.
+
+Fromt he carpet bag she took out seven flannel nightgowns, four cotton ones, a pair of boots, a set of dominoes, two bathing-caps and a postcard album. Last of all came a folding camp-bedstead with blankets and eiderdown complete, and this she set down between John's cot and Barbara's." (p. 12, "Mary Poppins")
+
+* "But they knew, both of them, that something strange and wonderful had happened at Number Seventeen, Cherry-Tree Lane." (p. 13, "Mary Poppins")
+
+* "Mary Poppins stared from him to Jane in silence. Then she sniffed." (p. 13, "Mary Poppins")
+
+* "And that is how Mary Poppins came to live at Number Seventeen, Cherry-Tree Lane. And although they sometimes found themselves wishing for the quieter, more ordinary days when Katie Nanna ruled the household, everybody, on the whole, was glad of Mary Poppins's arrival. Mr. Banks was glad because, as she arrived by herself and did not hold up the traffic, he had not had to tip the Policeman. Mrs. Banks was glad because she was so fashionable that she didn't believe in giving references. Mrs. Brill and Ellen were glad because they could drink strong cups of tea all day in the kitchen and no longer needed to preside at nursuery suppers." (p. 14, "Mary Poppins")
+
+* "Now, the Match-Man had two professions. He not only sold matches like any ordinary match-man, but he drew pavement pictures as well. He did these things turn-about according to the weather. If it was wet, he sold matches because the rain would have washed away his pictures if he had painted them. If it was fine, he was on his knees all day, making pictures in coloured chalks on the side-walks, and doing them so quickly that often you would find he had painted up one side of a street and down the other almost before you'd had time to come round the corner." (pp. 16-17, "Mary Poppins")
+
+* "Mary Poppins looked down at her feet and rubbed the toe of one shoe along the pavement two or three times. Then she smiled at the shoe in such a way that the shoe knew quite well that the smile wasn't meant for it." (pp. 17-18, "Mary Poppins")
+
+* "Bert could not say anything for a moment, for his mouth had fallen open and he was staring at her with round eyes. Then he gulped and said: 'Golly!'" (p. 20, "Mary Poppins")
+
+* "That was all. But he said it in such a way and stared so steadily and so delightedly at her that she took a little mirror out of her bag and looked at herself in it.
+
+She, too, she discovered, had changed. Round her shoulders hung a cloak of lovely artificial silk with watery patterns all over it, and the tickling feeling at the back of her neck came, the mirror told her, from a long curly feather that swept down from the brim of her hat. Her best shoes had disappeared, and in their place were others much finer and with large diamond buckles shining upon them. She was still wearing the white gloves and carrying the umbrella." (pp. 20-21, "Mary Poppins")
+
+* "Mary Poppins, thoroughly surprised, sat down with a plop upon one of the little green chairs that stood round the table. The Match-Man, staring, collapsed on to another." (p. 21, "Mary Poppins")
 
 
 ----------
