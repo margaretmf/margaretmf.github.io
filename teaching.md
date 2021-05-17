@@ -168,6 +168,43 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## [Mary Poppins by P. L. Travers (c. 1934, 1962, 1981)](https://www.amazon.com/Mary-Poppins-P-L-Travers-ebook/dp/B0043EWTD0/ref=sr_1_6?dchild=1&keywords=mary+poppins&qid=1621287055&sr=8-6) 
+### Who? ###
+* Mary Poppins, the nanny, the Policeman
+* Mr. Banks, the father, and lead of the household, leader of the banking system
+* Jane and Michael, the two children
+* Mrs. Banks, the mother in the household
+
+### Where? ###
+* Cherry-Tree Lane
+
+### What? ###
+
+### Color ###
+* white-gloved // finger
+
+### Adjectives ###
+* particular // house, smallest // house, huge // finger, comfortable // house
+
+### Adverbs ###
+* scratch // [his head] // thoughtfully, push // [his helmet] // slightly
+
+### Vocabulary ###
+* Dilapidated
+
+### Allusions ###
+
+### Themes ###
+* Military
+
+### Interesting Sentences or Paragraphs ##
+* "'First to your right, second to your left, sharp right again, and you're there. Good-morning.'" (p. 1, "Mary Poppins")
+"And sure enough, if you follow his directions exactly, you *will* be there - right in the middle of Cherry-Tree Lane, where the houses run down one side and the Park runs down the other and the cherry-trees go dancing right down the middle." (p. 1, "Mary Poppins")
+
+
+----------
+
+
 ## [Charlie and the Chocolate Factory by Roald Dahl (c. 1964)](https://www.amazon.com/Charlie-Chocolate-Factory-Roald-Dahl/dp/0142410314/ref=asc_df_0142410314/?tag=hyprod-20&linkCode=df0&hvadid=312089887152&hvpos=&hvnetw=g&hvrand=14532188306188360162&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-422923046130&psc=1) ##
 ### Who? ###
 * 2 very old people, the father and mother of Mr. Bucket; Grandpa Joe and Grandma Josephine
@@ -187,6 +224,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Color ###
 * lovely // blue birds, black // spots, pink sugary // baby bird, brown // sticky // lake of chocolate, gold // filling, light-brown // creamy-colored // chocolate candy bar, silver // coin, greenish // color, pure // gold, golden // ticket, black // beard, plum-colored // velvet, gold-topped // walking cane, bottle green // trousers, pearly gray // glovesy // green // meadows, great brown // river, brownish // muddy water, pink and red and mauve // blossoms, green // caterpillars, red // beetles, brown // surface, white // teeth, rosy-white // skin, golden-brown // hair, pink // boat, bright pink // glass, pink boiled-sweet // boat, dark // tunnels, green // door, black // door, bright red // door, gold-topped // cane, black // metal pots, purplish // treacle, blue to white to green to brown to yellow and back to blue again // froth, blue // frothy mixture, grey // cardboard, blue // face, purplish-blue // hair, blueberry // juice, blue // ball, pink // corridor, black // top, plum-colored // velvet, white // square-shaped candies, black // beady eyes, brown // lightning
 
+### Adjectives ###
 * freezing cold // drafts, horrible empty // feeling, poor // family, special // occasion, whole // family, small // chocolate bar, marvelous // birthday, paper // wrapping, tiny // nibble, terrible // torturing, enormous // choclate factory, greatest // inventor, long, deep // sniffs, gorgeous / chocolatey smell, watery, cabbage // soup, rich // caramels, little feathery / sweets, chewing // gum, enormous // sizes, candy // balloons, secret // method, colossal // palace, hundred // rooms, hot // day, boiling // sun, whole // palace, crazy // prince, soft, secret // whisper, single // person, chocolate // makers, wonderful // candies, secret // recipies, ordinary // workers, hottest // sun, chewing // gum, candy // balloons, iron // gates, dark // shadows, special // trap, great // mysteries, toothpaste // factory, evening // newspaper, large // picture, powerful // pump, monstrous // ball, marvelous // factory, revolting // woman, repulsive // boy, whole // country, whole // world, clever /// fake, tremendous // force, mechanical // arm, friendly // smiling faces, lucky // person, big // picture, small //  sad // smile, tiny // bite, famous // irl, treasured // possession, lucky // winner, crummy // ones, sly // grin, huge // flakes, freezing // gale, enormous // appetite, steaming // stews, hot / apple pie, delicious // warming dishes, melting // chocolate, deep // swallowing // breaths, curious // wisdom, damp //  dollar, enormous // bite, blissful // joy, front /ghty // groan/ door, marvelous // grin, fantastic // leap, whole // business, tremendous // things, treasured // possession, tasty // morsels, marvelous // surprises,  complete // pandemomium, full // story, loud // knock, big  // day, lucky // ticket holders, old // people, expensive // gloves, absolute // whiz-banger, famous //  children, extraordinary // little // man, sparkling // eyes, interesting // name, small nervous // voice, muffled // roar, gigantic // machine, important // corridor, every // direction, gigantic // rabbit, lovely // valley, churning // whirlpool, graceful // trees, soft, minty // sugar, world-recording // chewing gum, wonderful // workers, fresh // leaves, packing // cases, hot melted // chocolate, enormous // stomach, great // pipes, powerful // suction, solid // mass, little // journey, colossal // joke, wretched // boy, tiny // man, chocolate-mixing // barrel, steamy // mist, sucking // pipes, intense // happiness, frightened // shouting, furious // pace, huge // stoves, rich // smells, gigantic // oven, shiny // affair, whole // rumbling, hissing // steam, different // color, giant // whizzer, mighty // groan, three-course // dinner, tomato  // soup, extraordinary // gum, rubbery // lips, little // children,  special // machine, covered // vans,great // gumchewers, loving // child, crazy // man, open // sky, entire // company
 
 ## Adverbs ##
