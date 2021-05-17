@@ -245,6 +245,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for new insights into Gothic literature and Southern Gothic literature as well as societal standards and self-destructiveness
 * Grateful for a sense of humor that breaks the ice
 * Grateful for people that have come into new life and broken out of the old man
+* Grateful for how the liberal arts adds value in the world
+* Grateful for professors who are Renaissance thinkers, find the interconnections, and help people break out of boxes
 
 
 ----------
@@ -5712,6 +5714,7 @@ My mom worked as a teacher like my grandmother did. As a mom, she exuded so much
 ----------
 
 
+# Creative Writing - Answers to Questions #
 ## Where do you feel most like yourself? ##
 I feel most like myself while driving. I pray when I drive, love all of my surroundings, and have good conversations with God. I love the sounds of the highway, the interconnections, and the imagery of the country. I also feel like myself at home when working in the kitchen, the studio.
 
