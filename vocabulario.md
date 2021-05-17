@@ -99,6 +99,9 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## La Redención (f) (noun, sustantivo): ##
 * Redemption, Ransom
 
+## La Corazón (f) (noun, sustantivo): ##
+* Heart
+
 ----------
 
 ## Encontrar (verb, verbo): ##
