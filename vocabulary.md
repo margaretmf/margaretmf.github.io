@@ -193,3 +193,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Perceive the intended meaning of (words, a language, or a speaker)
 * Interpret or view (something) in a particular way
 * Be sympathetically or knowledgeably aware of the character or nature of
+
+## Meaning: ##
+* A statement of the exact meaning of a word, especially in a dictionary 
+* The degree of distinctness in outline of an object, image, or sound, especially of an image in a photograph or on a screen
