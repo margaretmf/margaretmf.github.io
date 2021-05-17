@@ -2515,7 +2515,7 @@ Standing at the line of coldness and lack of sympathy of others hearing the true
 
 <br>
 
-**Word Associations:** space, point, measure, difference, line, void,t ravel, eomtion, pace, cold
+**Word Associations:** space, point, measure, difference, line, void, travel, emotion, pace, cold
 
 *******************************************************************
 *******************************************************************
