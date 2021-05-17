@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-I am a versatile researcher, interviewer, and writer, with an interest in writing, news media, spirituality, and liberal arts education. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
+I am a versatile creative and content writer, sketcher, interviewer, programmer, and data analyst, with an interest in writing, teaching, the business world, STEAM education, liberal arts education, and current events. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
 
 [Resume](https://github.com/margaretmf/margaretmf.github.io/blob/master/MargaretFurr_Resume.pdf)
 
@@ -61,14 +61,9 @@ Christianity
 * Engage with the pieces of artwork that are part of the 100 Days of Peace 
 
 ## Inspiration ##
-* Nate Frederick's lecture inspired thinking more deeply about the Government being in the Footnotes of Church
-*I love Democratization, Democratic Republic, Religious Liberty and Religious Freedom*
-
 * Laurie Burgdorff's children's book inspired thought on light in the darkness
 
 * Grace Askew's collective music project inspired a love for democratization 
-
-* Ryan Winslow's music drew out an understanding of political and cultural nuances around the Rust Belt, the South, the West, Tennessee being the West, Trucking, the Confederate Flag, Music healing Aspergers; it confirmed some of my observations, and the music along with prayer, and gratitude tuned me into more interconnections
 
 <br>
  
@@ -82,7 +77,7 @@ Music Composer
 * Composing 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo"
 
 Children's Book Analyst
-* Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career
+* [Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career.](https://margaretmf.github.io/teaching) Developed an interest in how filmmakers turn children's books into films.
 
 Photographer 
 * Working on two series - "Light in the Darkness" and "American Flags"
