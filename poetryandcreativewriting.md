@@ -95,6 +95,7 @@ I believe in the older generation's ability to learn something new even if they 
 
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better.
+* Healed racism and started to realize that everyone is individual and distinct.
 
 
 ----------
@@ -264,7 +265,7 @@ In this journal, you will start your writing exercise by selecting a topic that 
 ## Scandal ##
 Oh my God!
 It's so scandalous...
-All those dirty secrets covered up in my hearts blew up in my face, exposed the lies of subliminal messaging, and defamed me.
+All those dirty secrets covered up in my heart blew up in my face, exposed the lies of subliminal messaging, and defamed me.
 It's outraging, it's hushing, it's public!
 What a release that something so dark is brought to light through high-minded sensational art.
 It's good to keep things private, and not be afraid of the public.
@@ -276,7 +277,7 @@ Everything private becomes public, everything public influences our private live
 
 ## Friendship ##
 Feeling safe, and validated by someone kindred to trust them with information.
-Building a bond on the basis of what seems kindred, and natural, sharing the deepest longings within to support mutual growth within the friednship and the larger radius.
+Building a bond on the basis of what seems kindred, and natural, sharing the deepest longings within to support mutual growth within the friendship and the larger radius.
 Forming memories that last day in and day out, and growing in union with one another in constant companionship.
 
 <br>
@@ -286,7 +287,8 @@ Forming memories that last day in and day out, and growing in union with one ano
 ## Love ##
 Love - a sacrifice for a team, a family, a church.
 Healthy communication filled with joy, honesty, appreciation, openness, and validation.
-The trust to be able to pick oneself back up and restore to wholeness, clarity, and even better dynamics falling into an attraction to a common purpose, a common rhythm, a common heart.
+The trust to be able to pick oneself back up and restore to wholeness, clarity, and even better dynamics.
+Falling into an attraction to a common purpose, a common rhythm, a common heart.
 A kiss of a heart-to-heart connection echoing and resounding throughout the universe that rings like church bells forever and ever.
 A compromise to put a stop to the envy.
 Romantic fun and sense of humor.
@@ -425,7 +427,7 @@ The shame and embarassament turn to anger and rage.
 There is enmity towards what God is doing and what I want.
 I am committing malice when giving into the raging heart.
 Nothing is stronger and more dangerous than this indignation and sense of injustice.
-But expressing gratitude for every ounce of good turns around the monstrous storm.
+Expressing gratitude for every ounce of good turns around the monstrous storm.
 
 <br>
 
@@ -445,7 +447,7 @@ There's always more beauty, and good cheer to wake up to.
 **Word Associations:** heartache, bleakness, dysphoria, woe, grief, despondent, sorrow, suffering
 
 ## Joy ##
-Joy comes from opening a window to the sun.
+Joy comes from opening a window to the sunlight.
 I choose to be cheerful and appreciate a new day.
 I live with glee and delight because there's fresh space to shut out the noise.
 Elation comes when dancing and having a good time.
@@ -713,7 +715,7 @@ What's with the clamor, and the uproar of the people talking?
 Noise. It is the crescendo of the day.
 The day is starting.
 The human experiences are rising.
-Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, and the phone buzzing at 7am.
+Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard.
 
 <br>
 
@@ -735,7 +737,7 @@ In quiet, the innocence and grace of God within.
 Oh my God!
 The darkest dreams of my life come alive.
 I feel so uneasy.
-My stomach is completely nauseated
+My stomach is completely nauseated.
 I feel so restless, and I sit in disquietude.
 I feel so fretful.
 I feel so jittery.
@@ -783,7 +785,7 @@ Mountains cover the Earth, and as love smiles within through the mountains with 
 
 ## Stranger ##
 Someone new on the street who I have never met.
-A visitor on Earth who looks familiar, yet so different, like a stranger.
+A visitor on Earth, who looks familiar, yet so different, like a stranger.
 A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity.
 Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation.
 There's no stranger to God.
@@ -807,11 +809,10 @@ Say no to the enemy, and say yes to Love.
 ## Cowardice ##
 Not being able to own up to mistakes.
 Too weak to own up to iniquity.
-A fraud to accept rebukes, admonishment.
+A fraud, not wanting accept rebukes, admonishment.
 Too wimpy, pathetic to accept the penalty, the repercussion.
 Spineless morally, unable to speak up, or accept what's going on.
-A deserter of what's right,.
-Leaving others in harm's way, and not able to accept the criminal recount.
+A deserter of what's right, leaving others in harm's way, and unable to accept the criminal recount.
 
 <br>
 
@@ -838,10 +839,10 @@ Thank you for this beautiful craft that all of humanity can cherish and love.
 **Word Associations:** portrait, brushstrokes, texture, color, craft, landscape, shade, light
 
 ## The Night Sky ##
-The night sky sings with holiness and with peace.
+The night sky sings with holiness and peace.
 The stars shine infinitely.
-The blackness is so dark and the pitch of the night lights up everyone to sleep.
-THe glimmer of the stars give hope and point people to inncocence, home.
+The blackness is so dark and the pitch of the night silences everyone to sleep.
+THe glimmer of the stars give hope and point people to inncocence, hope, and home.
 The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
 
 <br>
@@ -896,8 +897,7 @@ I continue to set my thoughts on the attitude of God, the perfection in the impe
 
 ## Perfection ##
 The goodness of God is perfect.
-God reigns supremely in our hearts and leads to the diamond purity flowing through our whole body - 
-bones, bloods, thoughts, hearts, speech.
+God reigns supremely in our hearts and leads to the diamond purity flowing through our whole body - bones, bloods, thoughts, hearts, speech.
 Christ is the ideal, peace is sublime, though sometimes living in perfect peace seems and feels unattainable.
 A new paragon exists for God to reign supremely.
 
@@ -945,12 +945,10 @@ No vile can touch us.
 **Word Associations:** demon, wicked, malignity, villain, harm, corrupt, nefarious, vile
 
 ## Temptation ##
-I feel this pull, this urge to covet and think this unholy thought,
-or feel this unholy desire.
+I feel this pull, this urge to covet and think this unholy thought, or feel this unholy desire.
 It, the thing, the person I think I want seems so fascinating, alluring, enticing.
 I feel so drawn to it.
-It's tempting, it's seducing.
-But I don't take the bait.
+It's tempting, it's seducing, but I don't take the bait.
 I resist, and overcome temptation.
 I walk over the seas of mortal mind.
 
@@ -960,10 +958,8 @@ I walk over the seas of mortal mind.
 
 ## Justice ##
 I seek to do what is right for those around me.
-There is a code inherent to the universe that teaches us how to love,
-how to know what's right, and how to forgive.
-Even though it hurts when I stumble,
-I seek to act with moral courage.
+There is a code inherent to the universe that teaches us how to love, how to know what's right, and how to forgive.
+Even though it hurts when I stumble, I seek to act with moral courage.
 The truth is that there is some good to see and do, and some anger and some frustration to ovecome.
 The truth is that I have done things wrong, I have reacted, but I can choose to live another day with childlike freedom and love.
 It is fair to say that shame should be let go of, and it is fair that the ugliness of years past shall be recompensated with a song in one's heart to live by each day.
@@ -980,8 +976,7 @@ Why do people have to feel stuck and trapped on the side of the road?
 Why are there biases to some people and not others?
 Why do some grow up with priviliges but others don't?
 Why do some fall into misfortune?
-It hurts to feel the pain of the inequalities, but I know some people have overcome the depth of the sea of limitations,
-and I see the latent talent of those struggling with the world's twistedness.
+It hurts to feel the pain of the inequalities, but I know some people have overcome the depth of the sea of limitations, and I see the latent talent of those struggling with the world's twistedness.
 I am thankful for the ones who prove the ability to let go of the chains that bind them, and I am thankful for God for giving joy in the morning after the darkness of the night.
 
 <br>
@@ -992,7 +987,7 @@ I am thankful for the ones who prove the ability to let go of the chains that bi
 Rise and shine for a new day.
 I feel frustrated inside, trapped in the chains of negative karma.
 I feel guilt, and shame for the things done wrong, the confessions I've made.
-But life is continuous, and there is new grace for today, new people to meet, and new light on the same people and things to see.
+Life is continuous, however, and there is new grace for today, new people to meet, and new light on the same people and things to see.
 Rise and shine for a new day.
 The past can never be fully let go of, or redeemed, but the light will shine as it did in the beginning, shining through the shadows that lead to feeling so tight inside.
 
@@ -1075,34 +1070,28 @@ Peace comes from being secure in God, and it goes on for a lifetime.
 
 ## Tragedy ##
 Falling into the deep, dark pit of wreckage, mistakes, failure, rejection is such a tragedy.
-Letting emotions override and control you, and feeling overtaken by adversity.
+Letting emotions override and control, and feeling overtaken by adversity.
 Sudden misfortune and affliction is a shock to the whole system, causing pain, and heaviness.
 It feels like a curse and like one is doomed.
-But always the light of life is there to turn us from tragedy to comedy with a smile and a laugh.
+Always the light of life is there to turn us from tragedy to comedy with a smile and a laugh.
 
 <br>
 
 **Word Associations:** doom, adversity, death, wreck, catastrophe, affliction, misfortune, curse
 
 ## Winter ##
-As fall turns to winter,
-the golden-yellow leaves fall off,
-and the glistening grey branches shine in the sunlight.
-There's a chill in the air as the winds blow
-and the solstice comes.
+As fall turns to winter, the golden-yellow leaves fall off, and the glistening grey branches shine in the sunlight.
+There's a chill in the air as the winds blow and the solstice comes.
 Yuletide carols, fireside chats, evergreen mountains, snow falling.
 The Earth is brilliant and so filled with love.
-Winter is here,
-the grey is warm,
-and in just a little bit the buds will pop up.
+Winter is here, the grey is warm, and in just a little bit the buds will pop up.
 
 <br>
 
 **Word Associations:** snow, chill, solstice, igloo, yule, fireside, evergreen, arctic
 
 ## Fall ##
-The dark brown leaves bouncing up and down the street,
-glittering, hitting the windshield while it rains.
+The dark brown leaves bouncing up and down the street, glittering, hitting the windshield while it rains.
 In autumn, the golden-orange brightens everything.
 There is a harvest so perfect.
 The leaves fall off later in the season so that the branches are light grey.
@@ -1115,8 +1104,7 @@ Death, decay, leading to new life.
 ## Spirituality ##
 Spiritual beings we are by nature.
 We are born of God, and we worship this one God.
-Thank you for the teachings, the passion, the faith, the creed, the principle, the true teachings
-that keep us moving and marching forward always.
+Thank you for the teachings, the passion, the faith, the creed, the principle, the true teachings that keep us moving and marching forward always.
 
 <br>
 
@@ -1131,24 +1119,25 @@ Prayer is invocation to trust in God and entreat.
 Prayer is appealing to the ways of Love.
 Prayer is a psalm.
 Prayer is natural to man.
+Pray is gratitude and a heart singing within for the logic of the universe.
 
 <br>
 
 **Word Associations:** invocation, entreat, appeal, humble, thanks, psalm, deliverance, blessing
 
 ## Warmth ##
-The warmth of the sun shining down on the interstate in so comforting.
+The warmth of the sun shining down on the interstate is so comforting.
 The tenderness of the light radiatiing in a certain way.
-Everyone shares a slightly different perspective on how the sun shining down.
-Feeling close to the sun lifts my heart up to feeling joy.
-There's a radiant glow, and I feel affectionate to all humanity.
+Everyone shares a slightly different perspective on how the sun shines down.
+Feeling close to the sun lifts my heart up to feel joy.
+There's a radiant glow, and I feel affection to all humanity.
 
 <br>
 
 **Word Associations:** comfort, tenderness, sharing, closeness, reassurance, glow, affection, radiate
 
 ## Scared ##
-I stand aghast at the things that I've done that are wrong, weird, violence, hateful, embarassing.
+I stand aghast at the things that I've done that are wrong, weird, violent, hateful, embarassing.
 I am stricken by what I do in the middle of the night while feeling angry, evnious, worried.
 I am fearful over the wrong done.
 It feels like danger looms ahead.
@@ -1164,20 +1153,17 @@ I am afraid for the future, but I trust all will be done for the higher, supreme
 I caught a brief glance of him.
 My impression is that he is mature, his heart is singing, and that he cares about humanity.
 The brief glance is fleeting.
-I am shy, I make eye contact, I peek online, on social media.
-But it's just a blink, a flesh.
+I am shy, I make eye contact, I peek online, on social media, but it's just a blink, a flesh.
 
 <br>
 
 **Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
 
 ## Grief ##
-I fall down, and hit the ground with the loss,
-the heartache,
-the grief.
+I fall down, and hit the ground with the loss, the heartache, and the grief.
 I lament over what I did wrong, and I cry in anguish with tears.
 It's such a heartache.
-I feel so much woe, bereaved
+I feel so much woe, bereaved.
 I trust God in leading everyone forward in the way that makes everyone happy.
 
 <br>
@@ -1187,10 +1173,11 @@ I trust God in leading everyone forward in the way that makes everyone happy.
 ## Beauty ##
 The brilliance of the beauty found in the soul of the universe.
 Beholding the loving sunrays being reflected through the window.
-The muse in the song of the trees in the wilderness
+The muse in the song of the trees in the wilderness.
 The elegance of the stars shining in the night sky.
-The striking appearance of all the easy and water as one connected.
-The exquisite sound of silence and the lovely sound of the trucks.
+The striking appearance of all the ease.
+The intricacies of how water channels through the earth as one, connected. 
+The exquisite sound of silence.
 
 <br>
 
@@ -1231,9 +1218,7 @@ I love you with fealty and come for you always.
 ## Family ##
 Family is the group of people with our most sacred, kindred bonds.
 Our most holy relationships are in family, and our amazing lineage lasts eternally.
-Thank you, God, that we all drink of the blood of Jesus,
-and your goodness and mercy, expressed in infinite colors, lasts for generations, 
-and forever unfolds.
+Thank you, God, that we all drink of the blood of Jesus, and your goodness and mercy, expressed in infinite colors, lasts for generations, and forever unfolds.
 
 <br>
 
@@ -1252,7 +1237,7 @@ A new friendship is amazing.
 There's so much humanity in it.
 Building bonds and rapport in ways that are unlikely.
 We share more brotherhood and things in common we realize.
-And we who are now friends with her are sisters, in the same league.
+We who are now friends are sisters, and brothers, in the same league.
 We all are part of one allegiance.
 God holds us all in angelic realms in camaraderie, harmony, and one pact.
 
@@ -1274,7 +1259,7 @@ His story from antiquity is continuous, ever-renewing and cyclical.
 **Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
 
 ## Humanity ##
-The smile on a face,
+The smile on a face, 
 the good will a neighbor has towards another,
 the compassionate extra mile,
 the civility one shows in a conversation,
@@ -1291,7 +1276,7 @@ Mankind, a group of people, is abundant in making life-decision, and life-giving
 ## Longing ##
 I crave, long for something out there that seems wrong to have.
 My heart throbs, I feel uncomfortable with this longing, sin, and error pining.
-But really I learn to, and put my trust in God, the song of God that is in everything small, beautiful.
+Really I learn to, and put my trust in God, the song of God that is in everything small, beautiful.
 I search deeper for what I really thirst for, what I really hope for that is peace, joy, and love.
 
 <br>
@@ -1301,8 +1286,7 @@ I search deeper for what I really thirst for, what I really hope for that is pea
 ## Peace ##
 Peace starts from within.
 Every day shall start with peace.
-Peace leads to order in the midst of chaos
-and unity in the midst of conflict.
+Peace leads to order in the midst of chaos and unity in the midst of conflict.
 Quieting the anger, the pain, the memories, and choosing to find the harmony underlying everything.
 Life is tranquil without the idols and false affections.
 Joy comes through being happy for others and making true with the situation.
@@ -1337,9 +1321,7 @@ The stars represent light.
 During these sleepless nights, I am wakeful,
 I pray for mankind,
 I let go of the shadows of mortal sense.
-Mortal mind blackens the human experience, 
-causes man to fear, and deceives,
-and God causes all to shine, so people can be aware.
+Mortal mind blackens the human experience, causes man to fear, and deceives, and God causes all to shine, so people can be aware.
 
 <br>
 
@@ -1361,8 +1343,7 @@ Duplicity in motives, deceit is uncool.
 One thought at a time we bear goodness and life in our minds and experience.
 A thought is a seed, and a seed can grow.
 A concept can develop into a full idea wholly.
-A seed is a new beginning,
-and the stem that gives it strength helps it live at its core.
+A seed is a new beginning, and the stem that gives it strength helps it live at its core.
 
 <br>
 
@@ -1371,7 +1352,7 @@ and the stem that gives it strength helps it live at its core.
 ## Mother ##
 A mother holds her child, 
 walks with her child,
-helpsher child get up after she falls.
+helps her child get up after she falls.
 Childhood is wrapped up in, and cared for in the wombs of motherhood.
 There is warmth in this place of divine origin.
 
@@ -1392,7 +1373,7 @@ The dark mist in our thoughts can turn to light and be exposed.
 
 ## Dilemma ##
 A dilemma, a double bind.
-Feeling oxed in, and stuck in a mess of my own doing.
+Feeling boxed in, and stuck in a mess of my own doing.
 There is a choice to make amidst the chaos, and the wrongdoing.
 It's a green plight indeed, a quagmire.
 
@@ -1404,7 +1385,7 @@ It's a green plight indeed, a quagmire.
 The fantasy inside my head of something unreal.
 A image in thought of something I wish for, or long for.
 It's a deep trance; people say I seem delusional.
-And when reality comes to the surface, the fact of what people are really doing, the dream presents itself as an illusion.
+When reality comes to the surface, the fact of what people are really doing, the dream presents itself as an illusion.
 I had a vision, it was a beautiful mental picture, but it proved to be nothing but fancy.
 
 <br>
@@ -1416,9 +1397,9 @@ On a trek to discover something new.
 Wandering without a destination.
 Touring a new, foreign place to understand another part of the world.
 Rambling through unknown places to appreciate nature.
-Expediting an adventure toe xperience the joy of going outside one's comfort zone.
+Expediting an adventure to experience the joy of going outside one's comfort zone.
 On a voyage to another side of the Earth.
-And on a trip to see location A to location B.
+On a trip to see location A to location B.
 
 <br>
 
@@ -1466,7 +1447,7 @@ The yearning to forgive, let go, and speak with more compassionate tones.
 Thank you for the daily food to chew on.
 There's so much substance in it.
 I wish to digest it fully, and take delight in the taste, to imbibe all that it has to offer.
-My daily diet consists of taking care of myself with the nutriets.
+My daily diet consists of taking care of myself with the nutrients.
 I eat what feels like heaven's cuisine, and take it all in, masticating it for the day.
 
 <br>
@@ -1474,8 +1455,7 @@ I eat what feels like heaven's cuisine, and take it all in, masticating it for t
 **Word Associations:** imbibe, taste, chew, eat, digest, masticate, cuisine, diet
 
 ## Education ##
-Education for a lifetime.
-A lifetime journey.
+Education for a lifetime, a lifetime journey.
 Gaining an enlightened sense of Life and reality.
 Intelligence of man unfolding.
 Schooling in what it means to be in a culture, a society, a group, a family, a team, a classroom, a Earth, a world.
@@ -1486,15 +1466,12 @@ Gaining the smarts to know what to do.
 
 **Word Associations:** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
 
-<br>
-
-
 ## A Garden ##
 A garden of thoughts, some good, some bad.
 The good thoughts, feelings unfold, beginning with the seed into a flower.
-A the roots, the evil thoughts are weeded out.
+At the roots, the evil thoughts are weeded out.
 The garden within grows and grows with a rosebud sprouting up through the soil.
-And a terrace unfolding from that base.
+A terrace unfolds from that base.
 
 <br>
 
@@ -1503,7 +1480,7 @@ And a terrace unfolding from that base.
 ## Ice ##
 The water freezes into ice.
 Touching the transformed material chills mhy fingers.
-I must put glvoes onb ecause it's frigid, and frozen.
+I must put gloves on because it's frigid, and frozen.
 I run my hand over the tip of the crystal clear iceberg in winter.
 It's a glacier.
 
@@ -1512,8 +1489,7 @@ It's a glacier.
 **Word Associations:** chill, freeze, glacier, crystal, winter, iceberg, frigid, frozen
 
 ## Science Fiction ##
-In the space alien to who I am,
-I am exploring a land that feels foreign, distance, and off into another time period.
+In the space alien to who I am, I am exploring a land that feels foreign, distance, and off into another time period.
 It feels like I have been abducted by a space-time void, invaded by another sense of the dimension of things, and taken into another galaxy.
 I am in a humanoid, where the space-time void enfolds and unfolds infinitely, and humanity is mirrored, but not real.
 
@@ -1526,7 +1502,7 @@ The untamed animalistic beast inside of me.
 It's wild and fierce, ferocious and untamed.
 It's like a feral cat for a human.
 Waiting to be unloosed, uncaptivated, and liberated into the domesticated sense of itself.
-A good creature isnide, indeed, waiting to turn from the Beast to the Beauty, like all mammals do.
+A good creature inside, indeed, waiting to turn from the Beast to the Beauty, like all mammals do.
 
 <br>
 
@@ -1568,8 +1544,8 @@ I am grateful for the good fortune, and gamble with what to do, knowing that som
 ## Kisses ## 
 In our lowest moment, faith shall kiss our heart, and show us how loved within we are.
 Embraced by the lips of angels voicing our innate goodness and completeness, a clasping of a faithful heart-to-heart meets the great need.
-Teh passion within of the kisses of good leads us to find the warmth of the flame abright leading us to love everyone.
-A gentle touch ont he cheek reminding them how precioius they are, how gentle they are makes the day.
+The passion within of the kisses of good leads us to find the warmth of the flame abright leading us to love everyone.
+A gentle touch on the cheek reminding them how precious they are, how gentle they are makes the day.
 Caressing softly with love makes the home on fire, lit aglow.
 
 <br>
@@ -1578,7 +1554,7 @@ Caressing softly with love makes the home on fire, lit aglow.
 
 ## A Waterfall ##
 The water rapidly moving down into the pool with endless possibilities, roaring into the river, and pouring into the pull.
-Wlaking up to it, I feel the spray and the foam on my cheek.
+Walking up to it, I feel the spray and the foam on my cheek.
 The beautiful cascade of blue material forever flows on and on in a cycle.
 
 <br>
@@ -1640,12 +1616,12 @@ I know there is infinitely more to love and learn during the next phase of the w
 ## Flavors ##
 So many flavors in life.
 There are many ways to taste part of our culture.
-The sweetness of people serving food in a Chinese Restaurant.
-The zest of people dancing in the street.
-THe savor of someone preserving the past essence of America.
-The spiciness of people opening up a new business.
-The relishing of ideas that make us think home and hotel halls.
-The tang in a dance show.
+The sweetness of people serving food in a Chinese Restaurant,
+the zest of people dancing in the street,
+the savor of someone preserving the past essence of America,
+the spiciness of people opening up a new business,
+the relishing of ideas that make us think home and hotel halls,
+and the tang in a dance show.
 
 <br>
 
@@ -1654,7 +1630,7 @@ The tang in a dance show.
 ## Pride ##
 Taking pride in all things great about your people and your land.
 Expressing arrogance, a sense of superiority that one is better than another.
-Boasting how great one is while believing others are inferior.
+Boasting how great one is while believing others are inferior or superior.
 Showing the confidence to enjoy life and having the pomp to prove to someone else they don't live life correctly.
 Expressing the dignity to express good cheer, and good peace.
 Having an ego filled with what's right for oneself and a love for all of humanity.
@@ -1664,8 +1640,7 @@ Having an ego filled with what's right for oneself and a love for all of humanit
 **Word Associations:** lion, dignity, pomp, ostentation, arrogance, boast, confidence, ego
 
 ## Trust ##
-I take stock in everything I have done correctly,
-and the light shining in everyone.
+I take stock in everything I have done correctly, and the light shining in everyone.
 With surety, I know that goodness is unfolding.
 With conviction, I know I can find what I need and there's harmony.
 I am loyal.
@@ -1718,6 +1693,8 @@ Be grateful for Zen.
 I am equal to him riding his bike.
 I am equal to her walking down the street.
 I am equal to them driving in the cars.
+I am equal to him selling the fruit.
+I am equal to her dancing.
 All of man is standing in equally balanced relationships to the Creator.
 Accepted under the same Sun, with fairness in judgment of the light in someone, and leveled in engagements.
 Our Creator endows each man the ability to be creative even when working through the most mundane tasks.
@@ -1770,9 +1747,9 @@ Being pulled by the stir, but experiencing the gentleness within.
 I wake up with a new perspective on Life, on Earth each day.
 I wake up to see the sun from a slightly diffferent angle each morning.
 I can understand current events from another's viewpoint each day.
-I can shift my perception above the current context, and see the whole scen.
+I can shift my perception above the current context, and see the whole scene.
 The expressions of life are broad, the frame to appreciate life is wide.
-So many activities, so many places in which to express joy, order, grace, patience, forgiveness.
+So many activities, so many places in which to express joy, order, grace, patience, and forgiveness.
 There are always wonderful vistas ahead each day.
 
 <br>
@@ -1780,8 +1757,7 @@ There are always wonderful vistas ahead each day.
 **Word Associations:** viewpoint, context, scene, vista, shift, frame, broad, angle
 
 ## A Voyage ##
-On a voyage to a new land.
-The passage to the unknown.
+On a voyage to a new land, and the passage to the unknown.
 It's new, it's uncertain, there's fear.
 Moving across with courage, trusting God with each step.
 One step leads to another with constant discovery, and unearthing.
@@ -1795,9 +1771,7 @@ There's a constant search for goodness, new ideas, and new ways of being.
 
 ## Moments ##
 Life is a series of moments, of being conscious of the light, the love.
-An occasion to care, a flash taken by the mental camera, an instant of gratitude, a present day,
-a pause before a reaction, a twinkling blinking of an eye,
-a lingering hellow, a savor.
+An occasion to care, a flash taken by the mental camera, an instant of gratitude, a present day, a pause before a reaction, a twinkling blinking of an eye, a lingering hellow, a savor.
 
 <br>
 
@@ -1820,17 +1794,15 @@ An intelligent force is monitoring everything to keep everyone in check.
 **Word Associations:** govern, dominion, restraint, clout, authority direct, sway, monitor
 
 ## Pain ##
-Pain, torment
-Tormented with lack, being mocked
-Aching within
-Ignored
-Condescended
-Gieving over loss, mourning over what has gone wrong
-Suffering in silence,
-afraid to speak up
-Forever in the depth of the darkness
-Finding ways to soothe oneself, free from the wounds,
-and heal by finding the inner wholeness
+Pain, torment.
+Tormented with lack, being mocked.
+Aching within.
+Ignored.
+Condescended.
+Grieving over loss, mourning over what has gone wrong.
+Suffering in silence, and afraid to speak up.
+Forever in the depth of the darkness.
+Finding ways to soothe oneself, free from the wounds, and heal by finding the inner wholeness.
 
 <br>
 
@@ -1838,7 +1810,7 @@ Word Associations: ache, grief, wound, suffer, healing, forever, deep, torment, 
 
 ## Expectations ##
 An expectation - a knowing that something good will happen.
-Founded in a promise that there will be a kind person, a wake up call, something new to learn
+Founded in a promise that there will be a kind person, a wake up call, something new to learn.
 Rested in a motive to understand life and improve.
 Based in a hope for the divine reality of mankind coming to full fruition.
 Association with a potential action springing from a thought in God.
@@ -1865,8 +1837,8 @@ A bestowal of supplies. A boon.
 The values that our parents and teachers share with us show us how to treat people, cope with challenges, and recover after doing something bad.
 Standards of living, being, and doing provide the code to decisions.
 Upward, higher ideals lead us to who we really can be.
-An inner conscience rebuking su when something is wrong, guiding us to ethic.
-Thank you for th ementors who help to correct and help us get back up with good mores.
+An inner conscience rebuking oneself or others when something is wrong, guiding us to higher ethics.
+Thank you for the mentors who help to correct and help people get back up with good mores.
 
 <br>
 
@@ -1887,7 +1859,7 @@ It comes in a shriek and a howl, and nothing is hurt after all.
 **Word Associations:** joy, belly, medicine, shriek, howl, merriment, rejoice, burst
 
 ## Silence ##
-THe beauty of silence, of quiet.
+The beauty of silence, of quiet.
 It hushes the noise all around.
 It's the peace in the storm, the calm, uplifted thought above the sea of troubles.
 In quietude is the grace of a still heart.
@@ -1915,7 +1887,7 @@ The thrill of seeing your partner smile and love you back.
 The passion when finding someone share a laugh, a walk, a car ride, or a song with you.
 The intimate details being shared of one's desires, cares, concerns, faith that should be cast on God.
 The desire to grow together, express common goals, be a part of the collective humanity.
-The freedom from entanglement with other peope.
+The freedom from entanglement with other people.
 The freedom from outside affairs with people.
 
 <br>
@@ -1936,10 +1908,7 @@ I hold them in high regard, and high veneration.
 
 ## Carpe Diem ##
 Carpe diem, sieze the day.
-Choose to live boldly,
-go outside the comfort zone,
-dare to do something different,
-and start a new endeavor and commit to it fully with audacity.
+Choose to live boldly, go outside the comfort zone, dare to do something different, and start a new endeavor and commit to it fully with audacity.
 Have the nerves to laugh, and to love, to speak, and to smile, and to dance.
 Choose boldly to see, capture, and create the beauty.
 Really live.
@@ -1953,7 +1922,7 @@ Pluck out all the negativity.
 The true colors within someone, waiting to shine through like an inner rainbow coming out of the storm.
 In all its brilliance, all the colors are there, reflecting all the many hues displayed through the world.
 Many pigments and shades captured within the inner and outer expression of all that can be experienced in life inwardly and outwardly.
-From vermillion to cobalt to scarlet, so much is there, waiting ot unfold in the light like an inner prism, part of an outer prism.
+From vermillion to cobalt to scarlet, so much is there, waiting to unfold in the light like an inner prism, part of an outer prism.
 
 <br>
 
@@ -1989,7 +1958,7 @@ A purer sense of love for people and all mankind sprouts and begins to flower.
 With the anger, frustration, comes the purer love.
 There's a swell of goodness going on the universe today.
 This I love.
-And forever, the goodness of God unfolds.
+Forever, the goodness of God unfolds.
 I am in harmony, in symphony with it.
 Mankind is made to prosper and bloom year to year as the flowers do.
 The bud within is made to open to full grace.
@@ -2020,7 +1989,7 @@ It's the absence of the love that lies deep within everyone's heart.
 Having the humility to own up to the things done wrong,
 respect rebukes and boundaries, and love someone who seems better.
 Expressing the modesty to know when to back down from a fight, and recognize the strength and power reflected in all of the people alike.
-SHowing the reserve not to lash out, demonstrating the meekness to do the right thing.
+Showing the reserve not to lash out, demonstrating the meekness to do the right thing.
 Being gentle when a temper comes up.
 Showing docility in the face of adversity.
 Realizing the opposite of bashfulness.
@@ -2035,7 +2004,7 @@ An invention of the human mind.
 A vivid vision inside that's not fully reality.
 It's an invention to cope with something causing pain inside.
 It's fantastically providing a false sense of condidence to cover something up.
-The inner stimulus, enterprising with fictitioius ideas.
+The inner stimulus, enterprising with fictitious ideas.
 Images seen through the eye originally are romanticized, not see in the full light, distored, and reversed into artistry that's like make-believe.
 
 <br>
@@ -2098,11 +2067,8 @@ The reason behind a choice.
 
 ## Moving On ##
 One door closes loudly, and another door opens quietly.
-Hasten to move through the new door opening quietly,
-and learn from the mistakes of the old door.
-Go forth with momentum,
-the intention to progress,
-and proceed as if the past cannot still affect the person becoming.
+Hasten to move through the new door opening quietly, and learn from the mistakes of the old door closing.
+Go forth with momentum, the intention to progress, and proceed as if the past cannot still affect the person becoming.
 Continue to learn, push through the obstacles, and launch the new day.
 
 <br>
@@ -2246,7 +2212,7 @@ Something speaks to me in the depth of my soul to lead me to rise up for another
 Rise up to the sounds, rise up to the light, rise up to the cheerful phone calls.
 A way of being moves through me, there's something at the depth of my breath that is not myself animating me.
 With inspiriation, I feel energized for the day for myself and others.
-THe good thoughts roll off on everyone around, leading to fresh insights for everyone.
+The good thoughts roll off on everyone around, leading to fresh insights for everyone.
 In the depth of the pain, there's a gasp of wind in humanity moving me forward with a book or a dance on the street.
 Some say I inspire them, I surprise myself, and my thoughts expand and renew my views.
 I gasp for the air of good cheer, and clear insights, and catch the wind.
@@ -2262,10 +2228,10 @@ The false, fake, sham part of the two-faced being.
 It's unreal, a mimic.
 It obscures the light, the true being.
 It obfuscates humanity's reality.
-It blacken's the human experience and leads to pain.
+It blackens the human experience and leads to pain.
 It's the dark undercurrents of humanity waiting to arouse in agitation.
 It extinguishes the part within that lights us up.
-It's a shadow because it's not the full refleced self.
+It's a shadow because it's not the full reflected self.
 It's the self hidden by the lightlessness, waiting to evolve from shadow to light.
 
 <br>
@@ -2277,7 +2243,7 @@ It's a trend to use social media and then take a break.
 It's fashionable to wear cowboy boots and listen to country music.
 Populism capitalizes on the false stories, sentiments, and stereotypes shared through the media.
 Opinions have no weight in God's kingdom within, and without.
-But sometimes people are outcasted because of the weight of human opinion.
+Sometimes people are outcasted because of the weight of human opinion.
 It's the responsibility of mankind to let go of, spurn the wrong, and interpet what they need, hear, and see.
 Don't believe it all.
 Progress is built on understanding.
@@ -2288,11 +2254,7 @@ Seek to understand another's viewpoint, and perspective.
 **Word Associations:** trend, media, opinion, populism, fashion, responsiblity, outcast, progress
 
 ## Forgetting ##
-Disremembering the wrongs of the past,
-letting the false experiences go completely away in consciousness,
-moving the negative experiences into oblivion,
-and starting on a clean slate with the error ommitted.
-Escaping the dark skeletons in the closet to be as fresh as the sunlight.
+Disremembering the wrongs of the past, letting the false experiences go completely away in consciousness, moving the negative experiences into oblivion, and starting on a clean slate with the error ommitted. Escaping the dark skeletons in the closet to be as fresh as the sunlight.
 
 <br>
 
@@ -2302,7 +2264,7 @@ Escaping the dark skeletons in the closet to be as fresh as the sunlight.
 The windfall profit found from a chance encounter to a new land when availing oneself of the blessings.
 Through luck, there's a win, and a breakthrough that beats the odds.
 Fortune made though such a fire stroke that hits right on target.
-Huge glory and abudnance ahead that meets the infinite need.
+Huge glory and abundance ahead that meets the infinite need.
 Grace in disguise, synchronized working out for the best for oneself and mankind.
 
 <br>
@@ -2393,7 +2355,7 @@ globes loved,
 movement of humanity,
 life repeated,
 truth expressed,
-modernity created
+and modernity created.
 
 <br>
 
@@ -2401,35 +2363,34 @@ modernity created
 
 ## Voice ##
 Use your voice,
-Cherish the silence,
-Speak your truth,
+cherish the silence,
+speak your truth,
 express your heart,
 articulate your opinion,
 narrate stories - your story and others' stories,
 echo another's,
-find the strength within
-get things off your chest
+find the strength within,
+get things off your chest.
 
 <br>
 
 **Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
 
 ## Water ##
-The deep, clear water thatn runneth through the earth and separates the country
-It flows through the earth from the ocean to the land
-and cycles around, giving life and purity
-THe sky soaks it up, it changes elements, becomes vapor, and is a flood
+The deep, clear water that runneth through the earth and separates the country.
+It flows through the earth from the ocean to the land and cycles around, giving life and purity.
+The sky soaks it up, it changes elements, becomes vapor, and is a flood.
 
 <br>
 
 **Word Associations:** vapor, ocean, sky, life, cycle, shallow, sprinkle, flow, element, flood
 
 ## Reliable ##
-Being consistently on time, ready to go, ready to help
-Expressing the same quality over and over again
-Predictable behavior when a promise is made, it's guaranateed that it will be kept without error, with stability
-A safe foundation, free from the need to test out
-Always there, ready to go, reliable
+Being consistently on time, ready to go, ready to help.
+Expressing the same quality over and over again.
+Demonstrating predictable behavior when a promise is made, it's guaranteed that it will be kept without error, with stability.
+Relying on a safe foundation, free from the need to test out.
+Being always there, ready to go, reliable.
 
 <br>
 
@@ -2446,7 +2407,7 @@ What a joy to receive a card in the mailbox from someone.
 **Word Associations:** letter, memories, pen, card, envelope, send, stamp, write, reception, mail
 
 ## Chore ##
-The grace expressed in doing chores, stackig clothes, cleaning dishes, running the laundry machine.
+The grace expressed in doing chores, stacking clothes, cleaning dishes, running the laundry machine.
 Running these errands are some of the greatest gifts in the world.
 What joy comes from singing through them like a novice or like a child works through routine tasks.
 Not a robot but like Cinderella singing and not neglecting a single detail.
@@ -2503,17 +2464,17 @@ With the nourishment of water, it becomes something lives and flourishes with wi
 ## Destiny ##
 The epic course for life that God designed.
 It's fate to land here, and meet and help these people.
-It's epic that an omniscient source of inteligence guides, and shapes the paths forward so that all is made manifest for His glory and His birth, and His seed to live.
+It's epic that an omniscient source of intelligence guides, and shapes the paths forward so that all is made manifest for His glory and His birth, and His seed to live.
 
 <br>
 
 **Word Associations:** fate, manifest, birth, epic, course, prophecy, shape, guide, tragic, seed
 
 ## Letter ##
-Your song is a secret letter speaking to the deepest darkness and lightest light of my heart
-Your song is like a note in an evelope holding up a mirror to the ghost of the past and the truth of the Christ
-the intent is unknown, there's a cryptic healing for a cryptic pen from the past
-by law you help me, your will is good, it almost feels like it comes straight out of a book
+Your song is a secret letter speaking to the deepest darkness and lightest light of my heart.
+Your song is like a note in an envelope holding up a mirror to the ghost of the past and the truth of the Christ.
+The intent is unknown, there's a cryptic healing for a cryptic pen from the past.
+By law you help me, your will is good, it almost feels like it comes straight out of a book.
 
 <br>
 
@@ -2545,16 +2506,20 @@ They are the king of all kigns, with the glory of true fatherhood, sonship, and 
 **Word Associations:** power, father, husband, brother, son, alpha, defense, war, provision, king
 
 ## Distance ##
-Finding the space to think things through, understand, and process emotions
-Distancing oneself from the chaos, the scene, the drama
-Moving to the point at which one can be oneself freely
-Gaining the right place to travel without pain, judgment, coldness
-Finding the difference between the real, and the false, others and oneself
-Standing at the line of coldness and lack of sympathy of others hearing the true voice within
+Finding the space to think things through, understand, and process emotions.
+Distancing oneself from the chaos, the scene, the drama.
+Moving to the point at which one can be oneself freely.
+Gaining the right place to travel without pain, judgment, coldness.
+Finding the difference between the real, and the false, others and oneself.
+Standing at the line of coldness and lack of sympathy of others hearing the true voice within.
 
 <br>
 
 **Word Associations:** space, point, measure, difference, line, void,t ravel, eomtion, pace, cold
+
+*******************************************************************
+*******************************************************************
+*******************************************************************
 
 ## Forbidden ##
 The forbidden forest
@@ -3411,6 +3376,10 @@ The hope to begin again is have the struggle.
 <br>
 
 **Word Associations:** adversity, obstacles, goal, perseverance, chains, shackles, growth, chance, pain, hope
+
+*******************************************************************
+*******************************************************************
+*******************************************************************
 
 
 ----------
