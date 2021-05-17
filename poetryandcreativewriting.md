@@ -1168,7 +1168,7 @@ I trust God in leading everyone forward in the way that makes everyone happy.
 
 <br>
 
-**Word Associations:** brief, impression, fleeting, shy, blink, eye contact, peek, flash
+**Word Associations:** grief, lament, wrong, cry, anguish, tears, heartache, woe, bereave, loss
 
 ## Beauty ##
 The brilliance of the beauty found in the soul of the universe.
@@ -2517,48 +2517,44 @@ Standing at the line of coldness and lack of sympathy of others hearing the true
 
 **Word Associations:** space, point, measure, difference, line, void, travel, emotion, pace, cold
 
-*******************************************************************
-*******************************************************************
-*******************************************************************
-
 ## Forbidden ##
-The forbidden forest
-The place where one cannot go
-The people that one cannot talk to
-The place, the people are too good
-The one forbidden is too sinful
-The sin, dangerous, is in dnager zone
-A ban on the sin keeps it constrained
-A rule for how to go and how to live
-It's shaky, that's why a rule through religion keeps the fruit contained and untouchable
+The forbidden forest.
+The place where one cannot go.
+The people that one cannot talk to.
+The place, the people are too good.
+The one forbidden is too sinful.
+The sin, dangerous, is in dnager zone.
+A ban on the sin keeps it constrained.
+A rule for how to go and how to live.
+It's shaky, that's why a rule through religion keeps the fruit contained and untouchable.
 
 <br>
 
 **Word Associations:** fruit, taboo, danger, ban, rule, sin, untouchable, snake, religion, zone
 
 ## Fight ##
-It's really a fight, within and without
-At odds with reality and what's going on
-Rebelling against the norm
-Arguing with those in power, those in authority, those who feel superior
-Mocked, teased, and harassed by the enemy's voice
-Dueling with what's wrong and right,b ut surrendering to what's right
-Finding allies to help win and overcome the numbered enemy's voices
+It's really a fight, within and without.
+At odds with reality and what's going on.
+Rebelling against the norm.
+Arguing with those in power, those in authority, those who feel superior.
+Mocked, teased, and harassed by the enemy's voice.
+Dueling with what's wrong and right, but surrendering to what's right.
+Finding allies to help win and overcome the numbered enemy's voices.
 
 <br>
 
 **Word Associations:** duel, enemy, odds, rebel, ally, blood, win, surrender, number, power
 
 ## Holy ##
-The holy ground
-the health and wholeness within
-the meekness to rest upon the divine blessings
-the spirit of peace and patience
-the vow to hold off from sin
-the angels on the pathway
-the book that gives the truth
-the soul within
-the true religion
+The holy ground,
+the health and wholeness within,
+the meekness to rest upon the divine blessings,
+the spirit of peace and patience,
+the vow to hold off from sin,
+the angels on the pathway,
+the book that gives the truth,
+the soul within,
+the true religion.
 
 <br>
 
@@ -2566,8 +2562,8 @@ the true religion
 
 ## Music ##
 The metaphor of music in life has lied, echoed, and resounded since the beginning of time.
-Everyone living in harmony, people working to harmnoize.
-Everyone like notes, musical instruments of their own, part of a emlody.
+Everyone living in harmony, people working to harmonize.
+Everyone like notes, musical instruments of their own, part of a melody.
 An idea, a song, and intuition, a remark, a signal strikes a chord, and gets someone out of a funk.
 Some words become a lyric in line with the rest of the band.
 
@@ -2580,7 +2576,7 @@ A new cycle of life beginning.
 A new beginning.
 The starting point on a circle, rotating around and around.
 The old becoming new.
-The past learned so taht new stories can be created.
+The past learned so that new stories can be created.
 A sequence that is then shifted to a new rotation.
 A new routine developing, an adaptation like in music that helps the circle enlarge, grow, renew.
 The dropping of old past, old baggage.
@@ -2592,7 +2588,7 @@ The dropping of old past, old baggage.
 ## Stranger ##
 Someone on the outside, living in the shadows of life's existence.
 It's a mysterty why she's so unknown to people, living in the dark, enraptured by the loneliness.
-She's foreign, she's different, she's unfamiliar, yet she ha something new to offer and a heart to light up the whole room.
+She's foreign, she's different, she's unfamiliar, yet she has something new to offer and a heart to light up the whole room.
 
 <br>
 
@@ -2609,128 +2605,125 @@ It's a luxury to make these exchanges everyday.
 **Word Associations:** luxury, value, purse, price, greed, steal, operation, exchange, attraction, bank
 
 ## Undergound ##
-Deep undergound, where the soul goes to find respite
-Burying one's heart in the tunnel beneath the earth's rock, where theres a chamber of dirt supporting a bloom
-A great treasure lies deep underground, waiting to be mined
-I can be a fugitive from this hostile earth's existence and live in the subway to freedom
+Deep undergound, where the soul goes to find respite.
+Burying one's heart in the tunnel beneath the earth's rock, where there's a chamber of dirt supporting a bloom.
+A great treasure lies deep underground, waiting to be mined.
+I can be a fugitive from this hostile earth's existence and live in the subway to freedom.
 
 <br>
 
 **Word Associations:** mine, treasure, coffin, tunnel, subway, well, crypt, chamber, magma, fugitive
 
 ## Betrayal ##
-Failing to stay loyal to people
-Failing to keep the trust in the relationship
-A greatest enemy, someone not capable of looking deeper to understand
-A manipulator, someone using someone for their own gain
-Vengeance after being stabbed in the back after trying to trust
-Alliances to help community, someone like Judas, a traitor
+Failing to stay loyal to people.
+Failing to keep the trust in the relationship.
+A greatest enemy, someone not capable of looking deeper to understand.
+A manipulator, someone using someone for their own gain.
+Vengeance after being stabbed in the back after trying to trust.
+Alliances to help community, someone like Judas, a traitor.
 
 <br>
 
 **Word Associations:** enemy, turst, spy, manipulation, traitor, vengeance, Judas, stab, alliance, loyalty
 
 ## Education ##
-Life is continuous education
-A lesson to learn from everyone someone meets
-A new skill to learn every day
-Constant training, testing, and refining for the purpose of life
-A larger instituion of improving, and giving
+Life is continuous education.
+A lesson to learn from everyone someone meets.
+A new skill to learn every day.
+Constant training, testing, and refining for the purpose of life.
+A larger instituion of improving, and giving.
 
 <br>
 
 **Word Associations:** trian, skill, judgment, class, refine, bachelor, test, institution, program, segregate
 
 ## Stolen ##
-A gem of great price within that feels stolen, trampled upon, violated
-The good work done stolen, not guarded
-The dreams ransom, thundered on
-Straight ways made crooked
-The good in human character villainized
+A gem of great price within that feels stolen, trampled upon, violated.
+The good work done stolen, not guarded.
+The dreams ransom, thundered on.
+Straight ways made crooked.
+The good in human character villainized.
 
 <br>
 
 **Word Associations:** dreams, crook, gem, villian, price, ranson, lurk, thunder, land, guard
 
 ## Charge ##
-Taking charge of what needs to be accomplished
-In the hour of darkness, the angels spy and conspire to take charge of everything
-In the moment of guilt-riddenness, fine, thoughts of peace explode and come to the rescue for the plea
+Taking charge of what needs to be accomplished.
+In the hour of darkness, the angels spy and conspire to take charge of everything.
+In the moment of guilt-riddenness, fine, thoughts of peace explode and come to the rescue for the plea.
 
 <br>
 
 **Word Associations:** horse, bill, electric, murder, spy, guilt, fine, conspire, plea, explode
 
 ## Bloom ## 
-My heart longs to hide in the deepness of the dirt where the seedling is buried and the roots spread throughout
-Out of the ripening of this earthgroud plant, this earthground rocks, comes a beatuiful, fresh season filled with
-bounty, spreading across all the land from a small beginning, springing to a full flower,
-touching all the points of the land, the country, the earth with love
-everything else is plucked out and flows out like honey
+My heart longs to hide in the deepness of the dirt where the seedling is buried and the roots spread throughout.
+Out of the ripening of this earthgroud plant, this earthground rocks, comes a beatuiful, fresh season filled with bounty, spreading across all the land from a small beginning, springing to a full flower, touching all the points of the land, the country, the earth with love everything else is plucked out and flows out like honey.
 
 <br>
 
 **Word Associations:** flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
 
 ## Color ##
-All of the colors of the rainbow reflected thorugh everything in our world
-Many shades - red, green, pink, orange, yellow, purple
+All of the colors of the rainbow reflected thorugh everything in our world.
+Many shades - red, green, pink, orange, yellow, purple.
 A vision that includes:
 red apples, trucks,
 pink gums,
 orange crayons,
 black window frames,
 purple TVs,
-yellow dentures
+yellow dentures.
 All the race, many nationalities, and countires
-colors and tones, all original
-such great contrast in everything we do with the light bouncing off of us in original ways
-we are all part of this great photo
+colors and tones, all original.
+Such great contrast in everything we do with the light bouncing off of us in original ways.
+We are all part of this great photo.
 
 <br>
 
 **Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
 ## Details ##
-The devil is in the details
-Details matter
-Perceiving them, working with them thoroughly
-Small, specific facts and observations carry weight in building up to the whole
-They aren't mundane 
-They are personal parts of the outline
-They matter to the diary, the biography, the whole travel
+The devil is in the details.
+Details matter.
+Perceiving them, working with them thoroughly.
+Small, specific facts and observations carry weight in building up to the whole.
+They aren't mundane .
+They are personal parts of the outline.
+They matter to the diary, the biography, the whole travel.
 
 <br>
 
 **Word Associations:** small, diary, biography, outline, whole, fact, specific, mundane, travel, personal
 
 ## Culture ##
-Ways of living and behaving that belong to a group people share these ways through assimilation
-There are stereotypes based on assimilations
-Over time through civilizatio, values, and characters develop
-Maps show how cultures weave through the world in different places
-Art is an expression
+Ways of living and behaving that belong to a group people share these ways through assimilation.
+There are stereotypes based on assimilations.
+Over time through civilization, values, and characters develop.
+Maps show how cultures weave through the world in different places.
+Art is an expression.
 
 <br>
 
 **Word Associations:** art, map, bacteria, build, assimilate, civilization, lifestyle, stereotype, value, character
 
 ## Comedy ##
-The breakdown, the reaction is so ridiculous, it's like slapstick comedy, giving people a reason to laugh
-It's so out of the ordinary, it's tragic, and staged
-It's such a strong gag, that someone must satirize and turn humanity's vices into high art
-Drama in humanity becomes showtime in no time
-A direct sketch of everything comical in every day life
+The breakdown, the reaction is so ridiculous, it's like slapstick comedy, giving people a reason to laugh.
+It's so out of the ordinary, it's tragic, and staged.
+It's such a strong gag, that someone must satirize and turn humanity's vices into high art.
+Drama in humanity becomes showtime in no time.
+A direct sketch of everything comical in every day life.
 
 <br>
 
 **Word Associations:** sketch, showtime, direct, laugh, satire, gag, tragic, art, drama, stage
 
 ## Symbol ##
-A representation for something to be known, and understood
-A sign signaling a missing puzzle piece
-A pictograph of an idea with meaningful importance
-A code expressing metaphors, and constellations
+A representation for something to be known, and understood.
+A sign signaling a missing puzzle piece.
+A pictograph of an idea with meaningful importance.
+A code expressing metaphors, and constellations.
 
 <br>
 
@@ -2744,7 +2737,7 @@ leading to an inherited difference in behavior and being,
 a monstrous shift,
 an experiment with a new breed of thinking,
 a trigger to adapt,
-a random event that leads to a structural cleavage
+a random event that leads to a structural cleavage.
 
 <br>
 
@@ -2790,7 +2783,8 @@ the pact to stop throwing a fight.
 ## Silence ##
 The silent truth echoes down the ages from heart to heart,
 from story to story,
-from experience to experience, from song to song,
+from experience to experience, 
+from song to song,
 from coast to coast.
 It never stops its sound.
 It lives and loves the solitude, putting a stop to the chatter, the murmurs, the muffles.
@@ -2802,50 +2796,50 @@ It has great command over the serpent, and is able to tread on them.
 **Word Associations:** sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
 
 ## Women ##
-Gentle beams of living love
-The expressions of the calm, and peaceful life force
-People with a strong sense and connection to nature
-Anchors to life as sisters, mothers, and wives
-Protectors of the earth
-People who can help the women nearby adjust their crowns with a rejoicing heart
+Gentle beams of living love.
+The expressions of the calm, and peaceful life force.
+People with a strong sense and connection to nature.
+Anchors to life as sisters, mothers, and wives.
+Protectors of the earth.
+People who can "help the women nearby adjust their crowns" with a rejoicing heart.
 
 <br>
 
 **Word Associations:** life, protection, attraction, sense, nature, sister, mother, wife, queen, anchor
 
 ## Temptation ##
-The lure to engage in something that's not right for oneself, that's wrong
-The pull to sin
-The snakey voice that leads to reactions, a draw to sexiness, hotness
-The cravings for what is not healty
-The desire to be wild 
-The voice of the devil belitting, patronizing, defining someone as less than pure ideas
+The lure to engage in something that's not right for oneself, that's wrong,
+the pull to sin,
+the snakey voice that leads to reactions, a draw to sexiness, hotness,
+the cravings for what is not healthy,
+the desire to be wild,
+and the voice of the devil belitting, patronizing, defining someone as less than pure ideas.
 
 <br>
 
 **Word Associations:** devil, lure, wild, shame, sin, resist, snake, craving, struggle, desire
 
 ## Monster ##
-The monstrous ego that wants to promote itself, compare itself to others, boast, speak only about itself
-The monstrous terroristic reactions that wnat to be individualistic and like no one else
-The society mtyhs of cowobys, damsels-in-distress
-The labyrinth of false beliefs to be purged
-The ugly creature within that wants to be unleashed and uncloseted
-The feeling of being hit by truck with hate, and foolishness, and teasing, and ridicule
+The monstrous ego that wants to promote itself, compare itself to others, boast, speak only about itself,
+the monstrous terroristic reactions that wnat to be individualistic and like no one else,
+the society myths of cowobys, damsels-in-distress,
+the labyrinth of false beliefs to be purged,
+the ugly creature within that wants to be unleashed and uncloseted,
+and the feeling of being hit by truck with hate, and foolishness, and teasing, and ridicule.
 
 <br>
 
 **Word Associations:** terror, beast, myth, labyrinth, creature, truck, unleaed, closet, hunt, supernatural
 
 ## Identity ##
-Identity - what gives one meaning, and a purpose
-The essence within that roots someone and defines them
-The authetnic self with passions, ideas, thoughts, interests, and qualities like curiosity, wholeness, grace, creativity, ability
-The person who naturally loves 
-People try to steal this identity, rob the identity of it's true gold, it's true worth, define it by societyal truths
-Soceity tries to mask it
-People destory the privacy
-Beliefs cover up the appearance, and personality comes as a disguise
+Identity - what gives one meaning, and a purpose.
+The essence within that roots someone and defines them.
+The authetnic self with passions, ideas, thoughts, interests, and qualities like curiosity, wholeness, grace, creativity, ability.
+The person who naturally loves.
+People try to steal this identity, rob the identity of it's true gold, it's true worth, define it by societyal truths.
+Soceity tries to mask it.
+People destroy the privacy.
+Beliefs cover up the appearance, and personality comes as a disguise.
 
 <br>
 
@@ -2857,7 +2851,7 @@ A boundary for how others can treat someone, and how they can treat others.
 An edge, where one begins and ends, and where another begins and ends.
 An openness to a new frontier, a new territory.
 A crossing, a bridge that helps people relate and map the interests and ideas of one individual to the interests and individuals of another.
-The line that shuts out the outlwas from those that belong in the territory.
+The line that shuts out the outlaws from those that belong in the territory.
 
 <br>
 
@@ -2906,7 +2900,7 @@ the victory is hard to attain.
 
 ## Crisis ##
 Crisis of one's worth, one does not believe in oneself, one does not trust in oneself, others do not believe or trust.
-One is bankrup fo what seems natural to someone else,
+One is bankrupt of what seems natural to someone else,
 one is at a crucial moment of transition,
 one is not accepted, falling hostage and prey to popular culture.
 One is changing and falling out and impacted by the social norms that peope dictate and govern.
@@ -2927,12 +2921,12 @@ The love of ordinary moments in the spirit, feeling the culture expressed.
 **Word Associations:** common, culture, tradition, history, lore, tale, influence, ordinary, custom, spirit
 
 ## Courage ##
-The courage to take another step after falling.
-The spirit of hope for humanity.
-The spirit fo virtue to know how to help people.
-The muster to keep going after failing.
-The ability to live amdist danger and fear and warfare.
-The heroism to overcome cowardly ways.
+The courage to take another step after falling,
+the spirit of hope for humanity,
+the spirit fo virtue to know how to help people,
+the muster to keep going after failing,
+the ability to live amdist danger and fear and warfare, 
+and the heroism to overcome cowardly ways.
 
 <br>
 
@@ -2950,10 +2944,10 @@ It's abstract in its forms, its a creation that can lead to a revolution, or a 1
 **Word Associations:** design, pattern, color, achieve, civilization, perspective, abstract, creation, form, revolution
 
 ## Movement ##
-A step taken closer to the Truth that operates through a dance, both collective and individual through the universe that changes and moves forward, only through the lens of the illusioins of change
-A complete reversal, 180 revolution
-The graceful leadership from One True idea to another true idea
-The graceful shifting of perception from wrong to right
+A step taken closer to the Truth that operates through a dance, both collective and individual through the universe that changes and moves forward, only through the lens of the illusions of change.
+A complete reversal, a 180 degree revolution.
+The graceful leadership from One True idea to another true idea.
+The graceful shifting of perception from wrong to right.
 
 <br>
 
@@ -2962,8 +2956,7 @@ The graceful shifting of perception from wrong to right
 ## Ladder ##
 The beauty of the carpenter climbing up the ladder and standing on top of the roof.
 He works so humbly, and gracefully. He has a good heart.
-There's a goal for him ahead to build and construct, and move through the passageway humbly and support the top.
-Metaphysically climbing the stairs of being.
+There's a goal for him ahead to build and construct, and move through the passageway humbly and support the top, metaphysically climbing the stairs of being.
 
 <br>
 
@@ -2978,10 +2971,10 @@ The fake story, the one to ignore is such a teaser, leaked online in sketchy doc
 **Word Associations:** document, wire, anchor, air, leak, alert, hack, network, fake, story
 
 ## Nostalgia ##
-A sense of childlike innocence, of home, a childhood memory that remains pure and unexlored.
+A sense of childlike innocence, of home, a childhood memory that remains pure and unexplored.
 A longing for a purity within that belongs to people.
 A positive aspect of the world that lasts throughout time.
-A vintage piece of something that losts throughout time.
+A vintage piece of something that lasts throughout time.
 
 <br>
 
@@ -3039,7 +3032,7 @@ The inner truth voicing good in one's heart.
 **Word Associations:** spirit, intelligence, fire, star, sun, window, dark, extinguish, shadow, heart
 
 ## Challenge ##
-A challenge, an obstacle to overcome, something to create a soltuion for so that people can become better.
+A challenge, an obstacle to overcome, something to create a solution for so that people can become better.
 The success that comes from beating down the odds, the opposition, the face of adversity, the championing to something better.
 
 <br>
@@ -3099,15 +3092,15 @@ Time flowing forever through the river and cycling throughout with growth, decay
 **Word Associations:** past, present, future, watch, flow, forever, cycle, growth, decay, legacy
 
 ## Perfection ##
-The state of excellence, refinement.
-The perfect qualities.
-The careful honing in on details and what's right.
-The high demand.
-The harmony within and without.
-The quest to improve.
-The transcending ability to probe deeper and wider.
-The infinite sense of growing more ethical, and moral.
-The desire to make the right decisions to overcome flaws.
+The state of excellence, refinement,
+the perfect qualities,
+the careful honing in on details and what's right,
+the high demand,
+the harmony within and without,
+the quest to improve,
+the transcending ability to probe deeper and wider,
+the infinite sense of growing more ethical, and moral,
+and the desire to make the right decisions to overcome flaws.
 
 <br>
 
@@ -3263,27 +3256,26 @@ The wish is to take another day to appreciate some form of beauty in the ocean, 
 **Word Assocations:** feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
 
 ## Heroism ##
-Everywhere life is filled with heroism,
+"Everywhere life is filled with heroism" the poem writes,
 the desire to heal,
 the bravery to do what's right when at a crossroads,
 the ability to be a superhuman when facing villains and tragedies,
-the slaying of demons in the face of adversity when seeing someone suffering
+and the slaying of demons in the face of adversity when seeing someone suffering
 
 <br>
 
 **Word Associations:** bravery, model, villain, fable, legend, superhuman, tragedy, slay, sandwhich, icon
 
 ## Cherish ##
-The peace within I cherish
-the heartfelt love for another
-for a dear someone 
+The peace within I cherish.
+the heartfelt love for another for a dear someone 
 a feeling of gratitude, and appreciation,
 a memory of something positive,
 protection from the harm done,
 a promise for something better to come to light,
 an inner treasure that's crystal clear and lasts forever,
 a hope for the best to play out,
-a care for the future and what's dearest to one's heart.
+and a care for the future and what's dearest to one's heart.
 
 <br>
 
@@ -3307,11 +3299,11 @@ A disease of the senses because of the noise, and the magnetic fragments of the 
 **Word Associations:** insomnia, fragment, disease, mind, madness, sense, noise, mood, magnet, earthquake
 
 ## Freedom ##
-The freedom to take off the chains, the weight of the oppression that slows people down.
-The right to be untrapped.
-The right to be a free spirit, a free bird, and engage with opportunity.
-The right to be protected.
-The right to express, share the ideas that spring up from within, from the source of life.
+The freedom to take off the chains, the weight of the oppression that slows people down,
+the right to be untrapped,
+the right to be a free spirit, a free bird, and engage with opportunity,
+the right to be protected,
+and the right to express, share the ideas that spring up from within, from the source of life.
 
 <br>
 
@@ -3328,7 +3320,7 @@ Forces for good, beauteous things, a good environment, mother instinct, healing 
 ## School ##
 The best place to learn, to develop habits of the mind, and to make new friends.
 There can be competition, segregation, and compulsory classes.
-It can be a palce for safety, a place for growth, a place for discipline with peers.
+It can be a place for safety, a place for growth, a place for discipline with peers.
 
 <br>
 
@@ -3346,7 +3338,7 @@ Arguments, suspicions, excuses.
 
 ## Family ##
 A unviersal family with mothers and fathers, and children, and homes.
-All over the world, though people look different, there are common roots, common acnestry, yet distinct features on the tree of life.
+All over the world, though people look different, there are common roots, common ancestry, yet distinct features on the tree of life.
 Everyone has a name reflecting who each indidivdual is.
 Names reflect values of tribes and clans.
 
@@ -3355,7 +3347,7 @@ Names reflect values of tribes and clans.
 **Word Associations:** tree, roots, ancestors, mother, father, children, home, name, tribe, clan
 
 ## Treasure ##
-The treasures within acnient cultures that bring us closer to stories we can uncover to know ourselves better.
+The treasures within ancient cultures that bring us closer to stories we can uncover to know ourselves better.
 The hunt is for the the true gold within the earth,
 the sweet suprise that lay buried for all to discover,
 the relics to uncover,
@@ -3377,14 +3369,13 @@ The hope to begin again is have the struggle.
 
 **Word Associations:** adversity, obstacles, goal, perseverance, chains, shackles, growth, chance, pain, hope
 
-*******************************************************************
-*******************************************************************
-*******************************************************************
-
 
 ----------
 
 
+*******************************************************************************
+*******************************************************************************
+*******************************************************************************
 # Creative Writing - Independent Writing #
 ## Maps ##
 Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
