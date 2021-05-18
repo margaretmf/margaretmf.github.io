@@ -47,4 +47,6 @@
 
 <img class="profile-picture" src="Black&BlueLines.jpg">
 
+<img class="profile-picture" src="Green&Black&GoldLines&Boxes.jpg">
+
 
