@@ -1,5 +1,5 @@
 # Vocabulary #
-This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario).
+This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com) and [Dictionary.com](https://www.dictionary.com).
 
 ## Remember: ##
 * To have in or be able to bring to one's mind in awareness
@@ -197,3 +197,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Meaning: ##
 * A statement of the exact meaning of a word, especially in a dictionary 
 * The degree of distinctness in outline of an object, image, or sound, especially of an image in a photograph or on a screen
+
+## Infrastructure: ##
+* The underlying foundation or basic framework (as of a system or organization)
+* Infra- means "below;" so the infrastructure is the "underlying structure" of a country and its economy, the fixed installations that it needs in order to function
