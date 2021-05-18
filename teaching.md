@@ -180,27 +180,31 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Admiral Bloom
 * the Match-Man
 * Bert
+* Mr. Wigg, Mary Poppin's uncle
+* Miss Persimmon
 
 ### Where? ###
 * Number Seventeen, Cherry-Tree Lane, London
+* Number Three, Robertson Road
 
 ### What? ###
 * the East Wind
+* Family's experience with nannies
 
 ### Color ###
-* white-gloved // finger, black // bag, peering // blue // eyes, white // apron, dark // crimson // fluid, red // feeling, white // gloves, coloured // chalks, brown // stripes, brown // curls, blue // sea, green // crisp grass, green // branches, coloured // flowers, diamond // buckles, black // coat, green // chairs
+* white-gloved // finger, black // bag, peering // blue // eyes, white // apron, dark // crimson // fluid, red // feeling, white // gloves, coloured // chalks, brown // stripes, brown // curls, blue // sea, green // crisp grass, green // branches, coloured // flowers, diamond // buckles, black // coat, green // chairs, grey // horse, black / horse, white // doorway, silk // cloak, silver // buttons, blue // hat, blue // coat, blue // hat, pink // icing
 
 ### Adjectives ###
-* particular // house, smallest // house, huge // finger, comfortable // house, lowest possible // wage, front // gate, gilt // weathercock, grandest // house, large // chair, large // desk, curious // thing, terrific // bang, whole // house, sharp // dig, old-fashioned // idea, top // landing, excellent // view, extraordinary // thing, large // bag, long, loud // sniff, signal // honour, empty // bag, large // bottle, delicious // taste, happy // smile, terrible // glance, miraculous // bottle, dim // light, carpet // bag, flannel // nightgowns, beautiful // handle, empty // motor-car, pavement // pictures, particular // day, ladylike // cough, important // person, stodgy // meal, gigantic // roses, fair // treat, bright green-and-red // striped coat, admiring // voice, round // eyes, artificial // silk, watery // patterns, curly // feather, little // wood
+* particular // house, smallest // house, huge // finger, comfortable // house, lowest possible // wage, front // gate, gilt // weathercock, grandest // house, large // chair, large // desk, curious // thing, terrific // bang, whole // house, sharp // dig, old-fashioned // idea, top // landing, excellent // view, extraordinary // thing, large // bag, long, loud // sniff, signal // honour, empty // bag, large // bottle, delicious // taste, happy // smile, terrible // glance, miraculous // bottle, dim // light, carpet // bag, flannel // nightgowns, beautiful // handle, empty // motor-car, pavement // pictures, particular // day, ladylike // cough, important // person, stodgy // meal, gigantic // roses, fair // treat, bright green-and-red // striped coat, admiring // voice, round // eyes, artificial // silk, watery // patterns, curly // feather, little // wood, loud // whisper, wonderful // picture, bright // clothes, old // ragged // cap, still // trees, superior // sniff, easiest // thing, curious // windows, whole // crowd, odd // person, outraged // voice, large cheerful // voice, enormous // table, terrible // glance, cheery // voice, particular // day, funny // thought, special // habit, delicious // feeling, bouncing // bound, worst // manners, faintest // glimmer, single // piece, hot // water, large // slice, wrong // way, sharp // knock, huge / bump, lovely // afternoon, offended // sniff, sober // man, grand // house, loud // voice, curly // twists, fluffy // dogs, luxurious // life, ordinary // days, kindly // feeling, innermost // heart, common // dogs, town // gossip, drawing // room, luckier // occasion, careering // past, windy // voice
 
 ### Adverbs ###
-* scratch // [his head] // thoughtfully, push // [his helmet] // slightly, absent-mindedly // kissed, suddenly // pointing, heavily // banged, curiously // gazed, suddenly // noticing, steadily // regarded, searchingly // regard, suddenly // discovered, ecstatically // said, deliciously // sliding, eagerly // lapped, solemnly // took threateningly // said, sternly // eyed, hurriedly // said, hurriedly // disappeared, haughtily // nodded, sadly // looked, said // brightly, apparently // thought, said // admiringly, huskily // rattling, steadily and delightedly // stare, open // space, big // brass, particular // phrase
+* scratch // [his head] // thoughtfully, push // [his helmet] // slightly, absent-mindedly // kissed, suddenly // pointing, heavily // banged, curiously // gazed, suddenly // noticing, steadily // regarded, searchingly // regard, suddenly // discovered, ecstatically // said, deliciously // sliding, eagerly // lapped, solemnly // took threateningly // said, sternly // eyed, hurriedly // said, hurriedly // disappeared, haughtily // nodded, sadly // looked, said // brightly, apparently // thought, said // admiringly, huskily // rattling, steadily and delightedly // stare, open // space, big // brass, particular // phrase, evidently // offend, faintly // echoing, brightly // burning, crossly // saying, mysteriously // looked, said // contentedly, smiled // contentedly, flung // scornfully, hurriedly // ran, lurching // wildly, breathlessly // demanded
 
 ### Vocabulary ###
-* Dilapidated, Exactly, Dancing, Consideration, Conclusion, Advertise, Disappear, Queue, Pop, Spare, Wonder, Indicate, Proceeded, Wrinkled, Swallowed, Ecstatically, Gurgled, Smacking, Corking, Astonishment, Coax, Threateningly, Listening, Preside, Sternly, Littered, Indulge, Stoop, Stare, Admire
+* Dilapidated, Exactly, Dancing, Consideration, Conclusion, Advertise, Disappear, Queue, Pop, Spare, Wonder, Indicate, Proceeded, Wrinkled, Swallowed, Ecstatically, Gurgled, Smacking, Corking, Astonishment, Coax, Threateningly, Listening, Preside, Sternly, Littered, Indulge, Stoop, Stare, Admire, Explain, Approach, Flourish, Return, Glance, Intend, Signal, Appear, Remember, Distressing, Strike, Apologise, Persusasively, Thought, Heaving, Trembling, Bursting, Appeal, Wriggle, Behaviour, Undignified, Retort, Whisper, Clutch, Gasp
 
 ### Allusions ###
-* Queen Elizabeth
+* Queen Elizabeth, Fairyland, Cinderella, Robinson Crusoe
 
 ### Themes ###
 * Military, Childlike Adventure, The City, The Nursery
@@ -277,6 +281,70 @@ Fromt he carpet bag she took out seven flannel nightgowns, four cotton ones, a p
 She, too, she discovered, had changed. Round her shoulders hung a cloak of lovely artificial silk with watery patterns all over it, and the tickling feeling at the back of her neck came, the mirror told her, from a long curly feather that swept down from the brim of her hat. Her best shoes had disappeared, and in their place were others much finer and with large diamond buckles shining upon them. She was still wearing the white gloves and carrying the umbrella." (pp. 20-21, "Mary Poppins")
 
 * "Mary Poppins, thoroughly surprised, sat down with a plop upon one of the little green chairs that stood round the table. The Match-Man, staring, collapsed on to another." (p. 21, "Mary Poppins")
+
+* "The Merry-go-Round was just slowing down as they approached it. They leapt upon it, Mary Poppins on a black horse and the Match-Man on a grey. And when the music started again and they began to move, they rode all the way to Yarmouth and back, because that was the place they both wanted most to see." (p. 24, "Mary Poppins")
+
+* "Jane and Michael followed Mary Poppins upstairs. Mary Poppins knocked at the door.
+
+'Come in! Come in! And welcome!' called a loud, cheery voice from inside. Jane's heart was pitter-pattering with excitement.
+
+'He is in!' she signalled to Michael with a look.
+
+Mary Poppins opened the door and pushed them in front of her. A large cheerful room lay before them. At one end of it a fire was burning brightly and in the centre stood an enormous table laid for tea - four cups and saucers, piles of bread and butter, crumpets, coconut cakes and a large plum cake with pink icing." (p. 29, "Mary Poppins")
+
+* "And as she spoke she looked up at the ceiling. Jane and Michael looked up too and to their surprise saw a round, fat, bald man who was hanging in the air without holding on to anything. Indeed, he appear to be *sitting* on the air, for his legs were crossed and he had just put down the newspaper which he had been reading when they came in.
+
+"My dear,' said Mr. Wigg, smiling down at the children, and looking apologetically at Mary Poppins, 'I'm very sorry, but I'm afraid it is my birthday.'
+
+'Tch, tch, tch!' said Mary Poppins.
+
+'I only remembered last night and there was no time then to send you a postcard asking you to come another day. Very distressing, isn't it?' he said, looking down at Jane and Michael.
+
+'I can ee you're rather surprised,' said Mr. Wigg. And indeed, their mouths were so wide open with astonishment that Mr. Wigg, if he had been a little smaller, might almost have fallen into one of them.
+
+'I'd better explain, I think,' Mr. Wigg went on calmly. 'You see, it's this way. I'm a cheerful sort of man and very disposed to laughter. You wouldn't believe, either of you, the number of things that strike me as being funny. I can laugh at pretty nearly everything, I can.'
+
+And with that Mr. Wigg began to bob up and down, shaking with laughter at the thought of his own cheerfulness." (p. 30, "Mary Poppins")
+
+* "'Well, you see, if I laugh on that particular day I become so filled with Laughing Gas that I simply can't keep on the ground. Even if I smile it happens. The first funny thought, and I'm up like a balloon. And until I can think of something serious I can't get down again.' Mr. Wigg began to chuckle at that, but he caught sight of Mary Poppins's face and stopped the chuckle, and continued:" (p. 31, "Mary Poppins")
+
+* "you two and Mary P. to visit me. Oh, Lordy, Lordy, don't make me laught, I beg of you --' But although Jane and Michael had done nothing very amusing, except to stare at him in astonishment, Mr. Wigg began to laugh again loudly, and as he laughed he went bouncing and bobbing about in the air, with the newspaper rattling his hand and his spectacles half on and half off his nose.
+
+He looked so comic, floundering in the air like a great human bubble, clutching at the ceiling sometimes and sometimes at the gas-bracket as he passed it, that Jane and Michael, though they were trying hard to be polite, just couldn't help doing what they did. They laughed. *And* they laughed. They shut their mouths tight to prevent the laughter escaping, but that didn't do any good. And presently they were rolling over and over on the floor, sqeualing and shrieking with laughter.
+
+Jane did not reply, for a curious thing was happening to her. As she laughed she felt herself growing lighter and lighter, just as though she were being pumped full of air. It was a curious and delicious feeling and it made her want to laugh all the more. And then suddenly, with a bouncing bound, she felt herself jumping through the air. Michael, to his astonishment, saw her go soaring up through the room. With a little bump her head touched the ceiling and then she went bouncing along it till she reached Mr. Wiggs." (pp. 32-33, "Mary Poppins")
+
+* "'Ah, she doesn't need to,' said Mr. Wigg sighing. 'She can come up if she wants to, even without laughing - and she knows it.' And he looked mysteriously and secretly at Mary Poppins as she stood down there on the hearth-rug.
+
+'Well,' said Mary Poppins, 'it's all very silly and undignified, but, since you're all up there and don't seem able to get down, I supposed I'd better come up, too.'
+
+With that, to the surprise of Jane and Michael, she put her hands down at her sides and without a laugh, without even the faintest glimmer of a smile, she shot up through the air and sat down beside Jane.
+
+'How many times, I should like to know,' she said snappily, 'have I told you to take off your coat when you come into a hot room?' And she unbuttoned Jane's coat and laid it neatly on the air beside the hat.
+
+'That's right, Mary, that's right,' said Mr. Wigg contentedly, as eh leant down and put his spectactles on the mantelpiece. 'Now we're all comfortable --'
+
+'There's comfort *and* comfort,' sniffed Mary Poppins.
+
+'And we can have tea,' Mr. Wigg went on, apparently not noticing her remark. And then a startled look came over his face.
+
+'My goodness!' he said. 'How dreadful! I've just realised - that table's down there and we're up hre. What *are* we going to do? We're ehre and it's there. It's an awful tragedy - awful! But oh, it's terribly comic!' And he hid his face in his handkerchief and laughed loudly into it. Jane and Michael though they did not want to miss the crumpets and the cakes, couldn't help laughing too, because Mr. Wigg's mirth was so infectous.
+
+Mr. Wigg dried his eyes." (p. 35, "Mary Poppins")
+
+* "Presently it was swaying dangerously, and then with a rattle of china and with cakes lurching off their plates on tot he cloth, the table came soaring through the room, gave one graceful turn, and landed beside them so that Mr. Wigg was at its head." (pp. 36-37, "Mary Poppins")
+
+* "'I hope, young man', she retorted, 'I have more respect for myself than to go bouncing about in the air like a rubber ball on the end of a bat. I'll stay on my own feet, thank you, or my name's not Amy Persimmon, and --oh dear, oh *dear*, my goodness, oh DEAR - what is the matter? I can't walk, I'm going, I -- oh, help, HELP!'
+
+For Miss Persimmon, quite against her will, was off the ground and was stumbling through the air, rolling from side to side like a very thin barrel, balancing the tray in her hand. She was almost weeping with distress as she arrived at the table and put down her jug of hot water.
+
+'Thank you,' said Mary Poppins in a calm, very polite voice.
+
+Then Miss Persimmon turned and went wafting down again, murmuring as she went: 'So undignified - and me a well-behaved, steady-going woman. I must see a doctor --'" (p. 39, "Mary Poppins")
+
+* "Mary Poppins sat between them, offended and silent, and presently, because they were very tired, they crept closer to her and leant up against her sides and fell asleep, still wondering..." (p. 43, "Mary Poppins")
+
+* "'Well, if you know, why bother to ask me?' said Mary Poppins sniffing. 'I'm no dictionary.'" (p. 50, "Mary Poppins")
 
 
 ----------
