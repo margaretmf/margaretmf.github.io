@@ -45,6 +45,7 @@ layout: default
 * [Mother Land: A Novel](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) by Leah Franqui
 * [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
 * [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
+* [And Theen They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
 
 
 ## 2020
