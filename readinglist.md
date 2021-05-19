@@ -49,7 +49,7 @@ layout: default
 * [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
 * [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
 * [And Theen They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
-
+* [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 
 ## 2020
 
@@ -184,7 +184,6 @@ Philip Taubman
 * [me and white supremacy: Combat Racism, Change the World, and Become a Good Ancestor](https://www.amazon.com/Me-White-Supremacy-Combat-Ancestor/dp/1728209803/ref=sr_1_1_sspa?dchild=1&keywords=me+and+white+supremacy&qid=1606419090&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzMlJGNFJSUEMyS1hEJmVuY3J5cHRlZElkPUEwODcyNzY1QVdINkZOOU5KTTZEJmVuY3J5cHRlZEFkSWQ9QTA5MzcwNDAyUlU5NDFINU9OUUlSJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Layla F. Saad & Robin DiAngelo 
 * [Shakespeare in a Divided America: What His Plays Tell Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
 * [A World More Bright](https://www.amazon.com/Bright-Isabel-Heather-Frederick-Ferguson/dp/0875104940) by  Isabel Ferguson and Heather Vogel Frederick (Author)
-* [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 
 
 ## 2019
