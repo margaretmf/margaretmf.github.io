@@ -62,7 +62,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (13 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (15 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -4032,7 +4032,9 @@ My heart soars higher, my eyes look deeper, my vision grows further when he lets
 
 The lone bird flies high through the spring trees.
 The lone bird sits still on the electric wire.
-The lone bird sits gracefully on the yellow driving sign.
+The lone bird sails gracefully on the yellow driving sign.
+The lone bird rests on a walking sine.
+The lone bird launches and lands onto a brown tree branch. 
 
 ## Fighting for Her Independence ##
 Through the fight for her independence, there is ground beneath her feet.
@@ -4047,6 +4049,9 @@ She lets go of the weakness.
 
 She lets the true strength and true light-heartedness reign within.
 With each new day under the Sun, she opens her heart to more independence, love, and innocence that can shine through the land that belongs to everyone.
+
+## The Wind ##
+The wind knows my name.
 
 ## The Freerider ##
 She's a woman who can stand on her own two feet.
@@ -4992,6 +4997,13 @@ The number of continents
 The number of countries
 The number of languages
 The daily actions, small actions
+
+----------
+
+## Universal "You and Me" ##
+You, across the street, and me are looking at the same sun right now
+Us, We, three on the street are looking up to the same sky right now
+You, in another country, and me are looking to the same sun right now
 
 <br>
 
