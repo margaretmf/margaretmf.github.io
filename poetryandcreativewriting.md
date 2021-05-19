@@ -211,7 +211,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the chiming of the bells outside
 * Grateful for how Taylor Swift expresses emotions, stories, and relationships through song
 * Grateful for the early learning center
-* Grateful for the student studying bilogy
+* Grateful for the student studying biology
+* Grateful to tutor my cousin in Chemistry and help her improve her work and study habits
 * Grateful for memories of rappelling with other Christians
 * Grateful for Christian music
 * Grateful for homes aligned in rows next to each other
@@ -3486,18 +3487,6 @@ Composing music expresses both the head and the heart, and writing songs helps t
 ## Song Lyrics ##
 Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
 
-When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile - the engimatic smile, the generity of the laugh, and the charm of the care speaks to the heart. 
-
-From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required, or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare feels like a prank, sinister, childish, aggressive, and insincere.
-
-I also remember listening to the song "Hey Lady" by Thriving Ivory. These songs weren't about me, but I could relate to the feeling of not wanting to burn my heart out on love and not wanting to lose someone before they walk away.
-
-Finally, I remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
-
-More recently I analyzed music lyrics on "boys will be boys" and kind, and sweet girls. I used to feel like I was the big-hearted, kind, sweet girl who followed all the rules, and treating guys like I would my cousins or brother to look beyond the societal mask; I began to make mistakes however, and I realized more deeply that guys are not the only ones who do dumb things - girls do dumb things as well, and in a way this is a good thing.
-
-It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
-
 ## Popular Culture ##
 Popular culture speaks subtly. One must think to understand different perspectives on popular culture. One must be alert to subtle, silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
 
@@ -5500,6 +5489,19 @@ There was restoration between the bullying guy and me. There was some healing. T
 At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
 
 I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too; but translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
+
+# Music Healing #
+When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile - the engimatic smile, the generity of the laugh, and the charm of the care speaks to the heart. 
+
+From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required, or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare feels like a prank, sinister, childish, aggressive, and insincere.
+
+I also remember listening to the song "Hey Lady" by Thriving Ivory. These songs weren't about me, but I could relate to the feeling of not wanting to burn my heart out on love and not wanting to lose someone before they walk away.
+
+Finally, I remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
+
+More recently I analyzed music lyrics on "boys will be boys" and kind, and sweet girls. I used to feel like I was the big-hearted, kind, sweet girl who followed all the rules, and treating guys like I would my cousins or brother to look beyond the societal mask; I began to make mistakes however, and I realized more deeply that guys are not the only ones who do dumb things - girls do dumb things as well, and in a way this is a good thing.
+
+It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
 <br>
 
