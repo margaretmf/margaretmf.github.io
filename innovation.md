@@ -1347,6 +1347,11 @@ is_contact: true
 (5) Blue painting on a house
 
 ## **Sounds** ##
+(1) A woman humming
+(2) A bucket hitting the floor
+(3) Keybord clickers clicking
+(4) Shoes tapping on the floor
+(5) Paper crinkling
 
 ## **Day 78** ##
 ## **Images** ##
@@ -1362,6 +1367,36 @@ is_contact: true
 (3) The sound of a memory at the pool
 (4) Leaves crinkling when stepping on them
 (5) A clock ticking
+
+## **Day 79** ##
+## **Images** ##
+(1) A familiar face
+(2) Birds flying under a truck
+(3) The shadow of a bird flying
+(4) A leaf flying on a truck
+(5) Water droplets on a bag
+
+## **Sounds** ##
+(1) Tennis balls hitting tennis racquets
+(2) A woman talking in the neighborhood
+(3) A shoe stepping on a leaf
+(4) A car motor running
+(5) Glasses clanking
+
+## **Day 80** ##
+## **Images** ##
+(1) Shoes on a skywalk
+(2) The rumble of a train
+(3) Green shutters
+(4) Green paint
+(5) American flag on a white house
+
+## **Sounds** ##
+(1) Trash truck driving through
+(2) Two women talking
+(3) Scottish music playing
+(4) Birds tweeting
+(5) Shoes hitting the pavement
 
 <br>
 
