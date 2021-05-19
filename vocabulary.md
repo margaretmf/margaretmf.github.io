@@ -201,3 +201,7 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Infrastructure: ##
 * The underlying foundation or basic framework (as of a system or organization)
 * Infra- means "below;" so the infrastructure is the "underlying structure" of a country and its economy, the fixed installations that it needs in order to function
+
+## Distant : ##
+* Far away in space or time
+* Not intimate
