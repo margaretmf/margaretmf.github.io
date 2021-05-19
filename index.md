@@ -45,7 +45,9 @@ I am interested in how movements start from the ground-up.
 
 **Estoy interesada en como los movimientos comienzan desde el principio.**
 
-I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature in an imaginative way.
+I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature.
+
+**Estoy interesada en las culturas, las narrativas, y los arquetipos sobre la ingeniería así como STEAM educación. Los libros para las niñas por Jean Craighead George capturan creativamente la cultura histórica alrededor la ingeniería y la naturaleza.**
 
 Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am driving team members to practice in Charlottesville and waking up at 5am to go to practice in Glasgow, Scotland. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
 
@@ -88,16 +90,13 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to mentor
 * Their ability to work with other teams effectively
 
-**What I HATE about supervisors:**
-* Their vague directions and guidance
-* Their mispronouncing names
-* Their lack of clarity around job descriptions and team goals
-* Their disrespect of someone doing work that is more directly related to the work of another team
-* Their complaining about how a business overall does work
-
 **What I have LEARNED
 * To appreciate the names of other people
 * To be more clear in providing guidance and respecting space with people through team meetings
+* To respect people doing work
+* To express appreciation and gratitude for other teams and colleagues
+* To respect boundaries on email and social media (learned this the hard way)
+* To provide clear communciation
 
 ## Longer Work Biography ##
 I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, **languages - Español, English, and interested in Native and Chinese characters and symbols, and Sanskrit**. and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
