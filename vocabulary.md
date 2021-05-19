@@ -1,5 +1,5 @@
 # Vocabulary #
-This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com) and [Dictionary.com](https://www.dictionary.com).
+This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com), and [Cambridge Dictionary](http://dictionary.cambridge.org).
 
 ## Remember: ##
 * To have in or be able to bring to one's mind in awareness
