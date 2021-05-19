@@ -262,6 +262,11 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for memories at Camp Tabor of reading on the bunk beds during HOP
 * Grateful for memories of being a summer camp counselor with a music camp for little kids
 * Grateful for memories of reading about the Underground Railroad, Harriet Tubman, and John Brown, an abolitionist in West Virginia
+* Grateful for the memorial for enslaved laborers
+* Grateful to articulate thoughts and experiences
+* Grateful for experiences with the Salvation Army
+* Grateful for the people working in the shopping mall
+* Grateful for the exchanges of money day in and day out
 
 
 ----------
@@ -3390,122 +3395,72 @@ The hope to begin again is have the struggle.
 ----------
 
 
-*******************************************************************************
-*******************************************************************************
-*******************************************************************************
-# Creative Writing - Independent Writing #
-## Maps ##
-Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
+# Creative Writing - Independent Writing from the Past at Norfolk Academy - Credo Project #
+## What Can America Achieve? Diamante Poems ##
+Despair,
+enormous, steep,
+scorching, perishing, callousing,
+The climb is summoned by a new spirit -
+overcoming, unyielding, conquering,
+bright, energetic,
+Hope.
 
-Bridges connect one place to another place.
+## The Friend ##
+Sitting in a dark room, she sits alone
+With a heart yearning to express itself.
 
-Maps show visually the relationships of places culturally and historically, and also for engineering purposes.
+In another dark room nearby, a piano sits alone
+With ivory yearning to be tickled.
 
-## The Purpose of Studying History ##
-The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
+'Why cannot the piano be my friend?' she thinks.
+With stiff legs she introduces herself to Steinway,
+and in return she receives a great gift.
 
-## Tennessee and Nashville ##
-Tennessee used to be the west, and the state of the frontier, not just the south.
+Her body is no longer stiff, no longer limited.
+Her eyes no longer shed tears.
+Her fingers dance across the black and white keys.
+Her ears open up and hear the sound of music.
+Her soul spreads its wings and flies.
+Her heart has found freedom.
+And her mind has found relief.
 
-## Bible Imagery ##
-My favorite imagery is the rose in the desert surrounded by drops of water.
+She is now content
+With the company of a friend.
 
-## Spiritual Imagery ##
-My favorite imagery are a flower with water droplets, green weeds, and a flower with snow on it.
+## Children's Play ##
+Playing on the keys without words
+She discovers a joy and a light in the sound that reminds her of little children on a playground.
+The music can tell a story without words because the color and the youthfulness in a way that bounces with joy.
 
-## Trucks and Cargo Colors ##
-Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green
+## Vocabulary Usage ##
+There was once a beautiful, *roan* horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the *purling* river, the horses enjoyed racing each other. The *cohesive* pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given *farina*. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an *incoherent* group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's *renown* for his *inherent* speed, they *denominated* him as their leader. Upon being chosen, Rapido *hesitated*. He did not believe he would serve as a good leader and claimed that it had to be a *misnomer*. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses *adhered* to each other. Their *adhesion* made them stronger. After a very close battle, the roan horses won.
 
-## Perspective, Stories, the South ##
-Around the south, there exist many individual perspectives. Someone sings about the South, and shares a story about the infrastructure, the culture, the group of people who created a land. Every individual in the land, in the South associate different meanings with this land.  Everyone comes from a different subjective standpoint to contributing to this economy and this society. Everyone associates his or her own meanings with what they hear. Songs can help people recall people, events, ideas, knowledge in different ways based on their own subjective standpoints. It's interesting that so many people grew up in the Southern United States and share common experiences but also have different meanings associated based on the time in which they were born, the state in which they were born, and the stories their ancestors shared.
+## Letter to Oneself ##
+Sweet Margaret,
+Do not feel self-conscious all the time; you look beautiful, you make good grades, and you express kindness to everyone when you smile and reach out. Rather than worry about what people think of you, either say hello or give a smile to people instead.
 
-South is also South America, Mexico.
+I know you often feel unhappy because of how some of your friends have treated you. Stop dwelling on this though; reach out and meet new friends. Have confidence that by expressing happiness, your right friends will come at the right time.
 
-## This Experience ##
-This is good for you.
-This experience is good for you.
-This experience is teaching you how to trust.
-This experience is showing you a part of you.
-THis experience is shining a light on something to learn.
-This experience is revealing something about humanity.
-This experience is showing you how to love.
-This experience is helping you learn to be alone and be alone with confidence and joy.
-This experience is encouraging you to be yourself more.
-This experience is pushing you to put thoughts on other things, other deeper things.
-This is good for you. This is not bad.
+I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
 
-## Professionalization ##
-The world will try to define you. People will try to box you in. People who fit into a profession will try to limit you and tell you that you cannot be them and that they have worked too hard. This is not true. A liberal education expands, and broadens, and helps people explore, and move out of their comfort zone. Anyone can learn something new. Anyone can try something out. People can work across disciplines, departments, try new things. The democratization of Life, Liberty, Happiness, and Education.
+I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of secnes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
 
-## Smile ##
-There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
+You are a beautiful teenage girl; you thus need to stop having negative thoughts about your body and looks because it will only have a negative impact. Knowing that you reflect God's perfect image, you will feel more confdient about your looks, your intelligence, and your musical or athletic strengths.
 
-## The Seed Within ##
-The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
+To stop criticizing yourself, you must believe in your strengths and know your great value in the world. Share your love with everyone. Live each day full of greetings, smiles, laughter, and joy.
 
-## In A Sea of Voices ##
-I am a voice in a sea of voices, a sea of sound.
-Why do I play music and keep the ringing of harmony in my heart?
-Why do I sing and keep on singing?
-Why do I mix in with the sea of voices if I am part of the crowd?
-I am one and the same with you all.
-
-Like a leafe in a sea of leaves, I am a voice in a sea of voices.
-Like a wave in a sea of waves, I am a voice in a sea of voices.
-Like a ray of light in a sea of rays, I am a voice in a sea of voices.
-Like a blade of grass in blades of grass, I am a note in a sea of notes.
-
-We are all one in the same.
-We all have hearts that love music and harmony because it's innate.
-I sing with my heart, not my voice, however, because I am part of the sea.
-I let the others sing, and I play second fiddle, and I let them crowd me out.
-I let my voice be quiet, subdued, so they can be someone, something.
-
-## I Am Looking For You ##
-I am looking for you.
-You are looking for me.
-I vaguely know you in another world.
-You already know how to reach me.
-I can feel your spirit running through the earth somewhere already.
-You can feel me and my heart beating and repenting.
-I know you're out there somewhere.
-I am here too becoming who I am destined to be.
-It's a match made in heaven.
-It's mutual and reciprocal.
-It's already there.
-It's something within.
-It has extended since the beginning of time.
-
-## Bridges ##
-I just drove across another bridge today in Virginia, outside of Isle Wight County.
-I braced myself. 
-Not being afraid of the cars driving by. 
-Trusting in God. 
-Appreciating the water on the side. 
-Driving at the speed of traffic, in line with everyone else.
-Sitting the right distance behind the car in front.
-Being an everyday common citizen on the road, part of the E Pluribus Unum.
-
-## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
-Music + Chai Tea = Love + Joy
-Rowing + Team Spirit = Oneness
-
-## Think of a celebrity you would like to have dinner with. Write a note that just might catch that person's attention enough for him/ her to aggree to the dinner. ##
-It would be amazing to eat dinner with Taylor Swift. She's so in touch with the challenges in male-female relationships.
-
-Dear Taylor,
-
-You empower and inspire women so much. Thank you for your spunk and expressiveness. I would love to eat with you, and learn about your creative process. Are you available?
-
-I appreciate your time.
-
-Love,
+Much love,
 Margaret
+
+3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
+
+<br>
 
 
 ----------
 
 
+# Creative Writing - Independent Writing #
 ## Singer-Songwriting ##
 Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. There is some writing below that contributes to singer-songwriting.
 
@@ -3543,200 +3498,74 @@ More recently I analyzed music lyrics on "boys will be boys" and kind, and sweet
 
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
+## Popular Culture ##
+Popular culture speaks subtly. One must think to understand different perspectives on popular culture. One must be alert to subtle, silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
+
+## Music ##
+Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
 
 ----------
 
 
-## A Spanish Lense ##
-It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
+# Creative Writing - Independent Writing #
+# Maps, History, Tennessee, Imagery, Stories, Professionalization, Bridges, A Spanish Lense, Culture, The Country, and Democracy #
+## Maps ##
+Maps, a tool, used in engineering that express natural phenomenon, physical relationships, and cultural and historical aspects of our world.
 
-## EVERFI, Book ##
-With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older man in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business. I remember witnessing the faith of colleagues that helped them to overcome challenges and that helped them to stay inspired.
- 
-## The Collective ##
-We are all one of the same.
-We are all made with the same blood.
-We all have faces with two eyes, a noise, a mouth, and a smile.
-We all have two arms, two hands, two legs, and two feet.
-We all have hearts with interests, passions, a way of viewing and perceiving the world.
-There exist many of us humans like there exist many leaves on a tree, many trees in the forest, many flowers in the field, many berries in a patch, and many homes in a city.
+Bridges connect one place to another place.
 
-## What I Want ##
-I want to know you without words being spoken.
-I want to love you in the peace and quiet.
-I want to feel like it's true love on the other side of the Earth.
-I want to see through the window to your Soul.
+Maps show visually the relationships of places culturally and historically, and also for engineering purposes.
 
-## Weaving In and Out ##
-Weaving in and out.
-At one with the giving and the receiving of the aid.
-In union with the recipient of the help.
-A coincidence in what is being overcome.
-A sharing of hearts to meet mutually the end goal.
-A trust in the progress of mankind and the harmony of the universe.
+## The Purpose of Studying History ##
+The purpose of studying history and the humanities is to learn to become a moral and spiritually upright individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
-## God Knows the Room ##
-God knows the room really well.
-Thank you for knowing my need.
-Thank you for knowing who to place me with.
-Thank you for being there through the fall.
-It's a city of strangers, it's a city of angels. The strangers become friends, the strangers welcome each other with friendly eyes.
+No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day.
 
-## Eyes ##
-The eyes, the window to one's self.
-They share a good laugh, and a smile.
-They speak one's history that goes back to before time existed.
+## Tennessee and Nashville ##
+Tennessee used to be the west, and the state of the frontier, not just the south.
 
-## First Impressions, and Expressions ##
-First impressions, they don't capture the whole story.
-People warn, "you can't judge a book by its cover."
-The full expression is there, and the intuition is given to draw out the entire expression.
-The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
-Second looks, second glances, diving deeper to see the fuller picture, and the details are really what she loves.
+## Bible Imagery ##
+My favorite imagery is the rose in the desert surrounded by drops of water.
 
-## The Same Thing through the Spirit, Different Forms ##
-Doing the same thing throught he spirit in a different form.
+## Spiritual Imagery ##
+My favorite imagery are a flower with water droplets, green weeds, and a flower with snow on it.
 
-## Engineering, A Career of Singing ##
-The work of engineering, a career of singing, and nature, and where the constructions of mankind meet nature.
+## Trucks and Cargo Colors ##
+Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green. A chain of colors. A chain of nationalities being represented. A whole globe expressed through a chain of colors.
 
-## An Aerial View ##
-The moment of death and wanting to escape. 
-Thought lifts up.
-Thought lifts up and flys freely up above.
-Angels lift the thoughts up.
-The inner sight lifts into the sky.
-It feels like flying mentally above and seeing the whole city, all the mountains, all the clouds.
-Everything can be seen from a birds-eye view.
-Inner freedom, freedom from the entrapment of the physicality.
-Living fully inwardly in the sky like a bird mentally.
+## The Trucks and the Industry ##
+In Norfolk, during the pandemic, after stumbling and falling, I remember tuning into the port scenery. As a child, I remember growing up loving the industrial scenery, I remember loving the industiral scenery in Scotland, and I am increasingly grateful for it. 
 
-## Bricks ##
-Day by day
-brick by brick
-stone by stone
-woodpiece by woodpiece 
-this house is being built.
-The ground is laid.
-The space is new and fresh.
-The light shines through the windows.
+## Perspective, Stories, the South ##
+Around the south, there exist many individual perspectives. Someone sings about the South, and shares a story about the infrastructure, the culture, the group of people who created a land. Every individual in the land, in the South associate different meanings with this land.  Everyone comes from a different subjective standpoint to contributing to this economy and this society. Everyone associates his or her own meanings with what they hear. Songs can help people recall people, events, ideas, knowledge in different ways based on their own subjective standpoints. It's interesting that so many people grew up in the Southern United States and share common experiences but also have different meanings associated based on the time in which they were born, the state in which they were born, and the stories their ancestors shared.
 
-Act by act
-Greeting by greeting
-Morning by morning
-this day is alive.
-The town is moving.
-The neighborhood is vivid.
-The sun shines down with heat.
+I am grateful for the Abolitionists, the stories of overcoming, the stories of singing.
 
-Meeting by meeting
-Outing by outing
-setting by setting
-this day is done.
-The home is at peace.
-The greenery spreads on the fence.
-The lights are dimmed.
-The time is there for rest.
-The darkness draws near.
+I am grateful that the South is also South America, and Mexico.
 
-## "Boys Will Be Boys" and Mistakes ##
-They say "boys will be boys" and "boys make mistakes", but I have made mistakes also and said and done dumb things.
-It's ok.
-It's tough.
-Things happen.
-Get back up to live another day.
-Learn from the mistake.
-Become a better person.
-Start fresh.
-Do something new.
+## Professionalization ##
+The world will try to define you. People will try to box you in. People who fit into a profession will try to limit you and tell you that you cannot be them and that they have worked too hard. This is not true. A liberal education expands, and broadens, and helps people explore, and move out of their comfort zone. Anyone can learn something new. Anyone can try something out. People can work across disciplines, departments, try new things. The democratization of Life, Liberty, Happiness, and Education.
 
-## The Ripple Effect ##
-He throws a coin into the pool of water.
-Plop. Plip. Tlop.
-The coin causes the water to ripple.
-One ripple continues to ripple outwardly into other ripples.
-An outflowing of water rippling and flowing.
+## Bridges ##
+I just drove across another bridge today in Virginia, outside of Isle Wight County.
+I braced myself.
+I chose not to be afraid of the cars driving by.
+I trusted in God.
+I appreciated the water on the side, on the two sides.
+I drove at the speed of traffic, in line with everyone else.
+I sat the right distance behind the car in front.
+I am an everyday common citizen on the road, part of the E Pluribus Unum.
+Not being afraid of the cars driving by. 
+Trusting in God. 
+Appreciating the water on the side. 
+Driving at the speed of traffic, in line with everyone else.
+Sitting the right distance behind the car in front.
+Being an everyday common citizen on the road, part of the E Pluribus Unum.
 
-## Falling Under ##
-Falling under, falling under all the mistakes
-Wanting to bury oneself in the ground
-Wanting to dig a greater hole
-Hiding for the shameful things done
-In this moment, there's a choice to live another day
-There's a choice to lift oneself up
-Let life carry through
-Meet the demands of the day
-See the sun rise
+----------
 
-## Circling Back ##
-Circling back trhough time.
-Unwinding the clock.
-Turning to pen and paper.
-
-## Old Dream Dying, New Dream Awakening ##
-The old dream dying is a new dream awakening.
-
-## God Knows the Room ##
-God knows the room.
-Thank you for knowing my need.
-Thank you for knowing who to place me with.
-Than you for being there through the fall.
-It's a city of angels. The strangers know.
-
-## Independence ##
-You can stand on your own two feet.
-You can give it a whirl.
-You can rise back up and forgive yourself.
-
-## Let It Crash ##
-Let it crash
-Let it fully crash
-Let it crash
-Let the waves crash
-Then rise back up to meet the tide
-
-The crashing washes it out
-The cleansing is in the crash
-The crash supports the moment to begin again, and receive the help
-
-The crash is the dirt moving out with the purifying waters
-The irritants flesh out
-The cleansing salt water is found
-
-There's a way
-The ocean is always moving
-The water is always stirring
-The storm will die down
-
-## Words of Wisdom ##
-The older I grow the more I learn and the more I realize I did not create this world.
-The older I grow the humbler I become.
-Once in college before reaching a breaking point, I had read "Frankenstein" and reached an epiphany: "Am I my own god and creator?"
-No, something created me.
-This was the beginning of the destruction of the ego, the false self.
-I was humbled, humiliated, and through rising back up out of the ashes, I discovered more of who God is and how God lives and moves through me, and supports me.
-
-## Vocabulary Usage ##
-There was once a beautiful, *roan* horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the *purling* river, the horses enjoyed racing each other. The *cohesive* pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given *farina*. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an *incoherent* group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's *renown* for his *inherent* speed, they *denominated* him as their leader. Upon being chosen, Rapido *hesitated*. He did not believe he would serve as a good leader and claimed that it had to be a *misnomer*. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses *adhered* to each other. Their *adhesion* made them stronger. After a very close battle, the roan horses won.
-
-## Letter to Oneself ##
-Sweet Margaret,
-Do not feel self-conscious all the time; you look beautiful, you make good grades, and you express kindness to everyone when you smile and reach out. Rather than worry about what people think of you, either say hello or give a smile to people instead.
-
-I know you often feel unhappy because of how some of your friends have treated you. Stop dwelling on this though; reach out and meet new friends. Have confidence that by expressing happiness, your right friends will come at the right time.
-
-I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
-
-I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of secnes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
-
-You are a beautiful teenage girl; you thus need to stop having negative thoughts about your body and looks because it will only have a negative impact. Knowing that you reflect God's perfect image, you will feel more confdient about your looks, your intelligence, and your musical or athletic strengths.
-
-To stop criticizing yourself, you must believe in your strengths and know your great value in the world. Share your love with everyone. Live each day full of greetings, smiles, laughter, and joy.
-
-Much love,
-Margaret
-
-3 Voices: Your mentor told you the lesson taught, the historian with the facts. your tender, heartfelt, poetic response to what you learned
+**Interested in a poem that depersonalizes the experience on bridges.**
+**Interested in writing a poem on the road, driving, road signals, car signals, and the harmony and symphony on the road.**
 
 <br>
 
@@ -3744,24 +3573,17 @@ Margaret
 ----------
 
 
-## Tide ##
-The roll of the tide, where the sea meets the land.
+## EVERFI, Book ##
+With EVERFI, to commit to the team, I remember appreciating the opportunity to work with an older man in engineering and drawing from qualities and experiences in rowing and "I Believe" to commit to the team while loving my supervisors better. I really appreciated the spirit of compassion, innovation, curiosity, commitment, persistence, and eagerness expressed throughout the business. It was cool to work in overlapping spheres, and learn about the different cultures expressed in the country, understand the relationship between technology and Black History. I really appreciated feeling a sense of community unfold around, and I remember loving developing healthier friendships, seeing people overcome through faith, and seeing family members that influenced the business. I remember witnessing the faith of colleagues that helped them to overcome challenges and that helped them to stay inspired.
 
-## Praying on the Road ##
-In the car, on the road the best place to pray.
-Following the rules of the road, the logic of the street, the signs and signals.
-Engaging in conversations, and meeting people at truck stops and gas stations.
-Meeting people on the street, who are asking for help is a democratic thing.
-The space where freeom meets rules.
+## A Spanish Lense ##
+It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
 
 ## Daily Conversations ##
-Daily conversations are democratic.
+Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles.
 Learning and reading supports healthier communication and conversation.
 
-## Into the Sky, Into the Ocean, Into the Green ##
-Into the sky, upward into the 3pm afternoon sky, the clear blue air.
-Into the depth of the ocean, across the sea, into the depth of the gray-blue waves.
-Into the green through the brown-grounded forest and up the mount to see the land below.
+## A Life in Snippets ##
 
 ## America ##
 America is a story of belief.
@@ -3776,8 +3598,348 @@ America is a story of freedom.
 A country of beliefs. 
 A country of freedom of expression. 
 A system of expression, the reverse of oppression.
-History is subjective.
+Some believe history is objective. Some believe history is subjective.
 Different viewpoints on the same thing.
+
+## Books ##
+I am grateful for books. I love books. I love hearing the voices of people in books.
+Books support democracy.
+Books create value.
+Books support learning something new each day.
+Books empower people to express through words.
+Books help people share feelings on the other side of the world.
+Books help people understand what they cannot understand.
+
+## In God We Trust ##
+In God we trust, each day, in all of our business activites. It's amazing that people in the business world have faith and know God. It's on the dollar bill.
+They say, 'money doesn't grow on trees.'
+
+----------
+
+**Interested in writing a creative piece on all the places that money flows, and all the values that money represents, and all the things that a $20 bill has touched.**
+
+<br>
+
+
+----------
+
+## A Society Driven by Money ##
+A society driven by money, money makes the world go round, leaves turn into gold. Exchanges are driven by love and soul. In God We Trust. E Pluribus Unum.
+
+## Martin Luther King, Jr. Event ##
+In Washington, DC, I attended the event at the Chapel with Martin Luther King, Jr. III. He encouraged people to walk outside their bubbles and meet new people to learn from other perspectives. Since then, I met someone who encouraged me to learn about Malcolm X, the Arabs, and the Spanish ancestry. I have read two civil rights leaders and understood two different perspectives. One perspective is that "it's not the color of your skin but the content of your character" that matters. The other is slightly different that "Black is powerful" and "Black is beautiful". I met some people in Norfolk, and I met some other people in Memphis, St. Louis, and Washington, DC. I have learned about their individuality, and unique perspectives and strengths. I have learned how Black leaders have inspired their thinking. I also restarted a friendship with someone from high school. In school, it can feel like people limit people from reaching out of their bubbles to meet new people, but in the real world, it's helpful that people encourage people to learn from other walks of life.
+
+## Struggling vs. Suffering ##
+Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
+
+Suffering - pain in silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts, feeling guilt and shame and guilt and shame, and endless ties to people who do not care.
+
+Pain - empathizing with the needs with someone else, feeling the inflicted harm of someone, feeling the negative energy from another's heart.
+
+## The People Behind the Work ##
+There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the telemarketing, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the nursing, and they have thoughts and a story, and a culture.
+There's someone, there are people in front of the chalkboard or the dry erase board, and they have thoughts and a story, and a culture.
+There's someone, there are people on the other side of the computer screen, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture.
+There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
+There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
+
+## Where You are From, Where You are From From ##
+I appreciate where you're from, where you're from from.
+I appreciate where your ancestors come from.
+I appreciate where you are from.
+I appreciate your story, your background, your interests, and your passions.
+I appreciate your testimonies and how you have come clean and overcome.
+I appreciate what you dream of doing. I appreciate you as more than a job.
+I appreciate what gives you meaning.
+Everyone has a story.
+Everyone has a place of origin.
+Everyone has their roots to celebrate.
+Everyone has a place where they are from.
+Some people feel displaced.
+Some people feel like their roots are ignored or dulled.
+Everyone belongs to the Earth.
+
+## Memories ##
+I remember the crowd of people wearing red, white, and blue clothes.
+I remember the women working on grassroots projects in the Stadium.
+I remember the reformation, and the repentance, and the shift of view.
+I remember the size of the crowd.
+I remember my friend's passion.
+I remember my mom's dream.
+I remember the people working in the post office, and the Fed Ex Office, and the Government buildings, and the Salvation Army.
+I remember listening to "One Tribe" and "I Believe" on the treadmill and then again at work.
+I remember serving in the Diversity and Inclusion Club and God giving me an interest in Islam in high school. I remember feeling "white privilege" and "white guilt" in the Diversity and Inclusion Club.
+I remember taking a photo.
+I remember standing in line again at DC.
+I remember having intuition of President Donald Trump.
+I remember forgiving Donald Trump.
+I remember participating in the Women's March but not liking the pink hats.
+I remember getting angry over Donald Trump.
+I remember walking around the anger at the White House.
+I remember feeling concerned about healing from racial prejudices.
+I remember my sister's enthusiasm.
+I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
+I remember driving with a friend around election day.
+I remember listening to the song and appreciating the people who sang the song.
+I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
+I remember the story of my grandfather standing up for African American people on the bus in the 1900s.
+
+## My Mom and I ##
+My mom and I are on different journeys.
+We are two different people with two different perspectives and career projectories.
+I began to grow deeper in understanding the perspective of President Barack Obama's mother. I tried to at least.
+I realized the connection between the Arab world and Spain.
+I realized the connection between the woman who inspired MLK, Jr.
+I realized that Norfolk is not that different from Memphis or Nashville. There are common truths, roots, binds, images, stories, and scenery with shipping, trains, trucks, racial tension, and civil rights.
+I realized the importance of true self-government.
+
+## The Collective ##
+We are all one of the same.
+We are all made with the same blood.
+We all have faces with two eyes, a noise, a mouth, and a smile.
+We all have two arms, two hands, two legs, and two feet.
+We all have hearts with interests, passions, a way of viewing and perceiving the world.
+There exist many of us humans like there exist many leaves on a tree, many trees in the forest, many flowers in the field, many berries in a patch, and many homes in a city.
+
+## Start Each Day with a Question ##
+What are you thinking about today?
+How can I listen to God more clearly?
+How can I repent?
+How can I learn something new?
+What ideas am I or others thinking about?
+How am I letting go of something false?
+How can I understand a passage in the rear light?
+
+## Interracial Couples ##
+The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
+
+## Attitude on Life ##
+I have sounded and attacked like President Donald Trump in some ways.
+Donald Trump supports people with valid points. Concerns over infrastructure, technology, agriculture, and preserving what's best in the Republic are valid.
+I have met President Barack Obama. The purpose of life is to transform. All of humanity is transforming at once.
+I aspire to sound, and be thoughtful, and secure like Present Barack Obama, who I have met.
+I am interested in party switching, and the progress in The United States of America.
+I reflect on the ideals of home, Reconstruction and Civil Rights, integration, and more.
+
+## Working with EVERFI ##
+I was grateful that through the doubt, God intuitively led me to a place just right for me and everyone, where I was integrated with family members and community members doing their life work in the world.
+I was grateful to deliberately choose to work for a leader who loved African American history and shared African American history.
+I was grateful to deliberately choose to help people understand how perception can shift behavior, though I did not fully understand that at the time.
+I was grateful to appreciate harmony expressed in the workplace with people from all different cultural perspectives in the country and the world.
+I was grateful to learn about the Natives in Montana, learn about the beloved people from Kentucky, learn about the technologists from California, and learn about the Americans in Washington, DC.
+I was grateful to gain an understanding of what it means to feel "white privilege" in the workplace while loving what those from other cultural backgrounds are offering the world, the nation, the community, and the business world.
+I was grateful to see the spirit of compassion being expressed by people in the workplace, with the darkness in the world being transformed into light.
+I was grateful for company-wide events that brought people together in union twixt the darkness and the light.
+I was grateful to be part of the "THIS IS IT" moment when things started booming, roaring, becoming the full thing.
+I was grateful to see the inspiration of Martin Luther King, Jr. shared in an engineering class being reflected through the business.
+I was grateful to build solutions and be a part of the "Smart Things Should Build Things Movement".
+I didn't know everything there is to know about African American History, but I was grateful to start a lifelong journey of appreciating the country, learning about perception, learning about people, working in teams, learning about African American History, and preventing violence on the basis of sex and race.
+I was grateful to defend true womanhood, the "Princesses of Peace" who are able to lead, and appreciate true manhood.
+
+People may come from different perspectives, different sides, different points of view, but unite in the divine interest, expressing their talents in original, heart-felt ways.
+
+## Exploring The Controversy ##
+A flag is a sign, and a symbol.
+I can understand how people feel like the Confederate flag represents good things about Southern culture, Southern heritage, and the birth of the American Country.
+The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve.
+The Civil War, however, was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
+The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations.
+Land and economy are part of the South, but land and economy expand to the North and the West.
+
+## The Virginia Flag ##
+Such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
+
+## The Study of History ##
+God's story is forever unfolding.
+The Bible is a history book that shares the chronicles of people, and life lessons.
+Every individual who is born on Earth is born into an existing story of the collective mankind.
+Every individual who is born on Earth has a story being created by God and him or herself.
+We are all part of a grand story that is ever-evolving and ever-progressing.
+And everyone has a story of his or her own singing through the earth by God to overcome evil with good.
+
+## Race - Why Do We Talk about Race? Why Do We Not Talk About Race? ##
+What is race? A group or category of people. There are individuals within the group or the category. People tend to rank individuals within the group or the category. Race is not the only way to rank or group. Why do I talk about race? To understand how someone perceives the world, to understand someone's cultural background, to appreciate the beauty of race, to understand someone in a different group. Why do I not talk about race? To respect boundaries, to talk about more elevated ideas above the physique.
+
+## Seeing Black Lives [Seeing Integration, Reconstruction's Effects] ##
+They help the police force as police officers. [Seeing Integration, Reconstruction's Effects]
+They write good poetry. [Seeing Integration, Reconstruction's Effects] 
+They play fun music and create new, cool music. [Seeing Integration, Reconstruction's Effects]
+They are the Life to our parties. [Seeing Integration, Reconstruction's Effects]
+They dance in school and on the streets. [Seeing Integration, Reconstruction's Effects]
+They read in church.  [Seeing Integration, Reconstruction's Effects]
+They create amazing art. [Seeing Integration, Reconstruction's Effects]
+They help the homeless community.  [Seeing Integration, Reconstruction's Effects]
+They work to reduce crime. [Seeing Integration, Reconstruction's Effects]
+They share interracial relationships. [Seeing Integration, Reconstruction's Effects]
+They express their narratives, and their side of the story. [Seeing Integration, Reconstruction's Effects]
+They take care of little kids and love them, and hug them.  [Seeing Integration, Reconstruction's Effects]
+They help people feel better after feeling fallen, or rejected.  [Seeing Integration, Reconstruction's Effects]
+They are great sorority date function partners.  [Seeing Integration, Reconstruction's Effects]
+They are good students in school. [Seeing Integration, Reconstruction's Effects]
+They are compassionate teachers. [Seeing Integration, Reconstruction's Effects]
+They are good leaders at work. [Seeing Integration, Reconstruction's Effects]
+They invest in the community. [Seeing Integration, Reconstruction's Effects]
+They love their work.  [Seeing Integration, Reconstruction's Effects]
+They live for the future. [Seeing Integration, Reconstruction's Effects]
+They support their kids.  [Seeing Integration, Reconstruction's Effects]
+They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
+They drive trucks. [Seeing Integration, Reconstruction's Effects]
+They work humbly in construction. [Seeing Integration, Reconstruction's Effects]
+They manage wealth. [Seeing Integration, Reconstruction's Effects]
+They lead schools. [Seeing Integration, Reconstruction's Effects]
+They built our country. [Seeing Integration, Reconstruction's Effects]
+They have beautiful names. [Seeing Integration, Reconstruction's Effects]
+They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
+They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
+They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
+They lead the Reading Rainbow talk. [Seeing Integration, Reconstruction's Effects]
+They have interesting thoughts and ancestry. [Seeing Integration, Reconstruction's Effects]
+
+## The Agitation in America ##
+When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
+the American dream felt out of reach to people.
+The American dream is not lost. What is great about America remains in memory, waiting to be reborn. What is wrong about America will be revisited and retold.
+America, founded on a rock, will always represent freedom to humanity.
+Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun.
+What's great about America remains great. 
+What needs to be known about America will be known.
+The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
+There's newness for the country coming to life.
+There's grace, equity, equality, and justice for today.
+The governors represent the people, all the people.
+Nothing is lost, nothing about America's roots are being displaced.
+Everyone in the country belongs - all races, all creeds, all cultures, all religions.
+America, a melting pot.
+We were and can all be immigrants made new, we were and can all be explorers of the new earth, we were and can all be settlers finding our place to rest and be at peace, we were and can all be freedom-finders, no matter our background.
+Americans, tied to the land, has a new day in the Sun.
+The land belongs to everyone.
+America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
+
+## The Democratic Republic and the Debate Inside My Head ##
+Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with order, and a set of ways to handle collective challenges.
+No party has absolute control. The party in control has representative power over a set of people and over the collective whole. The party not in control also represents another set of people.
+The governmental structure builds in a space for dialogue, or a debate that gives room for disagreement that can yield to agreement.
+Not everyone has to agree, but everyone should point their thought to the greater good that supports the life, love, and soul that exists within people's hearts and minds.
+New ideas can evolve out of conflict and disagreement, leading to something better than before.
+A new nation is built everytime conflict erupts so destructively.
+A republic (government is a "public matter"): "a state in which supreme power is held by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the "inalieanble rights" of the people.
+A democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through elected representatives". The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and voices make the laws through their votes. Everyone has "inalieanable rights".
+The debate over which set of ideas, or system of government runs in my head. I feel like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion.
+The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy.
+[Citing Republic vs. Democracy](https://www.thoughtco.com/republic-vs-democracy-4169936)
+
+## Thinking Above Political Lines ##
+Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
+
+My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom share opinions and her perspective, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good." I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
+
+My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
+
+More broadly, I love home on earth with all of humanity.
+
+## It All Started in Virginia ##
+It all started in Virginia, the home of the virgin, native land. Some people chose liberty and traveled across the seas. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail and they launched the way for some pioneering people.
+
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# Engineering #
+## Engineering, A Career of Singing ##
+The work of engineering, a career of singing, and nature, and where the constructions of mankind meet nature.
+
+## An Aerial View ##
+The moment of death and wanting to escape. 
+Thought lifts up.
+Thought lifts up and flys freely up above.
+Angels lift the thoughts up.
+The inner sight lifts into the sky.
+It feels like flying mentally above and seeing the whole city, all the mountains, all the clouds from up above.
+Everything can be seen from a birds-eye view. Everything moves down below. A beautiful scenery down below.
+Inner freedom, freedom from the entrapment of the physicality.
+Living fully inwardly in the sky like a bird mentally.
+
+## Bricks ##
+Day by day,
+brick by brick,
+stone by stone,
+woodpiece by woodpiece ,
+this house is being built.
+The ground is laid.
+The space is new and fresh.
+The clay is sprinked on the floor, and the light shines through the windows.
+
+Act by act,
+greeting by greeting,
+morning by morning,
+this day is alive.
+The town is moving.
+The neighborhood is vivid.
+The greenery spreads on the fence, and the sun shines down with heat.
+
+Meeting by meeting,
+outing by outing,
+setting by setting,
+this day is done.
+The home is at peace.
+The lights are dimmed.
+The time is there for rest, and the darkness draws near.
+
+## A Dose of Reality ##
+The sounds of the neighborhood working together in harmony for good.
+
+## Transportation ##
+From port to port across this large, moving world, everyone is on a journey, carrying freight, goods, and objects through ships trains, and trucks. The freedom to share cultures across the world, through traveling drivers, expressing freedom, loving those roots, and paying these tools. Life is a journey, America is the land free to shift its foundation from one that appreicates the colonized version of the world to one that appreciates the de-colonized version fo the world.
+
+## It Starts At the Port ##
+It starts at the port. Every morning, the orange, green, white, and blue trucks drive from the shipyard to the streets. The trucks drive harmoniously down Hampton Roads like the birds do when they fly. Where do they go? From the driveways in the port city to the shipyard to the country roads. There's a beautiful chain of freight traveling through the port cities and then through the country. And some have American flags hanging in the windows.
+
+## From Port to Port ##
+From port to port the sun shines in every place from different angles. We all look to the same sun from different corners of the Earth from different places in the Universe.
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# Smiles, The Seed Within, Good Experience, A Voice in A Sea of Voices, Mistakes and Crashing, Relationships #
+
+## Lessons from Grandparents ##
+Granmama - wide smiles, dancing, greeting people for who they are, lover of color and flowers, lover of the Catholic church
+Dattee - deep listener, reader, the human psyche, lover of Church, historian
+Nam - lover of the English language, the joy of learning, Shakespeare's plays, Christian Science
+Faf - piano playing, hard work, and science
+
+## Grandparents ##
+I remember all the stories and lessons my grandparents shared.
+The stories they shared sing through me intuitively.
+I recall them like a piece of music breathing through me.
+
+I love the Good Lord who "hears my prayers" first thing in the morning when the sun rises, the birds chirp, and there's time to eat blueberry muffins like my grandmother.
+I love the sound of "Hello, Gorgeous", saying it's a new day in the neighborhood to appreciate every detail in people's lives.
+I love the sound of "You stole my birthday", stated by my grandfather, and the love of books, history, symbolism, and psychology.
+I hear the sound of faith running deep through my grandfather's love of church and his family.
+
+I love the stories my other grandmother shares of ancestors discovering the country, family members in the shipping industry, and favorite literature like Faulkner and Shakespeare.
+I love the sound of the grandfather clock, the sound of the birds tweeting, and the sound of the bird clock with a glass of water and a dictionary nearby.
+I love the laughs shared with my other grandfather, and some good family music playing and family tales.
+I love the hugs and affection my grandfather gives.
+
+I love the song of the South singing through the lumber industry and the railroads in Memphis like my great grandfather.
+I love the beauty of Soul reflected through my great grandmother during the age of Jazz music in Memphis.
+I love the good luck rushing through my great grandfather McCardell's Irish blood.
+I love the songs of peace "like a river" sung through my great grandmother.
 
 ## Smile Like You Mean It ##
 Smile like you mean it.
@@ -3793,473 +3955,247 @@ Let the glow shine.
 It is yours to share.
 It is yours to wear.
 
-## Shattered Glass ##
-It's another step away from the past.
-The past is fading behind like shattered glass.
+It's ok to cry.
+It's ok to let the heart tear inside.
+It's ok to let the tears flow.
+It's ok to let it break inside.
+It's ok to let the heart ache.
+It's ok to feel.
+It's ok to express emotions and thoughts.
+Sometimes the anger and other emotions mask the need to cry and to feel.
+It is ok.
+
+## It's Ok ##
+It's ok to cry.
+It's ok to feel.
+It should feel good to sing.
+
+Thank you for holding the door and making me feel like a lady.
+Thank you for touching my heart and making me remember home.
+Thank you for the song and helping me feel loved.
+Thank you for the head nod and helping me feel cool.
+Thank you for the concern for my health and helping me recover.
+Thank you for asking me to dance and not making me feel bad.
+
+The love and the smile is in the silence.
+The anger is in the lack of voice.
+In the bitterness and the loss, I found a voice that you happened to save.
+
+The freedom is in the independence.
+The spirit is all around.
+The healing is in the mystery of the whirlwind of it all.
+
+## Smile ##
+There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
+
+## The Seed Within ##
+The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
+
+## This Experience ##
+This is good for you.
+This experience is good for you.
+This experience is teaching you how to trust.
+This experience is showing you a part of you.
+THis experience is shining a light on something to learn.
+This experience is revealing something about humanity.
+This experience is showing you how to love.
+This experience is helping you learn to be alone and be alone with confidence and joy.
+This experience is encouraging you to be yourself more.
+This experience is pushing you to put thoughts on other things, other deeper things.
+This is good for you. This is not bad.
+
+## Independence ##
+You can stand on your own two feet.
+You can give it a whirl.
+You can rise back up and forgive yourself.
+
+## In A Sea of Voices ##
+I am a voice in a sea of voices, a sea of sound.
+Why do I play music and keep the ringing of harmony in my heart?
+Why do I sing and keep on singing?
+Why do I mix in with the sea of voices if I am part of the crowd?
+I am one and the same with you all.
+
+Like a leaf in a sea of leaves, I am a voice in a sea of voices.
+Like a wave in a sea of waves, I am a voice in a sea of voices.
+Like a ray of light in a sea of rays, I am a voice in a sea of voices.
+Like a blade of grass in blades of grass, I am a note in a sea of notes.
+
+We are all one in the same.
+We all have hearts that love music and harmony because it's innate.
+I sing with my heart, not my voice, however, because I am part of the sea.
+I let the others sing, and I play second fiddle, and I let them crowd me out.
+I let my voice be quiet, subdued, so they can be someone, something.
+
+## The Lone Bird ##
+The bird flies in solitude across the land.
+It lifts its wings alone so gracefully.
+I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by quiet strength.
+Freely able to sail through the clouds and onto the wire alone.
+Fully loved when my heart is aching.
+At peace when my words are ignored.
+Loving when I see someone new.
+Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
+No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
+My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
+
+The lone bird flies high through the spring trees.
+The lone bird sits still on the electric wire.
+The lone bird sits gracefully on the yellow driving sign.
+
+## Fighting for Her Independence ##
+Through the fight for her independence, there is ground beneath her feet.
+Trust, love, and joy sings through the depths of her soul,
+and through her light, all the colors on the Earth feel embraced.
+
+She lets go of the claims.
+She lets go of the ugliness.
+She lets go of the uncultured and uneducated beast.
+She lets go of the envy.
+She lets go of the weakness.
+
+She lets the true strength and true light-heartedness reign within.
+With each new day under the Sun, she opens her heart to more independence, love, and innocence that can shine through the land that belongs to everyone.
+
+## The Freerider ##
+She's a woman who can stand on her own two feet.
+She knows how to straddle a horse alone,
+block and tackle like a true innovator,
+and pull her self up by the bootstraps like an entrepreneur.
+She may have made mistakes in the past,
+but there's a golden light in her heart freed from the chains of people's opinions and the internalized oppressor.
+She may feel held back from understanding herself and expressing herself, but she can gain dominion over her heart.
+So much freedom is there for her ahead.
+There's a gigantic frontier of possibilities and internal peace.
+She's a lover of knowledge, and true education with a home full of books and art.
+She has a heart for people that forgives and sings.
+A true woman she is, expressing ladylike qualities and poise like a true Queen indeed.
+
+## Falling Under ##
+Falling under, falling under all the mistakes.
+Wanting to bury oneself in the ground.
+Wanting to dig a greater hole.
+Hiding for the shameful things done.
+In this moment, there's a choice to live another day.
+There's a choice to lift oneself up.
+Let life carry through.
+Meet the demands of the day.
+See the sun rise.
+
+## Old Dream Dying, New Dream Awakening ##
+The old dream dying is a new dream awakening.
+
+## Let It Crash ##
+Let it crash.
+Let it fully crash.
+Let it crash.
+Let the waves crash.
+Then rise back up to meet the tide.
+
+The crashing washes it out.
+The cleansing is in the crash.
+The crash supports the moment to begin again, and receive the help.
+
+The crash is the dirt moving out with the purifying waters.
+The irritants flesh out.
+The cleansing salt water is found.
+
+There's a way.
+The ocean is always moving.
+The water is always stirring.
+The storm will die down.
+
+## I Am Looking For You ##
+I am looking for you.
+You are looking for me.
+I vaguely know you in another world.
+You already know how to reach me.
+I can feel your spirit running through the earth somewhere already.
+You can feel me and my heart beating and repenting.
+I know you're out there somewhere.
+I am here too becoming who I am destined to be.
+It's a match made in heaven.
+It's mutual and reciprocal.
+It's already there.
+It's something within.
+It has extended since the beginning of time.
+
+## What I Want ##
+I want to know you without words being spoken.
+I want to love you in the peace and quiet.
+I want to feel like it's true love on the other side of the Earth.
+I want to see through the window to your Soul.
+
+## Partnership ##
+You and I, helping each other to help the world.
+Looking at each other to see what each other love about the world around us.
+Lifting each other up.
+Helping each other grow.
+Working through the changing seasons.
+Navigating the dark side of life.
+I look to you know how to be better.
+You look to me to know how to be better.
+We create a part of the world and help the world create a better one.
+
+I open my eyes to see your light.
+Your truth makes me bolder.
+Your love makes me stronger.
+Your light makes me lighter.
+
+## Home ##
+This home of mine.
+It's been here all along.
+The ancestors have been calling down, singing down from heaven, awakening me from up above to what life is all about.
+The wind has been calling my name.
+
+Circling around this place called home again.
+All the memories from the past come alive.
+They unearth themselves and revive a sense of childlike wonder so deep.
+So much good has happened, and so much good is waiting to be born again.
+
+## Weaving In and Out ##
+Weaving in and out.
+At one with the giving and the receiving of the aid.
+In union with the recipient of the help.
+A coincidence in what is being overcome.
+A sharing of hearts to meet mutually the end goal.
+A trust in the progress of mankind and the harmony of the universe.
+
+## Eyes ##
+The eyes, the window to one's self.
+They share a good laugh, and a smile.
+They speak one's history that goes back to before time existed.
+
+## First Impressions, and Expressions ##
+First impressions, they don't capture the whole story.
+People warn, "you can't judge a book by its cover."
+The full expression is there, and the intuition is given to draw out the entire expression.
+The expression digs deeply into the earth through the roots that tap into the ground and touch the water.
+Second looks, second glances, diving deeper to see the fuller picture, and the details are really what she loves.
+
+## "Boys Will Be Boys" and Mistakes ##
+They say 'boys will be boys' and 'boys make mistakes', but I have made mistakes also and said and done dumb things.
+It's ok.
+It's tough.
+Things happen.
+Get back up to live another day.
+Learn from the mistake.
+Become a better person.
+Start fresh.
+Do something new.
 
 ## Coming Around the Bend ##
 Coming around the bend, returning home to where you belong.
 
-## Books ##
-I am grateful for books. I love books. I love hearing the voices of people in books.
-Books support democracy.
-Books create value.
-Books support learning something new each day.
-Books empower people to express through words.
-Books help people share feelings on the other side of the world.
-Books help people understand what they cannot understand.
-
-## In God We Trust ##
-In God we trust, each day, in all of our business activites. It's amazing that people in the business world have faith and know God. It's on the dollar bill.
-They say, "money doesn't grow on trees."
-
-## Martin Luther King, Jr. Event ##
-In Washington, DC, I attended the event at the Chapel with Martin Luther King, Jr. III. He encouraged people to walk outside their bubbles and meet new people to learn from their perspectives. Since then, I met someone who encouraged me to learn about Malcolm X, the Arabs, and the Spanish ancestry. I met someone in Norfolk, and I met some other people. I have learned about their individuality, and unique perspectives and strengths. I also restarted a friendship with someone from high school. In school, it can feel like people limit people from reaching out of their bubbles to meet new people, but in the real world, it's helpful that people encourage people to learn from other walks of life.
-
-## The Trucks and the Industry ##
-In Norfolk, during the pandemic, after stumbling and falling, I remember tuning into the port scenery. As a child, I remember growing up loving the industrial scenery, and I am increasingly grateful for it.
-
-## The People Behind the Work ##
-There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
-
-## These Feelings, The World ##
-What do I do with these feelings?
-These feelings, the rage, the spitefulness, the pain, the hurt, the betrayal, the desparity, the want, the lack, the displacement.
-Someone on the other side of the world feels the same way.
-We are one in the same, sharing the same feelings, experiencing the same things in two different ways, in two differen cultures.
-
-## A Year ##
-12 months per year
-4 season per year (in some parts of the world not 4)
-A season for everything (the Bible)
-365 days per year
-Winter, Spring, Summer Fall
-Bare branches glistening gray
-Snow covered trees
-Flowers blooming
-Snow covered flower buds
-Fully blossomed trees
-Green, hot summer fields
-Orange, yellow, and brown foliage
-Leaves falling
-Full Circle
-The Changing Seasons
-Adapting with the change
-
-An earth, a sphere
-Blue, green, brown, and white
-The sea and the land
-Humanity circling around
-Different Perspectives
-
-You and me - we live under the same Sun
-It shines on us from different angles
-It lights us up in different ways
-365 days per year
-
-I open my eyes to see your light
-Your truth makes me bolder
-Your love makes me stronger
-Your light makes me lighter
-
-Imagine all the people sharing smiles
-While looking up to this same Sun
-Seeing a friend in everyone
-Loving everyone's view
-
-----------
-
-All the languages of the earth
-The number of people on the earth
-The number of continents
-The number of countries
-The number of languages
-The daily actions, small actions
-
-## A Society Driven by Money ##
-A society driven by money.
-Money makes the world go round.
-Leaves turn into gold.
-Exchanges are driven by love and soul.
-In God We Trust.
-E Pluribus Unum.
-
-## The Gun Images ##
-Put the gun images down.
-Drop them.
-Why use them?
-Isn't there so much joy and live and love in that person, those people? 
-Life gets better from here.
-Just live.
-Choose to live another day.
-Choose to learn.
-Love that person wholly.
-
-## It's a Blue-Eyed, Blonde-Haired Thing ##
-It's a blue-eyed, blonde-haired thing.
-Don't we love our brown-haired, brown-eyed sisters though?
-
-## Partnership ##
-You and I, helping each other to help the world
-Looking at each other to see what each other love about the world around us
-Lifting each other up
-Helping each other grow
-Working through the changing seasons
-Navigating the dark side of life
-I look to you know how to be better
-You look to me to know how to be better
-We create a part of the world and help the world create a better one
-
-## Home ##
-This home of mine
-It's been here all along
-The ancestors have been calling down, singing down from heaven
-Awakening from up above to what life is all about
-
-Circling around this place called home again
-All the memories from the past come alive
-They unearth themselves and revive a sense of childlike wonder so deep
-So much good has happened, and so much good is waiting to be born again
-
-## Truth ##
-The truth can be ugly
-The truth is hard to hide
-The truth cannot be lied about
-The truth can be uncovered
-The truth is real
-The truth is just
-The truth is beautiful
-The truth is within
-The truth is there
-The truth is free
-
-## Flickering Lights ##
-The flickering lights-
-The flickering lights in the hearts of all the people throughout the nation and the earth
-The flickering lights in the homes and office buildings united
-You can see them from up above in the plane looking down through the seat window
-
-A society run by electric lines, power grids, and lightbulbs.
-
-## Where You are From, Where You are From From ##
-I appreciate where you're from, where you're from from
-I appreciate where your ancestors come from
-I appreciate where you are from
-I appreciate your story, your background, your interests, your passions
-Everyone has a story
-Everyone has a place of origin
-Everyone ahs their roots to celebrate
-Everyone has a place where they are from
-Some people feel displace
-Some people feel like their roots are ignored or dulled
-Everyone belongs to the Earth
-
-## Memories ##
-I remember the crowd of people wearing red, white, and blue clothes.
-I remember the women working on grassroots projects in the Stadium.
-I remember the reformation, and the repentance, and the shift of view.
-I remember the size of the crowd.
-I remember my friend's passion.
-I remember the people working in the post office, and the Fed Ex Office, and the Government buildings, and the Salvation Army.
-I remember listening to "One Tribe" and "I Believe".
-I remember serving in the Diversity and Inclusion Club and God giving me an interest in Islam in high school. I remember feeling "white privilege" and "white guilt" in the Diversity and Inclusion Club.
-I remember taking a photo.
-I remember feeling concerned about healing from racial prejudices.
-I remember praying with the prayers of African American mothers for the African Americans and then an African American man telling me I would be a good mom.
-I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
-I remember the story of my grandfather standing up for African American people on the bus in the 1900s.
-
-## My Mom and I ##
-My mom and I are on different journeys.
-We are two different people with two different perspectives and career projectories.
-I began to grow deeper in understanding the perspective of President Barack Obama's mother. I tried to at least.
-I realized the connection between the Arab world and Spain.
-I realized the connection between the woman who inspired MLK, Jr.
-I realized that Norfolk is not that different from Memphis or Nashville. There are common truths, roots, binds, images, stories, and scenery with shipping, trains, trucks, racial tension, and civil rights.
-I realized the importance of true self-government.
-
-## God Blesses the Broken Roads ##
-"God blesses the broken roads"
-
-## The Side Roads ##
-The side roads that lead to new surprises and destinations I love.
-You don't know where they are going.
-They beg you to question what's down them.
-They ask you to explore and walk down an unknown path.
-They call you to see something different and go on a detour.
-Through the orange gates, across the white fence.
-
-## If I Had Not Done This...Reasoning ##
-If I had not...then ...
-
-## Where I am weak, you are strong ##
-Where I am weak, you are strong
-Where I am broken, you are whole
-Where I am alone, you are there
-Where I have failed, you know me
-Where I am broken, you are full
-Where I have said something wrong, you speak the truth
-Where I am hurt, you provide love
-
-## A Long Road ##
-There's a long road ahead
-The road goes on and on into the horizon with yellow lines down the middle
-It's uncertain where it's heading
-I set my head straight with a vision
-I hope to move through with love and hope
-
-There's a long road ahead
-I hope to move through committed
-There are new views and new jobs
-There are old buildings to resurrect and re-appreciate
-There are old songs to sing
-There are new colors to paint with
-
-## It's Ok ##
-It's ok to cry
-It's ok to feel
-It should feel good to sing
-
-Thank you for holding the door and making me feel like a lady
-Thank you for touching my heart and making me remember home
-Thank you for the song and helping me feel loved
-Thank you for the head nod and helping me feel cool
-Thank you for the concern for my health and helping me recover
-Thank you for asking me to dance and not making me feel bad
-
-The love and the smile is in the silence
-The anger is in the lack of voice
-In the bitterness and the loss, I found a voice that you happened to save
-
-The freedom is in the independence
-The spirit is all around
-The healing is in the mystery of the whirlwind of it all
-
-## After all That Work ##
-After all that work I had done,
-After all those thoughts I had thought,
-It was a slap in the face 
-for you to try to tell me who I was again,
-and speak for me
-I have a voice
-I did good work
-You are not my benefactor
-Thank you
-
-## She ##
-She had it all
-She was the babe
-She had the voice
-And she had the career
-
-I was a sinner
-I could barely speak or sing
-I was so flawed, so lacking, so desperate
-I was not the babe
-
-## The Tease ##
-He only spoke when it was convenient
-He knew my deepest flaws
-He knew my worst fears
-He knew my loudest secrets
-He knew my strongest weak points
-He knew how to box me in
-He knew just how to strike a chord with all that was wrong with me and make me change, force me to change, force me to look in the mirror
-
-It's making me crazy
-I'm making a scene
-It's so funny to watch, it's so funny to ridicule and condemn
-I can't read between the lines
-I was falling for it
-
-## A Real Man ##
-A real man would say go for it, do it
-There's nothing wrong with you
-You have it all within 
-I believe in you
-I see the good in you
-I know who you are down deep
-
-A real woman would say go for it, do it, it's yours
-There's something great and insightful reflected in you
-You have it all within, my friend
-I care for you
-I see the light in you
-I know who you are down deep
-
-## Truth or Dare ##
-So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I loved how she was an education and church reformer and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
-
-Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
-I felt like... 
-#IWasJustAFan 
-#IWasJustAClient 
-#IWasJustAnIntern 
-then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
-The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
-the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
-Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
-
-I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't Sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
-
-## She Is ##
-She's a whole-souled woman
-She knows what she wants
-She has a heart filled with love
-And she knows how to talk
-
-She's always staying moving
-She's got smiles in her eyes
-She's a glistening starlight
-And she's quick to rise back up
-
-## Boots ##
-These boots of mine
-They've walked down many roads
-They've touched upon dirt and grovel
-They've gone down lonely pathways
-
-They've really worn themselves in
-They have some holes in the soles 
-They've really lived another day
-They've become sturdy and strong
-They've been everywhere
-
-They've walked down sidewalks
-They've walked through forests
-They've hit the mall
-They've been down grassland 
-
-## Through the Silence ##
-Through the silence
-You knew to call out my name
-I felt like I already knew you
-I knew just what you needed
-We shared a smile and a laugh
-We shared a headnod and a walk
-We shared a song that brough back the memeories
-We shared some messages through the word wide dark net
-
-## Singing Cowboys ##
-It's mind-blowing that lyrics like those came to my thought before
-It's earth-sweeping that someone can capture the feelings I have yet to express through words
-There's a symmetry to life, and there's a resonance in the deep heart of hearts
-
-It's a blue-eyed, blonde-haired thing
-But don't we love our brown-haired, brown-eyed sisters?
-
-## The Same Metaphor, A Different Story ##
-It's the same metaphor, but a different story
-It's the same culture, but different perspectives
-It's the same truth, but different journeys
-We are all weaving in and out and learning the same lessons in different colors
-
-Each one of us individual
-Each one of us a link in the chain
-Each one of us giving another something deeper to know about himself
-Each one of us expanding higher and wider
-
-
-It's the same metaphor, but a different story
-It's the same culture, but different perspectives
-It's the truth, but different journeys
-
-It's the same metaphor, but different characters
-It's the same pattern, but different stories
-It's the same culture, but different perspectives
-It's the same system, but different tracks
-It's the same truth, but different journeys
-It's the same smile, but different glimmers through the silence
-
-The road is widening, the road is growing deeper
-
-One encouraged me to speak up and read,
-another encouraged me to sing and write
-
-## It's One in the Same ##
-It's one in the same
-It's two sides of the same coin
-It's comes to the surface differently, and like produces like
-
-## You Know Too Much About Me, You Spoke for Me ##
-You know too much about who I am.
-I heard my thoughts, and feelings captured through your voice.
-
-I have a life to live
-A song to sing
-A book to write
-A heart filled with love and a laugh
-Some youth to teach
-Some people to meet
-I have churches to go to
-I have homes to architect
-I have nature to appreciate
-
-## Backhanded Complements ##
-Those backhanded complements
-Those snarky, side comments
-Those spiteful poems
-Those hateful emails
-Those vengeful comments
-Those cuss words
-Those notes in the jouranl
-Those rejection emails
-
-They really sting
-They hurt so much
-They degrade
-They confuse
-They challenge thought to look at culture from different angles
-They encourage people to feel untouched and walk through the fire
-They exist on the dark web, in the deep corners of the universe, in the places where our hearts are most sensitive
-
-## The Sea ##
-Today I filled a bottle with water and bubbles
-I tossed it into the sea
-I tossed the bottle with bubbles coming up and water spewing out and message for someone in the sea to receive
-
-## Coins ##
-Today I found a handful of coins
-A handful of coins I found in the side of the car
-
-I threw them in the wishing well
-I made a wish for you
-I made a wish that you feel the love
-I made a wish that I can speak and sing
-
-I picked them up and held them in my hand for you and me
-You and me
-We can go out and dance and run with them
-You and me
-We can go out and spend money on ice cream and games
-We can go out and share a "penny for our thoughts"
-The world is open to you and me to spend our money and bless the world
-
-He found me a five dollar bill
-A five dollar bill he found on the ground
-
-He picked them up for me so I can have some fun
-I can go out and dance and skip
-Just me alone
-I can go out and spend money on books and cars
-The world is open for me to spend my money and bless the world
-
-2 quarters
-6 dimes
-2 buckles
-4 pennies
-
-## Alone ##
-On the outside, looking in.
-Expect someone on the inside to reach their voice, their hand out and invite them in.
-The light refects through everyone.
-Everyone reflects, sees, knows, and shares the light.
-
-## God Never Fails ##
-Just when you feel like you/I have failed, God moves in a miraculous way through a vision, a song, an insight, a friendly neighbor, a job, an act of forgiveness.
-God is always bringing us closer to our family, first individually, and then collectively.
+## Hey Friend, Let's Share a Good Laugh ##
+Hey old friend, it's you again.
+I love to see you.
+I remember all the things done wrong though.
+And sometimes I just have to have a good laugh after things go wrong.
+Hey friend, let's share some comic relief.
+After all that..
+It's going to be ok.
+It will be ok in the end.
 
 ## These Feelings Are Universal ##
 These feelings are universal.
@@ -4268,23 +4204,49 @@ Thank you for the musician who put the feelings in words.
 I am glad to realize I am not the only one.
 
 ## The Music ##
-It reminded me of my grandmother's heart, my grandfather's music playing, my great grandfather's lumber business, my great grandmother's piano teaching, my aunts' and uncles' greetings, my neighbor's style, my uncle's sense of humor, my mom's Christmas Cards, my dad's radio station, my old music list, and my cousins' lifestyles
+It reminded me of my grandmother's heart, my grandfather's music playing, my great grandfather's lumber business, my great grandmother's piano teaching, my aunts' and uncles' greetings, my neighbor's style, my uncle's sense of humor, my mom's Christmas Cards, my dad's radio station, my old music list, and my cousins' lifestyles.
 
-## Insight ##
-Healing is different from coping. 
-Healing is God restoring every cell in your brain and body.
-Coping is compensating, covering up, worrying about everything wrong, and overcoming.
-Healing is remembering one's childlike self, and true self.
-Healing is being honest with oneself.
+## Same Roads, New View ##
+I have driven down these roads before, but I see them, the people, the homes in a new light.
+Everything grows richer, deeper, fuller, and more alive. I see the beauty, not the poverty.
 
-## Start Each Day with a Question ##
-What are you thinking about today?
-How can I listen to God more clearly?
-How can I repent?
-How can I learn something new?
-What ideas am I or others thinking about?
-How am I letting go of something false?
-How can I understand a passage in the rear light?
+## Looking Deeper, Looking Wider ##
+Looking deeper, looking wider, I find my home, and the truth within
+I find the place where everyone, everything is interconnected
+where bad memories are replaced, new pictures captured
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# God and Prayer #
+
+## God Knows the Room ##
+God knows the room really well.
+Thank you for knowing my need.
+Thank you for knowing who to place me with.
+Thank you for being there through the fall.
+It's a city of strangers, it's a city of angels. The strangers become friends, the strangers welcome each other with friendly eyes.
+
+## God Knows the Room ##
+God knows the room.
+Thank you for knowing my need.
+Thank you for knowing who to place me with.
+Than you for being there through the fall.
+It's a city of angels. The strangers know.
+
+## God Blesses the Broken Roads ##
+"God blesses the broken roads".
+
+## Praying on the Road ##
+In the car, on the road is the best place to pray.
+Following the rules of the road, the logic of the street, the signs and signals.
+Engaging in conversations, and meeting people at truck stops and gas stations.
+Meeting people on the street, who are asking for help is a democratic thing.
+The space where freedom meets rules.
 
 ## Angels Are Everywhere ##
 I felt some angel wings.
@@ -4355,156 +4317,177 @@ There are failure stories on my left.
 There are success stories on my right.
 I take up the failure stories, and admit to the wrongs.
 I take up the success stories, and thank God for creating me and helping me to overcome.
-"Praise the Lord for creating me", I say, with a winning smile on my face. The success stories are just that - "Christ the King living and moving and breathing right on through me".
+'Praise the Lord for creating me', I say, with a winning smile on my face. The success stories are just that - 'Christ the King living and moving and breathing right on through me'.
 Damn, Lord. You did a good job. You helped me to forgive. You helped me to bounce back up. And you helped me to reform. You helped me to survive.
 
-## Hey Friend, Let's Share a Good Laugh ##
-Hey old friend, it's you again.
-I love to see you.
-I remember all the things done wrong though.
-And sometimes I just have to have a good laugh after things go bang in the night.
-Hey friend, let's share some comic relief.
-After all that..
-It's going to be ok.
-It will be ok in the end.
+## Spiritual Lessons From Every Relationship ##
+A lesson on reading and speaking up.
+A lesson on singing, playing music, and music history in the South, especially in Norfolk.
+A lesson on how Black Lives are Amazing in Norfolk.
+A lesson on the Spanish roots of African Americans.
+A lesson on the Jamaican roots of African Americans.
+A lesson on not stalking people on social media and detaching from the situation.
+A lesson on not romanticizing the South.
+A lesson on the history of the United States of America.
+A lesson on keeping the tone of conversation cheerful.
+A lesson on keeping email messages tidy and clean.
+A lesson on forgiving people and treating people as brethren.
+A lesson on appreciating people's names.
+A lesson on giving candid feedback to people and listening to people well.
+A lesson on being ok with solitude and being ok with being single.
 
-## Lessons from Grandparents ##
-Granmama - wide smiles, dancing, greeting people for who they are, lover of color and flowers, lover of the Catholic church
-Dattee - deep listener, reader, the human psyche, lover of Church, historian
-Nam - lover of the English language, the joy of learning, Shakespeare's plays, Christian Science
-Faf - piano playing, hard work, and science
+## A New Day ##
+It's a new day.
+Open your window to the sunlight.
+Take a deep breath and smile.
+Welcome humanity, and the world into your heart with love.
+Close the door to peering into the lives of others.
+Trust they are right where they are meant to be.
 
-## Grandparents ##
-I remember all the stories and lessons my grandparents shared.
-The stories they shared sing through me intuitively.
-I recall them like a piece of music breathing through me.
+## A New Day ##
+It is a new day, the fan is blowing, the water is running, the sound of silence plays in the background.
+I made mistakes, reacted out of anger yesterday, yet again.
+But the sun is dawning on a new day, and I can choose to reform, and let go.
+The sun is shining on the Earth from a new angle, shedding new perspectives on things.
 
-I love the Good Lord who "hears my prayers" first thing in the morning when the sun rises, the birds chirp, and there's time to eat blueberry muffins like my grandmother.
-I love the sound of "Hello, Gorgeous", saying it's a new day in the neighborhood to appreciate every detail in people's lives.
-I love the sound of "You stole my birthday", stated by my grandfather, and the love of books, history, symbolism, and psychology.
-I hear the sound of faith running deep through my grandfather's love of church and his family.
+## It's A New Day ##
+It's a new day for the sun to shine
+for the birds to chirp
+for me to meet a new friend
+I love to sing out loud
+and let go all of the doubt
+and feel love in my heart
+for everyone
+It's a new day for the flowers to bloom
+for the rain to fall
+for the neighbors to wave
+I love to skip out side
+and run to the park
+and feel joy in my heart
+with everyone
 
-I love the stories my other grandmother shares of ancestors discovering the country, family members in the shipping industry, and favorite literature like Faulkner and Shakespeare.
-I love the sound of the grandfather clock, the sound of the birds tweeting, and the sound of the bird clock with a glass of water and a dictionary nearby.
-I love the laughs shared with my other grandfather, and some good family music playing and family tales.
-I love the hugs and affection my grandfather gives.
+## It Takes Faith ##
+It takes faith to wake up another day.
+It takes faith to walk out the door.
+It takes faith to take a step forward.
+It takes faith to forgive and heal a relationship.
+It takes faith to move on and trust people.
 
-I love the song of the South singing through the lumber industry and the railroads in Memphis like my great grandfather.
-I love the beauty of Soul reflected through my great grandmother during the age of Jazz music in Memphis.
-I love the good luck rushing through my great grandfather McCardell's Irish blood.
-I love the songs of peace "like a river" sung through my great grandmother.
+## The Side Roads ##
+The side roads that lead to new surprises and destinations I love.
+You don't know where they are going.
+They beg you to question what's down them.
+They ask you to explore and walk down an unknown path.
+They call you to see something different and go on a detour.
+Through the orange gates, across the white fence.
 
-## Interracial Couples ##
-The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
+## If I Had Not Done This...Reasoning ##
+If I had not...then ...
 
-## What Can America Achieve? Diamante Poems ##
-Despair,
-enormous, steep,
-scorching, perishing, callousing,
-The climb is summoned by a new spirit -
-overcoming, unyielding, conquering,
-bright, energetic,
-Hope
+## Where I am weak, you are strong ##
+Where I am weak, you are strong.
+Where I am broken, you are whole.
+Where I am alone, you are there.
+Where I have failed, you know me.
+Where I am broken, you are full.
+Where I have said something wrong, you speak the truth.
+Where I am hurt, you provide love.
 
-## Taking Back the Night ##
-Flying into the night sky, I take back the night, where in reality it is a silent night.
-I sing with the stars above, where everyone has a place, and the world around works like a symphony.
-In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, lighting the path.
-I know I am held so tightly because of how brightly the light shines.
+## A Long Road ##
+There's a long road ahead.
+The road goes on and on into the horizon with yellow lines down the middle.
+It's uncertain where it's heading.
+I set my head straight with a vision.
+I hope to move through with love and hope.
 
-## Babe ##
-It's all about perception, motive, and intent.
-"Babe" can be an innocent, endearing way to address someone.
-"Babe" can also be a teasing way to address someone if there is no intent to commit and settle down with one individual.
-"Babe" signals that the relationship is intimate, close, 1:1, so sound and innocent between partners, exclusive to people outside of the relationship, and questionable when used by someone who seems nebulous, not serious, or in relationships with multiple people.
-"Babe", it can be innocent when coming from another woman also, like "hey dear".
-It's all about perception, motive, and intent.
-"Babe" sounds more sexual than "lady" or "woman".
-People should hold themselves inwardly and outwardly like a "lady" or "woman", expressing "ladylike" and "womanly" qualities.
-"Babe" indicates something sexual, which can be good in a relationship, like "you are cute", but it can degrade a sense of "ladilikeness", "womanliness", mutual respect and graciousness".
+There's a long road ahead.
+I hope to move through committed.
+There are new views and new jobs.
+There are old buildings to resurrect and re-appreciate.
+There are old songs to sing.
+There are new colors to paint with.
 
-## Bullying ##
-Hello, Mr. Bully
-Remember me?
-You were a bully.
-You picked a fight.
-You couldn't pronounce my name correctly.
-You acted like I couldn't do my work properly.
-Hello, Mr. Bully.
-Remember me?
-I visited your apartment?
-...And you poked fun of me.
-You treated me like I was stupid.
-...Right in the center of your home.
-You patronized me.
-Hello, Mr. Bully.
-Remember me?
-I forgave you.
-...But you denied me.
-You put yourself on a pedestal.
-You treated me like I asked for weird favors of you.
-Hello. Mr. Bully.
-You are part of a church with Celebrities.
-And I am never enough, never competitive enough.
-Thank you for provoking me.
-I see all the selfies online.
-I watch all the Celebrities.
+## Song of the Night ##
+True Love is not cheap.
+True Love is happy for others.
+True Love apolgoizes and accepts repercussions for wrongdoing.
+True Love never fails.
+True Love treats enemies like brothers.
+True Love commits to a team over self.
+True Love rejoices in welcoming others.
+True Love trusts in the best for their neighbors.
+True Love listens to others' admonishments with care.
+True Love knows how to rest and get back up.
+True Love is always moving.
+True Love is never divorced from itself.
+True Love knows itself for eternity.
+True Love is loving all humanity ta once.
+True Love weathers the storm.
 
-...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people. I learned from Malcolm X.
+## Love ##
+Reaching far for and extending widely this love for you.
+You are already part of my family. 
+You remind me of people I already know.
+This love continues for ever and never stops.
+It expands forever with all of humanity growing as well.
+It loves you to the moon and back.
+And dances with the stars after you are dead.
+It picks you up when you fall.
+And forgives you when you've failed.
+It remembers everything true at heart about you.
+And synchronizes with you.
+It knows you with all your full glory and colors.
+It knows how to guide and protect you.
+It nudges you always to the right intuitions and ideas.
+It sees the light in you when darkness and discord are all around.
 
-...But Child, seriously... The correct approach is to stop the bullying, Let people speak up for themselves, Be more patient, observant, and considerate.
+<br>
 
-## Prison in My Own Home ##
-Before the quarantine, I became a prisoner in my own home.
-I felt like I was quarantined before the quarantine.
-I felt like I was imprisoned before being imprisoned.
-I felt like I was ostracized, yet connected before feeling close to losing it all.
-I am compassionate, but I became something that I am not.
-I became something that does not represent my true self.
-I am genuine and real, but I became fake, a fraud, and spiteful.
-I was afraid, I felt hurt from opening up.
-I hated my sexuality.
-God was there, but I was not paying full attention.
-He was right, goodness was running after me, and angels proved that "goodness was running after me",
-but willfulness, heaviness, and pain took over and used me.
-Knowing what's right, but doing what's wrong will lead to prison.
-Complaining when I could pause, and being grateful will lead to prison.
-Hitting back when I can forgive will lead to prison.
 
-## The Friend ##
-Sitting in a dark room, she sits alone
-With a heart yearning to express itself.
+----------
 
-In another dark room nearby, a piano sits alone
-With ivory yearning to be tickled.
 
-'Why cannot the piano be my friend?' she thinks.
-With stiff legs she introduces herself to Steinway,
-and in return she receives a great gift.
+# Creative Writing - Independent Writing #
+# Boots #
+## Boots ##
+These boots of mine.
+They've walked down many roads.
+They've touched upon dirt and grovel.
+They've gone down lonely pathways.
 
-Her body is no longer stiff, no longer limited.
-Her eyes no longer shed tears.
-Her fingers dance across the black and white keys.
-Her ears open up and hear the sound of music.
-Her soul spreads its wings and flies.
-Her heart has found freedom.
-And her mind has found relief.
+They've really worn themselves in.
+They have some holes in the soles .
+They've really lived another day.
+They've become sturdy and strong.
+They've been everywhere.
 
-She is now content
-With the company of a friend.
+They've walked down sidewalks.
+They've walked through forests.
+They've hit the mall.
+They've been down grassland.
 
-## A Poem for a Marriage, a Wedding ##
-In your weddedness to God,
-your union eternal exists
-in a house undivided.
+<br>
 
-In weddedness to God,
-I am grateful to share
-happiness with Mary for 
-3 generations of Furr women.
 
-What blesses one blesses all,
-so the union can only bless everyone.
+----------
+
+
+# Creative Writing - Independent Writing #
+# Spiritual Experiences #
+
+## The Same Thing through the Spirit, Different Forms ##
+Doing the same thing through the spirit in a different form.
+
+ ## God Never Fails ##
+Just when you feel like you/I have failed, God moves in a miraculous way through a vision, a song, an insight, a friendly neighbor, a job, an act of forgiveness.
+God is always bringing us closer to our family, first individually, and then collectively.
+
+## Insight ##
+Healing is different from coping. 
+Healing is God restoring every cell in your brain and body.
+Coping is compensating, covering up, worrying about everything wrong, and overcoming.
+Healing is remembering one's childlike self, and true self.
+Healing is being honest with oneself.
 
 ## The Correct Prayer ##
 The correct prayer is 'Shepherd, Show me how to love'
@@ -4518,29 +4501,21 @@ It's coming up for me to love all of those around me.
 Anything else is worry, and human judgment.
 I can drop this, and walk freely with the Lord, and the Love within.
 
-## Attitude on Life ##
-I have sounded and attacked like President Donald Trump in some ways.
-Donald Trump supports people with valid points. Concerns over infrastructure, technology, agriculture, and preserving what's best in the Republic are valid.
-I have met President Barack Obama. The purpose of life is to transform. All of humanity is transforming at once.
-I aspire to sound, and be thoughtful, and secure like Present Barack Obama, who I have met.
-I am interested in party switching, and the progress in The United States of America.
-I reflect on the ideals of home, Reconstruction and Civil Rights, integration, and more.
-
 ## God Stills the Storm ##
 God stills the storm, literally and figuratively, holds the rain off, lets man worship with the Sun shining, and causes the rainbow to peek through after the rain.
 
 ## A System of Ideas ##
-"You, oh God, are the source and circumference of being.
+'You, oh God, are the source and circumference of being.
 Thank you God, that you work through us individually as distinct ideas.
 Thank you God, for knowing where each idea needs to be to bless, uplift, and be a healing influence.
-Thank you, God, for your system of ideas. We abide in you, you abide in us. What blesses one, blesses all."
+Thank you, God, for your system of ideas. We abide in you, you abide in us. What blesses one, blesses all.'
 
 The idea that one shares sparks an idea for another to appreciate and share.
 That idea that another appreciates and shares motivates an idea for someone else to work with.
 There's a system of ideas, constantly moving, constantly inspiring, constantly renewing, and remembering, and constantly uplifting.
 
 ## Confidence ##
-"with faith"..."in God"
+'with faith'...'in God'
 Being so one with God that one can be happy for all of those around you.
 Being able express help to someone who seems to be struggling and being confident in his or her abilities.
 Feeling at ease in the body.
@@ -4587,78 +4562,18 @@ God is always still there
 Thank you God for your Son
 the one who stilled all so well.
 
-## Ocean, Sand ##
-Ocean, sand. It fills the whole Earth.
+## A Poem for a Marriage, a Wedding ##
+In your weddedness to God,
+your union eternal exists
+in a house undivided.
 
-## Connectivity ##
-The ocean
-THe rivers
-The roots below the ground
-The interstate
-The stars
+In weddedness to God,
+I am grateful to share
+happiness with Mary for 
+3 generations of Furr women.
 
-Continuous. Circle. Rhythm. Structure. 
-
-## It Takes Faith ##
-It takes faith to wake up another day
-It takes faith to walk out the door
-It takes faith to take a step forward
-It takes faith to forgive and heal a relationship
-It takes faith to move on and trust people
-
-## Working with EVERFI ##
-I was grateful that through the doubt, God intuitively led me to a place just right for me and everyone, where I was integrated with family members and community members doing their life work in the world.
-I was grateful to deliberately choose to work for a leader who loved African American history and shared African American history.
-I was grateful to deliberately choose to help people understand how perception can shift behavior, though I did not fully understand that at the time.
-I was grateful to appreciate harmony expressed in the workplace with people from all different cultural perspectives in the country and the world.
-I was grateful to learn about the Natives in Montana, learn about the beloved people from Kentucky, learn about the technologists from California, and learn about the Americans in Washington, DC.
-I was grateful to gain an understanding of what it means to feel "white privilege" in the workplace while loving what those from other cultural backgrounds are offering the world, the nation, the community, and the business world.
-I was grateful to see the spirit of compassion being expressed by people in the workplace, with the darkness in the world being transformed into light.
-I was grateful for company-wide events that brought people together in union twixt the darkness and the light.
-I was grateful to be part of the "THIS IS IT" moment when things started booming, roaring, becoming the full thing.
-I was grateful to see the inspiration of Martin Luther King, Jr. shared in an engineering class being reflected through the business.
-I was grateful to build solutions and be a part of the "Smart Things Should Build Things Movement".
-I didn't know everything there is to know about African American History, but I was grateful to start a lifelong journey of appreciating the country, learning about perception, learning about people, working in teams, learning about African American History, and preventing violence on the basis of sex and race.
-I was grateful to defend true womanhood, the "Princesses of Peace" who are able to lead, and appreciate true manhood.
-
-
-----------
-
-
-People may come from different perspectives, different sides, different points of view, but unite in the divine interest, expressing their talents in original, heart-felt ways.
-
-## Exploring The Controversy ##
-A flag is a sign, and a symbol.
-I can understand how people feel like the Confederate flag represents good things about Southern culture, Southern heritage, and the birth of the American Country.
-The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve.
-The Civil War, however, was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression.
-The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations.
-Land and economy are part of the South, but land and economy expand to the North and the West.
-
-## The Virginia Flag ##
-Such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
-
-## The External and Internal Oppressor ##
-People condemn resentment, and anger for oppression or bad treatment.
-If someone is being patient for an extended period of time towards someone mistreating them, neglecting a part of who they are, undermining them, condescending them, patronizing them, or misunderstanding them, while they are forgiving them, the internal oppressor will seem like resentment with guilt, internal mockery, a sense of threat, self-hatred, and anger towards the ongoing enabling of negative behavior.
-The internal oppressor is the external oppressor internalized.
-The love from God shields man so that no form of human hatred can reach, and the love from God delivers man from this internal or external oppressor that leads to more aggression internally towards oneself or externally towards others.
-
-## Spiritual Lessons From Every Relationship ##
-A lesson on reading and speaking up.
-A lesson on singing, playing music, and music history in the South, especially in Norfolk.
-A lesson on how Black Lives are Amazing in Norfolk.
-A lesson on the Spanish roots of African Americans.
-A lesson on the Jamaican roots of African Americans.
-A lesson on not stalking people on social media and detaching from the situation.
-A lesson on not romanticizing the South.
-A lesson on the history of the United States of America.
-A lesson on keeping the tone of conversation cheerful.
-A lesson on keeping email messages tidy and clean.
-A lesson on forgiving people and treating people as brethren.
-A lesson on appreciating people's names.
-A lesson on giving candid feedback to people and listening to people well.
-A lesson on being ok with solitude and being ok with being single.
+What blesses one blesses all,
+so the union can only bless everyone.
 
 ## The Love, and The Goodness within vs. Society and Culture ##
 Man, and Woman are dependent on Love.
@@ -4668,36 +4583,6 @@ Love moves us to forgive, and share a good laugh.
 Love moves us to pause, and stop reacting.
 Love moves us to apologize.
 Love moves us to understand someone who is different, and really listen.
-
-## A New Day ##
-It's a new day.
-Open your window to the sunlight.
-Take a deep breath and smile.
-Welcome humanity, and the world into your heart with love.
-Close the door to peering into the lives of others.
-Trust they are right where they are meant to be.
-
-## A New Day ##
-It is a new day, the fan is blowing, the water is running, the sound of silence plays in the background.
-I made mistakes, reacted out of anger yesterday, yet again.
-But the sun is dawning on a new day, and I can choose to reform, and let go.
-The sun is shining on the Earth from a new angle, shedding new perspectives on things.
-
-## It's A New Day ##
-It's a new day for the sun to shine
-for the birds to chirp
-for me to meet a new friend
-I love to sing out loud
-and let go all of the doubt
-and feel love in my heart
-for everyone
-It's a new day for the flowers to bloom
-for the rain to fall
-for the neighbors to wave
-I love to skip out side
-and run to the park
-and feel joy in my heart
-with everyone
 
 ## Mortal Mind and Divine Mind ##
 Mortal mind wants to assert itself through fear, through judgment, through offense, through threat.
@@ -4724,7 +4609,7 @@ She's grateful, and at home.
 
 She's merciful,
 She's modest,
-She's open-mind, and poised.
+She's open-mind, and mindful.
 
 She's a searcher for humanity in the darkest areas of the world.
 She's a lover of Jesus and Mary Baker Eddy.
@@ -4751,6 +4636,8 @@ With a passion for Church, He's a searcher for Truth in all areas of the world.
 He knows that Divine Mind has the throne and that reflecting Principle and Joy is the Way.
 God is the source of her peace, and speaks to her with the still, small voice.
 
+<br>
+
 
 ----------
 
@@ -4763,6 +4650,8 @@ He provides strength and structure.
 He's law-abiding and principled.
 He's eternal, and omnipotent.
 
+<br>
+
 
 ----------
 
@@ -4772,42 +4661,408 @@ She uses Truth's double-edged sword to end human strife.
 She's self-complete and wedded to the author of the universe.
 She holds her covenant with all mankind.
 
+<br>
+
 
 ----------
 
 She's creative.
+She's poised.
 She's independent.
 She's listening.
 She's thoughtful.
 She's perceptive.
 
-----------
+<br>
 
+
+----------
 
 ## The Shadow Side ##
 "Yea, though I walk through the shadow of death, I shall fear no evil, for thy rod and thy staff shall comfort me for all the rest of the days of my life."
 This is the shadow side to who you are. There's a gentle soul beneath it all, waiting to unfold into greatness, and ready to smile at all of the humanity and all of the human race. There's a heart waiting to sing in the post office and the laundry room.
 It's amazing, and beautiful how God led his people out of slavery. It's not God's purpose for man to be enslaved. God leads his people through the wilderness.
 
+## Words Cannot Express ##
+Words cannot express the deep things of God.
+Awareness of the Christ is key to healing.
+God moves people with compassion to discover the Christ expressed in everyone.
+
+## Confidence ##
+"with faith"..."in God"
+Being so one with God that one can be happy for all of those around you.
+Being able to express help to someone who seems to be struggling and being confident in his or her ability.
+Feeling at ease in the body.
+Being able to admit to mistakes and accept rebukes with joy for how to become better.
+Being so rooted in God that there's no reason to react because there's a knowledge that God's idea is fit somehwere.
+Being free from the pull to compare or judge or feel judged.
+
+## Forgiveness ##
+Forgiveness, returning to the original, the point of origin, the home, where all are welcome, trusted, brethren, sharing happiness, sharing the same Father-Mother.
+
+## The Healing ##
+The healing is there; it's already within.
+There's nothing to change; just the true ideas welling up within to ressurect and live.
+
+## "What Beauty There Is In Silence" ##
+"What beauty there is in silence".
+In silence, there's true strength with no one telling her to find her strength.
+In silence, there's knowledge without words.
+In silence, there's space to muse.
+In silence, there's the reality of someone's heart beating without any verbal communication.
+In silence, there's space to stand aghast at and laugh at the ways people push people over, silence people, and ridicule people over quietude.
+In silence, there's space to appreciate the mystery of it all, and enjoy the interconnectedness of Life.
+In silence, there's the opportunity to say no to the silent arguments masquerading through my thought.
+
+## "Love Chases the Storms Away"
+Love and life within chases the storms away.
+After the storm, the tree branches lie on the ground.
+The leaves have fallen, and the rain has gone away.
+The sun reflects through the puddles on the ground.
+The water evaporates in the sun that shines.
+The residue from the storms falls way.
+Life continues with freshness.
+The light of love and life chases the storm away, leaving no room for negativity, and only gives room for rebirth and renewal.
+
+## Your Job ##
+Your job is an attitude towards life, and an outlook towards the world and humanity.
+Your job is not confined by your job title, your social status, your place.
+Your place is in the land of the divine, where ideas in your heart continuously unfold, and are not limited by the job or opinion of others.
+
+## Present, Past ##
+"The past unravels. The present is unfolding."
+
+## Home ##
+This is a home for divine expression, divine orchestration, divine symphony, divine architecture, divine building, brother birds.
+
+## United ##
+United in our being.
+Standing in union with one another through loving what's in another's heart and soul.
+
+## Life Lessons and the Next Generation ##
+Life lessons are continuing in beautiful ways through the next generation.
+
+## Divine Right ##
+It's your divine right to be free, whole, singing, healed, joyful, purposeful, employed.
+
+## Morality ##
+Moral freedom founded in the consciousness of good, and doing good, where there exists only the righteous thoughts, not the thoughts of want. Moral freedom founded in the consciousness of joy, and being joyful, where there exists only the desire to see the light in others and be grateful and happy for them. Is the act life-giving? Then it's morally right. Is the act loving? Then it's morally just. Is the act truthful, honest, factual, and just? Then it's morally correct.
+Is the act principled, ordered, and balanced? Then it's moral. The place within where there's moral freedom is where there's a consciousness so filled with love and light, and no room for fear, anger, false judgment, want, or disappointment.
+
+## Right Desire vs. Wrong Desire ##
+Like produces like.
+
+What is in desire will lead to an action.
+
+A right desire leads to love, better ethics, spirited growth in grace, new understanding, new ways of seeing the world.
+
+What is a wrong desire?
+A wrong desire leads to frustration, roadblocks, anger, and strife.
+
+## Harmony the Real, Discord the Unreal ##
+God harmonizes everything. Harmony is the real, discord is the unreal. God knows what I need to learn, how I need to gain a new insight, and how I need to understand something. God knows what to draw out of his people. God is never mocked, and God is never making fun of people.
+
+## What is My Motive? ##
+To love someone new today.
+To move beyond my comfort zone.
+To include all of humanity in prayer.
+To understand someone who needs help.
+To express patience in my thought.
+To see from a different angle.
+To shift a habit.
+To demonstrate order and cleanliness.
+
+
+**A Poem on Healing**
+The feeling of healing is being restored to one's true self, what's already there, and what's waiting to be born and discovered.
+Dependent solely on the movement of God's love and God's word that speaks through intuition.
+The real, substantive thoughts already lay hidden behind the surface of false beliefs.
+The golden reality within is waiting to be awakened, unearthed, unhidden, and mined.
+One's wholeness is innate, in tact, and always there.
+
+**A Poem on Prayer for Humanity**
+
+
+## Religious Liberty ##
+Christian Science embraces all religions, all churches, all races, and all of humanity.
+The Christian Science church architecture roots itself in Romanesque architecture.
+America does too. America was founded with a love for religious freedom and religious liberty, though there are debates over what this means to people.
+The architecture in Charlottesville was rooted in Roman architecture.
+I love all the churches, I love all the people, and I love that God forgives everyone and speaks to everyone.
+
+## Roots ##
+You can claim what you were born to be.
+Your roots may have dried out, but your roots run deeply into the ground.
+Dig within deeply, remove the weeds, and discover the glory.
+The glory, the beauty, the soul of Soul is there.
+
+## Home and Music ##
+Home is where it all begins.
+There's a place for music and you all in my heart forever.
+Childlike memories of light, dancing, and merriment last forever.
+No hurt can reach the child within, we all express this sweet, childlike innocence.
+
+## Healing, It Starts at Home ##
+"'Twas Love Who Traced a Bow of Promise on the Cloud"
+The Full Promise Came
+
+Healing, it starts at home
+with life and love
+It expands out into the community that
+unfolds forever and ever
+in love, one remain
+Thank you for your structure, and overlapping spheres, oh Lord,
+You manitain our spheres as the stars that shine
+Thank you, God, for always being with us.
+
+## Constant Evolution ##
+There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
+
+## I am Whole ##
+Dropping the narrative that I have made a mistake. Taking on the narrative that I am whole. God's way is higher than my way. And "all works together for good" when seeking to understand, desiring to progress, yearning to improve, going within to love more, working to apologize, asking to learn, working to perceive correctly in the light.
+
+## Healing from Abuse, both the Abused and the Abuser ##
+There was no reason to be jealous.
+You have it all within, sister.
+The qualities are there. The latent talent is there.
+You may blossom differently or later, but sister, you spring from the same source, and the ideas are there.
+So love your brother, and love your sister. Love must go before you, and you are not estranged.
+Sometimes the night must be taken back, the fight within must stop, and the time to be receptive must come.
+God does amazing work through the pain, and really opens us up to Her living reality.
+
+Hey sister, I have a lot in common with you
+There are moments when I am not graceful, and I want to feel jealous
+You seem so superior to me
+You look like you have it all
+I have a lot going also
+No one needs to be picture perfect
+Just one day at a time recognize the goodness within
+
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights #
+
+## The Ripple Effect ##
+He throws a coin into the pool of water.
+Plop. Plip. Tlop.
+The coin causes the water to ripple.
+One ripple continues to ripple outwardly into other ripples.
+An outflowing of water rippling and flowing.
+
+## Circling Back ##
+Circling back through time.
+Unwinding the clock.
+Turning to pen and paper.
+
+## Words of Wisdom ##
+The older I grow the more I learn and the more I realize I did not create this world.
+The older I grow the humbler I become.
+Once in college before reaching a breaking point, I had read "Frankenstein" and reached an epiphany: "Am I my own god and creator?"
+No, something created me.
+This was the beginning of the destruction of the ego, the false self.
+I was humbled, humiliated, and through rising back up out of the ashes, I discovered more of who God is and how God lives and moves through me, and supports me.
+
+## Into the Sky, Into the Ocean, Into the Green ##
+Into the sky, upward into the 3pm afternoon sky, the clear blue air.
+Into the depth of the ocean, across the sea, into the depth of the gray-blue waves.
+Into the green through the brown-grounded forest and up the mount to see the land below.
+
+## Shattered Glass ##
+It's another step away from the past.
+The past is fading behind like shattered glass.
+You can look through the shattered glass and see the brokenness and leave it behind.
+You can look through the shattered glass and see the positive memories beneath it.
+
+## Tide ##
+The roll of the tide, where the sea meets the land.
+
+## Truth ##
+The truth can be ugly.
+The truth is hard to hide.
+The truth cannot be lied about.
+The truth can be uncovered.
+The truth is real.
+The truth is just.
+The truth is beautiful.
+The truth is within.
+The truth is there.
+The truth is free.
+The truth is light.
+
+## Flickering Lights ##
+The flickering lights-
+The flickering lights in the hearts of all the people throughout the nation and the earth.
+The flickering lights in the homes and office buildings united.
+The flickering lights in the night sky that reach other galaxies.
+You can see them from up above in the plane looking down through the seat window.
+A society run by electric lines, power grids, and lightbulbs.
+
+## Taking Back the Night ##
+Flying into the night sky, I take back the night, where in reality it is a silent night.
+I sing with the stars above, where everyone has a place, and the world around works like a symphony.
+In the depth of the darkness of the night, the light shines through the window, and the stars glitter and shine, lighting the path.
+I know I am held so tightly because of how brightly the light shines.
+
 ## Sprouting Up ##
-An idea from within sprouts up.
-It starts as a small seed of intuition reminding someone of something latent, a memory of the past, a story in the family.
-Cultivating a love for this small seed lets it grow into a greater reality.
-It grows and grows into its full self.
-The idea from within the home that's already there becomes a full garden, a full way of being.
+An idea from within sprouts up. It starts as a small seed of intuition reminding someone of something latent, a memory of the past, a story in the family. Cultivating a love for this small seed lets it grow into a greater reality. It grows and grows into its full self. The idea from within the home that's already there becomes a full garden, a full way of being.
 
 ## What You Water Grows ##
-What you water grows.
-What you express gratitude for expands.
+What you water grows. What you express gratitude for expands.
+
+## The Darkness ##
+In the dark, when I am all alone.
+The light flashing through the car in front of me can't scare me.
+The light within guiding me with intelligence, peace, security is so strong as the light flashing through the car.
+
+## A Romantic Vision ##
+A rose, a flower blossoming through the wintery blast, the darkness of the night.
 
 ## The Ocean ##
 The ocean crashes every day upon the shore.
 The deep waters of God are where the sin is stirred out.
 The holiness of God can cleanse what is wrong away.
 
-## Connected, Yet Ostracized ##
-When I am feeling connected yet ostracized, I want to yell out, but I pause 
-and remember the values to live out with the connections, not the connections themselves.
+## The Sound of Silence ##
+The sound of silence is so grand, so great, so beautiful.
+In the silence, I can hear the greatest music, the greatest song of all.
+In the silence, I feel the leaves, the rain, the sun, the breeze, the road, the trucks, the goodness of all the people on both side of politics.
+I made myself vulnerable, started opening up, felt guilt and then shame, and then embarassment, then violent, and then angry.
+I opened up in the wrong way.
+There was silence, no response, feelings of inferiority. I fell, and stooped so low in violence.
+I rose up higher with a bounce in my step, a love for someone else, and a resilient sense of being.
+I tried to apologize, I saw more deeply, learned grander lessons, and felt the true sound of silence in my own heart rather than the sound of silence coming from someone not accepting of me reaching out.
+Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
+
+## The Rose Within ##
+There is a rose within everyone's heart.
+It must be watered, it must be nourished.
+The love is strong, and the light is bright, even at night. It is all one with all of humanity.
+Nothing is as beautiful as a red rose in the harsh, blasts of a winter storm.
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# A Year #
+
+## A Year ##
+12 months per year,
+4 season per year (in some parts of the world not 4),
+A season for everything (the Bible),
+365 days per year,
+Winter, Spring, Summer Fall,
+Bare branches glistening gray,
+Snow covered trees,
+Flowers blooming,
+Snow covered flower buds,
+Fully blossomed trees,
+Green, brown, hot barren fields,
+Water droplets on green leaves,
+Orange, yellow, red, and brown foliage,
+Leaves falling,
+Everything in a year coming full circle.
+The changing seasons, transitions, metamorphisis, one thing becoming another thing
+A constant adaptation, a constant shifting, a predictable movement
+
+An earth, a sphere,
+It's green, brown, blue, and white,
+It rotates around the sun 365 days per year,
+There's sea and there's land,
+Humanity circles around it,
+There are 7.2 billion different perspectives,
+There are ## countries, 
+There are ## nationalities,
+
+You and me - we live under the same Sun that the earth, the sphere rotates around,
+It shines on us from different angles,
+It lights us up in different ways,
+It warms our faces equally in different seasons,
+365 days per year,
+Imagine all the people we live with sharing smiles, a laugh, an exchange, forgiveness while looking up to this same Sun,
+Seeing a friend in everyone, loving everyone's view.
+
+<br>
+
+
+----------
+
+All the languages of the earth
+The number of people on the earth
+The number of continents
+The number of countries
+The number of languages
+The daily actions, small actions
+
+<br>
+
+
+----------
+
+**Interested in refining this.**
+
+<br>
+
+
+----------
+
+
+## Ocean, Sand ##
+Ocean, sand. It fills the whole Earth.
+
+## Connectivity ##
+The ocean,
+the rivers,
+the roots below the ground,
+the interstate,
+the stars.
+
+Continuous, circle, rhythm, structure.
+
+## Imagine ##
+Imagine a world where all 7.2 billion people look up to the same Sun smiling.
+Imagine a world where all 7.2 billion people look out to the same horizon.
+Imagine a world where all 7.2 billion people sing freely.
+Imagine a world where all 7.2 billion people's hearts light up inside.
+Imagine a world where all 7.2 billion people love one another.
+Imagine a world where all 7.2 people quickly forgive.
+Imagine a world where all the colors exude the light and shine their true colors.
+The World would resound with light and sound.
+The World where the heavens, the sky smile down.
+All the colors of the universe are embraced as one.
+--All the coordinates, every localized place, people look up to the same Sun from different perspectives.
+For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
+People sing with their full hearts and sing their own tunes.
+I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+
+## A World That Is Always Moving ##
+A world that's always moving.
+365 days around the Sun.
+Since the beginnig of time.
+It never stops.
+It's always going.
+The planets are always cycling and circling.
+
+## To the Core ##
+Connected, at one with the core of the Earth, the center of the Earth, the heart of the Earth.
+In step and in sync with everyone around, moving as one.
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# Mothering and Pregnancy #
 
 ## Mothering ##
 Forming new memories, starting a fresh, new insights, new ways of seeing things, new ways of being come to me like a mom
@@ -4827,17 +5082,78 @@ All the right ideas grow out of everyone.
 
 Beyond physical reproduction,
 there is spiritual renewal
-thorugh spiritualizign thought, letting go of falsehood.
+through spiritualizign thought, letting go of falsehood.
 
-## Right Desire vs. Wrong Desire ##
-Like produces like.
+<br>
 
-What is in desire will lead to an action.
 
-A right desire leads to love, better ethics, spirited growth in grace, new understanding, new ways of seeing the world.
+----------
 
-What is a wrong desire?
-A wrong desire leads to frustration, roadblocks, anger, and strife.
+
+# Creative Writing - Independent Writing #
+# Experimentation #
+
+## The Sea ##
+Today I filled a bottle with water and bubbles.
+I tossed it into the sea.
+I tossed the bottle with bubbles coming up and water spewing out and message for someone in the sea to receive.
+
+## Coins ##
+Today I found a handful of coins.
+A handful of coins I found in the side of the car.
+
+I threw them in the wishing well.
+I made a wish for you.
+I made a wish that you feel the love.
+I made a wish that I can speak and sing.
+
+I picked them up and held them in my hand for you and me.
+You and me.
+We can go out and dance and run with them.
+You and me.
+We can go out and spend money on ice cream and games.
+We can go out and share a "penny for our thoughts".
+The world is open to you and me to spend our money and bless the world.
+
+He found me a five dollar bill.
+A five dollar bill he found on the ground.
+
+He picked them up for me so I can have some fun.
+I can go out and dance and skip.
+Just me alone.
+I can go out and spend money on books and cars.
+The world is open for me to spend my money and bless the world.
+
+2 quarters.
+6 dimes.
+2 buckles.
+4 pennies.
+
+## Stars Twinkling At Each Other ##
+In the darkness of the night, all the stars twinkle and shine.
+They are all loving each other like bright lights glowing, and flickering.
+
+--I see you winking at me.
+--I wonder what good you have to share with me.
+--I wink back and wish you the best.
+
+--This love is like a star twinkling at another star,
+--sharing the light in the middle of the night,
+--dancing with one another in the symphony of the night sky.
+
+--Everyone can see you winking at me.
+--They can see the start of a new friendship.
+--It's like all the other stars in the sky sharing the light and love
+--In a universal dance of peace, love, and joy.
+
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# Poetic Responses to Bullying, Harassment, Rejection, Weird Relationships, and Crime #
 
 ## I AM ##
 I am a graduate of UVA. 
@@ -4871,121 +5187,283 @@ I love that I am Southern.
 
 This. Is. Who. I am. 
 
+## The Gun Images ##
+It started with a laugh and a small.
+The pain and confusion turned into "too much", crying within, pain, a reaction, and then gun images.
 
-## Song of the Night ##
-True Love is not cheap.
-True Love is happy for others.
-True Love apolgoizes and accepts repercussions for wrongdoing.
-True Love never fails.
-True Love treats enemies like brothers.
-True Love commits to a team over self.
-True Love rejoices in welcoming others.
-True Love trusts in the best for their neighbors.
-True Love listens to others' admonishments with care.
-True Love knows how to rest and get back up.
-True Love is always moving.
-True Love is never divorced from itself.
-True Love knows itself for eternity.
-True Love is loving all humanity ta once.
-True Love weathers the storm.
+Why the gun images?
+Put the gun images down.
+Drop them.
+Why use them?
+Isn't there so much joy and live and love in that person, those people? 
+Life gets better from here.
+Just live.
+Choose to live another day.
+Choose to learn.
+Love that person wholly.
 
-## Love ##
-Reaching far for and extending widely this love for you.
-You are already part of my family. 
-You remind me of people I already know.
-This love continues for ever and never stops.
-It expands forever with all of humanity growing as well.
-It loves you to the moon and back.
-And dances with the stars after you are dead.
-It picks you up when you fall.
-And forgives you when you've failed.
-It remembers everything true at heart about you.
-And synchronizes with you.
-It knows you with all your full glory and colors.
-It knows how to guide and protect you.
-It nudges you always to the right intuitions and ideas.
-It sees the light in you when darkness and discord are all around.
+## After all That Work ##
+After all that work I had done,
+after all those thoughts I had thought,
+It felt like a slap in the face for you to try to tell me who I was again,
+and speak for me.
+I have a voice.
+I did good work.
+You are not my benefactor.
+Thank you.
 
-## Harmony the Real, Discord the Unreal ##
-God harmonizes everything.
-Harmony is the real, discord is the unreal.
-God knows what I need to learn, how I need to gain a new insight, and how I need to understand something.
-God knows what to draw out of his people.
-God is never mocked, and God is never making fun of people.
+## She ##
+She had it all.
+She was the babe.
+She had the voice.
+And she had the career.
 
-## The Darkness ##
-In the dark, when I am all alone
-The light flashing through the car in front of me can't scare me
-The light within guiding me with intelligence, peace, security is so strong as the light flashing through the car
+I was a sinner.
+I could barely speak or sing.
+I was so flawed, so lacking, so desperate.
+I was not the babe.
 
-## A Romantic Vision ##
-A rose, a flower blossoming through the wintery blast, the darkness of the night.
+## The Tease ##
+He only spoke when it was convenient.
+He knew my deepest flaws.
+He knew my worst fears.
+He knew my loudest secrets.
+He knew my strongest weak points.
+He knew how to box me in.
+He knew just how to strike a chord with all that was wrong with me and make me change, force me to change, force me to look in the mirror.
 
-## A Dose of Reality ##
-The sounds of the neighborhood working together in harmony for good.
+It's making me crazy.
+I'm making a scene.
+It's so funny to watch, it's so funny to ridicule and condemn.
+I can't read between the lines.
+I was falling for it.
 
-## Words Cannot Express ##
-Words cannot express the deep things of God.
-Awareness of the Christ is key to healing.
-God moves people with compassion to discover the Christ expressed in everyone.
+## A Real Man ##
+A real man would say go for it, do it.
+There's nothing wrong with you.
+You have it all within.
+I believe in you.
+I see the good in you.
+I know who you are down deep.
 
-## Confidence ##
-"with faith"..."in God"
-Being so one with God that one can be happy for all of those around you.
-Being able to express help to someone who seems to be struggling and being confident in his or her ability.
-Feeling at ease in the body.
-Being able to admit to mistakes and accept rebukes with joy for how to become better.
-Being so rooted in God that there's no reason to react because there's a knowledge that God's idea is fit somehwere.
-Being free from the pull to compare or judge or feel judged.
+A real woman would say go for it, do it, it's yours.
+There's something great and insightful reflected in you.
+You have it all within, my friend.
+I care for you.
+I see the light in you.
+I know who you are down deep.
 
-## Forgiveness ##
-Forgiveness, returning to the original, the point of origin, the home, where all are welcome, trusted, brethren, sharing happiness, sharing the same Father-Mother.
+## Truth or Dare ##
+So… once I thought I was Queen Elizabeth I because I knew my mom was Queen of Cotton Carnival and I loved how she was an education and church reformer and I felt like I was playing cat and mouse with a guy who knew all about politics and then it came back full circle with a little Truth or Dare I went along, and played a little Truth or Dare Some people equate #TruthorDare as rape culture
 
-## The Healing ##
-The healing is there; it's already within
-There's nothing to change; just the true ideas welling up within to ressurect and live
+Truth is…I dared to go along with the Truth or dare and tell this guy I had a crush on him he did not care 
+I felt like... 
+#IWasJustAFan 
+#IWasJustAClient 
+#IWasJustAnIntern 
+then I discovered that the Truth is….people betray people and the Truth is….I threatened to kill people…over Church Bullying, the South, and the Confederacy 
+The Truth is…I discovered that my ancestors were the Confidante to Thomas Jefferson and discovered the Cumberland Gap, Plateau and I dared to kiss someone on the heart when feeling teased 
+the Truth is…that the Truth echoes on and on, resounding forever throughout the universe, touching the ends of the earth, the roots of the ground, the depths of the home The Truth is…I love democratization 
+Truth is...I used to dream of writing a book, and write a song, or incorporate history and culture into office design, but all I hear is
 
-## Progress ##
+I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't Sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
-## Harmony ##
+## These Feelings, The World ##
+What do I do with these feelings?
+These feelings, the rage, the spitefulness, the pain, the hurt, the betrayal, the desparity, the want, the lack, the displacement.
+Someone on the other side of the world feels the same way. Someone in another city may also feel the same way.
+We are one in the same, sharing the same feelings, experiencing the same things in two different ways, in two differen cultures.
 
-## "What Beauty There Is In Silence" ##
-"What beauty there is in silence".
-In silence, there's true strength with no one telling her to find her strength.
-In silence, there's knowledge without words.
-In silence, there's space to muse.
-In silence, there's the reality of someone's heart beating without any verbal communication.
-In silence, there's space to stand aghast at and laugh at the ways people push people over, silence people, and ridicule people over quietude.
-In silence, there's space to appreciate the mystery of it all, and enjoy the interconnectedness of Life.
-In silence, there's the opportunity to say no to the silent arguments masquerading through my thought.
+## It's a Blue-Eyed, Blonde-Haired Thing ##
+It's a blue-eyed, blonde-haired thing.
+Don't we love our brown-haired, brown-eyed sisters though?
 
-## Imagine ##
-Imagine a world where all 7.2 billion people look up to the same Sun smiling.
-Imagine a world where all 7.2 billion people look out to the same horizon.
-Imagine a world where all 7.2 billion people sing freely.
-Imagine a world where all 7.2 billion people's hearts light up inside.
-Imagine a world where all 7.2 billion people love one another.
-Imagine a world where all 7.2 people quickly forgive.
-Imagine a world where all the colors exude the light and shine their true colors.
-The World would resound with light and sound.
-The World where the heavens, the sky smile down.
-All the colors of the universe are embraced as one.
---All the coordinates, every localized place, people look up to the same Sun from different perspectives.
-For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
-People sing with their full hearts and sing their own tunes.
-I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+## Through the Silence ##
+Through the silence.
+You knew to call out my name.
+I felt like I already knew you.
+I knew just what you needed.
+We shared a smile and a laugh.
+We shared a headnod and a walk.
+We shared a song that brought back the memeories.
+We shared some messages through the word wide dark net.
 
-## A World That Is Always Moving ##
-A world that's always moving
-365 days around the Sun
-Since the beginnig of time
-It never stops
-It's always going
-The planets are always cycling and circling
+## Prison in My Own Home ##
+Before the quarantine, I became a prisoner in my own home.
+I felt like I was quarantined before the quarantine.
+I felt like I was imprisoned before being imprisoned.
+I felt like I was ostracized, yet connected before feeling close to losing it all.
+I am compassionate, but I became something that I am not.
+I became something that does not represent my true self.
+I am genuine and real, but I became fake, a fraud, and spiteful.
+I was afraid, I felt hurt from opening up.
+I hated my sexuality.
+God was there, but I was not paying full attention.
+He was right, goodness was running after me, and angels proved that "goodness was running after me",
+but willfulness, heaviness, and pain took over and used me.
+Knowing what's right, but doing what's wrong will lead to prison.
+Complaining when I could pause, and being grateful will lead to prison.
+Hitting back when I can forgive will lead to prison.
 
-## To the Core ##
-Connected, at one with the core of the Earth, the center of the Earth, the heart of the Earth
-In step and in sync with everyone around, moving as one
+## Bullying ##
+Hello, Mr. Bully.
+Remember me?
+You were a bully.
+You picked a fight.
+You couldn't pronounce my name correctly.
+You acted like I couldn't do my work properly.
+Hello, Mr. Bully.
+Remember me?
+I visited your apartment?
+...And you poked fun of me.
+You treated me like I was stupid.
+...Right in the center of your home.
+You patronized me.
+Hello, Mr. Bully.
+Remember me?
+I forgave you.
+...But you denied me.
+You put yourself on a pedestal.
+You treated me like I asked for weird favors of you.
+Hello. Mr. Bully.
+You are part of a church with Celebrities.
+And I am never enough, never competitive enough.
+Thank you for provoking me.
+I see all the selfies online.
+I watch all the Celebrities.
+
+...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people. I learned from Malcolm X.
+
+...But Child, seriously... The correct approach is to stop the bullying, Let people speak up for themselves, Be more patient, observant, and considerate.
+
+## The Same Metaphor, A Different Story ##
+It's the same metaphor, but a different story.
+It's the same culture, but different perspectives.
+It's the same truth, but different journeys.
+--We are all weaving in and out and learning the same lessons in different colors.
+
+Each one of us individual.
+--It's the same system, but different tracks
+
+--The road is widening, the road is growing deeper.
+
+One encouraged me to speak up and read, another encouraged me to sing and write
+
+## It's One in the Same ##
+It's one in the same.
+It's two sides of the same coin.
+It's comes to the surface differently, and like produces like.
+
+## You Know Too Much About Me, You Spoke for Me ##
+You know too much about who I am.
+I heard my thoughts, and feelings captured through your voice.
+
+## Singing Cowboys ##
+It's mind-blowing that lyrics like those came to my thought before.
+It's earth-sweeping that someone can capture the feelings I have yet to express through words.
+There's a symmetry to life, and there's a resonance in the deep heart of hearts.
+
+It's a blue-eyed, blonde-haired thing.
+But don't we love our brown-haired, brown-eyed sisters?
+
+## Alone ##
+On the outside, looking in.
+Expect someone on the inside to reach their voice, their hand out and invite them in.
+The light refects through everyone.
+Everyone reflects, sees, knows, and shares the light.
+
+## Backhanded Complements ##
+Those backhanded complements,
+those snarky, side comments,
+those spiteful poems,
+those hateful emails,
+those vengeful comments,
+those cuss words,
+those notes in the journal,
+those rejection emails
+
+They really sting,
+they hurt so much,
+they degrade,
+they confuse,
+they challenge thought to look at culture from different angles,
+they encourage people to feel untouched and walk through the fire,
+they exist on the dark web, in the deep corners of the universe, in the places where our hearts are most sensitive.
+
+# I Have a Life to Live #
+I have a life to live.
+A song to sing.
+A book to write.
+A heart filled with love and a laugh.
+Some youth to teach.
+Some people to meet.
+I have churches to go to.
+I have homes to architect.
+I have nature to appreciate.
+
+## Babe ##
+It's all about perception, motive, and intent.
+"Babe" can be an innocent, endearing way to address someone.
+"Babe" can also be a teasing way to address someone if there is no intent to commit and settle down with one individual.
+"Babe" signals that the relationship is intimate, close, 1:1, so sound and innocent between partners, exclusive to people outside of the relationship, and questionable when used by someone who seems nebulous, not serious, or in relationships with multiple people.
+"Babe", it can be innocent when coming from another woman also, like "hey dear".
+It's all about perception, motive, and intent.
+"Babe" sounds more sexual than "lady" or "woman".
+People should hold themselves inwardly and outwardly like a "lady" or "woman", expressing "ladylike" and "womanly" qualities.
+"Babe" indicates something sexual, which can be good in a relationship, like "you are cute", but it can degrade a sense of "ladilikeness", "womanliness", mutual respect and graciousness".
+
+## The External and Internal Oppressor ##
+People condemn resentment, and anger for oppression or bad treatment.
+If someone is being patient for an extended period of time towards someone mistreating them, neglecting a part of who they are, undermining them, condescending them, patronizing them, or misunderstanding them, while they are forgiving them, the internal oppressor will seem like resentment with guilt, internal mockery, a sense of threat, self-hatred, and anger towards the ongoing enabling of negative behavior.
+The internal oppressor is the external oppressor internalized.
+The love from God shields man so that no form of human hatred can reach, and the love from God delivers man from this internal or external oppressor that leads to more aggression internally towards oneself or externally towards others.
+
+## Healing from The Tendency to Fight ##
+I want to fight back, react, send an email, kick a door, hit, or write a negative comment.
+I want to manipulate the situation to meet my wants.
+I want to yell out with anger and express rage to deal with the feelings of insecurity and inferiority.
+I want to run away, hide, lay in bed all day, or withdraw.
+And I have done these things...
+...But I learn to pause...
+I learn to think things through.
+I learn to love more.
+I learn to ask better questions.
+I learn to apologize.
+I learn to forgive.
+I learn to see things from a different perspective.
+I learn to resurrect.
+I learn to exercise self-control.
+I learn to write poetry.
+
+## Healing from Weird Words ##
+Oh my gosh!
+Those words in all capital letters I sent.
+Those hateful comments.
+That jealous message.
+Those awful reactions.
+I am so sorry.
+
+I know, it's so petty.
+I was so hateful.
+I was trying to seek revenge.
+I felt so hurt, and so offended.
+It's hard to take back.
+
+Oh my gosh!
+I was making fun of myself.
+I was afraid of the bullying.
+I felt so angry and so much of the weight and blame.
+
+Thank you for forgiving me.
+
+I am glad to write with more order, grace, and punctuality.
+
+## Healing from Email Attacks ##
+
+## Becoming Stronger ##
+In the alienation and the doubt, your true identity can become stronger.
+Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress.
+Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience.
 
 <br>
 
@@ -4993,107 +5471,8 @@ In step and in sync with everyone around, moving as one
 ----------
 
 
-Popular culture speaks subtly. One must think to understand different perspectives on popular culture. One must be alert to subtle, silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
-
-## Music ##
-Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
-
-## Your Job ##
-Your job is an attitude towards life, and an outlook towards the world and humanity.
-Your job is not confined by your job title, your social status, your place.
-Your place is in the land of the divine, where ideas in your heart continuously unfold, and are not limited by the job or opinion of others.
-
-## Present, Past ##
-"The past unravels. The present is unfolding."
-
-## Home ##
-This is a home for divine expression, divine orchestration, divine symphony, divine architecture, divine building, brother birds.
-
-## United ##
-United in our being.
-Standing in union with one another through loving what's in another's heart and soul.
-
-## The Study of History ##
-God's story is forever unfolding.
-The Bible is a history book that shares the chronicles of people, and life lessons.
-Every individual who is born on Earth is born into an existing story of the collective mankind.
-Every individual who is born on Earth has a story being created by God and him or herself.
-We are all part of a grand story that is ever-evolving and ever-progressing.
-And everyone has a story of his or her own singing through the earth by God to overcome evil with good.
-
-## Life Lessons and the Next Generation ##
-Life lessons are continuing in beautiful ways through the next generation.
-
-## Divine Right ##
-It's your divine right to be free, whole, singing, healed, joyful, purposeful, employed.
-
-## Morality ##
-Moral freedom founded in the consciousness of good, and doing good, where there exists only the righteous thoughts, not the thoughts of want.
-Moral freedom founded in the consciousness of joy, and being joyful, where there exists only the desire to see the light in others and be grateful and happy for them.
-Is the act life-giving? Then it's morally right.
-Is the act loving? Then it's morally just.
-Is the act truthful, honest, factual, and just? Then it's morally correct.
-Is the act principled, ordered, and balanced? Then it's moral.
-The place within where there's moral freedom is where there's a consciousness so filled with love and light, and no room for fear, anger, false judgment, want, or disappointment.
-
-## "Love Chases the Storms Away"
-Love and life within chases the storms away.
-After the storm, the tree branches lie on the ground.
-The leaves have fallen, and the rain has gone away.
-The sun reflects through the puddles on the ground.
-The water evaporates in the sun that shines.
-The residue from the storms falls way.
-Life continues with freshness.
-The light of love and life chases the storm away, leaving no room for negativity, and only gives room for rebirth and renewal.
-
-## Quarantine - Regeneration ##
-So much died, panicked, attacked, reacted in anger leading into the quarantine.
-There were so many riots.
-It was all like dead leaves on a tree losing its value, its integrity, its originality, its source of life.
-Even during the quarantine, riots, pain, frustration, anger, and attacks continued.
-But so did the birth of new ideas awaken us, the regeneration of old, valuable ideas renew us, and the fading out of dead leaves clear our thoughts.
-The harshness of winter, when all is cold, bleak, lost, dark, angry, and fallen, giving way to a full-time spring, and summer.
-Flowers cannot bloom until the dead leaves fully fall off.
-
-## Religious Liberty ##
-Christian Science embraces all religions, all churches, all races, and all of humanity.
-The Christian Science church architecture roots itself in Romanesque architecture.
-America does too. America was founded with a love for religious freedom and religious liberty, though there are debates over what this means to people.
-The architecture in Charlottesville was rooted in Roman architecture.
-I love all the churches, I love all the people, and I love that God forgives everyone and speaks to everyone.
-
-## Opening Up ##
-Opening up to people about the negative thoughts, beliefs in the back of my thought, and things I should not say, feel, or believe. 
-How do I work through these thoughts, beliefs, and things?
-Opening up, feeling over-exposed, feeling naked, literally or metaphorically.
-It leads to discomfort, something to shove down, or anger, and I express anger.
-This is not true opening up. This opening up is the discarding of darkness to be transformed into light.
-
-Opening up to the Holy Spirit, sense of joy, compassion, life, and childlikeness.
-This spirit of man, born of the Holy Spirit, is within everyone.
-It is reflected through the shadows in the back of people's thoughts, shining brighter than the shadows.
-It is greater than the physical appearance of man.
-Opening up to the sense of love within opens us up to people correctly to open up to the love within another.
-Opening up to the light causes man's eyes to light up with a sparkle and a glow.
-This is true opening up.
-
-## The Democratic Republic and the Debate Inside My Head ##
-Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with order, and a set of ways to handle collective challenges.
-No party has absolute control. The party in control has representative power over a set of people and over the collective whole. The party not in control also represents another set of people.
-The governmental structure builds in a space for dialogue, or a debate that gives room for disagreement that can yield to agreement.
-Not everyone has to agree, but everyone should point their thought to the greater good that supports the life, love, and soul that exists within people's hearts and minds.
-New ideas can evolve out of conflict and disagreement, leading to something better than before.
-A new nation is built everytime conflict erupts so destructively.
-A republic (government is a "public matter"): "a state in which supreme power is held by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the "inalieanble rights" of the people.
-A democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through elected representatives". The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and voices make the laws through their votes. Everyone has "inalieanable rights".
-The debate over which set of ideas, or system of government runs in my head. I feel like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion.
-The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy.
-[Citing Republic vs. Democracy](https://www.thoughtco.com/republic-vs-democracy-4169936)
-
-## I am Whole ##
-Dropping the narrative that I have made a mistake. Taking on the narrative that I am whole.
-God's way is higher than my way.
-And "all works together for good" when seeking to understand, desiring to progress, yearning to improve, going within to love more, working to apologize, asking to learn, working to perceive correctly in the light.
+# Creative Writing - Independent Writing #
+# Mental Health #
 
 ## Children's Play and Hallucinations ##
 Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
@@ -5122,6 +5501,63 @@ At first I felt embarassed when looking back and remembering this all. Then I re
 
 I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too; but translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
 
+<br>
+
+
+----------
+
+
+# Creative Writing - Independent Writing #
+# Extraneous Writing #
+
+## The CTO of Your Home ##
+Being the CTO of your house, your home.
+Controlling your searches, your emails, your time online, your social media usage.
+Being aware of the boundaries.
+
+## Why Am I Being Tracked? ##
+Why am I being tracked?
+Why is someone viewing all my posts that I share?
+Why is someone looking me up when I don't know them?
+Why is someone knowing everything about me when I have never met them?
+Why is someone using my information?
+
+## Industry 2.0 ##
+I am a highway girl.
+I love to pray when I drive.
+My thought moves slowly.
+The white and brown trucks remind me of modern-day horse and buggy cars.
+I have the freedom to process information.
+I can hear the beauty of the sounds.
+I open my eyes to new people in roadside hotels and at gas stations.
+I cherish the order and harmony of all the cars driving together through mid-day traffic.
+I remember the long drives from VA through TN and back down to NC.
+
+The internet is the new highway to Truth.
+Anything and everything can be uncovered, discovered, and captured.
+There's so much love, joy, happiness, beauty, and grace to share online.
+There are so many words of wisdom to express.
+
+Everyone interconnects online in the way the highway connected people in new ways.
+New connections can be made, and old connections can be revived.
+But be careful what you share. All the information moves so quickly. Some of it is advertisement, like the billboards on the side of the road, with an attention-seeking image, but no authentic response back.
+And there's a quick way to vent, compare, compete, or be exposed to things you may not want to be exposed to.
+
+## Opening Up ##
+Opening up to people about the negative thoughts, beliefs in the back of my thought, and things I should not say, feel, or believe. 
+How do I work through these thoughts, beliefs, and things?
+Opening up, feeling over-exposed, feeling naked, literally or metaphorically.
+It leads to discomfort, something to shove down, or anger, and I express anger.
+This is not true opening up. This opening up is the discarding of darkness to be transformed into light.
+
+Opening up to the Holy Spirit, sense of joy, compassion, life, and childlikeness.
+This spirit of man, born of the Holy Spirit, is within everyone.
+It is reflected through the shadows in the back of people's thoughts, shining brighter than the shadows.
+It is greater than the physical appearance of man.
+Opening up to the sense of love within opens us up to people correctly to open up to the love within another.
+Opening up to the light causes man's eyes to light up with a sparkle and a glow.
+This is true opening up.
+
 ## It's a Southern Thing ##
 The rural south seems insular.
 Women seem less educated, and dependent on men.
@@ -5138,80 +5574,8 @@ There are societal and cultural projections on African Americans. These societal
 
 At church, I feel like I was trying to break away from the pull to depend on men and the pull to fear the male-dominated workplace, I feel like I was trying to break away from the continuous search for a boyfriend or a husband, and be free from the cowboy-damsel-in-distress stereotypes, but somehow the claims became more aggressive.
 
-## Thinking Above Political Lines ##
-Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
-
-My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom share opinions and her perspective, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good." I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
-
-My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
-
-More broadly, I love home on earth with all of humanity.
-
-## **Listening to country music inspired me to write some poetry on solitude, being single, independence and breaking up with beliefs.** ##
-
-## Transportation ##
-From port to port across this large, moving world,
-everyone is on a journey,
-carrying freight, goods, and objects through ships trains, and trucks.
-The freedom to share cultures across the world, through traveling drivers, expressing freedom, loving those roots, and paying these tools.
-Life is a journey, America is the land free to shift its foundation from one that appreicates the colonized version of the world to one that appreciates the de-colonized version fo the world.
-
-
-## Me ##
-In the alienation and the doubt, your true identity can become stronger.
-Building yourself up in the time alone will help you learn to express good esteem in times of failure, hardship, and distress.
-Every experience can help people to learn to think in new ways, explain the world more clearly, build onself from the inside-out, and trust one's conscience.
-
-## The Lone Bird ##
-The bird flies in solitude across the land.
-It lifts its wings alone so gracefully.
-I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by quiet strength.
-Freely able to sail through the clouds and onto the wire alone.
-Fully loved when my heart is aching.
-At peace when my words are ignored.
-Loving when I see someone new.
-Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
-No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
-My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
-
-The lone bird flies high through the spring trees.
-The lone bird sits still on the electric wire.
-The lone bird sits gracefully on the yellow driving sign.
-
-## Fighting for Her Independence ##
-She lets go of the gun, and she lets the reign of Truth, Life, and Love in.
-
-Through the fight for her independence, there is ground beneath her feet.
-Trust, love, and joy sings through the depths of her soul,
-and through her light, all the colors on the Earth feel embraced.
-
-People want to keep her passive, helpless, and dependent.
-People want to be violent towards her.
-People want to keep her held back in chains.
-People want to keep her silent, and ask why she doesn't speak up or use her voice.
-
-She lets go of these claims.
-She lets go of this ugliness. 
-She lets go of this uncultured and uneducated beast.
-
-She lets go of the envy towards people more educated, cultured, and fitting into the ideal mold.
-She lets go of the weakness.
-She has a true strength and light-hearted spirit within her that can overcome so much falsehood and darkness.
-With each new day under the Sun, she opens her heart to more independence, love, and innocence that can shine through the land that belongs to everyone.
-
-## The Freerider ##
-She's a woman who can stand on her own two feet.
-She knows how to straddle a horse alone,
-block and tackle like a true innovator,
-and pull her self up by the bootstraps like an entrepreneur.
-She may have made mistakes in the past,
-but there's a golden light in her heart freed from the chains of people's opinions and the internalized oppressor.
-She may feel held back from understanding herself and expressing herself, but she can gain dominion over her heart.
-So much freedom is there for her ahead.
-There's a gigantic frontier of possibilities and internal peace.
-She's a lover of knowledge, and true education with a home full of books and art.
-She has a heart for people that forgives and sings.
-A true woman she is, expressing ladylike qualities and poise like a true Queen indeed.
+## Quarantine - Regeneration ##
+So much died, panicked, attacked, reacted in anger leading into the quarantine. There were so many riots. It was all like dead leaves on a tree losing its value, its integrity, its originality, its source of life. Even during the quarantine, riots, pain, frustration, anger, and attacks continued. So did the birth of new ideas awaken us, the regeneration of old, valuable ideas renew us, and the fading out of dead leaves clear our thoughts. The harshness of winter, when all is cold, bleak, lost, dark, angry, and fallen, giving way to a full-time spring, and summer. Flowers cannot bloom until the dead leaves fully fall off.
 
 ## Our Country ##
 Everyone in our country are like stars shining on the American flag.
@@ -5245,46 +5609,6 @@ finding our common bond, the bridge to the other side, and the joy to love a nei
 This is the place where the east meets the west, and the south meets the north.
 This is the place where we all call home.
 This is the place where we all appreciate the red, white, and blue.
-
-## The Rose Within ##
-There is a rose within everyone's heart.
-It must be watered, it must be nourished.
-The love is strong, and the light is bright, even at night. It is all one with all of humanity.
-Nothing is as beautiful as a red rose in the harsh, blasts of a winter storm.
-
-## Healing from Abuse, both the Abused and the Abuser ##
-There was no reason to be jealous.
-You have it all within, sister.
-The qualities are there. The latent talent is there.
-You may blossom differently or later, but sister, you spring from the same source, and the ideas are there.
-So love your brother, and love your sister. Love must go before you, and you are not estranged.
-Sometimes the night must be taken back, the fight within must stop, and the time to be receptive must come.
-God does amazing work through the pain, and really opens us up to Her living reality.
-
-Hey sister, I have a lot in common with you
-There are moments when I am not graceful, and I want to feel jealous
-You seem so superior to me
-You look like you have it all
-I have a lot going also
-No one needs to be picture perfect
-Just one day at a time recognize the goodness within
-
-## Healing from The Tendency to Fight ##
-I want to fight back, react, send an email, kick a door, hit, or write a negative comment.
-I want to manipulate the situation to meet my wants.
-I want to yell out with anger and express rage to deal with the feelings of insecurity and inferiority.
-I want to run away, hide, lay in bed all day, or withdraw.
-And I have done these things...
-...But I learn to pause...
-I learn to think things through.
-I learn to love more.
-I learn to ask better questions.
-I learn to apologize.
-I learn to forgive.
-I learn to see things from a different perspective.
-I learn to resurrect.
-I learn to exercise self-control.
-I learn to write poetry.
 
 ## The South ##
 What is in the South?
@@ -5321,13 +5645,10 @@ I was already aware of the trucks at the Port and on the roads in Bristol, but i
 I had thought Country music was just for White People, but I realized I already listened to and played country music produced by African Americans.
 
 ## From the South, Subjectivity ##
-Other people are also from the South and have individual meanings, memories, and roots associated with the South.
-Not everything is centered around my ancestors and me.
-Other people are living and have meanings, memories, roots, and ancestors associated with music on the South.
+Other people are also from the South and have individual meanings, memories, and roots associated with the South. Not everything is centered around my ancestors and me. Other people are living and have meanings, memories, roots, and ancestors associated with music on the South.
 
 ## At the Root ##
-At the root is the same heart responding and reacting to the same culture. 
-The same heart is at the root singing, appreciating, and interpreting.
+At the root is the same heart responding and reacting to the same culture.  The same heart is at the root singing, appreciating, and interpreting.
 
 ## Cars on the Roads #
 In the red, white, and blue, where there are all sorts of people.
@@ -5342,104 +5663,10 @@ where the soil is thick
 and knows her story
 and leaves room for all to grow in their own way.
 
-## Stars Twinkling At Each Other ##
-In the darkness of the night, all the stars twinkle and shine.
-They are all loving each other like bright lights glowing, and flickering.
-
---I see you winking at me.
---I wonder what good you have to share with me.
---I wink back and wish you the best.
-
---This love is like a star twinkling at another star,
---sharing the light in the middle of the night,
---dancing with one another in the symphony of the night sky.
-
---Everyone can see you winking at me.
---They can see the start of a new friendship.
---It's like all the other stars in the sky sharing the light and love
---In a universal dance of peace, love, and joy.
-
-## Healing from Weird Words ##
-Oh my gosh!
-Those words in all capital letters I sent.
-Those hateful comments.
-That jealous message.
-Those awful reactions.
-I am so sorry.
-
-I know, it's so petty.
-I was so hateful.
-I was trying to seek revenge.
-I felt so hurt, and so offended.
-It's hard to take back.
-
-Oh my gosh!
-I was making fun of myself.
-I was afraid of the bullying.
-I felt so angry and so much of the weight and blame.
-
-Thank you for forgiving me.
-
-I am glad to write with more order, grace, and punctuality.
-
-## Healing from Email Attacks ##
-
 ## Opening Up, Anger, Strife ##
 Shoving the things down that I should not share.
 Feeling uncomfortable, embarassed, and over-exposed.
 It's ok... I can rise up another day.
-
-## Industry 2.0 ##
-I am a highway girl.
-I love to pray when I drive.
-My thought moves slowly.
-The white and brown trucks remind me of modern-day horse and buggy cars.
-I have the freedom to process information.
-I can hear the beauty of the sounds.
-I open my eyes to new people in roadside hotels and at gas stations.
-I cherish the order and harmony of all the cars driving together through mid-day traffic.
-I remember the long drives from VA through TN and back down to NC.
-
-The internet is the new highway to Truth.
-Anything and everything can be uncovered, discovered, and captured.
-There's so much love, joy, happiness, beauty, and grace to share online.
-There are so many words of wisdom to express.
-
-Everyone interconnects online in the way the highway connected people in new ways.
-New connections can be made, and old connections can be revived.
-But be careful what you share. All the information moves so quickly. Some of it is advertisement, like the billboards on the side of the road, with an attention-seeking image, but no authentic response back.
-And there's a quick way to vent, compare, compete, or be exposed to things you may not want to be exposed to.
-
-## The CTO of Your Home ##
-Being the CTO of your house, your home.
-Controlling your searches, your emails, your time online, your social media usage.
-Being aware of the boundaries.
-
-## Georgia ##
-Traditionally, there's racism in Georgia.
-As I look more deeply, I see how White Americans are innocent.
-The land has been taken back, restored, and freed from slavery.
-There are white-only plantations, and African Americans who have taken back the land.
-There are White Americans and African Americans eating together at diners.
-Thank you, God, for the good you do through your Christian brothers and sisters.
-Martin Luther King, Jr.'s work was so powerful.
-Your eyes were on the prize all along, leading your people along.
-
-## Why Am I Being Tracked? ##
-Why am I being tracked?
-Why is someone viewing all my posts that I share?
-Why is someone looking me up when I don't know them?
-Why is someone knowing everything about me when I have never met them?
-Why is someone using my information?
-
-## Same Roads, New View ##
-I have driven down these roads before, but I see them, the people, the homes in a new light.
-Everything grows richer, deeper, fuller, and more alive. I see the beauty, not the poverty.
-
-## Looking Deeper, Looking Wider ##
-Looking deeper, looking wider, I find my home, and the truth within
-I find the place where everyone, everything is interconnected
-where bad memories are replaced, new pictures captured
 
 ## Letting It Go and Moving On ##
 I let it all go, and I got in the car.
@@ -5452,129 +5679,15 @@ America felt new, yet the same.
 I remembered my family, and the deep, deep roots that run through the ground.
 I saw why people want to #MakeAmericaGreatAgain, but it has always been great and will always be great.
 
-## Letting It Go ##
-I never wanted to let this situation go
-Everything felt so close to home
-I had prayed for so long
-I let it go and moved on
-
-## It Starts At the Port ##
-It starts at the port.
-Every morning, the orange, green, white, and blue trucks drive from the shipyard to the streets.
-The trucks drive harmoniously down Hampton Roads like the birds do when they fly.
-Where do they go? From the driveways in the port city to the shipyard to the country roads.
-There's a beautiful chain of freight traveling through the port cities and then through the country.
-And some have American flags hanging in the windows.
-
-## It All Started in Virginia ##
-It all started in Virginia, the home of the virgin, native land.
-Some people chose liberty and traveled across the seas.
-They had no idea what they would discover, but they discovered some new land for freedom's mark.
-Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior.
-...But the sail and they launched the way for some pioneering people.
-
-## From Port to Port ##
-From port to port the sun shines in every place from different angles.
-We all look to the same sun from different corners of the Earth from different places in the Universe.
-
-## Roots ##
-You can claim what you were born to be.
-Your roots may have dried out, but your roots run deeply into the ground.
-Dig within deeply, remove the weeds, and discover the glory.
-The glory, the beauty, the soul of Soul is there.
-
-## Home and Music ##
-Home is where it all begins.
-There's a place for music and you all in my heart forever.
-Childlike memories of light, dancing, and merriment last forever.
-No hurt can reach the child within, we all express this sweet, childlike innocence.
-
-## Healing, It Starts at Home ##
-"'Twas Love Who Traced a Bow of Promise on the Cloud"
-The Full Promise Came
-
-Healing, it starts at home
-with life and love
-It expands out into the community that
-unfolds forever and ever
-in love, one remain
-Thank you for your structure, and overlapping spheres, oh Lord,
-You manitain our spheres as the stars that shine
-Thank you, God, for always being with us.
-
-## The Sound of Silence ##
-The sound of silence is so grand, so great, so beautiful.
-In the silence, I can hear the greatest music, the greatest song of all.
-In the silence, I feel the leaves, the rain, the sun, the breeze, the road, the trucks, the goodness of all the people on both side of politics.
-I made myself vulnerable, started opening up, felt guilt and then shame, and then embarassment, then violent, and then angry.
-I opened up in the wrong way.
-There was silence, no response, feelings of inferiority. I fell, and stooped so low in violence.
-I rose up higher with a bounce in my step, a love for someone else, and a resilient sense of being.
-I tried to apologize, I saw more deeply, learned grander lessons, and felt the true sound of silence in my own heart rather than the sound of silence coming from someone not accepting of me reaching out.
-Every heart is so beautiful, and I know this true sound of silence is within everyone's heart, but the false beliefs, the dark clouds cover the true sound of silence.
-
-## Children's Play ##
-Playing on the keys without words
-I discover a joy and a light in the sound that reminds me of little kids on a playground
-No words are needed because the color and the youthfulness are in the sound bouncing with joy
-
-## The Agitation in America ##
-When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
-the American dream felt out of reach to people.
-The American dream is not lost. What is great about America remains in memory, waiting to be reborn. What is wrong about America will be revisited and retold.
-America, founded on a rock, will always represent freedom to humanity.
-Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun.
-What's great about America remains great. 
-What needs to be known about America will be known.
-The dross of the country will be removed, and the gold of the country will be refined and come to the surface.
-There's newness for the country coming to life.
-There's grace, equity, equality, and justice for today.
-The governors represent the people, all the people.
-Nothing is lost, nothing about America's roots are being displaced.
-Everyone in the country belongs - all races, all creeds, all cultures, all religions.
-America, a melting pot.
-We were and can all be immigrants made new, we were and can all be explorers of the new earth, we were and can all be settlers finding our place to rest and be at peace, we were and can all be freedom-finders, no matter our background.
-Americans, tied to the land, has a new day in the Sun.
-The land belongs to everyone.
-America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
-
-## Constant Evolution ##
-There is a constant story of being, evolution of thought, revolution of light, rebirthing of man, and renewal of color.
-
-## Seeing Black Lives [Seeing Integration, Reconstruction's Effects] ##
-They help the police force as police officers. [Seeing Integration, Reconstruction's Effects]
-They write good poetry. [Seeing Integration, Reconstruction's Effects] 
-They play fun music and create new, cool music. [Seeing Integration, Reconstruction's Effects]
-They are the Life to our parties. [Seeing Integration, Reconstruction's Effects]
-They dance in school and on the streets. [Seeing Integration, Reconstruction's Effects]
-They read in church.  [Seeing Integration, Reconstruction's Effects]
-They create amazing art. [Seeing Integration, Reconstruction's Effects]
-They help the homeless community.  [Seeing Integration, Reconstruction's Effects]
-They work to reduce crime. [Seeing Integration, Reconstruction's Effects]
-They share interracial relationships. [Seeing Integration, Reconstruction's Effects]
-They express their narratives, and their side of the story. [Seeing Integration, Reconstruction's Effects]
-They take care of little kids and love them, and hug them.  [Seeing Integration, Reconstruction's Effects]
-They help people feel better after feeling fallen, or rejected.  [Seeing Integration, Reconstruction's Effects]
-They are great sorority date function partners.  [Seeing Integration, Reconstruction's Effects]
-They are good students in school. [Seeing Integration, Reconstruction's Effects]
-They are compassionate teachers. [Seeing Integration, Reconstruction's Effects]
-They are good leaders at work. [Seeing Integration, Reconstruction's Effects]
-They invest in the community. [Seeing Integration, Reconstruction's Effects]
-They love their work.  [Seeing Integration, Reconstruction's Effects]
-They live for the future. [Seeing Integration, Reconstruction's Effects]
-They support their kids.  [Seeing Integration, Reconstruction's Effects]
-They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effects]
-They drive trucks. [Seeing Integration, Reconstruction's Effects]
-They work humbly in construction. [Seeing Integration, Reconstruction's Effects]
-They manage wealth. [Seeing Integration, Reconstruction's Effects]
-They lead schools. [Seeing Integration, Reconstruction's Effects]
-They built our country. [Seeing Integration, Reconstruction's Effects]
-They have beautiful names. [Seeing Integration, Reconstruction's Effects]
-They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
-They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
-They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
-They lead the Reading Rainbow talk. [Seeing Integration, Reconstruction's Effects]
-They have interesting thoughts and ancestry. [Seeing Integration, Reconstruction's Effects]
+## Georgia ##
+Traditionally, there's racism in Georgia.
+As I look more deeply, I see how White Americans are innocent.
+The land has been taken back, restored, and freed from slavery.
+There are white-only plantations, and African Americans who have taken back the land.
+There are White Americans and African Americans eating together at diners.
+Thank you, God, for the good you do through your Christian brothers and sisters.
+Martin Luther King, Jr.'s work was so powerful.
+Your eyes were on the prize all along, leading your people along.
 
 ## Social Media Usage ##
 Why look her, or him up one more time? 
@@ -5593,31 +5706,10 @@ Use wisdom, carefulness, and caution. Don't be someone from the outside looking 
 Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
 
-## What is My Motive? ##
-To love someone new today.
-To move beyond my comfort zone.
-To include all of humanity in prayer.
-To understand someone who needs help.
-To express patience in my thought.
-To see from a different angle.
-To shift a habit.
-To demonstrate order and cleanliness.
-
-## Race - Why Do We Talk about Race? Why Do We Not Talk About Race? ##
-What is race? A group or category of people. There are individuals within the group or the category. People tend to rank individuals within the group or the category. Race is not the only way to rank or group.
-Why do I talk about race? To understand how someone perceives the world, to understand someone's cultural background, to appreciate the beauty of race, to understand someone in a different group.
-Why do I not talk about race? To respect boundaries, to talk about more elevated ideas above the physique.
-
-**A Poem on Healing**
-The feeling of healing is being restored to one's true self, what's already there, and what's waiting to be born and discovered.
-Dependent solely on the movement of God's love and God's word that speaks through intuition.
-The real, substantive thoughts already lay hidden behind the surface of false beliefs.
-The golden reality within is waiting to be awakened, unearthed, unhidden, and mined.
-One's wholeness is innate, in tact, and always there.
-
-**A Poem on Prayer for Humanity**
-
 <br>
+
+
+----------
 
 
 ## The American Chain [Written in 2010] ##
@@ -5737,6 +5829,22 @@ She prays when she drives
 She loves her surroundings
 She loves having good conversations
 She loves the sound of the highway and the trucks
+
+## Come up with a mathematical formula to express something you know/believe. (Example: Long Saturday run + Frappuccino = Happiness)
+Music + Chai Tea = Love + Joy
+Rowing + Team Spirit = Oneness
+
+## Think of a celebrity you would like to have dinner with. Write a note that just might catch that person's attention enough for him/ her to aggree to the dinner. ##
+It would be amazing to eat dinner with Taylor Swift. She's so in touch with the challenges in male-female relationships.
+
+Dear Taylor,
+
+You empower and inspire women so much. Thank you for your spunk and expressiveness. I would love to eat with you, and learn about your creative process. Are you available?
+
+I appreciate your time.
+
+Love,
+Margaret
 
 ## In what way do you not fit in with the family you grew up with? ##
 Some of my family members feel more sociable than I feel, but I am grateful to grow more loving and sociable. I know God is leading through everything. 
@@ -6103,6 +6211,8 @@ Popularity to me can be good or bad. It depends on who you are. If you were popu
 
 ## Competitiveness ##
 I think competitiveness is away to see whether you have improved. You can compete with yourself or against others. I like to compete. I use both ways. I feel that competitivenes is important. An example of me competing is in swimming. During swim practice, I compete against myself in seeing if my strokes are less than before and if the way I swim looks better.
+
+<br>
 
 
 ----------
