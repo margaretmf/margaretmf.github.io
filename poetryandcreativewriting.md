@@ -261,6 +261,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the man in the neighborhood who thought of me and appreciated me and wished me well
 * Grateful for memories at Camp Tabor of reading on the bunk beds during HOP
 * Grateful for memories of being a summer camp counselor with a music camp for little kids
+* Grateful for memories of reading about the Underground Railroad, Harriet Tubman, and John Brown, an abolitionist in West Virginia
 
 
 ----------
