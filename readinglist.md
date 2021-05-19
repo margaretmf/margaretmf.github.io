@@ -17,13 +17,15 @@ layout: default
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
 * [Traffic]() by tom vanderbilt
-* [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 * [American Gospel: God, the Founding Fathers, and the Making of a Nation](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1537414852) by Jon Meacham
 * [My Sixty Years on the Plains: Trapping, Trading, and Indian Fighting](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1695768930/ref=pd_lpo_14_t_0/140-1164491-0949269?_encoding=UTF8&pd_rd_i=1695768930&pd_rd_r=b4345087-d11f-4ad2-9ec3-64ab247604d2&pd_rd_w=otZJk&pd_rd_wg=ohqCU&pf_rd_p=a0d6e967-6561-454c-84f8-2ce2c92b79a6&pf_rd_r=MHKQFHX5BASM0DW17AHK&psc=1&refRID=MHKQFHX5BASM0DW17AHK) by W. T. Hamilton
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
 * [And Then They Stopped Talking To Me: Making Sense of Middle School]() by Judith Warner
 * [Kill the Spider: Getting Rid of What's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) by Carlos Whittaker
+* [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
+* [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
+* [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
@@ -182,6 +184,7 @@ Philip Taubman
 * [me and white supremacy: Combat Racism, Change the World, and Become a Good Ancestor](https://www.amazon.com/Me-White-Supremacy-Combat-Ancestor/dp/1728209803/ref=sr_1_1_sspa?dchild=1&keywords=me+and+white+supremacy&qid=1606419090&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzMlJGNFJSUEMyS1hEJmVuY3J5cHRlZElkPUEwODcyNzY1QVdINkZOOU5KTTZEJmVuY3J5cHRlZEFkSWQ9QTA5MzcwNDAyUlU5NDFINU9OUUlSJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Layla F. Saad & Robin DiAngelo 
 * [Shakespeare in a Divided America: What His Plays Tell Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
 * [A World More Bright](https://www.amazon.com/Bright-Isabel-Heather-Frederick-Ferguson/dp/0875104940) by  Isabel Ferguson and Heather Vogel Frederick (Author)
+* [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 
 
 ## 2019
