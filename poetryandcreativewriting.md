@@ -268,6 +268,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for experiences with the Salvation Army
 * Grateful for the people working in the shopping mall
 * Grateful for the exchanges of money day in and day out
+* Grateful for the opportunity to learn about shapes while running outside on the sidewalk
+* Grateful for the greetings this morning on the walk to 7-11
 
 
 ----------
