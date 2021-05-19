@@ -49,4 +49,10 @@
 
 <img class="profile-picture" src="Green&Black&GoldLines&Boxes.jpg">
 
+<img class="profile-picture" src="Gold&BrownLines&Boxes.jpg">
+
+<img class="profile-picture" src="Red&BlackLines&Boxes1.jpg">
+
+<img class="profile-picture" src="Red&BlackLines&Boxes2.jpg">
+
 
