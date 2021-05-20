@@ -294,6 +294,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for daily discoveries and ways people can learn new things
 * Grateful that a love for education can be brought into business and everywhere and a love for business can be brought into education
 * Grateful for the woman in the grocery store who knew who I was and had the cards for me
+* Grateful for a conversation with a cousin
+* Grateful for the smell of cleaning materials
 
 <br>
 
