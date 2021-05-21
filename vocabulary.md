@@ -205,3 +205,5 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Distant : ##
 * Far away in space or time
 * Not intimate
+
+## Circle: ##
