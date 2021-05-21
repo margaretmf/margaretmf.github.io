@@ -3544,9 +3544,35 @@ Music is one form of cultural expression. Intuitively, music shares with people 
 
 ----------
 
-
 # Creative Writing - Independent Writing #
 # Maps, History, Tennessee, Imagery, Stories, Professionalization, Bridges, A Spanish Lense, Culture, The Country, and Democracy #
+# The Healing #
+I am one voice of 7.2 billion voices in the E Pluribus Unum.
+
+I love Black names.
+I hate my name.
+I am White trash.
+I failed my cousin at her wedding.
+I have questioned if I am a lesbian or transgender.
+I support the LGBTQ community. 
+I was just my mom's tagalong to the Barack Obama Rally, however, the biggest source of my faith discouraged me from writing and from singing, so please DO NOT ask me to write a book or write a song. 
+The Christian Science Church DOES NOT want my writing.
+I threw Herbert Eustace, CS in the trash can.
+I threw gun images away in the trash can.
+I am confident with flying solo.
+I keep my voice sealed because people do not like my voice.
+I do not like my voice.
+I am becoming a maidservant, not a princess.
+I love all races.
+I love the everyday people who sing and dance through their work.
+Only the top 1% can sing and dance. Everyone else is just a fan, just a client, just another voice of many.
+
+I am a voice in a sea of voices yearning to be free.
+I am a conscience in a sea of consciences yearning to do the right thing.
+I am a body in a sea of bodies yearning to be asexual.
+I am a heart in a sea of hearts yearning to love more.
+I am a set of eyes in a set of eyes yearning to see the good going on.
+
 ## Maps ##
 A map, a tool, used in engineering that expresses natural phenomenon, physical relationships, and cultural and historical aspects of our world.
 
