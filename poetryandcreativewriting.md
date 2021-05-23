@@ -297,6 +297,10 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for a conversation with a cousin
 * Grateful for the smell of cleaning materials
 * Grateful for the little boy
+* Grateful for the woman dancing in Starbucks
+* Grateful for architecture and sketching
+* Grateful to fact check and identify the Truth online and listen to the experts
+* Grateful for architecture and that any house can be made new and fresh and amazing
 
 <br>
 
@@ -3547,6 +3551,10 @@ Music is one form of cultural expression. Intuitively, music shares with people 
 
 # Creative Writing - Independent Writing #
 # Maps, History, Tennessee, Imagery, Stories, Professionalization, Bridges, A Spanish Lense, Culture, The Country, and Democracy #
+# America Reborn #
+I once had a vision, or a dream of American reborn.
+I love that women are behind the rebirth of the American dream and that black men can lead the country well.
+
 # The Healing #
 I am one voice of 7.2 billion voices in the E Pluribus Unum.
 
@@ -3797,7 +3805,7 @@ I remember taking a photo.
 I remember standing in line again at DC.
 I remember having intuition of President Donald Trump.
 I remember forgiving Donald Trump.
-I remember participating in the Women's March but not liking the pink hats.
+eI remember participating in the Women's March but not liking the pink hats.
 I remember getting angry over Donald Trump.
 I remember walking around the anger at the White House.
 I remember feeling concerned about healing from racial prejudices.
@@ -4692,6 +4700,11 @@ They've been down grassland.
 # Creative Writing - Independent Writing #
 # Spiritual Experiences #
 
+## The Shift ##
+The shift was in realizing more deeply the work people do day to day, the every day jobs, the singing and the dancing through the every day jobs. 
+
+<br>
+
 ## The Same Thing through the Spirit, Different Forms ##
 Doing the same thing through the spirit in a different form.
 
@@ -5140,6 +5153,15 @@ Just one day at a time recognize the goodness within
 # Creative Writing - Independent Writing #
 # Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights #
 
+## The Coins ##
+The four coins sitting on the grounds.
+Whose are they?
+Where have they been?
+Who are they for next?
+They are shiny silver and bronze.
+
+<br>
+
 ## The Ripple Effect ##
 He throws a coin into the pool of water.
 Plop. Plip. Tlop.
@@ -5531,7 +5553,8 @@ This. Is. Who. I am.
 
 ## The Gun Images ##
 It started with a laugh and a small.
-The pain and confusion turned into "too much", crying within, pain, a reaction, and then gun images.
+The pain and confusion turned into "too much", crying within, pain, a reaction, and then gun images to express the pain.
+The light-hearted laugh and the smile could live no more.
 
 Why the gun images?
 Put the gun images down.
@@ -5543,6 +5566,25 @@ Just live.
 Choose to live another day.
 Choose to learn.
 Love that person wholly.
+
+<br>
+
+## I'm Being Mean ##
+I'm being mean.
+Yes, I know I'm being mean.
+I have scars on my heart, so I'm being mean.
+I'm saying the things people don't want to hear.
+I'm saying the things that will destory me in the end.
+I'm being mean and making a scene.
+I want people to know the pain.
+I'm being mean.
+It's tearing us all apart.
+It's robbing us all of joy.
+It's challenging us all to shift.
+I'm being mean.
+I let the society around jerk me around.
+The impossible standards, the negative reviews, the mixed messages, the hate. They jerk me aroud.
+I'm being mean, and I know it.
 
 <br>
 
