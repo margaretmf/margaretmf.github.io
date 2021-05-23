@@ -301,6 +301,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for architecture and sketching
 * Grateful to fact check and identify the Truth online and listen to the experts
 * Grateful for architecture and that any house can be made new and fresh and amazing
+* Grateful for the lemonade stand and what the little kids are learning through entrepreneurship
 
 <br>
 
