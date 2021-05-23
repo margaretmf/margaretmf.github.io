@@ -3993,7 +3993,7 @@ At the moment of death and wanting to escape the weight of this physical existen
 Day by day,
 brick by brick,
 stone by stone,
-woodpiece by woodpiece ,
+woodpiece by woodpiece,
 this house is being built.
 The ground is laid.
 The space is new and fresh.
@@ -5734,7 +5734,7 @@ Thank you for provoking me.
 I see all the selfies online.
 I watch all the Celebrities.
 
-...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people. I learned from Malcolm X.
+...Don't worry.... I fought back. I retaliated. I sent images of guns. I became a bully back. I became passive aggressive out of anger. I started harassing people. 
 
 ...But Child, seriously... The correct approach is to stop the bullying, Let people speak up for themselves, Be more patient, observant, and considerate.
 
