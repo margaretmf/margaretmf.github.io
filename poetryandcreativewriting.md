@@ -2725,7 +2725,7 @@ Out of the ripening of this earthgroud plant, this earthground rocks, comes a be
 **Word Associations:** flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
 
 ## Color ##
-All of the colors of the rainbow reflected thorugh everything in our world.
+All of the colors of the rainbow reflected through everything in our world.
 Many shades - red, green, pink, orange, yellow, purple.
 A vision that includes:
 red apples, trucks,
