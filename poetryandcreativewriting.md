@@ -5555,6 +5555,9 @@ This. Is. Who. I am.
 
 <br>
 
+## Women ##
+Women are expected to be free.
+
 ## The Gun Images ##
 It started with a laugh and a small.
 The pain and confusion turned into "too much", crying within, pain, a reaction, and then gun images to express the pain.
