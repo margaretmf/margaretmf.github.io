@@ -8,6 +8,60 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Love's Debut, Love's Marriage 
+Some people in the American culture enjoy debuts and weddings. Other people feel like debuts and weddings exclude portions of the population. Throughout my entire life, I have felt excluded from proms, date functions, debuts, and weddings. As people in my age bracket have announced the big news of marriages and new babies, I have done my best to express happiness for people, but I have become so angry around limiting ideas in the world that I engaged in criminal acts and became a prisoner in my own home. Some patterns of behavior of always lurking online to look for a boyfriend grew louder. After breaking down mentally multiple times over these issues, marriage has come to me to feel a little bit like a joke, and I am having a hard time moving past seeing marriage as something sacred.
+
+
+
+This is a poem I wrote capturing the sacredness of Male-Female relationships. God spoke to me through a dark period. I do not always reflect all of these qualities, but this poem captures the True Self being radiated from the True Man and True Woman.
+
+
+
+Love’s Debut, Love’s Marriage
+She’s quiet, She’s humble, She’s light-hearted, and smiling.
+
+She’s musical, She’s forgiving, She’s dancing, and modest.
+
+She’s inclusive, She’s articulate, She’s thoughtful, and wise.
+
+She’s all-embracing, She’s resilient, She’s grateful, and at home.
+
+She’s merciful, She’s modest, She’s open-mind, and mindful.
+
+She’s a searcher for humanity in the darkest areas of the world. She’s a lover of Jesus and Mary Baker Eddy. She knows that Love has the throne and that Love is Life’s true crown and glory.
+
+He’s thankful, He’s gracious, He’s joyful, and kind.
+
+He’s trustworthy, He’s satisfied, He’s helpful, and strong.
+
+He’s embracive, He’s courageous, He’s free, and aware.
+
+He’s adventurous, He’s ordered, He’s hard-working, and secure.
+
+He’s a lover of mankind, and inclusive of all. With a passion for Church, He’s a searcher for Truth in all areas of the world. He knows that Divine Mind has the throne and that reflecting Principle and expressing joy is the Way. God is the source of her peace, and speaks to her with the still, small voice.
+
+
+
+She knows that what blesses one, blesses all. She’s consistent, precise, persistent, and dedicated. She’s graceful, balanced, life-giving, and free.
+
+He provides strength and structure. He’s law-abiding and principled. He’s eternal, and omnipotent.
+
+
+
+She’s a searcher for humanity, and a seeker of the light in the darkest areas of the world. She uses Truth’s double-edged sword to end human strife. She’s self-complete and wedded to the author of the universe. She holds her covenant with all mankind.
+
+
+
+She’s creative. She’s poised. She’s independent. She’s listening. She’s thoughtful. She’s perceptive.
+
+
+
+Literally, I have reached a point recently where I feel hate towards Christian Science Movement because I feel like I can't express a voice and I have felt some objectification of womanhood and manhood.
+
+There's a lot of talk right now in our culture about gun violence and crime. As a White Woman, I have engaged in criminal acts. I have threatened to kill people over anger around male-female relationships. How are people supposed to respond to crime? It is so difficult. I once sent gun images to people, and I literally felt the gun weighing on my head for a while. It was awful to be the prisoner of sin, anger, and bad decisions. I admitted to the crime, read prison ministry books, and then sought to help other people in the community to get back up. While praying, I saw the light in the darkness as the prison ministry teaches to do. Always, God's light is shining through the darkness somehow. I was grateful to engage with the community, and I have been grateful since college to repent and go out with Black men on outings to let go of prejudices, discover how life-giving the African American community is, and learn more about the true substance being reflected through them. I won't necessarily date or marry a Black man in the long-term, but I am grateful for all the Black men I have met to learn about their individualities. 
+
+
+<br>
 
 ### Interfaith, and Renewal of Faith and Understanding 
 #### Background
