@@ -57,6 +57,12 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ## [Mary Poppins](https://www.amazon.com/Mary-Poppins-Dr-P-Travers/dp/0544439562/ref=asc_df_0544439562/?tag=hyprod-20&linkCode=df0&hvadid=312095946443&hvpos=&hvnetw=g&hvrand=17689336730175740962&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-395749124359&psc=1&tag=&ref=&adgrpid=60223809097&hvpone=&hvptwo=&hvadid=312095946443&hvpos=&hvnetw=g&hvrand=17689336730175740962&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-395749124359) ##
 "My wisdom tells me that this is probably so. We are all made of the same stuff, remember, we of the Jungle, you of the City. The same substance composes us - the tree overhead, the stone beneath us, the bird, the beast, the star - we are all one, all moving to the same end. Remmeber that when you no longer remember me, my child." (p. 159, "Mary Poppins")
 
+"'You think not?' said the Hamadryad's hissing voice. 'Look!' and he nodded his head towards the moving mass of creatures before them. Birds and animals were now swaying together, closely encircling Mary Poppins, who was rocking lightly from side to side. Backwards and forwards went the swaying crowd, keeping time together, swinging like the pendulum of a clock. Even the trees were bending and lifting gently, and the moon seemed to be rocking in the sky as a ship rocks on the sea.
+
+'Bird and beast and stone and star - we are all one, all one ---' murmured the Hamadryad, solftly folding his hood about him as he himself swayed between the children.
+
+'Child and serpent, star and stone -- all one.'" (pp. 159-160, "Mary Poppins")
+
 
 ----------
 
