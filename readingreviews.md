@@ -10,6 +10,18 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 ## 2020 NEWS REVIEWS
 ## [Despite Everything, People Still Have Weddings at ‘Plantation’ Sites](https://www.nytimes.com/2020/10/17/style/despite-everything-people-still-have-weddings-at-plantation-sites.html) ##
+In 2020, Michael T. Luongo, the author of the article covers a surprising twist to the controversial big news of weddings in the South, where traditionally racism and slavery governed the times. Weddings on plantations have always made majors news. The idyllic imagery of beautiful ladies and gentleman expressing poise looks amazing in contrast to the horrific images of slavery.
+
+Historically, weddings on Southern plantations have caused pain and trauma for some people because of the horrific past. At the same time, people love weddings on Southern plantations because of the romantic appeal.
+
+The writer of the article covers how with the Black Lives Matter movement, people have let go of Confederate symbols. He writes, "by vote and by force", monuments have been removed. While weddings occur at plantations, a Black power movement occurs and Black people have gained their voice. Black people share their side of the story at weddings on these sites where horrific events happened to empower both White people and Black people. The author writes, "Joseph McGill Jr. is the site’s history and culture coordinator. Mr. McGill, who is Black, wrote in an email: 'Every bride and groom are made aware of the complete history of the site.'
+
+The author honestly covers how with White-only events, there's an unfortunate side to the story with what he calls "the South's 'schizophrenic approach' to history. The author then goes deeper to share the positive shift in how "Dr. Powers said some African-Americans have wedding ceremonies in these places to bring a greater solemnity and commitment to the marriage rite. 'Simply because,' he said, 'if the people incorporate the knowledge of what happened at these places, then their marriage ceremony, and indeed their marriage, becomes an example of psychic and cultural repair.'" This shift helps to heal the land for both races. The opportunities to open up a conversation about slavery at the events helps to heal the diagnosed "schizophrenia" on these Southern landmarks.
+
+The reality is, writes Michael T. Luongo, that 
+
+
+
 
 
 <br>
