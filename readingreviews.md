@@ -9,6 +9,14 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 
 
 ## 2020 NEWS REVIEWS
+## [Despite Everything, People Still Have Weddings at ‘Plantation’ Sites](https://www.nytimes.com/2020/10/17/style/despite-everything-people-still-have-weddings-at-plantation-sites.html) ##
+
+
+<br>
+
+<br>
+
+
 ### [Preschoolers Prefer Books Rich in Whys](https://www.edutopia.org/article/preschoolers-prefer-books-rich-whys)
 
 
