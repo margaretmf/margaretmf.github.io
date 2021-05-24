@@ -24,7 +24,7 @@ Some Black people have weddings at these sites, and this helps to heal the land.
 
 The journalist then shares a level deeper of how 'in early 2019, McLeod became a member of the International Coalition of Sites of Conscience, a group working to connect the past with current human rights issues. Mr. Halifax said the membership application process helped the commission 'begin to really just understand a bit more what the site really is — a private for-profit, agricultural venture that used slave labor.' The journalist captures how these plantations are sites to address human rights issues.
 
-Bringing people to these sites for educational purposes rather than for the purpose of a wedding seems to be more important for people. In the 21st century, it's important that 'particularly African Americans' do not 'cut themselves off'. If people cut themselves off, "there's no chance of repair and social repair" and "there's no chance of redemption".
+Bringing people to these sites for educational purposes rather than for the purpose of a wedding seems to be more important for people. In the 21st century, it's important that 'particularly African Americans' do not 'cut themselves off'. If people cut themselves off, 'there's no chance of repair and social repair' and 'there's no chance of redemption'."
 
 
 <br>
