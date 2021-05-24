@@ -54,6 +54,9 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 ## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "A family was therefore not an absolute grouping, but one that expanded and contracted with time and circumstances." (p. 29, "The Making of Home: The 500-Year Story of How Our Houses Became Homes)
 
+## [Mary Poppins](https://www.amazon.com/Mary-Poppins-Dr-P-Travers/dp/0544439562/ref=asc_df_0544439562/?tag=hyprod-20&linkCode=df0&hvadid=312095946443&hvpos=&hvnetw=g&hvrand=17689336730175740962&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-395749124359&psc=1&tag=&ref=&adgrpid=60223809097&hvpone=&hvptwo=&hvadid=312095946443&hvpos=&hvnetw=g&hvrand=17689336730175740962&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-395749124359) ##
+"My wisdom tells me that this is probably so. We are all made of the same stuff, remember, we of the Jungle, you of the City. The same substance composes us - the tree overhead, the stone beneath us, the bird, the beast, the star - we are all one, all moving to the same end. Remmeber that when you no longer remember me, my child." (p. 159, "Mary Poppins")
+
 
 ----------
 
