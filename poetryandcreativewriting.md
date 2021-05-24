@@ -4190,7 +4190,7 @@ My heart soars higher, my eyes look deeper, my vision grows further when he lets
 The lone bird flies high through the spring trees.
 The lone bird sits still on the electric wire.
 The lone bird sails gracefully on the yellow driving sign.
-The lone bird rests on a walking sine.
+The lone bird rests on a walking sign.
 The lone bird launches and lands onto a brown tree branch. 
 
 <br>
@@ -5556,7 +5556,26 @@ This. Is. Who. I am.
 <br>
 
 ## Women ##
-Women are expected to be free.
+Women are expected to work in home-, caretaking-, nursing-, and teaching- centric roles.
+Women are expected to be perfect at everything.
+Women are expected never to break.
+Women are expected to get married.
+Women are notoriously seen as heartbreaking.
+Women are thought of as feeble-minded.
+Women should not speak up.
+Women should stay quiet.
+Women should not use their voice.
+Women should not break boundaries.
+Women should not retaliate.
+Women should not fight back.
+Women should not ask to get married.
+Women should not ask to have kids.
+Women should not look for a boyfriend.
+Women must look a certain way.
+Women must smell a certain way.
+Women should not work in certain areas of the workplace.
+Women express maternal instincts.
+Women depend on men to become a mother.
 
 ## The Gun Images ##
 It started with a laugh and a small.
