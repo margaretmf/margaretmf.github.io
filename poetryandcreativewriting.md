@@ -305,6 +305,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for education reformers
 * Grateful for the Catholic Church
 * Grateful for the Church in Ghent that is being sold
+* Grateful for the people behind the research
+* Grateful for the educational work being done in Georgia around plantations
 
 <br>
 
