@@ -311,6 +311,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for reporting on Instagram to support fact-checking
 * Grateful for cute little kids who say hi
 * Grateful for family therapy
+* Grateful for Langston Hughes' poetry
+* Grateful for the renewal for the next generation
 
 <br>
 
@@ -5423,6 +5425,17 @@ The planets are always cycling and circling.
 ## To the Core ##
 Connected, at one with the core of the Earth, the center of the Earth, the heart of the Earth.
 In step and in sync with everyone around, moving as one.
+
+<br>
+
+## Strangers ##
+I am a friend of many.
+There are strangers walking all around.
+They are my friends.
+I look them in the eyes.
+I see familair people all around.
+I see the depth, the light, the ancient soul.
+All across the earth, people walking.
 
 <br>
 
