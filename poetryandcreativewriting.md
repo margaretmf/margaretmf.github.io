@@ -313,6 +313,10 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for family therapy
 * Grateful for Langston Hughes' poetry
 * Grateful for the renewal for the next generation
+* Grateful people outside and the conversation about coffee
+* Grateful for the people working in 7-11
+* Grateful for the electric lines outside of apartments
+* Grateful for technology design
 
 <br>
 
