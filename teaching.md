@@ -172,24 +172,39 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ## [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
 ### Who? ###
+* James Henry Trotter, four-year-old boy
+* Parents, Mother and Father
+* Aunt Sponge, Aunt Spiker, and James
 
 ### Where? ###
+* A beautiful house beside the sea
+* the London Zoo
 
-### WHat? ###
+### What? ###
+* Blazing hot day in the middle of summer
 
 ### Color ###
+* blackish-blue // sky
 
 ### Adjectives ###
+* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade
 
 ### Adverbs ###
+* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting
 
 ### Vocabulary ###
+* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping
 
 ### Allusions ###
 
 ### Themes ###
 
 ### Interesting Sentences or Paragraphs ##
+* "The lovely huse by the seaside had to be sold immediately, and the little boy, carrying nothing but a small suitcase containing a pair of pajamas and a toothbrush, was sent away to live with his two aunts." (p. 2, "James and the Giant Peach")
+
+* "The garden, which covered the whole of the top of the hill, was large and desolate, and the only tree in the entire place (apart from a clumb of dirty old laurel bushes at the farend) was an ancient peach tree that never gave any peaches. There was no swing, no seesaw, no sand pit, and no other children were ever invited to come up the hll to play with poor James. There wasn't so much as a dog or a cat around to keep him company. And as time went on, he became sadder and sadder, and more and more lonely, and he used to spend hours every day standing at the bottom of the garden, gazing wistfully at the lovely but forbideen world of woods and fields and ocean that was spread out below him like a magic carpet." (p. 4, "James and the Giant Peach")
+
+* "Here is James Henry Trotter after he had been living with his aunts for three whole years - which is when this story really begins." (p. 5, "James and the Giant Peach")
 
 
 ----------
