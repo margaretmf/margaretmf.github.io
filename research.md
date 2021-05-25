@@ -7,7 +7,7 @@
 * A Study on Light in the Darkness, and Where This Comes Up in Books, and What This Means, and Its Spiritual Significance
 * A Study on Societal Wholeness, and Connectedness; This Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
 * A Study on Signs and Sybmols
-* A Study on Interracial Dating and Marriages, and Interracial Homes
+* A Study on Interracial Homes
 * A Study on Democracy and Church
 * A Study on Shays' Rebellion in Relationship to the Trump Election
 * A Study on Cultures that Influence and Shape Engineering
