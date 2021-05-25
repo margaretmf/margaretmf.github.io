@@ -1398,6 +1398,21 @@ is_contact: true
 (4) Birds tweeting
 (5) Shoes hitting the pavement
 
+## **Day 81** ##
+## **Images** ##
+(1) Books in a window
+(2) Street signs reflecting through windows
+(3) People's eyes
+(4) American flags
+(5) Yellow flowers
+
+## **Sounds** ##
+(1) Clicking keys
+(2) Water flowing
+(3) Birds twirping
+(4) A graceful response
+(5) Air blowing
+
 <br>
 
 <br>
