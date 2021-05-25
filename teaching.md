@@ -212,12 +212,22 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 * "Aunt Sponge was enormously fat and very short. She had small piggy eyes, a sunken mouth, and one of those white flabby faces that looked exactly as it had been boiled. She was like a great white soggy overboiled cabbage. Aunt Spiker, on the other hand, was lean and tall and bony, and she wore steel-rimmed spectacles that fixed onto the end of her nose, with a clip. She had a screeching voice and long wet narrow lips, and whenever she got angry or excited, little flecks of spit would come shooting out of her mouth as she talked. And there they sat, these two ghastly hags, sipping their drinks, and every now and again screaming at James to chop faster and faster." (p. 6, "James and the Giant Peach")
 
-*'I look and smell,' Aunt Sponge declared, 'as lovely as a rose!
+*"'I look and smell,' Aunt Sponge declared, 'as lovely as a rose!
 Just feast your eyes upon my face, observe my shapely nose!
 Behold my heavenly silky locks!
 And if I take off both my socks
 You'll see my dainty toes.'
-'But don't forget,' Aunt Spiker cried, 'how much your tummy shows!'" 
+'But don't forget,' Aunt Spiker cried, 'how much your tummy shows!'"
+
+*"'Aunt Sponge went red. Aunt Spiker said, 'My sweet, you cannot win,
+Behold MY gorgeous curvy shape, my teeth, my charming grin!
+Oh, beauteous me! How Ladore
+My radiant looks! And please ignore
+The pimple on my chin.'
+'My dear old trout!' Aunt Sponge cried out,
+'You're only bones and skin!'"
+
+*'
 
 * "And as he worked, James began thinking about all the other children in the world and what they might be doing at this moment. Some would be riding tricycles in their gardens. Some would be walking in cool woods and picking bunches of wild flowers. And all the little friends whom he used to know would be down by the seaside, playing in the wet sand and splashing around in the water." (p. 7, "James and the Giant Peach"
 
