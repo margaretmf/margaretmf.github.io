@@ -214,7 +214,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
-## [Mary Poppins by P. L. Travers (c. 1934, 1962, 1981)](https://www.amazon.com/Mary-Poppins-P-L-Travers-ebook/dp/B0043EWTD0/ref=sr_1_6?dchild=1&keywords=mary+poppins&qid=1621287055&sr=8-6) 
+## [Mary Poppins](https://www.amazon.com/Mary-Poppins-P-L-Travers-ebook/dp/B0043EWTD0/ref=sr_1_6?dchild=1&keywords=mary+poppins&qid=1621287055&sr=8-6) by P. L. Travers (c. 1934, 1962, 1981)
 ### Who? ###
 * Mary Poppins, the nanny, the Policeman, Mr. Banks, the father, and lead of the household, leader of the banking system, Jane and Michael, the two children (eldest, youngest), Mrs. Banks, the mother in the household, Mrs. Brill, the cook, Katie Nanna, the older nanny that the children do not like, Ellen and Robertson Ay, Admiral Bloom, the Match-Man, Bert, Mr. Wigg, Mary Poppin's uncle, Miss Persimmon
 
@@ -603,7 +603,7 @@ They forgot it soon, however, for everything seemed to be as it always was, and 
 ----------
 
 
-## [Charlie and the Chocolate Factory by Roald Dahl (c. 1964)](https://www.amazon.com/Charlie-Chocolate-Factory-Roald-Dahl/dp/0142410314/ref=asc_df_0142410314/?tag=hyprod-20&linkCode=df0&hvadid=312089887152&hvpos=&hvnetw=g&hvrand=14532188306188360162&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-422923046130&psc=1) ##
+## [Charlie and the Chocolate Factory](https://www.amazon.com/Charlie-Chocolate-Factory-Roald-Dahl/dp/0142410314/ref=asc_df_0142410314/?tag=hyprod-20&linkCode=df0&hvadid=312089887152&hvpos=&hvnetw=g&hvrand=14532188306188360162&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-422923046130&psc=1) by Roald Dahl (c. 1964) ##
 ### Who? ###
 * 2 very old people, the father and mother of Mr. Bucket; Grandpa Joe and Grandma Josephine
 * 2 other grandparents, Grandpa George and Grandma Georgina
@@ -1104,7 +1104,7 @@ But if we can't - it serves him right.'* " (pp. 139-141, "Charlie and the Chocol
 ----------
 
 
-## [The Witch of Blackbird Pond by Elizabeth George Speare (c. 1958, takes place in 1687)](https://www.amazon.com/Witch-Blackbird-Elizabeth-George-Speare/dp/0547550294) ##
+## [The Witch of Blackbird Pond](https://www.amazon.com/Witch-Blackbird-Elizabeth-George-Speare/dp/0547550294) by Elizabeth George Speare (c. 1958, takes place in 1687) ##
 ### Who? ###
 * The Brigantine Dolphin and Nathaniel Eaton, Nat.
 
@@ -1172,7 +1172,7 @@ Venture, Desperation, Rebel, Solemnness, Indulgence
 ----------
 
 
-## [Frightful's Mountain by Jean Craighead George (c. 1999)](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1621260655&s=books&sr=1-1) ##
+## [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1621260655&s=books&sr=1-1) by Jean Craighead George (c. 1999) ##
 ### Author ###
 * "In 1986, I met Jean Craighead George at a friend's home in the upstate New York town were we all live. I grew up admiring the Craigheads, a family of naturalists, whose adventures I followed in *National Geographic* magazine, where they always seemed to be attaching transmitters to grizzly bears, banding bald eagles, or paddling canoes and fiberglass kayaks on first descents down the best western white waters. Always, there were flocks of children participating in every adventure and experiment. I thought the Craigheads might be the only family in America that was having more fun than the Kennedys. Obsessed with falcons as I was from birth, I read *My Side of the Mountain* in 1964. When I met Jean Craighead George that day in New York, she reminded me about the letter that I had written her"
 
@@ -1322,7 +1322,7 @@ He glanced at Mole. The dog's eyes were closed. 'We're on page one hundred thirt
 ----------
 
 
-## [On the Far Side of the Mountain by Jean Craighead George (c. 1990)](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_1?dchild=1&keywords=on+the+far+side+of+the+mountain&qid=1621260711&s=books&sr=1-1) ##
+## [On the Far Side of the Mountain](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_1?dchild=1&keywords=on+the+far+side+of+the+mountain&qid=1621260711&s=books&sr=1-1) by Jean Craighead George (c. 1990) ##
 ### Who? ###
 * Sam Gribley, the man
 * Frightful, the falcon
@@ -1532,7 +1532,7 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 ----------
 
 
-## [The Call of the Wild by Jack London](https://www.amazon.com/Call-Wild-Readers-Library-Classics/dp/1954839146/ref=sr_1_1_sspa?dchild=1&keywords=the+call+of+the+wild&qid=1621260768&s=books&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVk05VkFEUENUOVBNJmVuY3J5cHRlZElkPUEwNTkzMDUyMzdQRkZLODdVVUZSWCZlbmNyeXB0ZWRBZElkPUEwMDcyOTQ1MkFFTkc2ME81OVlROSZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=) ##
+## [The Call of the Wild](https://www.amazon.com/Call-Wild-Readers-Library-Classics/dp/1954839146/ref=sr_1_1_sspa?dchild=1&keywords=the+call+of+the+wild&qid=1621260768&s=books&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVk05VkFEUENUOVBNJmVuY3J5cHRlZElkPUEwNTkzMDUyMzdQRkZLODdVVUZSWCZlbmNyeXB0ZWRBZElkPUEwMDcyOTQ1MkFFTkc2ME81OVlROSZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=) by Jack London ##
 ### Who? ###
 * Buck
 * tidewater dog
@@ -1621,7 +1621,7 @@ We traverse fields and forests, walk through barren lands where quails and woodc
 ----------
 
 
-## [Brian's Winter by Holt McDougal (c. 1996)](https://www.amazon.com/Brians-Winter-Custom-Book-Bundles/dp/0307929582/ref=sr_1_1?dchild=1&keywords=brian%27s+winter&qid=1621260816&s=books&sr=1-1) ##
+## [Brian's Winter](https://www.amazon.com/Brians-Winter-Custom-Book-Bundles/dp/0307929582/ref=sr_1_1?dchild=1&keywords=brian%27s+winter&qid=1621260816&s=books&sr=1-1) by Holt McDougal (c. 1996) ##
 ### Who? ###
 * Brian Robeson
 
@@ -1738,7 +1738,7 @@ The tree would freeze on the outside first, a ring of frozen wood all the way ar
 ----------
 
 
-## [Island of the Blue Dolphins by Scott O'Dell (c. 1960)](https://www.amazon.com/Island-Blue-Dolphins-Scott-ODell/dp/0547328613/ref=sr_1_1?crid=33ISZOLRK7YLL&dchild=1&keywords=island+of+the+blue+dolphins&qid=1621260877&s=books&sprefix=island+%2Cstripbooks%2C156&sr=1-1) ##
+## [Island of the Blue Dolphins](https://www.amazon.com/Island-Blue-Dolphins-Scott-ODell/dp/0547328613/ref=sr_1_1?crid=33ISZOLRK7YLL&dchild=1&keywords=island+of+the+blue+dolphins&qid=1621260877&s=books&sprefix=island+%2Cstripbooks%2C156&sr=1-1) by Scott O'Dell (c. 1960) ##
 ### Who? ###
 * Father Gonzales Rubio, Santa Barbara Mission, Book of Burials
 * October 19, 1853, ecclesiastical burial, Juana Maria, the Indian woman, understand her language, baptized conditionally by Fr. Sanchez
@@ -2415,7 +2415,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 ----------
 
 
-## [Mandy by Julie Andrews Edwards (c. 2006)](https://www.amazon.com/Mandy-Julie-Andrews-Collection-Edwards/dp/0061207071/ref=sr_1_1?dchild=1&keywords=mandy&qid=1621260927&s=books&sr=1-1) ##
+## [Mandy](https://www.amazon.com/Mandy-Julie-Andrews-Collection-Edwards/dp/0061207071/ref=sr_1_1?dchild=1&keywords=mandy&qid=1621260927&s=books&sr=1-1) by Julie Andrews Edwards (c. 2006) ##
 
 ## Questions ##
 ### When? ###
@@ -2576,7 +2576,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 ----------
 
 
-## [The River by Gary Paulsen (c. 2012)](https://www.amazon.com/River-Hatchet-Adventure-Gary-Paulsen/dp/0307929612/ref=sr_1_1?dchild=1&keywords=the+river+Gary+paulsen&qid=1621260981&s=books&sr=1-1) ##
+## [The River](https://www.amazon.com/River-Hatchet-Adventure-Gary-Paulsen/dp/0307929612/ref=sr_1_1?dchild=1&keywords=the+river+Gary+paulsen&qid=1621260981&s=books&sr=1-1) by Gary Paulsen (c. 2012) ##
 
 ## Questions ##
 ### Who? ###
@@ -2686,7 +2686,7 @@ It was really a lovely place, far better than their old garden. It was not just 
 ----------
 
 
-## [Where the Red Fern Grows by Wilson Rawls (c. 1996)](https://www.amazon.com/Where-Fern-Grows-Wilson-Rawls/dp/0440412676/ref=sr_1_2?dchild=1&keywords=where+the+red+fern+grows&qid=1621261024&s=books&sr=1-2) ##
+## [Where the Red Fern Grows](https://www.amazon.com/Where-Fern-Grows-Wilson-Rawls/dp/0440412676/ref=sr_1_2?dchild=1&keywords=where+the+red+fern+grows&qid=1621261024&s=books&sr=1-2) by Wilson Rawls (c. 1996) ##
 
 ## Questions ##
 ### Who? ###
