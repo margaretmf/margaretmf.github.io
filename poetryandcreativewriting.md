@@ -310,6 +310,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the charity tool on Instagram
 * Grateful for reporting on Instagram to support fact-checking
 * Grateful for cute little kids who say hi
+* Grateful for family therapy
 
 <br>
 
@@ -3564,27 +3565,7 @@ Music is one form of cultural expression. Intuitively, music shares with people 
 I once had a vision, or a dream of American reborn.
 I love that women are behind the rebirth of the American dream and that black men can lead the country well.
 
-# The Healing #
-I am one voice of 7.2 billion voices in the E Pluribus Unum.
-
-I love Black names.
-I hate my name.
-I am White trash.
-I failed my cousin at her wedding.
-I have questioned if I am a lesbian or transgender.
-I support the LGBTQ community. 
-I was just my mom's tagalong to the Barack Obama Rally, however, the biggest source of my faith discouraged me from writing and from singing, so please DO NOT ask me to write a book or write a song. 
-The Christian Science Church DOES NOT want my writing.
-I threw Herbert Eustace, CS in the trash can.
-I threw gun images away in the trash can.
-I am confident with flying solo.
-I keep my voice sealed because people do not like my voice.
-I do not like my voice.
-I am becoming a maidservant, not a princess.
-I love all races.
-I love the everyday people who sing and dance through their work.
-Only the top 1% can sing and dance. Everyone else is just a fan, just a client, just another voice of many.
-
+## E Pluribus Unum ##
 I am a voice in a sea of voices yearning to be free.
 I am a conscience in a sea of consciences yearning to do the right thing.
 I am a body in a sea of bodies yearning to be asexual.
@@ -4138,6 +4119,20 @@ The seed within lays buried deep. It's deep within and grows it roots to spread 
 
 <br>
 
+## Just Live ##
+Just live.
+It's all you got to do.
+Truly live.
+Take it all in.
+Do something new.
+Have a good laugh.
+Dance on the street.
+Go for a swim.
+Live.
+Really live.
+
+<br>
+
 ## This Experience ##
 This is good for you.
 This experience is good for you.
@@ -4274,6 +4269,15 @@ There's a way.
 The ocean is always moving.
 The water is always stirring.
 The storm will die down.
+
+<br>
+
+## Let It Go ##
+Let it go.
+Let it shatter into pieces.
+Let it flee into the ocean.
+Let it fly across the sea.
+Let it fall to the floor.
 
 <br>
 
