@@ -168,6 +168,33 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ----------
 
 
+## [Peter Rabbitt 2]()
+
+## [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
+### Who? ###
+
+### Where? ###
+
+### WHat? ###
+
+### Color ###
+
+### Adjectives ###
+
+### Adverbs ###
+
+### Vocabulary ###
+
+### Allusions ###
+
+### Themes ###
+
+### Interesting Sentences or Paragraphs ##
+
+
+----------
+
+
 ## [Mary Poppins by P. L. Travers (c. 1934, 1962, 1981)](https://www.amazon.com/Mary-Poppins-P-L-Travers-ebook/dp/B0043EWTD0/ref=sr_1_6?dchild=1&keywords=mary+poppins&qid=1621287055&sr=8-6) 
 ### Who? ###
 * Mary Poppins, the nanny, the Policeman, Mr. Banks, the father, and lead of the household, leader of the banking system, Jane and Michael, the two children (eldest, youngest), Mrs. Banks, the mother in the household, Mrs. Brill, the cook, Katie Nanna, the older nanny that the children do not like, Ellen and Robertson Ay, Admiral Bloom, the Match-Man, Bert, Mr. Wigg, Mary Poppin's uncle, Miss Persimmon
