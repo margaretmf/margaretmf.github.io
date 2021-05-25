@@ -182,22 +182,23 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ### Where? ###
 * A beautiful house beside the sea
+* Londond
 * the London Zoo
 
 ### What? ###
 * Blazing hot day in the middle of summer
 
 ### Color ###
-* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage, dark-green // suit, black // whiskers, white // paper bag, green // things, green // parrot, green // things
+* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage, dark-green // suit, black // whiskers, white // paper bag, green // things, green // parrot, green // things, deep blue // sky, butter-colored // pumpkin, buttery yellow // skin, brilliant pink and red // patches, wild // white // moon, black // shadows, silver // ball, brown // wall, white // face, scarlet // shell, black // spots, greenish // light, black // glassy eyes, black // tongue
 
 ### Adjectives ###
-* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes, lazy // good-for-nothing // brute, disgusting // worm, bald // head, strange // brightness, luminous // quality, wonderful // way, musty // breath, rustling // sound, little // stones or crystals, slimy // crocodile
+* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes, lazy // good-for-nothing // brute, disgusting // worm, bald // head, strange // brightness, luminous // quality, wonderful // way, musty // breath, rustling // sound, little // stones or crystals, slimy // crocodile, long // grass, old // peach // tree, little // beast, hideous // brat, precious // bag, happier // life, highest // branch, faintest // idea, sudden // stillness, bulging // eyes, tall // glasses, fizzy // lemonade, queer // ramshackle // house, slightest // shake, stupid // boy, small // car, small // house, sly // smile, giant // peach, strong // fence, front // gate, seething // mass, miraculous // fruit, disgusting // little // brute, banana // skins, strange // shapes, dazzling // sight, curving // sides, shining and glinting // moonlight, damp // tunnel, murky // tunnel, gigantic // fruit, deep // grooves, solid // wall, large // dog, scarlet // shell, long // silence, wriggling // movement, awful // thought, scornful // voice
 
 ### Adverbs ###
-* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting, slowly // stirring, madly // waving
+* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting, slowly // stirring, madly // waving, furiously // froth, furiously // bubble, frantically // scrabble, gently // touched, slowly // walking, cautiously // inspecting, comfortably // reclining, soundly // sleeping, suddenly // announced, proudly // answered
 
 ### Vocabulary ###
-* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched, Bristly, Emerging, Beckoning, Hobbled, Whisper, Wave, Glow, Sparkle, Murmur, Clutching
+* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched, Bristly, Emerging, Beckoning, Hobbled, Whisper, Wave, Glow, Sparkle, Murmur, Clutching, Burst, Wriggle, Twist, Burrow, Scrabble, Suggest, Wheeze, Punishment, Despair, Unhappiness, Chop, Hopping, Clapping, Spellbound, Murmur, Stare, Twerp, Snap, Declare, Inspect, Wink, Scramble, Glimpse, Whisper, Marvelous, Slitherer
 
 ### Allusions ###
 
@@ -205,6 +206,10 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ### Interesting Sentences or Paragraphs ##
 * "The lovely huse by the seaside had to be sold immediately, and the little boy, carrying nothing but a small suitcase containing a pair of pajamas and a toothbrush, was sent away to live with his two aunts." (p. 2, "James and the Giant Peach")
+
+* "Their names were AUnt Sponge and Aunt Spiker, and I am sorry to say that they were both really horrible people. They were selfish and lazy and cruel, and right from the beginning they started beating poor James for almost no reason at all. They never called him by his real name, but always referred to him as 'you disgusting little beast' or 'you filthy nuisance' or 'you miserable creature,' and they certainly never gave him any toys to play with or any picture books to look at. His room was as bare as a prison cell." (p. 2, "James and the Giant Peach")
+
+* "They lived - Aunt Sponge, Aunt Spiker, and now James as well - in a queer ramshackle house on the top of a high hill in the south of England." (p. 2, "James and the Giant Peach")
 
 * "The garden, which covered the whole of the top of the hill, was large and desolate, and the only tree in the entire place (apart from a clumb of dirty old laurel bushes at the farend) was an ancient peach tree that never gave any peaches. There was no swing, no seesaw, no sand pit, and no other children were ever invited to come up the hll to play with poor James. There wasn't so much as a dog or a cat around to keep him company. And as time went on, he became sadder and sadder, and more and more lonely, and he used to spend hours every day standing at the bottom of the garden, gazing wistfully at the lovely but forbideen world of woods and fields and ocean that was spread out below him like a magic carpet." (p. 4, "James and the Giant Peach")
 
@@ -234,7 +239,139 @@ They'd give me all the leading parts!
 The stars would all resign!'
 'I think you'd make,' Aunt Spiker said, 'a lovely Frankenstein.'"
 
-* "And as he worked, James began thinking about all the other children in the world and what they might be doing at this moment. Some would be riding tricycles in their gardens. Some would be walking in cool woods and picking bunches of wild flowers. And all the little friends whom he used to know would be down by the seaside, playing in the wet sand and splashing around in the water." (p. 7, "James and the Giant Peach"
+* "And as he worked, James began thinking about all the other children in the world and what they might be doing at this moment. Some would be riding tricycles in their gardens. Some would be walking in cool woods and picking bunches of wild flowers. And all the little friends whom he used to know would be down by the seaside, playing in the wet sand and splashing around in the water." (p. 7, "James and the Giant Peach")
+
+* "'And now,' the old man said, 'all you've got to do is this. Take a large jug of water, and pour all the little green things into it.'" (p. 11, "James and the Giant Peach")
+
+* "He swerved away from them so as to go around the other side of the house, but then suddenly, just as he was passing underneath the old peach tree that stood in the middle of the garden, his foot slipped and he fell flat on his face in the grass. The paper bag burst open as it hit the ground and the thousands of tiny green things were scattered in all directions." (p. 12, "James and the Giant Peach")
+
+* "James felt like crying. He would never get them back now -- the were lost, lost, lost forever." (p. 13, "James and the Giant Peach")
+
+* "But where had they gone to? And why in the world had they been so eager to push down into the earth like that? What were they after? There was nothing down *there*. Nothing except the roots of the old peach tree..and a whole lot of earthworms and centipedes and insects living in the soil." (p. 13, "James and the Gian Peach")
+
+* "'Sponge! Sponge! Come here at once and look at this!'
+
+'At what?'
+
+'It's a peach!' Aunt Spiker was shouting.
+
+'A what'
+
+'A peach! Right up there on the highest branch? Can't you see it?'
+
+'I think you must be mistaken, my dear Spiker. That miserable tree *never* has ny peaches on it.'" (p. 14, "James and the Giant Peach")
+
+* "Why, that tree's never even had a *blossom* on it, let alone a peach. Right up on the highest branch, you say? I can't see a thing. Very funny...Ha, ha...Good gracious me! Well, I'll be blowed! There really *is* a peach up there!'" (p. 15, "James and the Giant Peach")
+
+* "At this point, James slowly put down his chopper and turned and looked across at the two women, who were standing underneath the peach tree." (p. 15, "James and the Giant Peach")
+
+* "James came running over. 'I want you to pick that peach up there on the highest branch,' Aunt Sponge went on. 'Can you see it?'" (p. 15, "James and the Giant Peach")
+
+* "James crossed over to the tree trunk.
+
+'Stop!' Aunt Spiker said quickly. 'Hold everything!' She was staring up into the branches with her mouth wide open and her eyes bulging as though she had seen a ghost. 'Look!' she said. 'Look, Sponge, look!'
+
+'What's the matter with you?' Aunt Sponge demanded.
+
+'It's growing!' Aunt Spiker cried. 'It's getting bigger and bigger!'
+
+'What is?'
+
+'The peach, of course!'
+
+'You're joking!'
+
+'Well, look for yourself!'
+
+'But my dear Spiker, that's perfectly ridiculous. That's impossible. That's - that's - that's - Now, wait *just* a minte  - No - No - that can't be right - No - Yes - Great Scott! The thing really *is* growing!'
+
+'It's nearly twice as big already!' Aunt Spiker shouted.
+
+'It can't be true!'
+
+'It *is* true!'
+
+'It must be a miracle!'
+
+'Watch it! Watch it!'
+
+'I *am* watching it!'
+
+'Great Heavens alive!' Aunt Spiker yelled. 'I can actually see the thing bulging and swelling before my very eyes!'" (p. 16, "James and the Giant Peach")
+
+* "The two women and the small boy stood absolutely still on the grass underneath the tree, gazing up at this extraordinary fruit. James's little face was glowing with excitement, his eyes were as big and bright as two stars. He could see the peach swelling larger and larger as clearly as if it were a ballon being blown up.
+
+In half a minute, it was the size of a melon!
+
+In another half-minute, it was *twice* as big again!
+
+'Just *look* at it growing!' Aunt Spiker cried.
+
+'Will it ever stop!' Aunt Sponge shouted, waving her fat arms and starting to dance around in circles.
+
+And now it was so big it looked like an enormous butter-colored pumpkin dangling from the top of the tree.
+
+'Get away from that tree trunk, you stupid boy!' Aunt Spiker yelled. 'The slightest shake and I'm sure it'll fall off! It must weigh twenty or thirty pounds at least!'
+
+The branch that the peach was growing upon was beginning to bend over further and further because of the weight.
+
+'Stand back!' Aunt Sponge shouted. 'It's coming down! The branch is going to break!'
+
+But the branch didn't break. It simply bent over more and more as the peach got heavier and heavier.
+
+And still it went growing.
+
+In another minute, this mammoth fruit was as large and round and fat as Aunt Sponge herself, and probably just as heavy." (p. 17, "James and the Giant Peach")
+
+* "'Look!' Aunt Spiker shouted. 'It's growing faster thane ver now! It's speeding up!'
+
+'I see it, SPiker! I do! I do!'
+
+Bigger and bigger grew the peach, bigger and bigger and bigger." (p. 18, "James and the Giant Peach")
+
+* "'My dear Sponge,' said Aunt Spiker said slowly, winking at her sister and smiling a sly, thin-lipped smile. 'There's a pile of money to be made out of this if only we can handle it right. You wait and see." (p. 21, "James and the Giant Peach")
+
+* "The news that a peach almost as big as a house had suddenly appeared in someone's garden spread like wildfire across the countryside, and the next day a stream of people came scrambling up the steep hill to gaze upon this marvel." (p. 21, "James and the Giant Peach")
+
+* "By lunchtime, the whole place was a seething mass of men, women, and children all pushing and shoving to get a glimpse of this miraculous fruit. Helicopters were landing like wasps all over the hill, and out of them poured swarms of newspaper, reporters, cameramen, and men from the telvision companies." (pp. 21-22, "James and the Giant Peach")
+
+* "Hungry and trembling, James stood alone out in the open, wondering what to do. The night was all around him now, and high overhead a wild white moon was riding in the sky. There was not a sound, not a movement anywhere.
+
+Most people - and especially small children - are often quite scared of being out of doors alone in the moonlight. Everything is so deadly quiet, and the shadows are so long and black, and they keep turning into strange shapes that seem to move as you look at them, and the slightest little snap of a twig makes you jump.
+
+James felt exactly like that now. He stared straight ahead with large frightened eyes, hardly daring to breathe. Not far away, in the middle of the garden, he could see the giant peach towering over everything else. Surely it was even bigger tonight thane ver before? And what a dazzling sight it was! The moonlight was shining and glinting on its great curving sides, turning them to crystal and silver. It looked like a tremendous silver ball lying there in the grass, silent, msyterious, and wonderful." (p. 23, "James and the Giant Peach")
+
+* "The floor was soggy under his knees, the walls were wet and sticky, and peach juice was dripping from the ceiling. James opened his mouth and caught some of it on his tongue. It tasted delicious." (p. 25, "James and the Giant Peach")
+
+"He was crawling uphill now, as though the tunnel were leading straight toward the very center of the gigantic fruit. Every few seconds he paused and took a bite out of the wall. The peach flesh was sweet and juicy, and marvelously refreshing." (p. 25, "James and the Giant Peach")
+
+* "James's large frightened eyes traveled slowly around the room.
+
+The creatures, some sitting on chairs, others reclining on a sofa, were all watching him intently.
+
+Creatures?
+
+Or were they insects?
+
+An insect is usually something rather small, is it not? A grasshopper, for example, is an insect.
+
+So what would you call it if you saw a grasshopper as large as a dog? As large as a *large* dog. you could hardly call that an insect, could you?
+
+There was an Old-Green-Grasshopper as large as a large dog sitting on a stool directly across the room from James now.
+
+And next to the Old-Green-Grasshopper, there was an enormous Spider.
+
+And next to the Spider, there was a giant Ladybug with nine black spots on her scarlet shell.
+
+Each of these three was squatting upon a magnificent chair.
+
+On a sofa nearby, reclining comfortably in curled-up positions, there was a Centipede and an Earthworm.
+
+On the floor over in the far corner, there was something thick and white that looked as though it might be a Silkworm. But it was sleeping soundly and nobody was paying any attention to it.
+
+Every one of these 'creatures' was at least as big as James himself, and in the strange greenish light that shone down from somewhere in the ceiling, they were absolutely terrifying to behold." (pp. 26-27, "James and the Giant Peach")
+
+* "'You mustn't be frightened,' the Ladybug said kindly. 'We wouldn't *dream* of hurting you. You are one of us now, didn't you know that? You are one of the crew. We're all in the same boat.'" (p. 30, "James and the Giant Peach")
 
 
 ----------
