@@ -188,16 +188,16 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Blazing hot day in the middle of summer
 
 ### Color ###
-* blackish-blue // sky
+* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage
 
 ### Adjectives ###
-* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade
+* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes
 
 ### Adverbs ###
 * peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting
 
 ### Vocabulary ###
-* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping
+* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched
 
 ### Allusions ###
 
@@ -209,6 +209,17 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * "The garden, which covered the whole of the top of the hill, was large and desolate, and the only tree in the entire place (apart from a clumb of dirty old laurel bushes at the farend) was an ancient peach tree that never gave any peaches. There was no swing, no seesaw, no sand pit, and no other children were ever invited to come up the hll to play with poor James. There wasn't so much as a dog or a cat around to keep him company. And as time went on, he became sadder and sadder, and more and more lonely, and he used to spend hours every day standing at the bottom of the garden, gazing wistfully at the lovely but forbideen world of woods and fields and ocean that was spread out below him like a magic carpet." (p. 4, "James and the Giant Peach")
 
 * "Here is James Henry Trotter after he had been living with his aunts for three whole years - which is when this story really begins." (p. 5, "James and the Giant Peach")
+
+* "Aunt Sponge was enormously fat and very short. She had small piggy eyes, a sunken mouth, and one of those white flabby faces that looked exactly as it had been boiled. She was like a great white soggy overboiled cabbage. Aunt Spiker, on the other hand, was lean and tall and bony, and she wore steel-rimmed spectacles that fixed onto the end of her nose, with a clip. She had a screeching voice and long wet narrow lips, and whenever she got angry or excited, little flecks of spit would come shooting out of her mouth as she talked. And there they sat, these two ghastly hags, sipping their drinks, and every now and again screaming at James to chop faster and faster." (p. 6, "James and the Giant Peach")
+
+*'I look and smell,' Aunt Sponge declared, 'as lovely as a rose!
+Just feast your eyes upon my face, observe my shapely nose!
+Behold my heavenly silky locks!
+And if I take off both my socks
+You'll see my dainty toes.'
+'But don't forget,' Aunt Spiker cried, 'how much your tummy shows!'" 
+
+* "And as he worked, James began thinking about all the other children in the world and what they might be doing at this moment. Some would be riding tricycles in their gardens. Some would be walking in cool woods and picking bunches of wild flowers. And all the little friends whom he used to know would be down by the seaside, playing in the wet sand and splashing around in the water." (p. 7, "James and the Giant Peach"
 
 
 ----------
