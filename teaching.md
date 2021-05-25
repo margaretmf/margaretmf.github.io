@@ -188,16 +188,16 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Blazing hot day in the middle of summer
 
 ### Color ###
-* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage
+* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage, dark-green // suit, black // whiskers, white // paper bag, green // things, green // parrot, green // things
 
 ### Adjectives ###
-* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes
+* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes, lazy // good-for-nothing // brute, disgusting // worm, bald // head, strange // brightness, luminous // quality, wonderful // way, musty // breath, rustling // sound, little // stones or crystals, slimy // crocodile
 
 ### Adverbs ###
-* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting
+* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting, slowly // stirring, madly // waving
 
 ### Vocabulary ###
-* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched
+* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched, Bristly, Emerging, Beckoning, Hobbled, Whisper, Wave, Glow, Sparkle, Murmur, Clutching
 
 ### Allusions ###
 
@@ -227,7 +227,12 @@ The pimple on my chin.'
 'My dear old trout!' Aunt Sponge cried out,
 'You're only bones and skin!'"
 
-*'
+*"'Such lovelienss as I possess can only truly shine
+In Hollywood!' Aunt Sponge declared, 'Oh, wouldn't that be fine!
+I'd capturea ll the nations hearts!
+They'd give me all the leading parts!
+The stars would all resign!'
+'I think you'd make,' Aunt Spiker said, 'a lovely Frankenstein.'"
 
 * "And as he worked, James began thinking about all the other children in the world and what they might be doing at this moment. Some would be riding tricycles in their gardens. Some would be walking in cool woods and picking bunches of wild flowers. And all the little friends whom he used to know would be down by the seaside, playing in the wet sand and splashing around in the water." (p. 7, "James and the Giant Peach"
 
