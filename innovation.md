@@ -1169,7 +1169,7 @@ is_contact: true
 (4) Green leaves
 (5) White flowers
 
-## **Sounds ** ##
+## **Sounds** ##
 (1) A door creaking, and squeaking
 (2) A motor zooming
 (3) A whiperwill bird
@@ -1412,6 +1412,21 @@ is_contact: true
 (3) Birds twirping
 (4) A graceful response
 (5) Air blowing
+
+## **Day 82** ##
+## **Images** ##
+(1) A small rose on a countertop
+(2) A flowerbud on the street
+(3) People's smiles on the street
+(4) Leaves swirling around
+(5) Garden pots in a window
+
+## **Sounds** ##
+(1) 
+(2) 
+(3)
+(4)
+(5)
 
 <br>
 
