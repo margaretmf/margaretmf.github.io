@@ -1,3 +1,6 @@
+**This is a page for research and questions. I am interested in how ethically to include research, questions for papers, and writing on Github and in Github workflow.**
+
+
 # Research Questions and Studies #
 * A Study on How People Use a Liberal Arts or Humanities Degree in the World
 * A Study Comparing the city of Norfolk and Memphis in addition to Richmond, Charlottesville, and Nashville
@@ -871,6 +874,22 @@ Tchaikovsky or Beethoven: Emotional and dynamic compositions known for their str
 
 ## [Occupational Therapy](https://www.aota.org/-/media/corporate/files/practice/mentalhealth/focus-on-mental-health-booklet.pdf) ##
 "Studies investigating the neurology of music show links between music and cognitive function. In a meta-analysis, music has been found to play a catalytic role in hippocampal-dependent temporal order learning, spatiotemporal reasoning, memory, recall, focus modulation, attention span, attention range in left neglect, sensory-motor learning, auditory verbal learning, emotional adjust- ment, motor/executive function, and psychosocial function (Thaut et al., 2009). With vast neuronal associations in the brain, the use of music in therapy can be individualized to facilitate cogni- tive remediation using the brain’s natural neuroplastic tendency. Experiencing music requires both cerebral and limbic involvement (Thaut et al., 2009). Because both regions are involved, music can be used to address the interconnectivity and communication between these brain areas without requiring verbal capability. Listening to music addresses sensory and emotional pathways, whereas playing music requires coordination, timing, proprioception, and memory."
+
+
+----------
+
+
+# Entrepreneurship, Pain Points, and Traffic and Car Industry #
+## [Entrepreneurship and Pain Points](https://www.entrepreneur.com/article/309771) ##
+* "So instead of conjuring problems from the absurdities of modern life, why not resolve a recurring obstacle for yourself or some you know? And then use that as the basis of your next venture. Fixing your own pain points can be the basis of a solid, profitable business."
+* "Find your pain point and fix it"
+
+## [Why Drivers are Frustrated: Results from a Diary Study and Focus Groups](https://link.springer.com/article/10.1186/s12544-020-00441-7) ##
+* "Designing emotion-aware systems has become a manageable aim through recent developments in computer vision and machine learning. In the context of driver behaviour, especially negative emotions like frustration have shifted into the focus of major car manufacturers. Recognition and mitigation of the same could lead to safer roads in manual and more comfort in automated driving. While frustration recognition and also general mitigation methods have been previously researched, the knowledge of reasons for frustration is necessary to offer targeted solutions for frustration mitigation. However, up to the present day, systematic investigations about reasons for frustration behind the wheel are lacking."
+
+* "It was revealed that the main reasons for frustration in driving are related to traffic, in-car reasons, self-inflicted causes, and weather. Coping strategies that drivers use in everyday life include cursing, distraction by media and thinking about something else, amongst others. This knowledge will help to design a frustration-aware system that monitors the driver’s environment according to the spectrum of frustration causes found in the research presented here."
+
+## [Business Model Innovation for Car Sharing and Sustainable Urban Mobility](https://www.nordicenergy.org/wordpress/wp-content/uploads/2017/05/IST-2017-Sarasini-Langeland.pdf) ##
 
 
 ----------
