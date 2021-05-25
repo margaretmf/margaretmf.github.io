@@ -630,13 +630,13 @@ is_contact: true
 (5) Cars driving outside
 
 ## **Day 35** ##
-### **Images** ##
+### **Images** ###
 (1) Tide moving through the water with the cargo in the background
 (2) Cargo on the side of highways
 (3) The sun shining through Noroflk
 (4) A man working for a church and bringing food
 
-## ** Sounds** ##
+### ** Sounds** ###
 (1) The sound of country music from VA
 (2) Celtic inspired country music
 (3) Johnny Cash
@@ -699,14 +699,14 @@ is_contact: true
 (7) Faf's Christmas music playing on the piano
 
 ## ** Day 39 ** ##
-## **Images** ##
+### **Images** ###
 (1) The fan blowing
 (2) Intuition telling me I'm secure
 (3) Peace within from God
 (4) Water running over
 (5) Floor noises
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Christmas lights
 (2) Stacks of clothes
 (3) A book on the bed
@@ -714,14 +714,14 @@ is_contact: true
 (5) A Blanket
 
 ## ** Day 40 ** ##
-## **Images** ##
+### **Images** ###
 (1) Sheep in West Virginia
 (2) Blue-purple mountains
 (3) Household objects, and photographs
 (4) Greenery in Ireland
 (5) American flags in front of houses
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The clickity clack of the dishes clanking in the Thursday morning dishwasher
 (2) The air blowing in the bathroom
 (3) The sound of an Irish-Scottish accent
@@ -729,20 +729,20 @@ is_contact: true
 (5) The pew touching the paper
 
 ## ** Day 41 ** ##
-## **Images** ##
+### **Images** ###
 (1) West 60 highway sign
 (2) Farmland and blue mountains in VA
 (3) Vision of Eastern Christianity and the nativity scene
 (4) Old Dominion freight line truck with supply chain logos
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Inner harmony
 (2) Land of the real
 (3) A police car speeding with silver cars meeting the ground with friction
 (4) Family meditation, and meditation voices
 
 ## ** Day 42 ** ##
-## **Images** ##
+### **Images** ###
 (1) Dollar General store, and truck
 (2) American industry
 (3) River flowing
@@ -756,7 +756,7 @@ is_contact: true
 (8) The fishermen
 
 ## ** Day 43** ##
-## **Sounds** ##
+### **Sounds** ###
 (1) The sound of the enws caster playing in the kitchen
 (2) An airplane flying in the sky
 (3) A vacuum zoming zmzmmzm zmmzmzmmmzm
@@ -767,7 +767,7 @@ is_contact: true
 
 (6) A plate touching the kitchen counter
 
-## **Images** ##
+### **Images** ###
 (1) Cars driving on the interstate, the highway
 (2) Cleaning rag in a woman's hand
 (3) Halloween decorations on houses
@@ -781,14 +781,14 @@ is_contact: true
 (8) Mountains in TN
 
 ## ** Day 44** ##
-## **Sounds** ##
+### **Sounds** ###
 (1) Water trickilng
 (2) the train at night in the neighborhood
 (3) Blues music on the radio
 (4) A grandmother's voice
 (5) A cell phone buzzing in the morning
 
-## **Images** ##
+### **Images** ###
 (1) The mountains in Charlottesville
 (2) American flags on trucks
 (3) The sunlight shining down the interstate
@@ -796,7 +796,7 @@ is_contact: true
 (5) Framhouses in Charlottesville
 
 ## **Day 45** ##
-## **Images** ##
+### **Images** ###
 (1) The sun shining, and fading out near the country, near the port, near the trucks
 (2) The American flag in the yellow trucks
 (3) Piles of clothes to give away
@@ -807,7 +807,7 @@ is_contact: true
 
 (6) Stars inside every individual in the US
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Pre-dinner preparation
 (2) The fan blowing
 (3) Paper turning
@@ -815,14 +815,14 @@ is_contact: true
 (5) The sound of an innocent heart
 
 ## **Day 46** ##
-## **Images** ##
+### **Images** ###
 (1) Paints, colors in the hotel
 (2) The snow outside with the civil engineering work
 (3) School buses
 (4) Red lights on the back of a line of trucks in order
 (5) CHristmas trees in the hotel lobby
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Popular music playing in the background
 (2) Silence
 (3) The trucks
@@ -834,7 +834,7 @@ is_contact: true
 (6) A refrigerator 
 
 ## **Day 47** ##
-## **Images** ##
+### **Images** ###
 (1) RV Parks
 (2) RVs outside peoples' homes
 (3) Forest green trees on the side of the highway
@@ -845,7 +845,7 @@ is_contact: true
 
 (6) Salvation Army building
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Christian music on the radio
 (2) Cars driving by
 (3) A honk of a car
@@ -857,14 +857,14 @@ is_contact: true
 (6) The motorcyle drive through the city
 
 ## **Day 48** ##
-## **Images** ##
+### **Images** ###
 (1) Butter on the table
 (2) Piano in the living room
 (3) Clothes on the floor
 (4) Clothes hanging
 (5) Spirited books on the desk
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The sound of an innocent heart
 (2) Water running
 (3) Lawn mower
@@ -872,14 +872,14 @@ is_contact: true
 (5) A hymn coming out of my mouth 'come cast your burdens on the Lord'
 
 ## **Day 49** ##
-## **Images** ##
+### **Images** ###
 (1) The light shining on the motel, the same sun we're all waking up to
 (2) The playground for children
 (3) McDonald's fast food across the street
 (4) Memories of being in New Orleans
 (5) The brown trees in winter in the Southern farmland
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The air blowing in the hotel room
 (2) Buses driving in the early morning with children filled with peace and joy
 (3) Heart filled with gratitude for family vacation in the park
@@ -887,14 +887,14 @@ is_contact: true
 (5) People saying 'good morning' at the bottom of the house
 
 ## **Day 50** ##
-## **Images** ##
+### **Images** ###
 (1) Crossing the Bridge to West Memphis, Arkansas, the Arch
 (2) The sun shining through the trees
 (3) Christmas decorations on houses
 (4) Red buildings
 (5) The beauty of freedom in the USPS
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The vacuum
 (2) Christian music about God turning around situations
 (3) Toilet flushing
@@ -902,14 +902,14 @@ is_contact: true
 (5) The sound of a man calling on the phone with good cheer
 
 ## **Day 51** ##
-## **Images** ##
+### **Images** ###
 (1) An American fag waving out of the hotel
 (2) A sign in the hotel 'we'll leave the light on for you'
 (3) A truck outside the window
 (4) The sun shining in the morning
 (5) Red berries outside of a home
 
-## **Sounds** ##
+### **Sounds** ###
 (1) European accent of young girls on a TV show on the farm and the innocence of the girls
 (2) Animals cricketing, tweeting outside the hotel in the land
 (3) The sigh of a young girl
@@ -917,7 +917,7 @@ is_contact: true
 (5) Trucks driving by 
 
 ## **Day 52** ##
-## **Images** ##
+### **Images** ###
 (1) Red, yellow cadillacs
 (2) Bus in front of a Nashville school with a playground
 (3) The sun shining through the traffic in Nashville
@@ -929,7 +929,7 @@ is_contact: true
 (6) Gas stations and freedom at them
 
 ## **Day 53** ##
-## **Images** ##
+### **Images** ###
 (1) Red barn
 (2) Snow on the ground, the trees
 (3) Beautiful homes united with Trump signs in the front in Bristol, VA/TN
@@ -943,7 +943,7 @@ is_contact: true
 (5) Country families appreciating dinners on Sundays, and church
 
 ## **Day 54** ##
-## **Images** ##
+### **Images** ###
 (1) Visual memory of rowing in Scotland
 (2) The bike carwash
 (3) Loving, honest men at the carwash
@@ -955,14 +955,14 @@ is_contact: true
 (6) Innocent young girls
 (7) White truck with a blinker
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The sound of silence
 (2) Rain
 (3) Wind
 (4) Cars driving
 (5) Christmas music
 
-## **Sounds** ##
+### **Sounds** ###
 (1) "Thank you for the music playing"
 (2) Tweep, tweep of the birds outside
 (3) Water flowing
@@ -970,14 +970,14 @@ is_contact: true
 (5) The sound of innocence in the books "Little House on the Prairie"
 
 ## **Day 55** ##
-## **Images** ##
+### **Images** ###
 (1) The bird flying solo
 (2) Community artwork on the wall in Starbucks
 (3) RVs outside peoples' homes
 (4) White houses, homes in the country of America
 (5) God's son driving a Uhaul to help someone at home
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Community voices talkking about family challenges in Starbucks
 (2) Aunt Jeannie's voice
 (3) Toilet flushing
@@ -985,14 +985,14 @@ is_contact: true
 (5) The rain pitter, patter
 
 ## **Day 56** ##
-## **Images** ##
+### **Images** ###
 (1) Couples singing, holding hands
 (2) The clipping in the kitchen - clip, clip, clip
 (3) Lawn mower, zoom zoom
 (4) Water running into a glass
 (5) Innocent, childlike smiles
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Black men outside the Salvation Army
 (2) Red, white building
 (3) The dignity of the police men
@@ -1000,7 +1000,7 @@ is_contact: true
 (5) American Renaissance
 
 ## **Day 57** ##
-## **Images** ##
+### **Images** ###
 (1) Horses on the side of the highway
 (2) Used cars on the side of the highway
 (3) Cable lines in the sky in the country
@@ -1011,13 +1011,13 @@ is_contact: true
 
 (6) Black lives on the country highway
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Mississippi Accent
 (2) Radio Station on healing Black Lives thorugh churches in their neighborhoods
 (3) Black mailbox
 
 ## **Day 58** ##
-## **Sounds** ##
+### **Sounds** ###
 (1) Pool of grey, silver water in the Red dirt
 (2) Blue and silver Amgrak train on a Monday morning
 (3) Gates opening and closing with workers
@@ -1028,7 +1028,7 @@ is_contact: true
 
 (6) The sun reflects through puddles of water on the Black road
 
-## **Images** ##
+### **Images** ###
 (1) R&B music playing on the Road
 (2) Praise to Allah
 (3) A man, a friend correcting me while driving
@@ -1036,7 +1036,7 @@ is_contact: true
 (5) The sound of a man's voice
 
 ## **Day 59** ##
-## **Sounds** ##
+### **Sounds** ###
 (1) Rusted trucks and cars in farmland
 (2) Gas stations
 (3) Birds flying in the sky
@@ -1048,14 +1048,14 @@ is_contact: true
 (6) Southern restaurant
 
 ## **Day 60** ##
-## **Sounds** ##
+### **Sounds** ###
 (1) Old fashioned cars - black, brown
 (2) Red painted truck
 (3) Blue car crossing the train tracks
 (4) The sound of a man's voice 
 (5) The day before Thanksgiving
 
-## **Images** ##
+### **Images** ###
 (1) Early morning dew
 (2) Order on the road
 (3) A beautiful family and beautiful name
@@ -1063,19 +1063,19 @@ is_contact: true
 (5) Peace in the morning at the airpot
 
 ## **Day 61** ##
-## **Sounds** ##
+### **Sounds** ###
 (1) Gold powder on the side of the road
 (2) Trailer in the right lane
 (3) Marhshland
 (4) Rain washing the sun and pain, and sin away, the rain clearing out
 (5) Cleansing rain
 
-## **Images** ##
+### **Images** ###
 (1) Christmas peace
 (2) Glittery brown gray tree branches with colored leaves falling off
 
 ## **Day 62** ##
-## **Images** ##
+### **Images** ###
 (1) The reds and whites on Country music street
 (2) Red truck, guitars, lights
 (3) Innocence and freedom for all race in Nashville - it's 2020
@@ -1087,21 +1087,21 @@ is_contact: true
 (6) Green leaves near the water
 (7) The construction workers working
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Blues, jazz music staying the night in Bristol
 (2) A bus honking a horn
 (3) The sounds of cars moving sounding like a ocean wave
 (4) Peace, be still; sin no more after acknowledging sinful acts
 
 ## **Day 63** ##
-## **Images** #
+### **Images** ###
 (1) Christmas decorations on white picket fences
 (2) A man on an orange ladder putting Christmas lights up
 (3) Red trucks in driveways, and on streets
 (4) City lights
 (5) Cones on the highway
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Children yelling
 (2) The sound of doing laundry and household chores in a hotel
 (3) The motor of a car
@@ -1113,14 +1113,14 @@ is_contact: true
 (6) Silence
 
 ## **Day 64** ##
-## **Images** ##
+### **Images** ###
 (1) Woman looking after Children in a playground
 (2) The beauty of all races in Chicago
 (3) Women pushing strollers
 (4) Women walking with a young girl
 (5) Homes united in India from a blue house to a white house with the sunlight shining through
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Church bells ringing on a Sunday
 (2) A boy yelling while on a bike
 (3) Boys yelling 'warm water, warm water'
@@ -1128,7 +1128,7 @@ is_contact: true
 (5) Blues and jazz music
 
 ## **Day 65** ##
-## **Images** ##
+### **Images** ###
 (1) Early morning dew
 (2) Order on the road
 (3) A beautiful family and beautiful name
@@ -1139,7 +1139,7 @@ is_contact: true
 
 (6) Peace in the morning at the airport
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Old fashioned cars
 (2) Red painted truck
 (3) Blue car crossing the train tracks
@@ -1147,14 +1147,14 @@ is_contact: true
 (5) Birds tweeting
 
 ## **Day 66** ##
-## **Images** ##
+### **Images** ###
 (1) A handful of coins
 (2) Brown leaves blowing
 (3) White petals on the ground
 (4) Green leaves outside
 (5) Books stacked
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Air conditioning
 (2) Joyful music in the car
 (3) The clock ticking
@@ -1162,14 +1162,14 @@ is_contact: true
 (5) The clicks of the keyboard
 
 ## **Day 67** ##
-## **Images** ##
+### **Images** ###
 (1) Gumballs on the street
 (2) An old church for sale
 (3) An American flag flying over the water
 (4) Green leaves
 (5) White flowers
 
-## **Sounds** ##
+### **Sounds** ###
 (1) A door creaking, and squeaking
 (2) A motor zooming
 (3) A whiperwill bird
@@ -1177,7 +1177,7 @@ is_contact: true
 (5) Someone crunching on peanuts
 
 ## **Day 68** ##
-## **Images** ##
+### **Images** ###
 (1) Jeremiah bumper sticker in a truck window
 (2) Red van in a driveway
 (3) Church domes
@@ -1190,7 +1190,7 @@ is_contact: true
 (7) American flag at a construction site
 (8) Gas station
 
-## **Sounds** ##
+### **Sounds** ###
 (1) A car motor running
 (2) Birds chirping in the morning
 (3) The sound o my sister's voice
@@ -1198,14 +1198,14 @@ is_contact: true
 (5) The sound of a prayer for the nation and all the schools nearby and far away
 
 ## **Day 69** ##
-## **Images** ##
+### **Images** ###
 (1) The markings on the street
 (2) The church domes
 (3) The flowers in front of the library
 (4) The school bus
 (5) The public transportation bus
 
-## **Sounds** ##
+### **Sounds** ###
 (1) A car speeding up
 (2) The breeze beating up on a car window moving my hair
 (3) Children screaming and playing
@@ -1213,14 +1213,14 @@ is_contact: true
 (5) Squeaking of a swing
 
 ## **Day 70** ##
-## **Images** ##
+### **Images** ###
 (1) Pen touching paper 
 (2) Cars standing in line
 (3) People sitting in cars listening to music
 (4) Yellow leaves on the ground
 (5) Bubbles in water in waterbottles
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The cutting of food
 (2) The oven heating
 (3) Cars driving by outside the window
@@ -1228,7 +1228,7 @@ is_contact: true
 (5) Little kids yelling outside
 
 ## **Day 71** ##
-## **Images** ##
+### **Images** ###
 (1) Coins at the laundromat
 (2) Industry scenery
 (3) Playgrounds
@@ -1241,7 +1241,7 @@ is_contact: true
 (7) Four yellow buses
 (8) A dual language church
 
-## **Sounds** ##
+### **Sounds** ###
 (1) A conversation in Spanish
 (2) Country music on the road
 (3) The air conditioning
@@ -1249,7 +1249,7 @@ is_contact: true
 (5) The keyboard clicks
 
 ## **Day 72** ##
-## **Images** ##
+### **Images** ###
 (1) Yellow leaves on the driveway
 (2) Yellow plants on the side of the highway
 (3) Cellphone towers
@@ -1267,7 +1267,7 @@ is_contact: true
 (12) A balloon hitting a car
 (13) Dogs in the back of a pickup truck
 
-## **Sounds** ##
+### **Sounds** ###
 (1) A woman with a Spanish voice
 (2) Car motor
 (3) Car door shutting
@@ -1279,14 +1279,14 @@ is_contact: true
 (6) A man yelling with his son cheerfully
 
 ## **Day 73** ##
-## **Images** ##
+### **Images** ###
 (1) Green paint on a house
 (2) Spanish language on doors and signs
 (3) "Atone" graphic on a building
 (4) Balloons on the street
 (5) A green ladder
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Water dripping
 (2) Land mower mowing
 (3) Five birds chirping on a wire
@@ -1294,14 +1294,14 @@ is_contact: true
 (5) Clock ticking
 
 ## **Day 74** ##
-## **Images** ##
+### **Images** ###
 (1) A tree branch fallen
 (2) Purple flowers budding
 (3) Green grass looking like paste on the street asphalt
 (4) Brown circles caved into sdiewalks
 (5) People taking pictures
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Cars driving by
 (2) Clicking clickety clack of light rale
 (3) Background music
@@ -1309,14 +1309,14 @@ is_contact: true
 (5) Crumbling of dirt
 
 ## **Day 75** ##
-## **Images** ##
+### **Images** ###
 (1) People under a green tree
 (2) Note cards on tree leaves
 (3) The light in the darkness at night, the light coming from windows
 (4) A shadow
 (5) The long road ahead with two yellow lines with the street touching the trees
 
-## **Sounds** ##
+### **Sounds** ###
 (1) People talking at a restaurant
 (2) A grocery basket rolling on the street - the clinking clacking clackity
 (3) An airplane launching in the sky
@@ -1324,14 +1324,14 @@ is_contact: true
 (5) The cutting of food
 
 ## **Day 76** ##
-## **Images** ##
+### **Images** ###
 (1) Flowers, stop sign in the reflection
 (2) Water droplets on a flower
 (3) Concentric circles on a sidewalk
 (4) Snow on a flower
 (5) Golden sunlight
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The sound of children playing
 (2) The sound of music playing
 (3) The lawn mower
@@ -1339,14 +1339,14 @@ is_contact: true
 (5) These sounds and activities are going off far away in another country
 
 ## **Day 77** ##
-## **Images** ##
+### **Images** ###
 (1) Blue blanket
 (2) Old rickety basement
 (3) Brown houses
 (4) Dark red windows
 (5) Blue painting on a house
 
-## **Sounds** ##
+### **Sounds** ###
 (1) A woman humming
 (2) A bucket hitting the floor
 (3) Keybord clickers clicking
@@ -1354,14 +1354,14 @@ is_contact: true
 (5) Paper crinkling
 
 ## **Day 78** ##
-## **Images** ##
+### **Images** ###
 (1) A pile of branches tied up
 (2) A back window outside of a house
 (3) Greenery on a home
 (4) Blue paint on a house
 (5) A swing
 
-## **Sounds** ##
+### **Sounds** ###
 (1) The voice of the mail man
 (2) The sprinkler
 (3) The sound of a memory at the pool
@@ -1369,14 +1369,14 @@ is_contact: true
 (5) A clock ticking
 
 ## **Day 79** ##
-## **Images** ##
+### **Images** ###
 (1) A familiar face
 (2) Birds flying under a truck
 (3) The shadow of a bird flying
 (4) A leaf flying on a truck
 (5) Water droplets on a bag
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Tennis balls hitting tennis racquets
 (2) A woman talking in the neighborhood
 (3) A shoe stepping on a leaf
@@ -1384,14 +1384,14 @@ is_contact: true
 (5) Glasses clanking
 
 ## **Day 80** ##
-## **Images** ##
+### **Images** ###
 (1) Shoes on a skywalk
 (2) The rumble of a train
 (3) Green shutters
 (4) Green paint
 (5) American flag on a white house
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Trash truck driving through
 (2) Two women talking
 (3) Scottish music playing
@@ -1399,14 +1399,14 @@ is_contact: true
 (5) Shoes hitting the pavement
 
 ## **Day 81** ##
-## **Images** ##
+### **Images** ###
 (1) Books in a window
 (2) Street signs reflecting through windows
 (3) People's eyes
 (4) American flags
 (5) Yellow flowers
 
-## **Sounds** ##
+### **Sounds** ###
 (1) Clicking keys
 (2) Water flowing
 (3) Birds twirping
@@ -1414,14 +1414,14 @@ is_contact: true
 (5) Air blowing
 
 ## **Day 82** ##
-## **Images** ##
+### **Images** ###
 (1) A small rose on a countertop
 (2) A flowerbud on the street
 (3) People's smiles on the street
 (4) Leaves swirling around
 (5) Garden pots in a window
 
-## **Sounds** ##
+### **Sounds** ###
 (1) 
 (2) 
 (3)
