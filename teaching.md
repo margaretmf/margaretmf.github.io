@@ -179,6 +179,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * James Henry Trotter, four-year-old boy
 * Parents, Mother and Father
 * Aunt Sponge, Aunt Spiker, and James
+* James's relationship with the Centipede, the Old-Green Grasshopper
 
 ### Where? ###
 * A beautiful house beside the sea
@@ -187,22 +188,26 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ### What? ###
 * Blazing hot day in the middle of summer
+* Telling stories
+* Relationship to the peace and the Grasshopper
 
 ### Color ###
-* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage, dark-green // suit, black // whiskers, white // paper bag, green // things, green // parrot, green // things, deep blue // sky, butter-colored // pumpkin, buttery yellow // skin, brilliant pink and red // patches, wild // white // moon, black // shadows, silver // ball, brown // wall, white // face, scarlet // shell, black // spots, greenish // light, black // glassy eyes, black // tongue
+* blackish-blue // sky, white // flabby faces, white // soggy overboiled cabbage, dark-green // suit, black // whiskers, white // paper bag, green // things, green // parrot, green // things, deep blue // sky, butter-colored // pumpkin, buttery yellow // skin, brilliant pink and red // patches, wild // white // moon, black // shadows, silver // ball, brown // wall, white // face, scarlet // shell, black // spots, greenish // light, black // glassy eyes, black // tongue, black // eyes, green // things, greenish // light, brown // sticky mess, white // cliffs, beautiful // country, mounting // excitement, strong // sunlight
 
 ### Adjectives ###
-* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes, lazy // good-for-nothing // brute, disgusting // worm, bald // head, strange // brightness, luminous // quality, wonderful // way, musty // breath, rustling // sound, little // stones or crystals, slimy // crocodile, long // grass, old // peach // tree, little // beast, hideous // brat, precious // bag, happier // life, highest // branch, faintest // idea, sudden // stillness, bulging // eyes, tall // glasses, fizzy // lemonade, queer // ramshackle // house, slightest // shake, stupid // boy, small // car, small // house, sly // smile, giant // peach, strong // fence, front // gate, seething // mass, miraculous // fruit, disgusting // little // brute, banana // skins, strange // shapes, dazzling // sight, curving // sides, shining and glinting // moonlight, damp // tunnel, murky // tunnel, gigantic // fruit, deep // grooves, solid // wall, large // dog, scarlet // shell, long // silence, wriggling // movement, awful // thought, scornful // voice
+* happy // life, beautiful // house, sandy // beach, perfect // life, small // boy, terrible // thing, full // daylight, crowded // street, nasty // experience, gentle // parents, lovely // house, vast // world, horrible // people, real // name, miserable // creature, high // hill, marvelous // landscape, clear // day, right // direction, gray // dot, terrible // punishment, nasty // little // beast, entire // place, ancient // peach tree, sand // pit, forbidden // world, magic carpet, laurel // bushes, far // end, blazing // hot // day, fizzy // lemonade, sunken // mouth, steel-rimmed // spectacles, screeching // voice, long wet narrow // lips, ghastly // hags, long-handled // mirror, hideous // face, terrible // heat, great // tears, chopping // block, little // friends, wild // flowers, frightened // eyes, lazy // good-for-nothing // brute, disgusting // worm, bald // head, strange // brightness, luminous // quality, wonderful // way, musty // breath, rustling // sound, little // stones or crystals, slimy // crocodile, long // grass, old // peach // tree, little // beast, hideous // brat, precious // bag, happier // life, highest // branch, faintest // idea, sudden // stillness, bulging // eyes, tall // glasses, fizzy // lemonade, queer // ramshackle // house, slightest // shake, stupid // boy, small // car, small // house, sly // smile, giant // peach, strong // fence, front // gate, seething // mass, miraculous // fruit, disgusting // little // brute, banana // skins, strange // shapes, dazzling // sight, curving // sides, shining and glinting // moonlight, damp // tunnel, murky // tunnel, gigantic // fruit, deep // grooves, solid // wall, large // dog, scarlet // shell, long // silence, wriggling // movement, awful // thought, scornful // voice, withering // look, tough // day, magnificent // affair, pale // light, complicated // knots, gentle // dig, whistling // noises, extraordinary // sight, electric // bulb, beautiful // peach, desolate // hilltop, repulsive // aunts, hole // garden, steep // edge, grinning // face, tremendous // speed, famous // factory, warm melted // chocolate, round // object, downhill // slope, indescribable // chaos, whole // history, unfortunate // creatures, terrible // journey
 
 ### Adverbs ###
-* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting, slowly // stirring, madly // waving, furiously // froth, furiously // bubble, frantically // scrabble, gently // touched, slowly // walking, cautiously // inspecting, comfortably // reclining, soundly // sleeping, suddenly // announced, proudly // answered
+* peacefully // living, wistfully // gazing, fantastically // peculiar, comfortably // sitting, slowly // stirring, madly // waving, furiously // froth, furiously // bubble, frantically // scrabble, gently // touched, slowly // walking, cautiously // inspecting, comfortably // reclining, soundly // sleeping, suddenly // announced, proudly // answered, primly // said, broadly // grinning, loudly // snoring, softly // mumbling, excitedly // moving, madly // rushed, frantically // leapings, slowly // roll, nervously // peering
 
 ### Vocabulary ###
-* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched, Bristly, Emerging, Beckoning, Hobbled, Whisper, Wave, Glow, Sparkle, Murmur, Clutching, Burst, Wriggle, Twist, Burrow, Scrabble, Suggest, Wheeze, Punishment, Despair, Unhappiness, Chop, Hopping, Clapping, Spellbound, Murmur, Stare, Twerp, Snap, Declare, Inspect, Wink, Scramble, Glimpse, Whisper, Marvelous, Slitherer
+* Paddle, Enormous, Escape, Imagine, Jiffy, Refer, Frighten, Disgusting, Miserable, Mischief, Desolate, Peculiar, Sipping, Screaming, Slaving, Screeched, Bristly, Emerging, Beckoning, Hobbled, Whisper, Wave, Glow, Sparkle, Murmur, Clutching, Burst, Wriggle, Twist, Burrow, Scrabble, Suggest, Wheeze, Punishment, Despair, Unhappiness, Chop, Hopping, Clapping, Spellbound, Murmur, Stare, Twerp, Snap, Declare, In, wspect, Wink, Scramble, Glimpse, Whisper, Marvelous, Slitherer, Wriggling, Obvioiusly, Useful, Splendid, Shimmer, Amble, Glance, Hurling, Nibbling, Lurching, Marvelous, Oozing, Wading, Disentangle
 
 ### Allusions ###
+* Chocolate Factory
 
 ### Themes ###
+* Relationship to Nature, Boyhood, Strange Family Members
 
 ### Interesting Sentences or Paragraphs ##
 * "The lovely huse by the seaside had to be sold immediately, and the little boy, carrying nothing but a small suitcase containing a pair of pajamas and a toothbrush, was sent away to live with his two aunts." (p. 2, "James and the Giant Peach")
@@ -372,6 +377,93 @@ On the floor over in the far corner, there was something thick and white that lo
 Every one of these 'creatures' was at least as big as James himself, and in the strange greenish light that shone down from somewhere in the ceiling, they were absolutely terrifying to behold." (pp. 26-27, "James and the Giant Peach")
 
 * "'You mustn't be frightened,' the Ladybug said kindly. 'We wouldn't *dream* of hurting you. You are one of us now, didn't you know that? You are one of the crew. We're all in the same boat.'" (p. 30, "James and the Giant Peach")
+
+* "They just take his word. And anyway, there is nothing *marvelous*, you know, Centipede, about having alot of legs."
+
+"'Poor fellow,' the Centipede said, whispering in James's ear.
+
+'He's blind. He can't see how splendid I look.'
+
+'In my opinion,' the Earthworm said, 'the *really* marvelous thing is to have no legs at all and to be able to walk just the same.'
+
+'You call that *walking*!' cried the Centipede. 'You're a *slitherer*, that's all you are! You just *slither* along!'
+
+'I glide,' said the Earthworm primly.
+
+'You are a slimy beast,' answered the Centipede.
+
+'I am *not* a slimy beast,' answered the Centipede.
+
+'I am *not* a slimy beast,' the Earthworm said. 'I am a useful and much loved creature. Ask any gradener you like. And as for you...'
+
+'I am a pest!' the Centipede announced, grinning broadly and looking round the room for approval.
+
+'He is *so* proud of that,' the Ladybug said, smiling at James. 'Though for the life of me I cannot understand why.'
+
+'I am the only pest in this room!' cried the Centipede, still grinning away. 'Unless you count Old-Green-Grasshopper over there. But he is long past it now. He is too old to be a pest anymore.'
+
+The Old-Green-Grasshopper turned his huge black eyes upon the Centipede and gave him a withering look. 'Young fellow,' he said, speaking in a deep, slow, scornful voice, 'I have never been a pest in my life. I am a musician.'" (p. 31, "James and the Giant Peach")
+
+* "'*Very peculiar,'* the Centipede said, '*Very, very* peculiar indeed. Let me tell you what happened. I was messing about in the garden under the old peach tree and suddenly a funny little green thing came wriggling past my nose. Bright green it was, and extraordinarily beatuiful, and it looked like some kind of a tiny stone or crystal...'"
+
+"'Suddenly there were little green things everywhere! The soil was full of them!'" (p. 32, 'James and the Giant Peach")
+
+* "For the first time since entering the room, James glanced up at the ceiling - and there he saw a most extraordinary sight. Something that looked like a gigantic fly without wings (it was at least three feet long) was standing upside down upon its six legs in the middle of the ceiling, and the tail end of this creature seemed to be literally on fire. A brilliant greenish light as bright as the brightest electric bulb was shining out of its tail and lighting up the whole room." (p. 35, "James and the Giant Peach")
+
+* "James Henry Trotter lay there in the darkness with his eyes wide open, listening to the strange sleeping noises that the 'creatures' were making all around him, and wondering what on earth was going to happen to him in the morning. Already, he was beginning to like his new friends very much. They were not nearly as terrible as they looked. In fact, they weren't really terrible at all. They seemed extremely kind and helpful in spite of all the shouting and arguing that went on between them." (p. 37, "James and the Giant Peach")
+
+* "The Ladybug, who was obviously a kind and gentle creature, came over and stood beside him. 'In case you don't know it,' she said, 'we are about to depart forever from the top of this ghastly hill that we've all been living on for so long. We are about to roll away inside this great big beautiful peach to a land of...of...of...to a land of--'" (p. 38, "James and the Giant Peach")
+
+"'Never you mind,' said the Ladybug. 'But nothing could be worse than this desolate hilltop and those two repulsive aunts of yours --'" (p. 38, "James and the Giant Peach")
+
+*"'We may see a Creature with forty-nine heads
+Who lives in the desolate snow,
+And whenever he catches a cold (which he dreads)
+He has forty-nine noses to blow.'" 
+
+*"'We may see the venomous Pink-Spotted Scrunch
+Who can chew up a man with one bite.
+It likes to eat five of them roasted for lunch
+And eighteen for its supper at night.'"
+
+*"'We may see a Dragon, and nobody knows
+That we won't see a Unicorn there.
+We may see a terrible Monster with toes
+Growing out of the tufts of his hair.'"
+
+*"'We may see the sweet little Biddy-Brigh Hen
+So playful, so kind, and well-bred;
+And such beautiful eggs! You just boil them and then
+They explode and they blow off your head.'"
+
+*"'A Gnu and Gnocerous surely you'll see
+And that gnormous and gnorrible Gnat
+Whose sting when it stings you goes in at the knee
+And comes out through the top of your hat.'"
+
+*"'We may even get lost and be frozen by frost.
+We may die in an earthquake or tremor.
+Or nastier still, we may even be tossed.
+On the horns of a furious Dilemma.'"
+
+*"'But who cares! Let us go from this horrible hill!
+Let us roll! Let us bowl! Let us punge!
+Let's go rolling and bowling and spinning until
+We're away from old Spiker and Sponge!'" 
+
+* "Outisde in the garden, at that very moment, Aunt Sponge and Aunt Spiker had just taken their places at the front gate, each with a bunch of tickets in her hand, and the first stream of early-morning sightseers was visible in the distance climbing up the hill to view the peach." (p. 41, "James and the Giant Peach")
+
+* "The noise, of course, had been caused by the giant peach crashing through the fence that surrounded it, and now, gathering speed every second, it came rolling across the garden toward the place where Aunt Sponge and Aunt Spiker were standing.
+
+They gaped. They screamed. They started to run. They panicked. They both got in each other's away. They began pushing and jostling, and each of them was thinking only about saving herself. Aunt Sponge, the fat one, tripped over a box that she'd brought along to keep the money in, and fell flat on her face. Aunt Spiker immediately tripped over Aunt Sponge and came down on top of her. They both lay on the ground, fighting and clawing and yelling and struggling frantically to get up again, but before they could do this, the mighty peach was upon them." (p. 42, "James and the Giant Peach")
+
+* "The noise, of course, had been caused by the giant peach crashing through the fence that surrounded it, and now, gathering speed every second, it came rolling across the garden toward the place where Aunt Sponge and Aunt Spiker were standing." (p. 42, "James and the Giant Peach")
+
+* "And now the pach had broken out of the garden and was over the edge of the hill, rolling and bouncing down the steep slope at a terrific pace. Faster and faster and faster it went, and the crowds of people who were climbing up the hill suddenly caught sight of this terrible monster plunging down upon them and they screamed and scattered to right and left as it went hurtling by." (p. 43, "James and the Giant Peach")
+
+* "But the peach rushed on across the countryside - on and on and on, leaving a trail of destruction in its wake. Cowsheds, stables, pigsties, barns, bungalows, hayricks, anything that got in its way went toppling over like a nine-pin. An old man sitting quietly beside a stream had his fishing rod whisked out of his hands as it went dashing by, and a woman called Daisy Entwistle was standing so close to it as it passed that she had the skin taken off the tip of her long nose." (p. 45, "James and the Giant Peach")
+
+* "Everything and all of them were being rattled around like pease inside an enormous rattle that was being rattled by a mad giant who refused to stop. To make it worse, something went wrong with the Glow-worm's lighting system, and the room was in pitchy darkness. There were screams and yells and curses and cries of pain, and everything kep going round and round, and once James made a frantic grab at some thick bars sticking out from the wall only to find that they were a couple of the Centipede's legs. 'Let go, you idiot!' shouted the Centipede kickhing himself free, and James was promptly flung across the room into the Old-Green Grasshopper's honry lap. Twice he got tangled up in Miss Spider's legs (a horrid business), and toward the end, the poror Earthwrom, who was cracking himself like a whip every time he flew through the air from one side of the room to the other, coiled himself around James's body in a panic and refused to unwind." (p. 47, "James and the Giant Peach")
 
 
 ----------
