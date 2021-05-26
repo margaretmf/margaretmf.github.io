@@ -317,6 +317,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the people working in 7-11
 * Grateful for the electric lines outside of apartments
 * Grateful for technology design
+* Grateful for the trashcan on the street
 
 <br>
 
