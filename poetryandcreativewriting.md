@@ -319,6 +319,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for technology design
 * Grateful for the trashcan on the street
 * Grateful for hugs from little children in a dream
+* Grateful to feel a little boy in a dream wake me up
+* Grateful for the love of the start of a new day at school
+* Grateful for the leader at a workflow engineering and design project who loves Montessori education
 
 <br>
 
