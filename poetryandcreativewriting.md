@@ -322,8 +322,19 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful to feel a little boy in a dream wake me up
 * Grateful for the love of the start of a new day at school
 * Grateful for the leader at a workflow engineering and design project who loves Montessori education
-* Grateful for the charity button on Instagram
+* Grateful for the charity and fundraising buttons on Instagram
 * Grateful for religious liberty
+* Grateful for African American's role in religious liberty
+* Grateful for full forgiveness towards people who have hurt me and the freedom to not keep going over it
+* Grateful for the lesson learned about stopping to use gun images
+* Grateful for the opportunities to pick up trash
+* Grateful for people from other religious backgrounds in schools and the idea of "Coexistence" with God
+* Grateful for the freedom to express religious rights in schools and the freedom to care for Christianity
+* Grateful for the freedom to love other religions in schools
+* Grateful for an informed citizenry
+* Grateful for the freedom of women in the US government
+* Grateful for organization and order expressed through businesses
+* Grateful for little kids who express entrepreneurship
 
 
 <br>
