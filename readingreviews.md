@@ -8,7 +8,28 @@ As I read news through 2019 and 2020, I will review outstanding stories critical
 <br>
 
 
-## 2020 NEWS REVIEWS
+## 2021 AND 2020 NEWS REVIEWS
+## [Inmates Clean Up]() ##
+
+## [What Would a World Without Prisons Look Like? The Architect Deanna Van Buren Designs Civic Spaces That Are Healing Alternatives to Correctional Facilities](https://www.nytimes.com/2020/03/06/arts/design/prison-architecture.html)
+Patricia Leigh Brown writes an article about how people have worked to transform correctional facilities. Vicente Martinez, 18, is someone who has engaged in multiple stints in jails, claiming to 'mess up a lot', 'driving a stolen vehicle across county lines' and 'doing dumb kid's stuff'. People transformed the former drug house where Vicente spent time into a peacemaking spot. The transformation through "the Syracuse peacemaking project encourages a non-adversarial approach". Difficult conversations took place between family members to support healing in the calming spaces that faciliates 'opening up' in health ways. Through a stint in the facility, Vicente could unashamedly seek support and continue thriving in school.
+
+Other community leaders explore how to transform correctional facilities and prison spaces. Through design thinking practices, Ms. Van Buren, 47, 'co-founder of the Oakland-based nonprofit firm Designing Justice/Designing Spaces', has brought architectural thinking to ask 'what a world without prisons could look like.'" Through her projects, she has reinvisioned what a detention center would look like to support 'healing, refuge, and greater release'. Through design thinking, she taps into the voices of the people there and understand their needs. Other women share their sentiments of how they truly feel in a world with racial tension and gender-based injustices. After her experience in rural Virginia, she believed truly that communities could be creatively reimagined.
+
+The journalist writes the following: 
+
+"Her efforts have dovetailed with growing public acknowledgment of racial bias inherent in the criminal justice system. Laws intended to chip away at this include 'ban the box' legislation removing criminal record checks from job applications, bail and sentencing reform, and the full or partial decriminalization of marijuana possession in many states. Criminal justice experts said the dysfunction of the system led to the high-profile decision to close Rikers Island in New York. Judge Jonathan Lippman, who was once the leader of the New York Court of Appeals, described the prison as 'a powerful symbol of a discredited approach to criminal justice.'"
+
+Ms. Van Buren has also shared how 'she has also taken a preventive tack, by designing 'pop up villages' that bring health, educational and cultural resources to communities hard-hit by incarceration.' Through this work, she shows how architectural thinking supports healing in the community, and she has supported the 'Black in Design' movement. People build in restorative practices while designing spaces for people on the margins who need healing from being abused and being abusive. Design thinking supports providing a holistic view on the issue.
+
+With a holistic approach, there is space for emotionally-driven conversations about challenging topics. "The design work builds in 'cooling off' spaces to handle criminal assaults. The design work also constructs spaces for building self-sufficiency and helping individuals transform in concert with the community. 'Equity centers' support 'financial literacy, job training, and access to legal services and other community needs'. Those that 'the system impacts' do work to 'change the system' and 'architecting justice into society'."
+
+
+<br>
+
+<br>
+
+
 ## [Despite Everything, People Still Have Weddings at ‘Plantation’ Sites](https://www.nytimes.com/2020/10/17/style/despite-everything-people-still-have-weddings-at-plantation-sites.html) ##
 In 2020, Michael T. Luongo, the author of the article covers a surprising twist to the controversial big news of weddings in the South, where traditionally racism and slavery governed the times. Weddings on plantations have always made majors news. The idyllic imagery of beautiful ladies and gentleman expressing poise looks amazing in contrast to the horrific images of slavery.
 
