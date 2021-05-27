@@ -1422,8 +1422,23 @@ is_contact: true
 (5) Garden pots in a window
 
 ### **Sounds** ###
-(1) 
-(2) 
+(1) Clanking of bars in the neighborhood
+(2) Skateboards rolling
+(3) Construction machines beeping
+(4) A car zooming
+(5) Men yelling
+
+## **Day 83** ##
+### **Images** ###
+(1) Smudged blackberries
+(2) Leaves imprinted in a sidewalk
+(3) Shoeprints imprinted in a sidewalk
+(4) City buildings reflected through house windows
+(5) Leaves falling
+
+### **Sounds** ###
+(1)
+(2)
 (3)
 (4)
 (5)
