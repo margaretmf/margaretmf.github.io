@@ -63,6 +63,11 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 'Child and serpent, star and stone -- all one.'" (pp. 159-160, "Mary Poppins")
 
+## [Kill the Spider: Getting Rid of the Darkness That's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) ##
+"Sometimes I think we gloss over the power we have in other people's stories and the power others can have in ours. And sometimes its from someone we least expect." (p. 63, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"We intrinsically know because we all have the fabric of the King of Kings woven inside of us. God Himself created each and every one of us, and I believe that is why, even when we don't know Jesus, we are able to make those judgments." (p. 66, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
 
 ----------
 
@@ -76,6 +81,32 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 "The dark was beginning to fall, although it was early, only six P.M. and Rachel realized with a start that it was autumn, actually, even though it didn't feel like it; that's why the light was fading. Th eweather never changed much, and she had forgotten that time was moving on regardless. She was getting older, every day. She had lived in Mumbai a day longer every morning. And Swati lived with them longer very minute. But the city was indifferent to Rachel's problems. It had enough of its own." (p. 235, "Mother Land", Leah Franqui)
 
 "They craved the taste of human flesh and ate villagers who strayed too far into their territory, those who stayed out fishing too late, who didn't heed the setting of the sun, who planted their rice too far beyond teh boundaries of their village land. The more they ate, the more they craved. Rumors passed through Kolkata on the backs of newspapers and servants with relatives in the little towns that dotted the mangrove forests, that the tigers had stopped hunting other prey altogether, that they only focused on humans now. People said you didn't know they were there until they snuck up on you, emerging out of the water, silent strong swimmers that they were, a pair of violent yellow eyes glowing in the night, lighting the way to your doom." (p. 313, "Mother Land", Leah Franqui)
+
+
+----------
+
+
+# Light in the Darkness Imagery #
+## [Kill the Spider: Getting Rid of What's Really Holding You Back"](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) ##
+"I had been a regular visitor in Al's office for months. We had taken the spotlight of grace and shined it on all my sins. We had uncovered glimpses of hope in war-torn seasons. We had dug deep and found that buried deep beneath this mess of a man was a monumental man. I remember the day like it was yesterday. We had just achieved a massive breakthrough. I couldn't wait to get home and share with Heather what we had uncovered. And then he said it." (p. 17, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"Look back at the last week. What are the good things that you pulled off? When did light win for you over darkness?" (p. 70, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"The darkenss was darker than just the lights being off and the sun yet to rise. Something was up. And that something was dark. My window was open, and the curtains were flapping a bit more than normal. I was freaking out. After about two minutes of nonstop prayer, I knew I needed to be rescued from whatever was happening in my dplex that night. I needed my dad, so I jumped out of bed and ran to the kitchen to call him." (p. 85, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"Because although I didn't know much about this whole dark, evil, and spiritual warfare stuff, I was most certain that I was in it right then. And I was sure that my dad would know how to help me out of it." (p. 85, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"I flipped the light switch on, and as I reached for the phone to dial his number, it rang." (p. 86, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"We must get back to the place where our spider was birthed. It may take some work, but it's so worth it! What can get you there? A memory? A song? A conversation? Maybe you don't want to go there. Maybe you have managed to claw your way out of the darkness, with your own strength, and you have managed to get to place of a ncie, safe, happy existence, so why in the world would you want to go to a place that makes you remember all that pain? Let me tell you why. The freedom you have achieved for yourself, with your own strength, is only temporary freedom. It's cobweb-cleaning freedom. But the spider is still alvie and well. Yet we don't have to be afraid of the darkness, because when we bring God to those dark places, the places are no longer dark. (Psalm 139: 11-12 [NLT]):
+
+I could ask the darkness to hide me and the light around me to become night - but even in darkness I cannot hide from you. To you the night shines as bright as day. Darkness and light are the same to you.
+
+It's right there. God is LIGHT. And He is there in the darkness. We dont' need to be scared of going back to those dark places." (pp. 113-114, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"At the very least He should have sent a lightning bolt down from the heavens to scare the crap out of me." (p. 126, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"And then one day he gave me some advice that shined a light into a crack of hope I never would have seen without it." (p. 138, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
 
 ----------
@@ -232,11 +263,17 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 
 # Belief #
+## [Mother Land](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) ##
 "He was the kind of man who **believed** hismelf to be better than other people. He liked to be so. He enjoyed knowing where he stood next to others. He had liked her own moral rigidity, her disinterest in breaking with the rituals and conventions of their lives, and yet he had wanted to surpass her in them." (p. 138, "Mother Land", Leah Franqui)
 
 "Now, though, she woke up eager to be Magda. Magda lived a life lit with courage. She was forever willing to see the best in others, to be hopeful, to open her heart." (p. 184, "Mother Land", Leah Franqui)
 
 "Saying it would make it fine; his belief would become her reality. She would live by what other people thought, hoping their thoughts would be so strong that they would make them come true." (p. 261, "Mother Land", Leah Franqui)
+
+[Kill the Spider: Getting Rid of What's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X)
+"So the doctor couldn't fix me. I figured God was going to have to. Ugh. I hated this part of faith - the part where you have to believe in something you do not see and trust something you cannot really hear. So I prayed. I prayed some heart-wrenching prayers, my friends. I cussed at God - I yelled at God. I screamed at God. I begged God. I wanted this feeling to go away. I wanted to wake up one morning and have the feelings of anxiety be gone. But they never did." (p. 102, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+"The only time I really prayed for anything was when I needed soemthing *major* in my life. At those times, I would turn on the 'I Believe in Prayer' switch. Honestly, I did believe. I prayed holes in the knees of my jeans when I suffered my anxiety attack. I prayed so hard when we went to adopt our son, Losiah. I prayed morning, noon, and night for my uncle Roger when he was diagnosed with cancer. With the massive things in life, *everyone* believes in prayer." (p. 122, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
 
 ----------
