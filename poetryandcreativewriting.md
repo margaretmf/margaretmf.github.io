@@ -309,7 +309,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the educational work being done in Georgia around plantations
 * Grateful for the charity tool on Instagram
 * Grateful for reporting on Instagram to support fact-checking
-* Grateful for cute little kids who say hi
+* Grateful for cute little kids who say hello
 * Grateful for family therapy
 * Grateful for Langston Hughes' poetry
 * Grateful for the renewal for the next generation
@@ -322,6 +322,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful to feel a little boy in a dream wake me up
 * Grateful for the love of the start of a new day at school
 * Grateful for the leader at a workflow engineering and design project who loves Montessori education
+* Grateful for the charity button on Instagram
+* Grateful for religious liberty
+
 
 <br>
 
