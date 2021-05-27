@@ -339,6 +339,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for little kids in the neighborhood who run businesses
 * Grateful for sustainable businesses
 * Grateful for ways people use artistic ways to recycle trash
+* Grateful for compassion expressed in Big House Church members
 
 
 <br>
