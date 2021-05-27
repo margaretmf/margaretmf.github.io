@@ -335,6 +335,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the freedom of women in the US government
 * Grateful for organization and order expressed through businesses
 * Grateful for little kids who express entrepreneurship
+* Grateful for the public school system and the way the public school system expresses government, and self-government
 
 
 <br>
