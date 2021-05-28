@@ -340,6 +340,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for sustainable businesses
 * Grateful for ways people use artistic ways to recycle trash
 * Grateful for compassion expressed in Big House Church members
+* Grateful for memories of learning about the childhood and upbringing of Elvis and his experiences with the Black community in Mississippi
 
 
 <br>
