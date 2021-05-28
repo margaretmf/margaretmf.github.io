@@ -173,6 +173,42 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 
 ## [Peter Rabbitt 2]()
+### Who? ###
+* JW Rooster II
+* Thomas McGregor, the groom
+
+### Where? ###
+
+### What? ###
+
+### Color ###
+* heavenly white // wedding dress
+
+### Adjectives ###
+* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece
+
+### Adverbs ### 
+* crowed // loudly, hated // absolutely, searched // frantically
+
+### Vocabulary ###
+* flanked, determined
+
+### Allusions ###
+
+### Themes ###
+
+### Interesting Sentences or Paragraphs ###
+* "There is no better way to start a story than at a wedding - love, hope, and woodland animals...And this is where our story starts.
+
+The beautiful wedding about to take place was filled with the finest of finest - chairs, flowers, balloons, Johnny Town-mouse, a very well-dressed city mouse, was joined by three similarly well-dressed mice. The quartet began to sing." (p. 7, "")
+
+* "Peter was a determined and clever bunny with a cheeky grin and a knack for getting into trouble. His cousin Benjamin was wise, supporrtive, and looked for all the world as if his ears had been stuck on upside down." (p. 7, "")
+
+* "Cock-a-doodle-doo!" (p. 7, "")
+
+* "The old grump absolutely hated the rabbits who stole vegetables from his garden. Every waking moment was spent guarding his beans, carrots, and lettuces. Then, on one terrible day, Mr. McGregor had managed to catch Peter's father and bake him in a pie. Peter had never forgiven him. It was understandable therefore, why Peter and the young Mr. McGregor had not seen eye to eye at first. But things were different now. Peter was a changed rabbit." (p. 9, "")
+
+* This is what Peter of the last tale would have done. The Peter of this tale had learned from his mistakes.: (p. 11, "")
 
 ## [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
 ### Who? ###
@@ -183,7 +219,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 
 ### Where? ###
 * A beautiful house beside the sea
-* Londond
+* London
 * the London Zoo
 
 ### What? ###
@@ -209,7 +245,7 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Themes ###
 * Relationship to Nature, Boyhood, Strange Family Members
 
-### Interesting Sentences or Paragraphs ##
+### Interesting Sentences or Paragraphs ###
 * "The lovely huse by the seaside had to be sold immediately, and the little boy, carrying nothing but a small suitcase containing a pair of pajamas and a toothbrush, was sent away to live with his two aunts." (p. 2, "James and the Giant Peach")
 
 * "Their names were AUnt Sponge and Aunt Spiker, and I am sorry to say that they were both really horrible people. They were selfish and lazy and cruel, and right from the beginning they started beating poor James for almost no reason at all. They never called him by his real name, but always referred to him as 'you disgusting little beast' or 'you filthy nuisance' or 'you miserable creature,' and they certainly never gave him any toys to play with or any picture books to look at. His room was as bare as a prison cell." (p. 2, "James and the Giant Peach")
