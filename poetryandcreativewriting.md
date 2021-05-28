@@ -340,6 +340,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for sustainable businesses
 * Grateful for ways people use artistic ways to recycle trash
 * Grateful for compassion expressed in Big House Church members
+* Grateful for the people I saw in the grocery store and the positive experiences in their lives
+* Grateful for the union that people express
 
 
 <br>
@@ -356,7 +358,7 @@ Long before we had cities of stone or the technology to write, our ancestors wer
 
 Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
 
-In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences you've had in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
@@ -4622,6 +4624,21 @@ with everyone
 
 <br>
 
+## Oh, It's A New Day ##
+Oh, it's a new day to sing a new song and let the love that gives life move a beating heart.
+There's a reason to sing and there's a reason to live, there's a reason to smile and there's a reason to move.
+
+Oh, it's a new day to let the light in and feel the warmth of the sun shining down on my face.
+It's a lovely day for the birds to chirp and the grass to grow and the bees to buzz.
+There's a reason to care and there's a reason to laugh, there's a reason begin afresh and there's a reason to dance.
+
+It's a new day to skip outside and see the neighbors wave and the little ones laugh and play/
+There are cars moving round and round, and schools in session.
+There are activities all around and sounds everywhere.
+It's a wonderful day to see new things and feel surprised and be amazed.
+
+<br>
+
 ## It Takes Faith ##
 It takes faith to wake up another day.
 It takes faith to walk out the door.
@@ -4724,7 +4741,7 @@ They've touched upon dirt and grovel.
 They've gone down lonely pathways.
 
 They've really worn themselves in.
-They have some holes in the soles .
+They have some holes in the soles.
 They've really lived another day.
 They've become sturdy and strong.
 They've been everywhere.
@@ -4733,6 +4750,11 @@ They've walked down sidewalks.
 They've walked through forests.
 They've hit the mall.
 They've been down grassland.
+
+These boots of mine.
+They've been down dark and cracked roads.
+There's a seed popping up beneath my feet.
+It's showing the beauty of the flowering treasure ahead.
 
 <br>
 
@@ -5783,6 +5805,24 @@ Hitting back when I can forgive will lead to prison.
 <br>
 
 ## Prison ##
+This prison cell.
+A prisoner of the culture.
+A prisoner of beliefs.
+A prisoner of the pressure.
+A prisoner of the blockages.
+A prisoner of the beliefs.
+A prisoner of ridicule.
+A prisoner of the mocking.
+A prisoner of the teasing.
+A prisoner of the reactions.
+A prisoner of the retaliation.
+A prisoner of the rejection.
+A prisoner of the lack.
+A prisoner of the confusion.
+A prisoner of the questioning.
+Free me from this cell.
+Show me how to live.
+Help me be free.
 
 ## Bullying ##
 Hello, Mr. Bully.
