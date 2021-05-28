@@ -185,13 +185,13 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * heavenly white // wedding dress
 
 ### Adjectives ###
-* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece
+* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face
 
 ### Adverbs ### 
-* crowed // loudly, hated // absolutely, searched // frantically
+* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly
 
 ### Vocabulary ###
-* flanked, determined
+* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed
 
 ### Allusions ###
 
@@ -209,6 +209,10 @@ The beautiful wedding about to take place was filled with the finest of finest -
 * "The old grump absolutely hated the rabbits who stole vegetables from his garden. Every waking moment was spent guarding his beans, carrots, and lettuces. Then, on one terrible day, Mr. McGregor had managed to catch Peter's father and bake him in a pie. Peter had never forgiven him. It was understandable therefore, why Peter and the young Mr. McGregor had not seen eye to eye at first. But things were different now. Peter was a changed rabbit." (p. 9, "")
 
 * This is what Peter of the last tale would have done. The Peter of this tale had learned from his mistakes.: (p. 11, "")
+
+* "'We're a family.' Bea smiled and gestured across the store toward Peter, Benjamin, Flopsy, Mopsy, and Cotton-tail.
+
+'Yes, we are blessed,' Thomas agreed. 'But there's also that old-fashioned definition of a family. You know, when *humans* become parents to other *humans*.'" (p. 13, "")
 
 ## [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
 ### Who? ###
