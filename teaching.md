@@ -176,26 +176,29 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Who? ###
 * JW Rooster II
 * Thomas McGregor, the groom
+* Peter, Benjamin
 
 ### Where? ###
 
 ### What? ###
 
 ### Color ###
-* heavenly white // wedding dress
+* heavenly white // wedding dress, blue // coat
 
 ### Adjectives ###
-* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face
+* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face, broken // window, human // speech, reassuring // arm, whole // section, last // display, psychotic // breakdown, sweet // strawberries, precious // harvest, different // story, flawless // square plot, biggest // plant, higher // ground, stinky // mulch, vivid // memories, brilliant // color books, naughty // rabbit, interwoven // narrative, incredulous // look, recycling // bins, healthiest // way, brief // nod, gruff // old rabbit
 
 ### Adverbs ### 
-* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly
+* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly, silently // counting, repeated // breathlessly, intently // listening, gestured // frantically, nodding // excitedly, swung // helplessly, hastily // grab
 
 ### Vocabulary ###
-* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed
+* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed, slunk, scampered, smirked, grin, avoid, explain, skid, glimpse, shrug, waltz, explode
 
 ### Allusions ###
+* Charles Dickens
 
 ### Themes ###
+* Gardening, Nature, City Streets, Adventure
 
 ### Interesting Sentences or Paragraphs ###
 * "There is no better way to start a story than at a wedding - love, hope, and woodland animals...And this is where our story starts.
@@ -213,6 +216,22 @@ The beautiful wedding about to take place was filled with the finest of finest -
 * "'We're a family.' Bea smiled and gestured across the store toward Peter, Benjamin, Flopsy, Mopsy, and Cotton-tail.
 
 'Yes, we are blessed,' Thomas agreed. 'But there's also that old-fashioned definition of a family. You know, when *humans* become parents to other *humans*.'" (p. 13, "")
+
+* "When it had belonged to the Old Mr. McGregor, the place had been out-of-bounds in a big way. The gate was padlocked, and the animals kenw that they entered at their own peril. Mr. McGregor regularly patrolled the borders and hegerows with a hoe, threatening to smack it down on any creature bold enough to even peep at his precious harvest. Now, however, it was a very different story. Nto only were there no patrols, there was no gate. The garden was a bunny's paradise - stocked to the tip-top with row upon row of sweet strawberries, ripe radishes, and crunchy carrots." (p. 21, "")
+
+* "'That city man sure loves his tomatoes,' she declared." (p. 23, "")
+
+* "'I haven't really thought about it,' Bea preteneded, 'but...I guess I do have a brief framework for a twenty-three-book series featuring a hundred and nine characters based on the animals in my life, creating an interwoven narrative about morality, nature, and family, set in the fields and towns around our farm'" 
+
+* "Peter had never been to Gloucester before. He wandered down side streets, ambled down alleys, and hopped along lanes. There were hardly any people in the shadows behind the hustle and bustle of the high street, although he did pass a familiar and very talented busking quartet. Johnny Town-mouse's sorrowful crooning perfectly matched Peter's mood. He turned another corner where the buildings were lower and found that when he looked up, he could still see the billboard. It seemed to loom inescapably over him at every corner." (p. 38, "")
+
+* "It was dark inside the letterbox. The only sound came from Peter. The older rabbit climbed up the stack of letters and peeked through the slot. The shoekeeper ran by, hot on the tail of the pair of...rats." (p. 41, "")
+
+* "Suddenly, there was a dull clunk and the letterbox was suddenly flooded with light. The collection door had been unlocked. A landslide of bills, cards, and packages began to shift down toward the open door." (p. 42, "")
+
+* "Without a moment's hesitation, Barnabas jumped up onto a row of recycling bins, Peter just had time to note that each was clearly labeled - PAPER, PLASTIC, GLASS, and METAL - before, he, too, disappeared inside." (p. 43, "")
+
+* "The young rabbit searched the backstreet. His eyes found Barnabas and locked on his gaze. And then Peter was carried away to rejoin the others." (p. 50, "")
 
 ## [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
 ### Who? ###
