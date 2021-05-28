@@ -68,6 +68,15 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "We intrinsically know because we all have the fabric of the King of Kings woven inside of us. God Himself created each and every one of us, and I believe that is why, even when we don't know Jesus, we are able to make those judgments." (p. 66, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
+## ["The Power of Ritual: Turning Everyday Activities into Soulful Practices"](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) ##
+"You might have experienced this sense of collective union at a music festival, on the streets at a protest, or in the middle of a sports arena. Perhaps you've tried a retreat experience which has reset your perspective, or you have a mindfulness or meditation practice. Even the smallest spaces can help us connect with something greater. Before moving into our own apartment, Sean and I lived with three wonderful housemates, meaning that the only spot in our apartment where I could be assured to be alone was our dusty winter coat closet. There, amid the piles of toolboxes and snow boots, I stored my meditation cushion. For the two years we lived on Trowbridge Street, I'd climb into the closet first thing in the morning and start my meditation time by listening to a piece of music. Sixteenth-century motets like 'Ego flos campi' by Jacob Clemens non Papa and contemporary compositions like Arvo Part's haunting 'Spiegel im Speigel' brought me into a prayerful time." (p. 156, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"Traditionally, of course adoration would have been about explicitly worshipping god. This might resonate for some, but if it doesn't, I suggest that you find ways of lifting your attention toward the larger beauty of the world, to the greater connection that holds all things. You might want to read a poem to yourself or find a small selection of music tracks that move you. And of course, if god language works for you - go for it! What matters to me is that sense of adoration of something bigger than ourselves." (p. 157, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"Not because I was particularly sad in that moment, but because the 'I' that felt sadness had melted into something much bigger than myself that could hold all the enormity of the pain and sadness that is in any human life. The sounds of the ocean and the smell of the lavender suggested a larger presence, whichw as both me and not me, and it didn't flinch from my tears. Without being able to explain why, I felt like the universe kenw the depth of my suffering and that somehow everything would be okay.
+
+So many of us have stories like this. We have moments in which we feel a bridge has appeared between us and something beyond. That bridge can come along when we explore a homemade ritual that we, now and then, revisit but never talk about." (p. 152, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
 
 ----------
 
@@ -92,7 +101,7 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 "Look back at the last week. What are the good things that you pulled off? When did light win for you over darkness?" (p. 70, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
-"The darkenss was darker than just the lights being off and the sun yet to rise. Something was up. And that something was dark. My window was open, and the curtains were flapping a bit more than normal. I was freaking out. After about two minutes of nonstop prayer, I knew I needed to be rescued from whatever was happening in my dplex that night. I needed my dad, so I jumped out of bed and ran to the kitchen to call him." (p. 85, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+"The darkness was darker than just the lights being off and the sun yet to rise. Something was up. And that something was dark. My window was open, and the curtains were flapping a bit more than normal. I was freaking out. After about two minutes of nonstop prayer, I knew I needed to be rescued from whatever was happening in my dplex that night. I needed my dad, so I jumped out of bed and ran to the kitchen to call him." (p. 85, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
 "Because although I didn't know much about this whole dark, evil, and spiritual warfare stuff, I was most certain that I was in it right then. And I was sure that my dad would know how to help me out of it." (p. 85, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
@@ -107,6 +116,27 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 "At the very least He should have sent a lightning bolt down from the heavens to scare the crap out of me." (p. 126, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
 "And then one day he gave me some advice that shined a light into a crack of hope I never would have seen without it." (p. 138, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+## ["The Power of Ritual: Turning Everyday Activities into Soulful Practices"](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) ##
+"As darkness comes, I stand in front of my window and watch the sky for a few moments. Then I light a candle, and while holding it, I sign a song I learned in childhood to enter the amgical and mysteriou sabbath time. The moment I put the candle back on the table I can feel it: my shoulders relax, my breath comes easier, and usually, the tiredness that I've been able to hold off catches up with me, and I'm in bed by nine o'clock. If I'm really feeling it, I'll light incense." (p. 68, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"'I am offline from sundown on Friday to sundown on Saturday, when I observe a tech sabbath'" (p. 70, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"That connection with sky and earth, with the natural cycles of seasons, is disappearing in today's mdoern and increasingly urban culture." (p. 130, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"We'd make paper lanterns, decorating the thick paper with watercolors and then attaching each lantern to a long stick. As evening came, we'd light the candle inside our lantern and walk down the street, singing." (p. 131, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"We might notice that the sun is lower in the sky than it was the prior week, reminding us that the fall equinox is coming." (p. 138, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"Conenction, for O'Donohue, is about love awakening in our lives. 'In the night of your heart, it is like the dawn breaking within you. Where before there was anonymity, now there is intimacy; where before there was fear, now there is courage,' he writes in his classic *Anam Cara*. All of us need to be reminded, often multiple times a day, that we are inherently worthy of those deep and holy links and that - no matter what we do - we are intrinsically connected." (p.199, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"Lighting candles or incense is a simple way to set the tone, or like me, you can wrap a throw around your shoulders as you enter prayer time." (p. 181, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"The Zohar, a mystical Jewish text, teaches that when we utter sacred words of prayer, the light in our soul is kindred, and we sway to and fro like the flame of a candle." (p. 164, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"...the shiny lights of achievement or the sinkholes of despair" (p. 167, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+"Connection, for O'Donohue, is about love awakening in our lives. 'In the night of your heart, it is like the dawn breaking within you. Where before there was anonymity, now there is intimacy; where before there was fear, now there is courage,' he writes in his classic *Anam Cara*. All of us need to be reminded, often multiple times a day, that we are inherently worthy of those deep and holy links and that - no matter what we do - we are intrinsically connected." (p. 199, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
 
 
 ----------
