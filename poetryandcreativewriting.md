@@ -340,8 +340,6 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for sustainable businesses
 * Grateful for ways people use artistic ways to recycle trash
 * Grateful for compassion expressed in Big House Church members
-* Grateful for memories of learning about the childhood and upbringing of Elvis and his experiences with the Black community in Mississippi
-* Grateful for the strenght of Kamala Harris
 
 
 <br>
@@ -3169,7 +3167,7 @@ The force for good that works intuitively.
 
 <br>
 
-**Word Associations:** control, force, system, submission, authority, train, drill, strucutre, skill, prison
+**Word Associations:** control, force, system, submission, authority, train, drill, structure, skill, prison
 
 ## Veil ##
 The true light within someone or a situation unveiled, unhidden.
@@ -5784,6 +5782,8 @@ Hitting back when I can forgive will lead to prison.
 
 <br>
 
+## Prison ##
+
 ## Bullying ##
 Hello, Mr. Bully.
 Remember me?
@@ -5804,7 +5804,13 @@ I forgave you.
 ...But you denied me.
 You put yourself on a pedestal.
 You treated me like I asked for weird favors of you.
-Hello. Mr. Bully.
+Hello, Mr. Bully.
+Remember me?
+You visited my home, my deepest heart, and my deepest longings.
+...But you did not care for me.
+My heart was crushed.
+It felt so teased.
+Hello., Mr. Bully.
 You are part of a church with Celebrities.
 And I am never enough, never competitive enough.
 Thank you for provoking me.
@@ -5821,7 +5827,12 @@ I watch all the Celebrities.
 It's the same metaphor, but a different story.
 It's the same culture, but different perspectives.
 It's the same truth, but different journeys.
-It's the same idea, but a different viewpoint.
+It's the same system, but a different objective.
+It's the same place, but a different viewpoint.
+It's the same destination, but different roads.
+It's the same idea, but different forms.
+It's the same lesson, but different challenges to overcome.
+
 --We are all weaving in and out and learning the same lessons in different colors.
 
 Each one of us individual.
