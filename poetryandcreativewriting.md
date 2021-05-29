@@ -4645,17 +4645,20 @@ with everyone
 <br>
 
 ## Oh, It's A New Day ##
-Oh, it's a new day to sing a new song and let the love that gives life move a beating heart.
+Oh, it's a new day to sing a good song and let the love that gives life move a beating heart.
 There's a reason to sing and there's a reason to live, there's a reason to smile and there's a reason to move.
 
 Oh, it's a new day to let the light in and feel the warmth of the sun shining down on my face.
+It's a beautiful day for the sun to rise from the east to the west and for the rays of the sun to make me feel hot.
+There's a reason to care and there's a reason to laugh, there's a reason to begin again and there's a reason to laugh.
+
 It's a lovely day for the birds to chirp and the grass to grow and the bees to buzz.
 There's a reason to care and there's a reason to laugh, there's a reason begin afresh and there's a reason to dance.
 
-It's a new day to skip outside and see the neighbors wave and the little ones laugh and play/
+It's a new day to run outside and see the neighbors wave and the little ones laugh and play,
 There are cars moving round and round, and schools in session.
 There are activities all around and sounds everywhere.
-It's a wonderful day to see new things and feel surprised and be amazed.
+It's a lovely day to see new things and feel surprised and be amazed.
 
 <br>
 
