@@ -50,6 +50,7 @@ layout: default
 * [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
 * [And Theen They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
+* [The Power of Ritual: Turning Everyday Activities into Soulful Practices](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) by Casper ter Kuile
 
 ## 2020
 
