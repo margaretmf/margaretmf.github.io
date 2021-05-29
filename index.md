@@ -23,6 +23,8 @@ Every day I seek to learn something new to stay alive. It's amazing how all huma
 
 I have retaliated after being hurt by people, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. 
 
+** **
+
 I am exploring how to sketch and how to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
@@ -49,9 +51,9 @@ I am interested in the world cultures, narratives, and archetypes around enginee
 
 **Estoy interesada en las culturas, las narrativas, y los arquetipos sobre la ingeniería así como STEAM educación. Los libros para las niñas por Jean Craighead George capturan creativamente la cultura histórica alrededor la ingeniería y la naturaleza.**
 
-Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am driving team members to practice in Charlottesville and waking up at 5am to go to practice in Glasgow, Scotland. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
+Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am and drove team members to practice in Charlottesville. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
 
-Finalmente, como un estudiante de las Universidad de Virginia y la Universidad de Glasgow, remé.  
+**Finalmente, como un estudiante de las Universidad de Virginia y la Universidad de Glasgow, remé. Desperté antes de ante a las 5 am y condujo miembros del equipo para practicar en Charlottesville, Virginia y en Glasgow, Scotland. Me encantaría volver a estar en forma y remar con un equip. Remando en a río es la cosa mejor para agradecer ser una miembra de un equipo, cometer a metas, expresar diligencia, intelligencia, un sentido de unidad, y fuerza, and amar naturaleza - la agua, los árboles, y los aves.**
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
