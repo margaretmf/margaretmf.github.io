@@ -3710,6 +3710,7 @@ Daily conversations are democratic. Daily conversations support democracy. Daily
 <br>
 
 ## A Life in Snippets ##
+Hashtags, instagrams, tweets, dashboards, github repos, poems, and paragraphs represent a life in snippets.
 
 <br>
 
@@ -3736,6 +3737,8 @@ There exist different viewpoints on the same thing.
 ----------
 
 **Interested understanding whether history is objective or subjective.
+Objective means that people live and understand in harmony and agreement. Objective means that people see the same thing. Objective means that people share the same thoughts and relate to the same center. Objective means that people are equal.
+Subjective means that people live relatively and understand different perspectives. Subjective means that people see from different angles. Subjective means that people do not think the same thing. Subjective means that people are not equal. Subjective means that people have different beliefs.
 
 <br>
 
