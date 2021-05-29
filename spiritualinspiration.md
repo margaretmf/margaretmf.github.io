@@ -33,6 +33,17 @@ On page 106 of *Science and Health with Key to the Scriptures*, Mary Baker Eddy 
 
 In the Spanish Version of page 106, Mary Baker Eddy writes in Ciencia Cristian con Clave de Las Escrituras "Como nuestra nacion, la Ciencia Cristiana teine su Declaracion de Independencia. Dios ha dotado al hombre con derechos inalienables, entre los cuales se encuentran el gobierno de si mismo, la razon y la conciencia. El hombre se gobierna a si mismo debidamente solo cuando esta dirigido correctamente y gobernado por su Hacedor, la Verdad y el Amor divinos."
 
+From the beginning, I felt Christian Scientists tell me they DID NOT want me to contact them.
+From the beginning, the Christian Science Church denied some of my intellectual interests that other people have later confirmed match up to the Truth.
+From the beginning, Christian Scientists did not know fully who I am.
+
+The Christian Science Church professionalizes people.
+The Christian Science Church denies fundamental values belonging to a democracy.
+A true education frees the mind from boxes.
+
+Your family accused me of wanting to depend on you all.
+In reality, I was working to commit to the Christian Science Church and take a stance at one point.
+
 
 <br>
 
