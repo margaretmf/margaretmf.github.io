@@ -3,6 +3,10 @@ layout: default
 is_contact: true
 ---
 
+
+----------
+
+
 ## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. I work to write a little each day and edit a little each day. I would love to teach youth in my life and help them learn to use their voice. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. ##
@@ -14,6 +18,8 @@ is_contact: true
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
 
 ## Through a career, I hope to work as a liberal engineer, bringing together culture, social sciences, history, literature, and engineering. I also hope to explore teaching students at the elementary, high school, or college levels. ##
+
+<br>
 
 
 ----------
