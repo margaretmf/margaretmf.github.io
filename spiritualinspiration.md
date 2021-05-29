@@ -8,6 +8,26 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Education and Spirituality
+As a graduate of UvA, I was most passionate about religious liberty and lifelong learning. I expressed curosity about the meaning of 'freedom of the press' and 'freedom of speech'. I think it's cool that beliefs of the original founders, some good, and some evil, given to people by mankind's Creator gave way to the possibility for people to become free of limtiations and engage in a higher version of spirituality.
+
+As a woman, I have had a challenging time feeling confident in understanding nuances in politics, history, and culture. Because I struggled with communciation in person, I turned to digital communications to compensate. Sometimes I shared ideas like 'you are good' to people treating me terribly and laughing at people in my face. Sometimes I wasn't expressing clear ideas at all.
+
+Important values of the United States of America are the pursuit of liberty, justice, and happiness. I believe that public or private education supports this pursuit. I believe that writing supports a democracy. I believe that without the beliefs of the original founders in architecting religious reliberty, Mary Baker Eddy would not have been able to do her work. The founders were not perfect. I believe that all people outside of a professional freelance job, outside of a church, and inside of democracy should feel liberated to write. What is freedom of the press to you? What is freedom of education? What is freedom of speech?
+
+Much of my work in this life has centered around the study of history and education. Most people in our society expect women to work in education. I also love teaching, so I am passionate about finding ways to support teaching.
+
+While working with EVERFI, my original intent was to grow out of a belief of animal magnetism's power through compassion. When I woke up to the Truth, I could not clearly discern how EVERFI related to Christian Science. It did in some ways, but it did not in other ways. I was trying to take a stance for the Christian Science Community, and report the power of Science.
+
+I am sorry I reacted to you, but I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe lifelong learning supports freeing the human mind from the snares of mortal mind. I also still believe that appreciating the faith of people in other churches and soemtimes not even speaking the words 'Christian Science' is the best way to engage with people from other backgrounds.
+
+I am sorry to react to you, but my original intent was to commit to Christian Science, learn to articulate ideas better, and see people correctly.
+
+It was humbling to me that music in the Church community inadvertently arrested me mentally around having a crush on someone, pointed me to my ancestors who discovered some pathways through the country.
+
+
+<br>
+
 ### Love's Debut, Love's Marriage 
 Some people in the American culture enjoy debuts and weddings. Other people feel like debuts and weddings exclude portions of the population. Throughout my entire life, I have felt excluded from proms, date functions, debuts, and weddings. As people in my age bracket have announced the big news of marriages and new babies, I have done my best to express happiness for people, but I have become so angry around limiting ideas in the world that I engaged in criminal acts and became a prisoner in my own home. Some patterns of behavior of always lurking online to look for a boyfriend grew louder. After breaking down mentally multiple times over these issues, marriage has come to me to feel a little bit like a joke, and I am having a hard time moving past seeing marriage as something sacred.
 
