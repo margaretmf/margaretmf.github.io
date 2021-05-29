@@ -342,6 +342,10 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for compassion expressed in Big House Church members
 * Grateful for the people I saw in the grocery store and the positive experiences in their lives
 * Grateful for the union that people express
+* Grateful for God-driven conversations with people on the street
+* Grateful for the definition of a thought
+* Grateful for an exchange of heart and friendship
+* Grateful for that God always moves us forward
 
 
 <br>
@@ -4151,6 +4155,16 @@ The seed within lays buried deep. It's deep within and grows it roots to spread 
 
 <br>
 
+## Roots ##
+These roots run deep.
+They run from sea to sea.
+They know how to branch out.
+They know how to support a larger network.
+They touch upon every place.
+They speak up and through the ground.
+
+<br>
+
 ## Just Live ##
 Just live.
 It's all you got to do.
@@ -5486,6 +5500,12 @@ I look them in the eyes.
 I see familair people all around.
 I see the depth, the light, the ancient soul.
 All across the earth, people walking.
+They are everywhere on street corners.
+People with deep eyes.
+People with radiant smiles.
+People with encouraging words to share.
+People with interesting questions to ask.
+People with aid to provide.
 
 <br>
 
@@ -6084,6 +6104,11 @@ It came back up through another's song of the enigmatic smile, the victim and th
 Being the CTO of your house, your home.
 Controlling your searches, your emails, your time online, your social media usage.
 Being aware of the boundaries.
+
+<br>
+
+## Window ##
+Looking through a window to have a window into someone else's life.
 
 <br>
 
