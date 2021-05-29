@@ -4156,6 +4156,14 @@ There's a reason to smile today. Appreciate the smiles you see from people. Ther
 
 <br>
 
+## History ##
+The study of history is the study of collective stories of human beings and a study of individual stories of human beings.
+There are collective archetypes.
+There are individual archetypes.
+The study of history is the weaving together of an individual narrative in a larger narrative.
+
+<br>
+
 ## The Seed Within ##
 The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
 
