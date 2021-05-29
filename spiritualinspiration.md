@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Education and Spirituality
-As a graduate of UVa, I was most passionate about religious liberty and lifelong learning. I expressed curosity about the meaning of 'freedom of the press' and 'freedom of speech'. I think it's cool that beliefs of the original founders, some good, and some evil, given to people by mankind's Creator gave way to the possibility for people to become free of limtiations and engage in a higher version of spirituality.
+As a graduate of UVa, I was most passionate about religious liberty and lifelong learning. I expressed curiosity about the meaning of 'freedom of the press' and 'freedom of speech'. I think it's cool that beliefs of the original founders, some good, and some evil, given to people by mankind's Creator gave way to the possibility for people to become free of limtiations and engage in a higher version of spirituality.
 
 As a woman, I have had a challenging time feeling confident in understanding nuances in politics, history, and culture. Because I struggled with communication in person, I turned to digital communications to compensate. Sometimes I shared ideas like 'you are good' to people treating me terribly and laughing at people in my face. Sometimes I wasn't expressing clear ideas at all.
 
@@ -23,7 +23,7 @@ I am sorry I reacted to you, but I believe that interests I have relating to spi
 
 I am sorry to react to you, but my original intent was to commit to Christian Science, learn to articulate ideas better, and see people correctly.
 
-It was humbling to me that music in the Church community inadvertently arrested me mentally around having a crush on someone, pointed me to my ancestors who discovered some pathways through the country.
+It was humbling to me that music in the Church community inadvertently arrested me mentally around having a crush on someone, pointed me to my ancestors who discovered some pathways through the country, and pointed me to understanding some nuances of political and cultural history.
 
 On page 106 of *Science and Health with Key to the Scriptures*, Mary Baker Eddy writes, "Like our nation, Christian Science has its Declaration of Independence. God has endowed man with inalienable rights, among which are self-government, reason, and conscience. Man is properly self-governed when he is guided rightly and governed by his Maker, divine Truth and Love."
 
