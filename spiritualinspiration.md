@@ -19,9 +19,9 @@ Much of my work in this life has centered around the study of history and educat
 
 While working with EVERFI, my original intent was to grow out of a belief of animal magnetism's power through compassion. When I woke up to the Truth, I could not clearly discern how EVERFI related to Christian Science. It did in some ways, but it did not in other ways. I was trying to take a stance for the Christian Science Community, and report the power of Science. Christian Scientists do not actively teach the Matthew Code. Christian Scientists do not actively teach how to report gender-based harassment. Christian Scientists teach forgiveness. Christian Scientists teach The Golden Rule.
 
-I am sorry I reacted to you, but I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe lifelong learning supports freeing the human mind from the snares of mortal mind. I also still believe that appreciating the faith of people in other churches and sometimes not even speaking the words 'Christian Science' is the best way to engage with people from other backgrounds.
+I am sorry I reacted to you. I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe 'lifelong learning' supports freeing the human mind from 'the snares of mortal mind'. I also still believe that appreciating the faith of people in other churches and sometimes not even speaking the words 'Christian Science' is the best way to engage with people from other backgrounds.
 
-I am sorry to react to you, but my original intent was to commit to Christian Science, learn to articulate ideas better, and see people correctly.
+I am sorry to react to you. My original intent was to commit to Christian Science, learn to articulate ideas better, and see people correctly.
 
 It was humbling to me that music in the Church community inadvertently arrested me mentally around having a crush on someone, pointed me to my ancestors who discovered some pathways through the country, and pointed me to understanding some nuances of political and cultural history.
 
@@ -29,20 +29,13 @@ On page 106 of *Science and Health with Key to the Scriptures*, Mary Baker Eddy 
 
 * I LOVE THAT THIS IS PART OF ANIMAL MAGNETISM UNMASKED
 
-* because I LOVE that education, religious liberty, freedom of the press, democracy promote freeing "the human mind from the snares of mortal mind"
+* because I LOVE that education, religious liberty, freedom of the press, democracy promote freeing 'the human mind from the snares of mortal mind'
 
 In the Spanish Version of page 106, Mary Baker Eddy writes in Ciencia Cristian con Clave de Las Escrituras "Como nuestra nacion, la Ciencia Cristiana teine su Declaracion de Independencia. Dios ha dotado al hombre con derechos inalienables, entre los cuales se encuentran el gobierno de si mismo, la razon y la conciencia. El hombre se gobierna a si mismo debidamente solo cuando esta dirigido correctamente y gobernado por su Hacedor, la Verdad y el Amor divinos."
 
-From the beginning, I felt Christian Scientists tell me they DID NOT want me to contact them.
-From the beginning, the Christian Science Church denied some of my intellectual interests that other people have later confirmed match up to the Truth.
-From the beginning, Christian Scientists did not know fully who I am.
+Values of a democracy are not professionalized. Intellectual interests promote democracy. A true education frees the mind from boxes.
 
-The Christian Science Church professionalizes people.
-The Christian Science Church denies fundamental values belonging to a democracy.
-A true education frees the mind from boxes.
-
-Your family accused me of wanting to depend on you all.
-In reality, I was working to commit to the Christian Science Church and take a stance at one point.
+In reality, I was working to commit to the Christian Science Church, not depend on the Christian Science Church, and take a stance at one point.
 
 
 <br>
