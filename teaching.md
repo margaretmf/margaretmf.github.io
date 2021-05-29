@@ -176,29 +176,25 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 ### Who? ###
 * JW Rooster II
 * Thomas McGregor, the groom
-* Peter, Benjamin
-
-### Where? ###
-
-### What? ###
+* Peter, Benjamin, Flopsy, Mopsy, Cotton-tail, Samuel Whiskers, Tom Kitten
 
 ### Color ###
-* heavenly white // wedding dress, blue // coat
+* heavenly white // wedding dress, blue // coat, blue-jacketed // rabbit, brown // rabbit
 
 ### Adjectives ###
-* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face, broken // window, human // speech, reassuring // arm, whole // section, last // display, psychotic // breakdown, sweet // strawberries, precious // harvest, different // story, flawless // square plot, biggest // plant, higher // ground, stinky // mulch, vivid // memories, brilliant // color books, naughty // rabbit, interwoven // narrative, incredulous // look, recycling // bins, healthiest // way, brief // nod, gruff // old rabbit
+* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face, broken // window, human // speech, reassuring // arm, whole // section, last // display, psychotic // breakdown, sweet // strawberries, precious // harvest, different // story, flawless // square plot, biggest // plant, higher // ground, stinky // mulch, vivid // memories, brilliant // color books, naughty // rabbit, interwoven // narrative, incredulous // look, recycling // bins, healthiest // way, brief // nod, gruff // old rabbit, darkening // countryside, vegetable // garden, beloved // tomatoes, noisy // attempts, happy // family, strong // suit, bad // seed, big // billboard, inordinate // ammount, whole // mountain, impressive // flip, tumbling // bunnies, rough // childhood, crazy // detail, general // expression, sudden // purpose, high-pitched // squeal, little // girl, literary // voice, hardcover // book, glossy // cover, glorious // design, beloved // bunnies, land // preservation, beady // eyes, fateful // day, desperate // dash
 
 ### Adverbs ### 
-* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly, silently // counting, repeated // breathlessly, intently // listening, gestured // frantically, nodding // excitedly, swung // helplessly, hastily // grab
+* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly, silently // counting, repeated // breathlessly, intently // listening, gestured // frantically, nodding // excitedly, swung // helplessly, hastily // grab, softly // snoring, hastily // picked, proudly // announced, dizzily // staggered, skillfully // caught
 
 ### Vocabulary ###
-* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed, slunk, scampered, smirked, grin, avoid, explain, skid, glimpse, shrug, waltz, explode
+* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed, slunk, scampered, smirked, grin, avoid, explain, skid, glimpse, shrug, waltz, explode, snuggle, whine, clucked, amazement, emerged, concentration, perched, stumbled, frolicked, distracted, reputation, exaggerator, fabricator, falsifier, imagine, conflate, mischievous, revved, determined, repair, exclaim, incredulous, unripened
 
 ### Allusions ###
-* Charles Dickens
+* Charles Dickens, *A Tale of Two Cities*, *Peter Rabbit*, Country // City
 
 ### Themes ###
-* Gardening, Nature, City Streets, Adventure
+* Gardening, Nature, City Streets, Adventure, Painting
 
 ### Interesting Sentences or Paragraphs ###
 * "There is no better way to start a story than at a wedding - love, hope, and woodland animals...And this is where our story starts.
@@ -232,6 +228,24 @@ The beautiful wedding about to take place was filled with the finest of finest -
 * "Without a moment's hesitation, Barnabas jumped up onto a row of recycling bins, Peter just had time to note that each was clearly labeled - PAPER, PLASTIC, GLASS, and METAL - before, he, too, disappeared inside." (p. 43, "")
 
 * "The young rabbit searched the backstreet. His eyes found Barnabas and locked on his gaze. And then Peter was carried away to rejoin the others." (p. 50, "")
+
+* "JW Rooster II fixed his eye on the horizon. Slowly, very slowly, the sunc rested over the hills behind the McGregor farm. Their work here was done." (p. 54, "")
+
+* "Suddenly, a painting caught his eye. It was a portrait of another rabbit. A rabbit he recognized. Peter gulped. It had to be Barnabas. A very young Barnabas." (p. 54, "")
+
+* "The rabbits found themselves blinking in the sunlight as strong hands swung their caret out of the van." (p. 66, "")
+
+* "In truth, the shoot to produce this picture had taken place in their bedrom while Thomas slept, had lasted several hours, and involved racks of clothes, banks of lights, blowing fans, and the photographic skills of sleepy Peter Rabbit, who'd been woken up and roped in to take the shots." (p. 72, "")
+
+* "He looked over to Peter. The little rabbit had fallen asleep in their makeshift steamroom. 'Yeah,' Barnabas smiled, 'you gotta work up to this setting.'
+
+The old rabbit kicked the door of the dishwasher open and while Peter slumbered on, jumped out. He leaped up to the window, performed an adept reverse handstand, then shoved it open with his feet." (p. 76, "")
+
+* "Samuel Whiskers wore a button waistcoat and a shabby tweed jacket, his little pink tail trailing behind. Although he looked like somebody's bumblign uncle, this was not a gentleman to be trusted. He had once rolled a kitten up in pastry and tried to eat him for supper.
+
+And that kidden was Tom Kitten. THe unfortunate cat had only lived to tell the tale because of his sister, Mittens. Mittens had rescued Tom from his pastry-dough prison and then together the pair had beat the living cheese out of Samuel Whiskers. The bashing he received on that fateful day had been a most unpleasant experience, but it had earned the old rat's respect. Now the three thieves were bonded for life." (p. 77, "")
+
+* "The country boy still had a lot to learn about the way things worked in the city!" (p. 78, "")
 
 ## [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
 ### Who? ###
