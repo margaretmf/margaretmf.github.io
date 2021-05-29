@@ -46,7 +46,6 @@ layout: default
 * [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1619275259&sr=8-1) by Jean Craighead George
 * [A Most Beautiful Thing: The True story of America's First All-Black High School Rowing Team](https://www.amazon.com/Most-Beautiful-Thing-Americas-All-Black/dp/1250754771/ref=sr_1_2?dchild=1&keywords=a+most+beautiful+thing&qid=1619549425&sr=8-2) by Arshay Cooper
 * [Mother Land: A Novel](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) by Leah Franqui
-* [beginners: the joy and transformative power of lifelonglearning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168/ref=sr_1_1?dchild=1&keywords=beginners+the+joy+and+transformative+power+of+lifelong+learning&qid=1619302148&sr=8-1) by Tom Vanderbilt
 * [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
 * [And Theen They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
