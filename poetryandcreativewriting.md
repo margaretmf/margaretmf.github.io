@@ -3,10 +3,6 @@ layout: default
 is_contact: true
 ---
 
-
-----------
-
-
 ## I was grateful in high school for an English teacher who taught creative writing, and I was grateful for another English teacher in high school who taught the American Credo Project. I did not particularly enjoy creative writing, but I love that creative writing supports expressing feelings and thoughts.  I used to experience mental breakdowns, not say enough, or say or write too much, sometimes out of anger, so I have turned to writing poetry to work through feelings. Some people have discovered that The Psalmist is the best therapist, so I am trying out my own poetry. I work to write a little each day and edit a little each day. I would love to teach youth in my life and help them learn to use their voice. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. ##
@@ -18,8 +14,6 @@ is_contact: true
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically." ##
 
 ## Through a career, I hope to work as a liberal engineer, bringing together culture, social sciences, history, literature, and engineering. I also hope to explore teaching students at the elementary, high school, or college levels. ##
-
-<br>
 
 
 ----------
@@ -70,7 +64,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (22 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (21 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -346,12 +340,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for sustainable businesses
 * Grateful for ways people use artistic ways to recycle trash
 * Grateful for compassion expressed in Big House Church members
-* Grateful for the people I saw in the grocery store and the positive experiences in their lives
-* Grateful for the union that people express
-* Grateful for God-driven conversations with people on the street
-* Grateful for the definition of a thought
-* Grateful for an exchange of heart and friendship
-* Grateful for that God always moves us forward
+* Grateful for memories of learning about the childhood and upbringing of Elvis and his experiences with the Black community in Mississippi
+* Grateful for a useful conversation on the Decalogue today
 
 
 <br>
@@ -368,7 +358,7 @@ Long before we had cities of stone or the technology to write, our ancestors wer
 
 Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
 
-In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences you've had in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
@@ -592,7 +582,7 @@ The sunshine wants to evaporate the water after it falls.
 
 <br>
 
-**Word Associations:** deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid sunshine
+**Word Associations:** deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid, sunshine
 
 ## Illness ##
 Illness sucks the life out of people.
@@ -1414,7 +1404,7 @@ Joy cometh in the morning with the light of the sun, and the noonday.
 
 <br>
 
-**Word Associations:** pang, mourning, misery, agony, bereavement, melancholoy, woe, suffering
+**Word Associations:** pang, mourning, misery, agony, bereavement, melancholy, woe, suffering
 
 ## Visions ##
 What brilliance there is in the vision of the Lord who speaks to us through our third eye and gives us beautiful imagery, glimpses, and insights.
@@ -3179,7 +3169,7 @@ The force for good that works intuitively.
 
 <br>
 
-**Word Associations:** control, force, system, submission, authority, train, drill, structure, skill, prison
+**Word Associations:** control, force, system, submission, authority, train, drill, strucutre, skill, prison
 
 ## Veil ##
 The true light within someone or a situation unveiled, unhidden.
@@ -3726,6 +3716,7 @@ America is a story of repentance and reformation.
 America is a story of change.
 America is a story of freedom.
 America is a story of freedom of expression.
+America is a story of Truth.
 
 America is a country of beliefs.
 America is a system of expression, the reverse of oppression.
@@ -3837,7 +3828,7 @@ I remember taking a photo.
 I remember standing in line again at DC.
 I remember having intuition of President Donald Trump.
 I remember forgiving Donald Trump.
-eI remember participating in the Women's March but not liking the pink hats.
+I remember participating in the Women's March but not liking the pink hats.
 I remember getting angry over Donald Trump.
 I remember walking around the anger at the White House.
 I remember feeling concerned about healing from racial prejudices.
@@ -4156,26 +4147,8 @@ There's a reason to smile today. Appreciate the smiles you see from people. Ther
 
 <br>
 
-## History ##
-The study of history is the study of collective stories of human beings and a study of individual stories of human beings.
-There are collective archetypes.
-There are individual archetypes.
-The study of history is the weaving together of an individual narrative in a larger narrative.
-
-<br>
-
 ## The Seed Within ##
 The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
-
-<br>
-
-## Roots ##
-These roots run deep.
-They run from sea to sea.
-They know how to branch out.
-They know how to support a larger network.
-They touch upon every place.
-They speak up and through the ground.
 
 <br>
 
@@ -4652,24 +4625,6 @@ with everyone
 
 <br>
 
-## Oh, It's A New Day ##
-Oh, it's a new day to sing a good song and let the love that gives life move a beating heart.
-There's a reason to sing and there's a reason to live, there's a reason to smile and there's a reason to move.
-
-Oh, it's a new day to let the light in and feel the warmth of the sun shining down on my face.
-It's a beautiful day for the sun to rise from the east to the west and for the rays of the sun to make me feel hot.
-There's a reason to care and there's a reason to laugh, there's a reason to begin again and there's a reason to laugh.
-
-It's a lovely day for the birds to chirp and the grass to grow and the bees to buzz.
-There's a reason to care and there's a reason to laugh, there's a reason begin afresh and there's a reason to dance.
-
-It's a new day to run outside and see the neighbors wave and the little ones laugh and play,
-There are cars moving round and round, and schools in session.
-There are activities all around and sounds everywhere.
-It's a lovely day to see new things and feel surprised and be amazed.
-
-<br>
-
 ## It Takes Faith ##
 It takes faith to wake up another day.
 It takes faith to walk out the door.
@@ -4772,7 +4727,7 @@ They've touched upon dirt and grovel.
 They've gone down lonely pathways.
 
 They've really worn themselves in.
-They have some holes in the soles.
+They have some holes in the soles .
 They've really lived another day.
 They've become sturdy and strong.
 They've been everywhere.
@@ -4781,11 +4736,6 @@ They've walked down sidewalks.
 They've walked through forests.
 They've hit the mall.
 They've been down grassland.
-
-These boots of mine.
-They've been down dark and cracked roads.
-There's a seed popping up beneath my feet.
-It's showing the beauty of the flowering treasure ahead.
 
 <br>
 
@@ -5517,12 +5467,6 @@ I look them in the eyes.
 I see familair people all around.
 I see the depth, the light, the ancient soul.
 All across the earth, people walking.
-They are everywhere on street corners.
-People with deep eyes.
-People with radiant smiles.
-People with encouraging words to share.
-People with interesting questions to ask.
-People with aid to provide.
 
 <br>
 
@@ -5841,26 +5785,6 @@ Hitting back when I can forgive will lead to prison.
 
 <br>
 
-## Prison ##
-This prison cell.
-A prisoner of the culture.
-A prisoner of beliefs.
-A prisoner of the pressure.
-A prisoner of the blockages.
-A prisoner of the beliefs.
-A prisoner of ridicule.
-A prisoner of the mocking.
-A prisoner of the teasing.
-A prisoner of the reactions.
-A prisoner of the retaliation.
-A prisoner of the rejection.
-A prisoner of the lack.
-A prisoner of the confusion.
-A prisoner of the questioning.
-Free me from this cell.
-Show me how to live.
-Help me be free.
-
 ## Bullying ##
 Hello, Mr. Bully.
 Remember me?
@@ -5881,13 +5805,7 @@ I forgave you.
 ...But you denied me.
 You put yourself on a pedestal.
 You treated me like I asked for weird favors of you.
-Hello, Mr. Bully.
-Remember me?
-You visited my home, my deepest heart, and my deepest longings.
-...But you did not care for me.
-My heart was crushed.
-It felt so teased.
-Hello., Mr. Bully.
+Hello. Mr. Bully.
 You are part of a church with Celebrities.
 And I am never enough, never competitive enough.
 Thank you for provoking me.
@@ -5904,12 +5822,7 @@ I watch all the Celebrities.
 It's the same metaphor, but a different story.
 It's the same culture, but different perspectives.
 It's the same truth, but different journeys.
-It's the same system, but a different objective.
-It's the same place, but a different viewpoint.
-It's the same destination, but different roads.
-It's the same idea, but different forms.
-It's the same lesson, but different challenges to overcome.
-
+It's the same idea, but a different viewpoint.
 --We are all weaving in and out and learning the same lessons in different colors.
 
 Each one of us individual.
@@ -6121,11 +6034,6 @@ It came back up through another's song of the enigmatic smile, the victim and th
 Being the CTO of your house, your home.
 Controlling your searches, your emails, your time online, your social media usage.
 Being aware of the boundaries.
-
-<br>
-
-## Window ##
-Looking through a window to have a window into someone else's life.
 
 <br>
 
