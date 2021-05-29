@@ -3597,12 +3597,18 @@ Music is one form of cultural expression. Intuitively, music shares with people 
 I once had a vision, or a dream of American reborn.
 I love that women are behind the rebirth of the American dream and that black men can lead the country well.
 
+<br>
+
 ## E Pluribus Unum ##
 I am a voice in a sea of voices yearning to be free.
 I am a conscience in a sea of consciences yearning to do the right thing.
 I am a body in a sea of bodies yearning to be asexual.
 I am a heart in a sea of hearts yearning to love more.
 I am a set of eyes in a set of eyes yearning to see the good going on.
+I am one of a kind in the sea of humanity.
+Like a drop of water ripples outwardly, I am one of many leading to ripples outwardly in a sea of ripples.
+
+<br>
 
 ## Maps ##
 A map, a tool, used in engineering that expresses natural phenomenon, physical relationships, and cultural and historical aspects of our world.
@@ -3991,7 +3997,7 @@ More broadly, I love home on earth with all of humanity.
 <br>
 
 ## It All Started in Virginia ##
-It all started in Virginia, the home of the virgin, native land. Some people chose liberty and traveled across the seas. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail and they launched the way for some pioneering people.
+It all started in Virginia, the home of the virgin, native land. Some people chose liberty and traveled across the seas. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail they had set launched the way for some pioneering people.
 
 <br>
 
@@ -4474,6 +4480,9 @@ Thank you for knowing my need.
 Thank you for knowing who to place me with.
 Than you for being there through the fall.
 It's a city of angels. The strangers know.
+You knew just how to speak to me.
+You knew my every need.
+You knew how to place things in my path to nudge me further.
 
 <br>
 
@@ -5434,6 +5443,7 @@ Imagine a world where all 7.2 billion people sing freely.
 Imagine a world where all 7.2 billion people's hearts light up inside.
 Imagine a world where all 7.2 billion people love one another.
 Imagine a world where all 7.2 people quickly forgive.
+Iamgine a world where all 7.2 billion people sitting on street corners are loving each other.
 Imagine a world where all the colors exude the light and shine their true colors.
 The World would resound with light and sound.
 The World where the heavens, the sky smile down.
@@ -5464,7 +5474,7 @@ I am a friend of many.
 There are strangers walking all around.
 They are my friends.
 I look them in the eyes.
-I see familair people all around.
+I see familiar people all around.
 I see the depth, the light, the ancient soul.
 All across the earth, people walking.
 
@@ -5821,16 +5831,15 @@ I watch all the Celebrities.
 ## The Same Metaphor, A Different Story ##
 It's the same metaphor, but a different story.
 It's the same culture, but different perspectives.
-It's the same truth, but different journeys.
-It's the same idea, but a different viewpoint.
+It's the same discovery, but different journeys.
+It's the same world, but different places.
+It's the same Sun, but different angles.
+It's the same spectrum, but different colors.
+It's the same Truth, but different standpoints.
+It's the same core, but different viewpoints.
+It's the same system, but different tracks.
+
 --We are all weaving in and out and learning the same lessons in different colors.
-
-Each one of us individual.
---It's the same system, but different tracks
-
---The road is widening, the road is growing deeper.
-
-One encouraged me to speak up and read, another encouraged me to sing and write
 
 <br>
 
