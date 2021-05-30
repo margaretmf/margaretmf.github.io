@@ -3772,6 +3772,11 @@ America is a story of freedom.
 America is a story of freedom of expression.
 America is a story of Truth.
 America is a story of learning.
+America is a story of spiritual transformation.
+America is a story of perspiration.
+America is a story of courage.
+America is a story of community.
+America is a story of liberty.
 
 America is a country of beliefs.
 America is a system of expression, the reverse of oppression.
@@ -4268,6 +4273,8 @@ I sing with my heart, not my voice, however, because I am part of the sea.
 I let the others sing, and I play second fiddle, and I let them crowd me out.
 I let my voice be quiet, subdued, so they can be someone, something.
 
+One home in a row of homes.
+
 <br>
 
 ## The Lone Bird ##
@@ -4292,7 +4299,8 @@ The lone bird rises high in the sky.
 The lone bird perches on the electric wire.
 The lone bird mounts on the street sign.
 The lone bird glides with the wind.
-
+The lone bird pecking at the lead.e
+The lone bird flapping his wings just above the ground.
 
 <br>
 
@@ -5562,6 +5570,7 @@ Iamgine a world where all 7.2 billion people sitting on street corners are lovin
 Imagine a world where all the colors exude the light and shine their true colors.
 Imagine a world where all 7.2 billion people are running towards the same goal.
 Imagine a world where all 7.2 billion people are aiming in the same direction.
+Imagine a world where all 7.2 billion people are helping each other grow.
 The World would resound with light and sound.
 The World where the heavens, the sky smile down.
 All the colors of the universe are embraced as one.
@@ -5834,6 +5843,22 @@ I'm making a scene.
 It's so funny to watch, it's so funny to ridicule and condemn.
 I can't read between the lines.
 I was falling for it.
+
+<br>
+
+## It Was Make Believe ##
+It was make believe.
+It wasn't you.
+It wasn't me.
+It was pretend.
+It was fake.
+It was pretense.
+It was a mask.
+It was imagined.
+It was a tale as old as time.
+It was a myth that goes back to the beginning of time.
+It wasn't real.
+It was a dream.
 
 <br>
 
@@ -6159,6 +6184,11 @@ It came back up through another's song of the enigmatic smile, the victim and th
 
 # Creative Writing - Independent Writing #
 # Extraneous Writing #
+
+## A Hairbrush on the Ground ##
+Where has it been? Whose was it? Why is it on the ground? Imagine.
+
+<br>
 
 ## The CTO of Your Home ##
 Being the CTO of your house, your home.
