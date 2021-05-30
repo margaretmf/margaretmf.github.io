@@ -360,6 +360,10 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for family lessons
 * Grateful for project management systems
 * Grateful for home decorations
+* Grateful for friends who are cheerful and willing to help
+* Grateful for a love of the country
+* Grateful for an aerial vision of people in the nation walking down streets marching wearing red, white, and blue
+* Grateful for African American or Black leaders
 
 
 <br>
