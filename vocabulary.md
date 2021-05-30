@@ -214,3 +214,5 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Grade: ##
 
 ## Arrest: ##
+
+## Recollect: ##
