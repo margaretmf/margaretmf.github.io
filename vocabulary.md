@@ -206,6 +206,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Far away in space or time
 * Not intimate
 
+### Transport: ##
+* To transfer or convey from one place to another
+
 ## Circle: ##
 
 ## Grade: ##
