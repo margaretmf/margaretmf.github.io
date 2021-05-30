@@ -1,5 +1,22 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## May 29, 2021 - Animal Magnetism ##
+* "'In regard to the existence and utility of animal magnetism, we have come to the unanimous conclusions that there is no proof of the existence of the animal magnetic fluid; that the violent effects, which are observed in the public practice of magnetism, are due to manipulations, or to the excitement of the imagination and the impressions made upon the senses; and that there is one more fact to be recorded in the history of the errors of the human mind, and an important experiment upon the power of the imagination.'" (Science and Health with Key to the Scriptures, pp. 100-101)
+
+* "'Con respecto a la existencia y utilidad del magnetismo animal, hemos llegado a la conclusion unanime de que no hay prueba de la existencia del fluido magnetico animal; de que los efectos violentos que se observan en la practica publica del magnetismo se deben a manipulaciones o a la excitacion de la imaginacion y a las impresiones producidas sobre los sentidos; y de que hay un hecho mas para registrar en las historia de los errores de la mente humana, y un importante experimento sobre el poder de la imaginacion.'"
+
+* "Animal magnetism has no scientific foundation, for God governs all that is real, harmonious, and eternal, and His power is neither animal nor human. Its basis being a belief and this belief animal, in Science animal magnetism, mesmerism, or hypnotism is a mere engation, possessing neither intelligence, power, nor reality, and in sense it is an unreal concept of the so-called mortal mind." (Science and Health with Key to the Scriptures, p. 102)
+
+* "The mild forms of animal magnetism are disappearing, and its aggressive features are coming to the front. The looms of crime, hidden in the dark recesses of mortal thought, are every hour weaving webs more complicated and subtle. So secret are the present methods of animal magnetism that they ensnare the age into indolence, and produce the very apathy on the subject which the criminal desires." (Science and Health with Key to the Scriptures, p. 102)
+
+* "The destruction of the claims of mortal mind through Science, by which man can escape from sin and mortality, blesses the whole human family." (Science and Health with Key to the Scriptures, p. 103)
+
+* "Christian Science goes to the bottom of mental action, and reveals the theodicy which indicates the rightness of all divine action, as the emanation of divine Mind, and the consequent wrongness of the opposite so-called action, - evil, occultism, necromancy, mesmerism, animal magnetism, hypnotism." (Science and Health with Key to the Scriptures, p. 104)
+
+* "Whoever uses his developed mental powers like an escaped felon to commit fresh atrocities as opportunity occurs is never safe. God will arrest him. Divine justice will manacle him. His sins will be millstones about his neck, weighing him down to the depths of ignominy and death." (Science and Health with Key to the Scriptures, p. 105)
+
+* "Like our nation, Christian Science has its Declaration of Independence. God has endowed man with inalienable rights, among which are self-government, reason, and conscience. Man is properly self-governed when he is guided rightly and governed by his Maker, divine Truth and Love." (Science and Health with Key to the Scriptures, p. 106)
+
 ## April 29, 2021 - Another Favorite Hymn, The Story ##
 I love to tell the story of unseen things above:
 of Jesus and his glory, of Jesus and his love.
