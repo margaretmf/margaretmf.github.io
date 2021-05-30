@@ -64,7 +64,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (22 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (24 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -81,6 +81,7 @@ I have also found God to be at my right hand in situations, voicing the Truth, a
 
 ## Individual/Society ##
 *I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
+* I believe in the power of religious liberty and that we are all ultimately reaching the same goal.
  
 *Do I still believe this?*
 I do not know, but I love this concept, and I have felt reminded of this intuitively.
@@ -88,7 +89,7 @@ I feel like I have failed morally, but I am still learning and growing deeper an
 I love learning about interconnectedness, and how we are all connecting each other to a higher sense of life.
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
 Christian Science teaches that 'we are all tributary to the same source', but there are distinct differences between everyone in good ways. [2021]
-I believe in the idea of "standing in union with everyone around in society and the world" as best as I can from this time forth
+I believe in the idea of 'standing in union with everyone around in society and the world' as best as I can from this time forth
 
 ## What do I believe in? ##
 I believe in the next generation of humanity and all that they can learn each day and all that they can contribute.
@@ -365,6 +366,19 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for an aerial vision of people in the nation walking down streets marching wearing red, white, and blue
 * Grateful for African American or Black leaders
 * Grateful for all the people working in an organization
+* Grateful for the art of cooking in a restaurant
+* Grateful for the art of cleaning up
+* Grateful for shpaes in architectur
+* Grateful for medieval history
+* Grateful for the soul of people at Norfolk Academy
+* Grateful for American flags everywhere - on construction sites, boats, homes, farms, schools
+* Grateful for Christ the King in the other Christian Churches who create music and in their hearts
+* Grateful for working artists studio
+* Grateful for Walt Disney movies with classical music like Fantasia, The Sorcerer's Apprentice, The Band Concert, Peter and the Wolf
+* Grateful for what I remember learning in the History of Science on the Hippocratic Oath, early medical texts, and the expression of compassion in the medical community
+* Grateful for artwork in homes
+* Grateful for the working artists' studio
+* Grateful to make my beliefs about the relationship between Christianity in the political sphere, religious liberty, and science practical
 
 
 <br>
@@ -4064,11 +4078,12 @@ woodpiece by woodpiece,
 this house is being built.
 The ground is laid.
 The space is new and fresh.
-The clay is sprinked on the floor, and the light shines through the windows.
+The clay is sprinkled on the floor, the ladder is against the wall, and the light shines through the windows.
 
-Act by act,
+Action by action,
 greeting by greeting,
 morning by morning,
+thought by thought,
 this day is alive.
 The town is moving.
 The neighborhood is vivid.
@@ -4162,6 +4177,7 @@ It's ok to let the tears flow.
 It's ok to let it break inside.
 It's ok to let the heart ache.
 It's ok to feel.
+Let it out.
 It's ok to express emotions and thoughts.
 Sometimes the anger and other emotions mask the need to cry and to feel.
 It is ok.
@@ -4267,10 +4283,16 @@ No song is too simple. No song is too advanced. All of humanity is singing a son
 My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
 
 The lone bird flies high through the spring trees.
-The lone bird sits still on the electric wire.
+The lone bird sits still on the ground.
 The lone bird sails gracefully on the yellow driving sign.
 The lone bird rests on a walking sign.
 The lone bird launches and lands onto a brown tree branch. 
+The lone bird flutters in wind amongst the green leaves.
+The lone bird rises high in the sky.
+The lone bird perches on the electric wire.
+The lone bird mounts on the street sign.
+The lone bird glides with the wind.
+
 
 <br>
 
@@ -5113,6 +5135,7 @@ In silence, there's the reality of someone's heart beating without any verbal co
 In silence, there's space to stand aghast at and laugh at the ways people push people over, silence people, and ridicule people over quietude.
 In silence, there's space to appreciate the mystery of it all, and enjoy the interconnectedness of Life.
 In silence, there's the opportunity to say no to the silent arguments masquerading through my thought.
+In silence, there's a grace.
 
 <br>
 
@@ -5276,6 +5299,21 @@ Just one day at a time recognize the goodness within
 
 <br>
 
+## The Goal of Healing ##
+The goal is to alleviate the pain and suffering.
+Heal it.
+Make it whole.
+Restore it.
+Clear it.
+Wash it away.
+Love it.
+It's a system.
+It is a whole system.
+We are all aiming otwards the same goal.
+We are all looking for salvation, freedom, safety.
+
+<br>
+
 
 ----------
 
@@ -5355,7 +5393,7 @@ The truth is light.
 
 ## Flickering Lights ##
 The flickering lights-
-The flickering lights in the hearts of all the people throughout the nation and the earth.
+The flickering lights or gold balls in the hearts of all the people throughout the nation and the earth.
 The flickering lights in the homes and office buildings united.
 The flickering lights in the night sky that reach other galaxies.
 You can see them from up above in the plane looking down through the seat window.
@@ -5522,6 +5560,8 @@ Imagine a world where all 7.2 billion people quickly forgive.
 Imagine a world where all 7.2 billion people look at the reflection of themselves in mirrors while loving the others around them more than themselves.
 Iamgine a world where all 7.2 billion people sitting on street corners are loving each other.
 Imagine a world where all the colors exude the light and shine their true colors.
+Imagine a world where all 7.2 billion people are running towards the same goal.
+Imagine a world where all 7.2 billion people are aiming in the same direction.
 The World would resound with light and sound.
 The World where the heavens, the sky smile down.
 All the colors of the universe are embraced as one.
@@ -5919,14 +5959,17 @@ It's the same system, but different tracks.
 It's the same goal, but different skills.
 
 --We are all weaving in and out and learning the same lessons.
+We are all running to the same goal.
+We are all aiming in the same direction.
+It's like a river flowing.
 
 <br>
 
 ## It's One in the Same ##
 It's one in the same.
 It's two sides of the same coin.
-It's comes to the surface differently.
-Like produces like.
+
+<br>
 
 ## You Know Too Much About Me, You Spoke for Me ##
 You know too much about who I am.
