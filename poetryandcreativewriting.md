@@ -364,6 +364,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for a love of the country
 * Grateful for an aerial vision of people in the nation walking down streets marching wearing red, white, and blue
 * Grateful for African American or Black leaders
+* Grateful for all the people working in an organization
 
 
 <br>
