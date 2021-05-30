@@ -342,6 +342,24 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for compassion expressed in Big House Church members
 * Grateful for memories of learning about the childhood and upbringing of Elvis and his experiences with the Black community in Mississippi
 * Grateful for a useful conversation on the Decalogue today
+* Grateful for recycling projects
+* Grateful for the design and size and space of cities
+* Grateful for art with trash
+* Grateful for signs in Starbucks "be nice to your barista"
+* Grateful for the people who write books
+* Grateful for all the people from Camp Nakanwa
+* Grateful for a new era, a new age
+* Grateful for pastors
+* Grateful for thoughts of other countries
+* Grateful for healing thoughts towards people
+* Grateful for the woman closing the store shop
+* Grateful for city views
+* Grateful for people singing their hearts out
+* Grateful for healers
+* Grateful for tears
+* Grateful for family lessons
+* Grateful for project management systems
+* Grateful for home decorations
 
 
 <br>
@@ -522,8 +540,8 @@ That's all I feel.
 I feel like I am inferior to others and delayed, and the sense of being caged in makes me feel frustrated, and thwarted.
 The darkness inside - I cannot hide it for much longer.
 The darkness is lurking, and I can't shove it down.
-"I should feel ashamed of myself and embarassed" is all I hear people voice.
-The shame and embarassament turn to anger and rage. 
+'I should feel ashamed of myself and embarassed' is all I hear people voice.
+The shame and embarassment turn to anger and rage. 
 There is enmity towards what God is doing and what I want.
 I am committing malice when giving into the raging heart.
 Nothing is stronger and more dangerous than this indignation and sense of injustice.
@@ -3510,7 +3528,7 @@ With the company of a friend.
 <br>
 
 ## Children's Play ##
-Playing on the keys without words
+Playing on the keys without words,
 She discovers a joy and a light in the sound that reminds her of little children on a playground.
 The sound alone tells a colorful story of the youthfulness that bounces with joy.
 
@@ -3529,9 +3547,9 @@ I know you often feel unhappy because of how some of your friends have treated y
 
 I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
 
-I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of secnes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
+I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of scenes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
 
-You are a beautiful teenage girl; you thus need to stop having negative thoughts about your body and looks because it will only have a negative impact. Knowing that you reflect God's perfect image, you will feel more confdient about your looks, your intelligence, and your musical or athletic strengths.
+You are a beautiful teenage girl; you thus need to stop having negative thoughts about your body and looks because it will only have a negative impact. Knowing that you reflect God's perfect image, you will feel more confident about your looks, your intelligence, and your musical or athletic strengths.
 
 To stop criticizing yourself, you must believe in your strengths and know your great value in the world. Share your love with everyone. Live each day full of greetings, smiles, laughter, and joy.
 
@@ -3557,19 +3575,29 @@ Composing music expresses both the head and the heart, and writing songs helps t
 * "Lo, How a Rose Ere Blooming"
 * Southern Gospel Norton Hall Band
 * "My Life Goes On In Endless Song Above Earth's Lamentations"
+* "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
+
 * "One Voice" by The Wailin' Jennys + The Devil's Paintbrush Road by The Wailin' Jennys
 * Music by Ruth Moody
 * Music by The Riverside Group
 * "When You Say Nothing at All" --- **interested in this**
+
 * "I'm So Tired of Being Alone" --- **interested in this**
-* "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
 * "What a Wonderful World" --- **interested in writing and composing a song called 'A New Day' inspired by this**
+
+* "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
+
 * "Jailhouse Rock" --- **interested in female version of this song**
 * "Folsom Prison Blues" --- **interested in female version of this song**
-* "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
-* "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
 * [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
+
+* "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
+
+
+* "Playing for Change"
+* "One Tribe"
+* "I Believe"
 
 <br>
 
@@ -3724,6 +3752,7 @@ America is a story of change.
 America is a story of freedom.
 America is a story of freedom of expression.
 America is a story of Truth.
+America is a story of learning.
 
 America is a country of beliefs.
 America is a system of expression, the reverse of oppression.
@@ -3802,6 +3831,8 @@ There's someone, there are people on the other side of the computer screen, and 
 There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture.
 There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
 There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
+There's someone, there are people behind the books in the bookstore.
+There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
 
@@ -4000,7 +4031,7 @@ More broadly, I love home on earth with all of humanity.
 <br>
 
 ## It All Started in Virginia ##
-It all started in Virginia, the home of the virgin, native land. Some people chose liberty and traveled across the seas. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail they had set launched the way for some pioneering people.
+It all started in Virginia, the home of the virgin, native land. Some people chose liberty, traveled across the seas, and landed in Virginia. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail they had set launched the way for some pioneering people.
 
 <br>
 
@@ -4119,6 +4150,7 @@ Let the glow shine.
 It is yours to share.
 It is yours to wear.
 
+## It is Ok ##
 It's ok to cry.
 It's ok to let the heart tear inside.
 It's ok to let the tears flow.
@@ -4129,7 +4161,6 @@ It's ok to express emotions and thoughts.
 Sometimes the anger and other emotions mask the need to cry and to feel.
 It is ok.
 
-## It's Ok ##
 It's ok to cry.
 It's ok to feel.
 It should feel good to sing.
@@ -4148,6 +4179,7 @@ In the bitterness and the loss, I found a voice that you happened to save.
 The freedom is in the independence.
 The spirit is all around.
 The healing is in the mystery of the whirlwind of it all.
+The joy is in the leaves moving around.
 
 <br>
 
@@ -4239,8 +4271,7 @@ The lone bird launches and lands onto a brown tree branch.
 
 ## Fighting for Her Independence ##
 Through the fight for her independence, there is ground beneath her feet.
-Trust, love, and joy sings through the depths of her soul,
-and through her light, all the colors on the Earth feel embraced.
+Trust, love, and joy sings through the depths of her soul, and through her light, all the colors on the Earth feel embraced.
 
 She lets go of the claims.
 She lets go of the ugliness.
@@ -4449,7 +4480,7 @@ It reminded me of my grandmother's heart, my grandfather's music playing, my gre
 <br>
 
 ## Same Roads, New View ##
-I have driven down these roads before, but I see them, the people, the homes in a new light.
+These roads I have driven down before, but I see everything - the people, the homes - everything in a new light.
 Everything grows richer, deeper, fuller, and more alive. I see the beauty, not the poverty.
 
 <br>
@@ -4491,6 +4522,24 @@ You knew how to place things in my path to nudge me further.
 
 ## God Blesses the Broken Roads ##
 "God blesses the broken roads".
+
+<br>
+
+## All of Life is a Church, School, Democracy ##
+All through out the Earth, there is a Church I am walking through.
+We are walking in a gigantic church.
+All of the world is a church.
+I am walking through a gigantic church.
+
+All throughout the Earth, there is a School I am walking through.
+We are walking in a gigantic school.
+All of the world is a school.
+I am walking through a gigantic school.
+
+All throughout the Earth, there is a Democracy I am walking through.
+We are walking in a gigantic demcoracy.
+All of the world is a democracy.
+I am walking through a gigantic democracy.
 
 <br>
 
@@ -4598,6 +4647,11 @@ A lesson on forgiving people and treating people as brethren.
 A lesson on appreciating people's names.
 A lesson on giving candid feedback to people and listening to people well.
 A lesson on being ok with solitude and being ok with being single.
+A lesson on thoughts and conversations.
+A lesson on book writing.
+A lesson faith.
+A lesson on forgiveness.
+A lesson on drawing for change.
 
 <br>
 
@@ -4748,6 +4802,19 @@ They've walked down sidewalks.
 They've walked through forests.
 They've hit the mall.
 They've been down grassland.
+
+<br>
+
+## Highway ##
+She is a highway girl.
+She loves to pray when she drives.
+She loves all the cars moving around in symphony.
+She loves her thought that moves slowly.
+She has the freedom to process information.
+She can hear the beauty of the sounds.
+She can open her eyes to new people in roadside hotels and at gas stations.
+She can cherish the order and harmony of all the cars driving together through mid-day traffic.
+She remembers the long drives from VA through TN and back down to NC.
 
 <br>
 
@@ -5287,6 +5354,7 @@ The flickering lights in the hearts of all the people throughout the nation and 
 The flickering lights in the homes and office buildings united.
 The flickering lights in the night sky that reach other galaxies.
 You can see them from up above in the plane looking down through the seat window.
+You can see them while walking around through the city.
 A society run by electric lines, power grids, and lightbulbs.
 
 <br>
@@ -5445,7 +5513,8 @@ Imagine a world where all 7.2 billion people look out to the same horizon.
 Imagine a world where all 7.2 billion people sing freely.
 Imagine a world where all 7.2 billion people's hearts light up inside.
 Imagine a world where all 7.2 billion people love one another.
-Imagine a world where all 7.2 people quickly forgive.
+Imagine a world where all 7.2 billion people quickly forgive.
+Imagine a world where all 7.2 billion people look at the reflection of themselves in mirrors while loving the others around them more than themselves.
 Iamgine a world where all 7.2 billion people sitting on street corners are loving each other.
 Imagine a world where all the colors exude the light and shine their true colors.
 The World would resound with light and sound.
@@ -5713,6 +5782,7 @@ He knew my loudest secrets.
 He knew my strongest weak points.
 He knew how to box me in.
 He knew just how to strike a chord with all that was wrong with me and make me change, force me to change, force me to look in the mirror.
+He knew my favorite childhood memories.
 
 It's making me crazy.
 I'm making a scene.
@@ -5839,17 +5909,19 @@ It's the same world, but different places.
 It's the same Sun, but different angles.
 It's the same spectrum, but different colors.
 It's the same Truth, but different standpoints.
-It's the same core, but different viewpoints.
+It's the same Life, but different viewpoints.
 It's the same system, but different tracks.
+It's the same goal, but different skills.
 
---We are all weaving in and out and learning the same lessons in different colors.
+--We are all weaving in and out and learning the same lessons.
 
 <br>
 
 ## It's One in the Same ##
 It's one in the same.
 It's two sides of the same coin.
-It's comes to the surface differently, and like produces like.
+It's comes to the surface differently.
+Like produces like.
 
 ## You Know Too Much About Me, You Spoke for Me ##
 You know too much about who I am.
@@ -5989,8 +6061,6 @@ Every experience can help people to learn to think in new ways, explain the worl
 
 
 # Creative Writing - Independent Writing #
-# Mental Health #
-
 ## Children's Play and Hallucinations ##
 Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
 Once in my twenties, people felt like I was tripping. Actually, I was tripping. I had been so depressed and stressed and felt so overweight that I starved myself for a whole semester. I was imagining things like a little kid does. None of it was real; it was twisted - the images and sounds were distorted, and they were not the full, big picture that God has.
@@ -6025,7 +6095,7 @@ When in a healing, yet blurred relationship with someone, I remember listening t
 
 From across the room, the silent heart-to-heart that cares and concerns, and knows intuitively the needs of another's voice and heart speaks. Is the care sincere? Is he laughing at me or with me? Is the love truly required, or is it a little Truth-or-Dare? The silence of a God-led heart-to-heart is for real and is as loud as the silence captured in the country song. The Truth-or-Dare feels like a prank, sinister, childish, aggressive, and insincere.
 
-I also remember listening to the song "Hey Lady" by Thriving Ivory. These songs weren't about me, but I could relate to the feeling of not wanting to burn my heart out on love and not wanting to lose someone before they walk away.
+I also remember listening to the songs "As She's Walking Away" by the Zac Brown Band and "Hey Lady" by Thriving Ivory. The first song captures the idea of a God-led heart-to-heart speaking loudly with no words expressed in the room. The other song wasn't about me, but I could relate to the feeling of not wanting to burn my heart out on love and not wanting to lose someone before they walk away.
 
 Finally, I remember listening to the song "Memphis Soul Song". There's an angel on one side, and a devil on the other side. An angelic woman caring, loving, and laughing with a devilish pull to want a boyfriend. An angelic thought in a man with a devilish side unmasked.
 
@@ -6059,15 +6129,7 @@ Why is someone using my information?
 <br>
 
 ## Industry 2.0 ##
-I am a highway girl.
-I love to pray when I drive.
-My thought moves slowly.
 The white and brown trucks remind me of modern-day horse and buggy cars.
-I have the freedom to process information.
-I can hear the beauty of the sounds.
-I open my eyes to new people in roadside hotels and at gas stations.
-I cherish the order and harmony of all the cars driving together through mid-day traffic.
-I remember the long drives from VA through TN and back down to NC.
 
 The internet is the new highway to Truth.
 Anything and everything can be uncovered, discovered, and captured.
