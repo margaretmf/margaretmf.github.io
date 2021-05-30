@@ -1443,6 +1443,22 @@ is_contact: true
 (4)
 (5)
 
+### **Day 84** ##
+### **Images** ###
+(1) Children at play sign
+(2) Light in the darkness imagery
+(3) A woman smiling
+(4) Stop lights reflecting through puddles
+(5) A bike next to a pole
+
+### **Sounds** ###
+(1) Click clack of shoes
+(2) Swooshing of car driving through water
+(3) Christmas music
+(4) The sound of memories of Argentina
+(5) A shrilling yell
+(6) A train whistling and blowing in the background of the neighborhood
+
 <br>
 
 <br>
