@@ -1437,11 +1437,11 @@ is_contact: true
 (5) Leaves falling
 
 ### **Sounds** ###
-(1)
-(2)
-(3)
-(4)
-(5)
+(1) Cheers at a football game
+(2) Bells at a football game
+(3) A siren in the neighborhood
+(4) A voice on TV speaking
+(5) A clock ticking
 
 ### **Day 84** ##
 ### **Images** ###
@@ -1458,6 +1458,21 @@ is_contact: true
 (4) The sound of memories of Argentina
 (5) A shrilling yell
 (6) A train whistling and blowing in the background of the neighborhood
+
+## **Day 85** ##
+### **Images** ###
+(1) A red flower on the sidewalk
+(2) An orange ladder against a wall
+(3) Purple flowers against a city wall
+(4) Shapes in architecture
+(5) A "blessings" sign on a door
+
+### **Sounds** ###
+(1) Water rushing out
+(2) Water flowing in a sink
+(3) Keys on a keyboard clicking
+(4)
+(5)
 
 <br>
 
