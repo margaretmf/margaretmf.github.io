@@ -53,6 +53,7 @@ layout: default
 * [And Theen They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 * [The Power of Ritual: Turning Everyday Activities into Soulful Practices](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) by Casper ter Kuile
+* [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622369974&sr=8-1) by David Weston Marshall
 
 ## 2020
 
