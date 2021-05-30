@@ -29,6 +29,7 @@ layout: default
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 * [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
 * [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
+* [Dreams of My Father]()
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
