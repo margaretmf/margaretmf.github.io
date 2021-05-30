@@ -9,6 +9,9 @@ layout: default
 * Cervantes
 * Jorge Louis Borges
 * Shakespeare
+* Robinson Cruesoe
+* The Arabia Nights
+* The Pilgrim's Progress
 
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
