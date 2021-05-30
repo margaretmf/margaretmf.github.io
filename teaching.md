@@ -179,19 +179,19 @@ Argues. Acknowledges. Believes. Denies/Does Not Deny. Claims. Complains. Concede
 * Peter, Benjamin, Flopsy, Mopsy, Cotton-tail, Samuel Whiskers, Tom Kitten
 
 ### Color ###
-* heavenly white // wedding dress, blue // coat, blue-jacketed // rabbit, brown // rabbit, white // skin, yellow // light, rosemary-scented // candles, lavendar // bath bombs, work // gloves
+* heavenly white // wedding dress, blue // coat, blue-jacketed // rabbit, brown // rabbit, white // skin, yellow // light, rosemary-scented // candles, lavendar // bath bombs, work // gloves, pink // pig, pink // sunset
 
 ### Adjectives ###
-* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face, broken // window, human // speech, reassuring // arm, whole // section, last // display, psychotic // breakdown, sweet // strawberries, precious // harvest, different // story, flawless // square plot, biggest // plant, higher // ground, stinky // mulch, vivid // memories, brilliant // color books, naughty // rabbit, interwoven // narrative, incredulous // look, recycling // bins, healthiest // way, brief // nod, gruff // old rabbit, darkening // countryside, vegetable // garden, beloved // tomatoes, noisy // attempts, happy // family, strong // suit, bad // seed, big // billboard, inordinate // ammount, whole // mountain, impressive // flip, tumbling // bunnies, rough // childhood, crazy // detail, general // expression, sudden // purpose, high-pitched // squeal, little // girl, literary // voice, hardcover // book, glossy // cover, glorious // design, beloved // bunnies, land // preservation, beady // eyes, fateful // day, desperate // dash, slumped // figure, good // bunny, coolest // creatures, crunchy // pile, ridiculous // notion, abandoned // lighthouse, elegant // name, daily // task, country // air, subtlest // grace, rapturous // applause, cozy // burrow, new // book, luscious // fruits, ripest // radishes, sweetest // strawberries, handmade // gift, dried // fruit, confused // pause, country // eyes, dried // pineapple, nutritional, toughest // one, dried // apricot, second // thought, peripheral // vision, wide-eyed // rabbits, sickly // look, total // chaos, romantic // concern, electronics // expert, prized // tomatoes, tense // words, relevant // words, elegant // stories, best-selling // version
+* glorious // summer's day, city // mouse, well-dressed // mice, small // rabbits, clever // bunny, cheeky // grin, countryside // creatures, dear // friend, guest // list, prickly // hedgehog, tiny // jackets, delightful // rabbits, changed // rabbit, special // day, beloved // rabbits, new // parent, whopping // bite, soon-to-be // husband, happy // couple, flying // squirrel, vital // piece, whopping // bite, happy // couple, last // tale, vital // piece, affectionately // nuzzled, carefully // slipped, joyful // moment, old-fashioned // definition, overexcited // kid, book // cover, second // bunny, unfortunate // crack, furious // face, broken // window, human // speech, reassuring // arm, whole // section, last // display, psychotic // breakdown, sweet // strawberries, precious // harvest, different // story, flawless // square plot, biggest // plant, higher // ground, stinky // mulch, vivid // memories, brilliant // color books, naughty // rabbit, interwoven // narrative, incredulous // look, recycling // bins, healthiest // way, brief // nod, gruff // old rabbit, darkening // countryside, vegetable // garden, beloved // tomatoes, noisy // attempts, happy // family, strong // suit, bad // seed, big // billboard, inordinate // ammount, whole // mountain, impressive // flip, tumbling // bunnies, rough // childhood, crazy // detail, general // expression, sudden // purpose, high-pitched // squeal, little // girl, literary // voice, hardcover // book, glossy // cover, glorious // design, beloved // bunnies, land // preservation, beady // eyes, fateful // day, desperate // dash, slumped // figure, good // bunny, coolest // creatures, crunchy // pile, ridiculous // notion, abandoned // lighthouse, elegant // name, daily // task, country // air, subtlest // grace, rapturous // applause, cozy // burrow, new // book, luscious // fruits, ripest // radishes, sweetest // strawberries, handmade // gift, dried // fruit, confused // pause, country // eyes, dried // pineapple, nutritional, toughest // one, dried // apricot, second // thought, peripheral // vision, wide-eyed // rabbits, sickly // look, total // chaos, romantic // concern, electronics // expert, prized // tomatoes, tense // words, relevant // words, elegant // stories, best-selling // version, beloved // family, wacky // stuffed-animal, muffled // voice, different // goods, busy // streets, provisional // leader, hot // pursuit, juicy-looking // peaches, smashed // aubergines, perfect // harmony, utter // chaos, prized // tomatoes, precious // tomato, slow // motion, complete // mission, daytime // lights, good // measure, open // truck, bigger // share, gleeful // expression, latest // changes
 
 ### Adverbs ### 
-* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly, silently // counting, repeated // breathlessly, intently // listening, gestured // frantically, nodding // excitedly, swung // helplessly, hastily // grab, softly // snoring, hastily // picked, proudly // announced, dizzily // staggered, skillfully // caught, running // blindly, feeling // suddenly, dramatically // announced, individually // consider, uncomfortablly // shifted, equally // looked, confidently // said, angrily // declared, muttered // unhelpfully
+* crowed // loudly, hated // absolutely, searched // frantically, stomped // thoughtfully, pose // smoothly, silently // counting, repeated // breathlessly, intently // listening, gestured // frantically, nodding // excitedly, swung // helplessly, hastily // grab, softly // snoring, hastily // picked, proudly // announced, dizzily // staggered, skillfully // caught, running // blindly, feeling // suddenly, dramatically // announced, individually // consider, uncomfortablly // shifted, equally // looked, confidentially // said, angrily // declared, muttered // unhelpfully, stuffed // quickly, strolled // lazily, cruelly // laughed
  
 ### Vocabulary ###
-* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed, slunk, scampered, smirked, grin, avoid, explain, skid, glimpse, shrug, waltz, explode, snuggle, whine, clucked, amazement, emerged, concentration, perched, stumbled, frolicked, distracted, reputation, exaggerator, fabricator, falsifier, imagine, conflate, mischievous, revved, determined, repair, exclaim, incredulous, unripened, skid, countered, defensive, appall, introduced, emerged, sauntered, grasped, consider, individual, admiration, smiling, biographer, mime, replied, natural, delight, natural, reveal, burrow, explode, deserve, convertible, zoom, feeding, suggest, imagine, pour, valuable, impossible, murmur, exclaim, interrupt, continue, picture, ideas, compromising, niche, anglicized, arguments, pronounced, listen, retorted, paint, sniff, press
+* flanked, determined, sprinted, protested, noticed, dangling, smiled, gestured, display, grab, published, scurried, wobble, replied, collapsed, slunk, scampered, smirked, grin, avoid, explain, skid, glimpse, shrug, waltz, explode, snuggle, whine, clucked, amazement, emerged, concentration, perched, stumbled, frolicked, distracted, reputation, exaggerator, fabricator, falsifier, imagine, conflate, mischievous, revved, determined, repair, exclaim, incredulous, unripened, skid, countered, defensive, appall, introduced, emerged, sauntered, grasped, consider, individual, admiration, smiling, biographer, mime, replied, natural, delight, natural, reveal, burrow, explode, deserve, convertible, zoom, feeding, suggest, imagine, pour, valuable, impossible, murmur, exclaim, interrupt, continue, picture, ideas, compromising, niche, anglicized, arguments, pronounced, listen, retorted, paint, sniff, press, moments, trailblazer, menacing, criminality, dared, doubt, mayhem, marauding, pandemonium, flattened, enormity, calamity, heist, screech, culprit, aghast, emerged, frightened, blurted, belong, bounded, cheer
 
 ### Allusions ###
-* Charles Dickens, *A Tale of Two Cities*, *Peter Rabbit*, Country // City
+* Charles Dickens, *A Tale of Two Cities*, *Peter Rabbit books*, Country // City
 
 ### Themes ###
 * Gardening, Nature, City Streets, Adventure, Painting
@@ -314,6 +314,89 @@ The fight continued. And again, like most arguments between adults, they weren't
 
 'I am painting our family...the best-selling version of our family,' she pressed." (p. 111, "Peter Rabbit 2")
 
+* "Because, of course, Bea still didn't know that her babies were in Gloucester. Or that they were about to pull off the *greatest farmers' market heist in history*. Never. mind that it was also the first. Peter had always been a trailbalzer, for better or worse. And hew as determine dthis mission was going to be for the better." (p. 133, "Peter Rabbit 2")
+
+* "The tailor's truck snaked its way through the busy streets toward this merriment. The gang was also in position. They were all waiting in an alley at the edge of the market. If a human had thought to look down the alley, they would have been in for a bit of a shock, for the rabbits, cats, and rat had been joined by some more friends. Tommy Brock, Pigling Bland, Mrs. Tiggly-winkle, Jemina Puddle-duck, Felix D'eer, and Jeremy Fisher all stood watching the market unfold." (p. 114, "Peter Rabbit 2")
+
+* "As Peter spoke, his voice rose higher and higher, the more frustrated he became. Flopsy decided it was a good time to point this out.
+
+'Your voice,' she said simply.
+
+'Is it high again?' asked Peter. 'It's high again.'
+
+Cotton-tail gave him a firm smack.
+
+'I miss Dad so much,' Peter barked in a very low, deep voice. It still wasn't right.
+
+Cotton-tail smacked him again.
+
+'I didn't ask you to come and find me,' he said softly, his voice now back to normal. 'If you want to run back to Bea and McGregor and let them control your lives, have it your way. The train station's right over there.'" (p. 116, "Peter Rabbit 2")
+
+* "Peter and Barnabas charged from their hidig place with the other animals in hot pursuit. They all ran into the marketplace, laying siege to anyone and anything that dared get in their way. They toppled over carts laden with blueberries and butternut squash. They played a game of catch with some juicy-looking peaches and smashed aubergines to smithereens.
+
+Customers fled from the mayhem and vegetable gunk that seemed to be coming from every direction. Farmers, meanwhile, attempted to defend their produce with raised hoes and fists. But their efforts were in vain; it was pandemonium. The marauding animals nipped with ease between the angry humans.
+
+Another farmer swiped at Mopsy with his knife but she avoided the blade with a spectacular somersault. In midair she slapped the farmer across the face with an enormous radish. The farmer staggered backward into a stool that Benjamin had already moved into position. He teetered for a moment and then fell to the ground with a thud." (pp. 117-118, "Peter Rabbit 2")
+
+* "The farmer looked at the hedgehog and recognition dawned on his face." (p. 118, "Peter Rabbit 2")
+
+* "With the market in utter chaos and the farmers distracted, there were only Sara Nakamoto and Simon Pemberly left. Tommy Brock snagged a rope from one of the tents and looped it over Felix D'eer's antlers. He crept over to Sara Nakamoto's stand and hooked the other end of the rope ont ot he back end of her dried-fruit car." (p. 119, "Peter Rabbit 2")
+
+* "Outside the market, it was time to execute the next part of the heist. Mittens and Tom Kitten opened the rear doors as Felix ran past. Samuel Whiskers scampered from the truck and jumped into the path of a passing car.
+
+The driver screeched to a halt. Its daytime lights shone directly into the eyes of Felix D'eer.
+
+'Heeeeeeeeeeeaaaadliiiiiights,' murmured Felix, entranced.
+
+His sudden stop caused the dried-fruit cart to crash into the bumper of the truck and bins of fruit slid out and onto the back of the truck. The kittens slammed the doors shut." (p. 121, "Peter Rabbit 2")
+
+* "'Why did you do this?' asked Peter.
+
+'No one wanted to adopt me,' Barnabas continued, 'I was too old.'
+
+Peter pictured a rather scruffy and sad-looking Barnabas in the cage of a pet shop, being passed over by children holding their own copies of Bea's *Peter Rabbit* book.
+
+'Every kid in town wanted a young rabbit like the one in that book,' said Barnabas.
+
+'First book he's read in years,' explained Whiskers. 'And it's mostly pictures.'
+
+'So I asked around,' Barnabas continued, remembering how he gave some cheese to Johnny Town-mosue in return for information on Peter. 'I was just gonna use you as bait for a few fake-and-takes, but then I saw how good you were and I figured we could do something a lot bigger together.'
+
+Peter's eyes narrowed. 'You lied to me.'
+
+'It's not hard to lie to someone who wants to believe,' Barnabas said. 'But one thing is true - we're a great team. That's why you're in this truck with us insead of in a cage with them.'
+
+Tears filled Peter's eyes as anger welled up inside his furry body." (p. 125, "Peter Rabbit 2")
+
+* "Across the city, in a packed conference room, a large screen showed an animated video of the rabbits playing ukeleles and singing a rather lame song.
+
+'Because together we can do anything!
+
+Rely on the power of one!
+
+The power of one!'
+
+Toward the end of the song, Benjamin, who was barely recognizable as Benjamin, strutted across the screen and finished his solo line in a bass voice.
+
+*The power of one!'*" (p. 129, "Peter Rabbit 2")
+
+* "'We''l totally transfer all your brainwork onto it; another executive assured her. 'The director is *very* collaborative. He's Norwegian.'" (p. 130, "Peter Rabbit 2")
+
+* "There was an echo of agreement from the others in the room." (p. 130, "Peter Rabbit 2")
+
+* "'I think what we're trying to say is,' said Nigel pleasantly, 'the ending is really important. It's the only thing readers remember.'
+
+There were nods from every corner of the room as a researcher via video link began to speak.
+
+'The first eighty percent can be absolute drivel, but, if the final chapter is jam-packed with exciting action and emotion? *Bestseller.*'
+
+Bea wanted to please these publishing folks. After all, they knew about books." (p. 130, "Peter Rabbit 2")
+
+* "'They should all get kidnapped,' another suggestd. 'There can be a rescue mission, exotic locations, all over the country, even *outside* the country.
+
+Bea felt overwhelmed as they continued to talk about wild car chases in Italy, getting revenge on gangs of bad guys, motorcycles, boats, and rabbits riding off into a sunset.
+
+'The sunset should be pink, though, as testing tells us that's the color of hope and the future,' an executive added while everyone else cheered." (p. 131, "Peter Rabbit 2")
 
 
 ----------
