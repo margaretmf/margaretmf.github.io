@@ -380,6 +380,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for artwork in homes
 * Grateful for the working artists' studio
 * Grateful to make my beliefs about the relationship between Christianity in the political sphere, religious liberty, and science practical
+* Grateful for the man who gave me a ride
+* Grateful for the walkin in the city
+* Grateful for the people I met socializing
 
 
 <br>
