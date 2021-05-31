@@ -21,8 +21,8 @@ is_contact: true
 ----------
 
 
-## Currently, revising this piece of writing and learning to self-actualize what it means. ##
-## The American Chain [Written in 2010] ##
+## Currently, revising this piece of writing and learning what it means in actuality. ##
+## The American Chain, Written in 2010 ##
 As a child, I grew up singing *I Am Proud To Be an American* like many of my peers. I never knew what it mean to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
 
 A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
@@ -38,7 +38,7 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 <br>
 
 
-## The American Chain [Edited in 2021] ##
+## The American Chain, Edited in 2021 ##
 As a child, I grew up singing *I Am proud to be an American* as many of my peers did. I did not know what it meant to be an American as deeply as recently though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
 
 A little over a year ago, in February 2008, I went to the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech, the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
@@ -399,7 +399,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful to make my beliefs about the relationship between Christianity in the political sphere, religious liberty, and science practical
 * Grateful for the man who gave me a ride
 * Grateful for the walkin in the city
-* Grateful for the people I met socializing
+* Grateful for the people I met socializing with Black people and form interracial relationships
+* Grateful for a new era
 
 <br>
 
@@ -462,7 +463,7 @@ In a story to appreciate the true vision, the heroism, and the exciting goal for
 
 <br>
 
-**Word Associations:** goal, future, adveneture, possibility, road, vision, purpose, obstacle, story, hero
+**Word Associations:** goal, future, adventure, possibility, road, vision, purpose, obstacle, story, hero
 
 ## Secrets ##
 Hidden lusts, and affections.
@@ -724,7 +725,7 @@ God, the awareness of goodness all around, is the parent mind for everyone.
 
 <br>
 
-**Word Associations:** guardian, idol, nurture, mother, father, childhood. upbringing teacher
+**Word Associations:** guardian, idol, nurture, mother, father, childhood. upbringing, teacher
 
 ## Children ##
 Children, the sound of children playing is beautiful.
@@ -736,7 +737,7 @@ The changing seasons, the next generation, the progression of humanity, and mank
 
 <br>
 
-**Word Associations:** toddler, play, offspring, kids, little, foundling, youngsters, youth
+**Word Associations:** toddler, play, offspring, kids, little, founding, youngsters, youth
 
 ## Home ## 
 Home starts from within.
@@ -1859,7 +1860,7 @@ All of mankind working together, collaborating, and tolerating each other in one
 
 <br>
 
-**Word Associations:** parity, tolearance, balance, acceptance, fair, level, right, brotherhood
+**Word Associations:** parity, tolerance, balance, acceptance, fair, level, right, brotherhood
 
 ## Independence ##
 The freedom within that supports standing alone.
@@ -1898,7 +1899,7 @@ Being pulled by the stir, but experiencing the gentleness within.
 
 <br>
 
-**Word Associations:** stoic, serene, calm, peace, composure, humility, gentleness, placity
+**Word Associations:** stoic, serene, calm, peace, composure, humility, gentleness, placidly
 
 ## Perspective ##
 I wake up with a new perspective on Life, on Earth each day.
@@ -1948,7 +1949,7 @@ An intelligent force is monitoring everything to keep everyone in check.
 
 <br>
 
-**Word Associations:** govern, dominion, restraint, clout, authority direct, sway, monitor
+**Word Associations:** govern, dominion, restraint, clout, authority, direct, sway, monitor
 
 ## Pain ##
 Pain, torment.
@@ -1999,7 +2000,7 @@ Thank you for the mentors who help to correct and help people get back up with g
 
 <br>
 
-**Word Associations:** mores, scruples, ethics, standards, conscience, ideals code, tenet
+**Word Associations:** mores, scruples, ethics, standards, conscience, ideals, code, tenet
 
 ## Laughter ##
 A joy, a smile, and a good laugh after a mistake.
@@ -2220,7 +2221,7 @@ The reason behind a choice.
 
 <br>
 
-**Word Associations:** acuen, savvy, reason, intuition, sense, perception, prudence, wisdom
+**Word Associations:** acumen, savvy, reason, intuition, sense, perception, prudence, wisdom
 
 ## Moving On ##
 One door closes loudly, and another door opens quietly.
@@ -2474,7 +2475,7 @@ Ambushed by the surprises.
  
  <br>
  
- **Word Associations:** sudden, exclaim, unexpcted, epiphany, godsend, ambush, astound, baffle
+ **Word Associations:** sudden, exclaim, unexpected, epiphany, godsend, ambush, astound, baffle
 
 ## A Voice ##
 People say they can't hear your voice.
@@ -2792,7 +2793,7 @@ A larger instituion of improving, and giving.
 
 <br>
 
-**Word Associations:** trian, skill, judgment, class, refine, bachelor, test, institution, program, segregate
+**Word Associations:** train, skill, judgment, class, refine, bachelor, test, institution, program, segregate
 
 ## Stolen ##
 A gem of great price within that feels stolen, trampled upon, violated.
@@ -2803,7 +2804,7 @@ The good in human character villainized.
 
 <br>
 
-**Word Associations:** dreams, crook, gem, villian, price, ranson, lurk, thunder, land, guard
+**Word Associations:** dreams, crook, gem, villian, price, ransom, lurk, thunder, land, guard
 
 ## Charge ##
 Taking charge of what needs to be accomplished.
@@ -2986,7 +2987,7 @@ and the feeling of being hit by truck with hate, and foolishness, and teasing, a
 
 <br>
 
-**Word Associations:** terror, beast, myth, labyrinth, creature, truck, unleaed, closet, hunt, supernatural
+**Word Associations:** terror, beast, myth, labyrinth, creature, truck, unleashed, closet, hunt, supernatural
 
 ## Identity ##
 Identity - what gives one meaning, and a purpose.
@@ -3194,7 +3195,7 @@ The success that comes from beating down the odds, the opposition, the face of a
 
 <br>
 
-**Word Associations:** duel,d are, wrestle, possession, champion, success, opposition, monopoly, ballot, face
+**Word Associations:** duel, dare, wrestle, possession, champion, success, opposition, monopoly, ballot, face
 
 ## Go ##
 Go forth as if all of the past can be left behind.
@@ -3291,7 +3292,7 @@ The life within that is whole, and spanning across the world.
 
 <br>
 
-**Word Associations:** life, adulthood, seed, potential, ripe, ahrvest, age, span, account, mind
+**Word Associations:** life, adulthood, seed, potential, ripe, harvest, age, span, account, mind
 
 ## Faith ##
 The belief in something outside of oneself or within oneself motivating someone to live another day.
@@ -3320,7 +3321,7 @@ The power within to transform and be effected by heartfelt notions.
 
 <br>
 
-**Word Associations:** feel, glove, bare, sense, contact, distrub, land, effect, power, manipulate
+**Word Associations:** feel, glove, bare, sense, contact, disturb, land, effect, power, manipulate
 
 ## Lines ##
 The lines on the road that guard, draw boundaries, and protect.
@@ -3354,7 +3355,7 @@ The drive within our ecosystem that keeps everyone living and under control in t
 
 <br>
 
-**Word Associations:** hight, fall, force, strength, sacrifice, royalty, energy, drive, control, current
+**Word Associations:** height, fall, force, strength, sacrifice, royalty, energy, drive, control, current
 
 ## Resolution ##
 The resolution to shift a thought, and change a habit.
@@ -3524,7 +3525,7 @@ The hope to begin again is have the struggle.
 
 <br>
 
-**Word Associations:** adversity, obstacles, goal, perseverance, chains, shackles, growth, chance, pain, hope
+**Word Associations:** adversity, obstacles, goal, perserverance, chains, shackles, growth, chance, pain, hope
 
 
 ----------
@@ -3584,9 +3585,9 @@ Do not feel self-conscious all the time; you look beautiful, you make good grade
 
 I know you often feel unhappy because of how some of your friends have treated you. Stop dwelling on this though; reach out and meet new friends. Have confidence that by expressing happiness, your right friends will come at the right time.
 
-I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of 'Silver Letter Girl' at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
+I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of *Silver Letter Girl* at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
 
-I realize that you do not feel as if you are 'good' at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of scenes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing '100 years' on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
+I realize that you do not feel as if you are "good" at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of scenes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing *100 years* on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
 
 You are a beautiful teenage girl; you thus need to stop having negative thoughts about your body and looks because it will only have a negative impact. Knowing that you reflect God's perfect image, you will feel more confident about your looks, your intelligence, and your musical or athletic strengths.
 
@@ -3605,7 +3606,7 @@ Margaret
 
 # Creative Writing - Independent Writing #
 ## Singer-Songwriting ##
-Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. There is some writing below that contributes to singer-songwriting.
+Composing music expresses both the head and the heart, and writing songs helps to heal, sing, and articulate feelings through words and sound. Writing below contributes to singer-songwriting.
 
 <br>
 
