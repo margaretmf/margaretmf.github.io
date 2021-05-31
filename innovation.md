@@ -1465,14 +1465,29 @@ is_contact: true
 (2) An orange ladder against a wall
 (3) Purple flowers against a city wall
 (4) Shapes in architecture
-(5) A "blessings" sign on a door
+(5) A 'blessings' sign on a door
 
 ### **Sounds** ###
 (1) Water rushing out
 (2) Water flowing in a sink
 (3) Keys on a keyboard clicking
-(4)
+(4) 
 (5)
+
+## **Day 86** ##
+### **Images** ###
+(1) A water hose
+(2) 4 yellow street signs of the shape of a quadrangle
+(3) A smile of a stranger
+(4) People walking on memorial day
+(5) People looking at photos on a camera
+
+### **Sounds** ###
+(1) The clinking of metal on a boat
+(2) Water flapping on the back of boat
+(3) Music playing outside the home next door
+(4) Church bells ringing
+(5) Birds tweeting
 
 <br>
 
