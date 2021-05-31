@@ -77,6 +77,13 @@ Harper died in 1911, before the 19th Amendment gave women the right to vote in 1
 
 So many of us have stories like this. We have moments in which we feel a bridge has appeared between us and something beyond. That bridge can come along when we explore a homemade ritual that we, now and then, revisit but never talk about." (p. 152, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
 
+## [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622461010&s=books&sr=1-1) ##
+"Colter might have admired a spirituality that acknowledged the oneness of nature and of all things tangible and intangible. He likely respected the freedom from religious dogma, coercion, and fear of eternal damnation. And he probably approved of the open, unabashed devotion toward friend, family, and divine spirit alike.
+
+Spirituality was central to indigenous beliefs. Jim Beckwourth said, 'I have lived among Indians in the Eastern and Western States, on the Rocky Mountains, and in California....All believe in the same Great Spirit.' They declare that he 'sees and knows all things.'
+
+Other observers added that Native Americans universally believed 'in one Great Spirit, who has created all things, governs all important events, who is the author of all good, and the only object of religious homage.'" (p. 76, "Mountain Man: John Colter, The Lewis & Clark Exedition, and the Call of the American West", David Weston Marshall)
+
 
 ----------
 
@@ -137,6 +144,15 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 "...the shiny lights of achievement or the sinkholes of despair" (p. 167, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
 
 "Connection, for O'Donohue, is about love awakening in our lives. 'In the night of your heart, it is like the dawn breaking within you. Where before there was anonymity, now there is intimacy; where before there was fear, now there is courage,' he writes in his classic *Anam Cara*. All of us need to be reminded, often multiple times a day, that we are inherently worthy of those deep and holy links and that - no matter what we do - we are intrinsically connected." (p. 199, "The Power of Ritual: Turning Everyday Activities into Soulful Practices")
+
+## [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622461010&s=books&sr=1-1) ##
+""From these, Joe Meek elarned to read by the light of the campfire while in the mountains." (p. 118, "Mountain Man: John Colter, The Lewis & Clark Expedition, and The Call of the American West", David Weston Marshall)
+
+"Their days often began before light and ended after dark. They wrote while on a halt or resting in camp, in fair or foul weather, and often by the light of a candle or campfire." (p. 46, "The Call of the American West", David Weston Marshall)
+
+"Nighttime in the Rockies was equally enchangint. William Anderson exclaimed, 'How lovely are the nights! The moon and stars shine with a purer and brighter light than I ever saw them before.' To which Joe Meek added, 'The northern lights blazed up the skY! It was the most beautiful sight I ever saw.'" (p. 148, "The Call of the American West", David Weston Marshall)
+
+"According to the Flathead Indians, the Great Spirit appointed COyote to bring order to the earth. In obedience, Coyote gave the antive people fire and showed them how to make tools and weapons." (p. 149, "The Call of the American West", David Weston Marshall)
 
 
 ----------
@@ -287,6 +303,13 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 
 ## [The Making of Home: The 500-Year Story of How Our Houses Became Homes](https://www.amazon.com/Making-Home-500-Year-Houses-Became-ebook/dp/B00TODAC4S) ##
 "Water, sewage, gas, electricity - these technologies connected the house to the networks of modern life around them, and they also enforced standardization on them. Builders now had to use pipes of a fixed size, and, eventually, to conform to new safety regulations..." (p. 252, "The Making of Home: The 500-Year Story of How Our Houses Become Homes", Judith Flanders)
+
+## [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622461010&s=books&sr=1-1) ##
+"Ferris added, 'The Indians rise at day light invariably, when all go down to the stream they may happen to be encamped on, wash their hands and faces, and comb their long hair with their fingers...Bathing is one of their favorite amusements, and when near a suitable place, if the weather be fair, some of them may at any time be seen in the water. Other observers said Indian children swam like ducks.'" (p. 41, "Mountain Ma: The Lewis & Clark Expedition, and the Call of the American West", David Weston Marshall)
+
+"They say he made 'the light and the darkness, the fire and the water,' and that it is this 'Great Superintendent of all things, whose power sustains the universe, causing day and night with the varying seasons, making the grass grow, the water to run, and the rains to fall, for the god of man and beast.''" (p. 76, "Mountain Man: The Lewis & Clark Expedition, and the Call of the American West", David Weston Marshall)
+
+"Farther to the east, Heart Mountain reflected a reddish glow in the setting sun." (p. 97, "Mountain Man: The Lewis & Clark Expedition, and the Call of the American West", David Weston Marshall)
  
  
 ----------
@@ -304,6 +327,15 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 "So the doctor couldn't fix me. I figured God was going to have to. Ugh. I hated this part of faith - the part where you have to believe in something you do not see and trust something you cannot really hear. So I prayed. I prayed some heart-wrenching prayers, my friends. I cussed at God - I yelled at God. I screamed at God. I begged God. I wanted this feeling to go away. I wanted to wake up one morning and have the feelings of anxiety be gone. But they never did." (p. 102, "Kill the Spider: Getting Rid of What's Really Holding You Back")
 
 "The only time I really prayed for anything was when I needed soemthing *major* in my life. At those times, I would turn on the 'I Believe in Prayer' switch. Honestly, I did believe. I prayed holes in the knees of my jeans when I suffered my anxiety attack. I prayed so hard when we went to adopt our son, Losiah. I prayed morning, noon, and night for my uncle Roger when he was diagnosed with cancer. With the massive things in life, *everyone* believes in prayer." (p. 122, "Kill the Spider: Getting Rid of What's Really Holding You Back")
+
+## [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622461010&s=books&sr=1-1) ##
+"What is known for certain is that Colter owned a small collection of books, which suggests his literacy. In addition, his signature appears on several public documents signed at Three Forks and St. Louis.
+
+Many frontiersmen were literate and even well-educated. This is evident in the polished narratives they wrote describing their travels. Indeed, the numerous quotes that appear in this book attest to the fact. William Anderson said, of his travels across the Great Plains and Rockies, I saw 'gentlemen and men of genteel deportment wherever I have been.'
+
+Joe Meek told how the mountain men gathered about the evening campfire and 'told tales of marvelous adventures, or sang some old-remembered song, or were absorbed in games of chance. Some of the better educated men, who had once known and loved books, but whom some mishap in life had banished to the wilderness, recalled their favorite authors, and recited passages once treasured, now growing unfamiliar.' Others related stories they had read in their youth, including *Robinson Crusoe*, *The Arabian Nights*, and *The Pilgrim's Progress*.
+
+The rugged frontiersmen who traveled with William Sublette, Jedediah Smith, and David Jackson carried a copy of the Bible and the works of Shakespeare." (p. 76, "Mountain Man: John Colter, The Lewis & Clark Exedition, and the Call of the American West", David Weston Marshall)
 
 
 ----------
