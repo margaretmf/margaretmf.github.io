@@ -1,3 +1,29 @@
+## Github for Researchers ##
+* [Reproducible Research](https://coderefinery.github.io/reproducible-research/02-organizing-projects/)
+* [Organize Your Project](https://github.com/jdblischak/workflowr)
+* [Self-Organizing Systems](https://github.com/google-research/self-organising-systems)
+* [Organize Data Science Articles](https://towardsdatascience.com/how-to-organize-your-data-science-articles-with-github-b5b9427dad37)
+* [Organize Your PhD with Git and Github](https://babushk.in/posts/how-to-organize-your-phd.html)
+* [Scientific Collaboration and Project Management](https://rabernat.medium.com/scientific-collaboration-and-project-management-in-github-d74f2255ae5f)
+* [Organize Github Repositories](https://www.google.com/search?q=github+organizing+research&client=safari&rls=en&sxsrf=ALeKk02wi1tcNKQp-blrFv0s5eZhQSyDxA:1622470626086&ei=4u-0YJffBIGC9PwP8OapwAw&start=20&sa=N&ved=2ahUKEwiX2M2KjvTwAhUBAZ0JHXBzCsg4ChDw0wN6BAgBEEs&biw=1635&bih=848)
+* [Open Journalism](https://github.com/collections/open-journalism)
+* [Github for Jouranlists](https://knightlab.northwestern.edu/2013/06/13/getting-github-why-journalists-should-know-and-use-the-social-coding-site/)
+* [Best Practices for Github](https://learn.r-journalism.com/en/git/github_pages/github-pages/)
+* [Journalism with R](https://learn.r-journalism.com/en/git/github/github/)
+
+## Github for Teachers ##
+* [Github for Teachers](https://education.github.com/teachers)
+* [Github Teacher Toolbox](https://education.github.com/toolbox)
+* [Github for Teaching Material](https://github.com/rkwitt/teaching)
+* [RStudio Education](https://education.rstudio.com/teach/materials/)
+
+## Github for Singer-Songwriters ##
+* [Notes App](https://github.com/RAAbbott/notes-app)
+* [Github to Write Songs](https://www.lorenzosmusic.com/2019/05/how-we-came-up-with-way-to-use-github.html)
+
+## Dictionary Software ##
+* [Dictionary Software](https://www.google.com/search?q=github+apps+dictionary&client=safari&rls=en&sxsrf=ALeKk01sXAFIpdgKNe_CkCDWpOVrssgvLA:1622101233725&ei=8UyvYKTXK9qE9PwPq4qOWA&start=10&sa=N&ved=2ahUKEwjkk83-renwAhVaAp0JHSuFAwsQ8NMDegQIARBM&biw=1324&bih=877)
+
 ## Chinese Calligraphy ##
 "Calligraphy, or the art of writing, was the visual art form prized above all others in traditional China. The genres of painting and calligraphy emerged simultaneously, sharing identical tools—namely, brush and ink. Yet calligraphy was revered as a fine art long before painting; indeed, it was not until the Song dynasty, when painting became closely allied with calligraphy in aim, form, and technique, that painting shed its status as mere craft and joined the higher ranks of the fine arts (1989.363.33; 1973.120.5).
 
