@@ -82,7 +82,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (24 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (25 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -401,6 +401,14 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the walkin in the city
 * Grateful for the people I met socializing with Black people and form interracial relationships
 * Grateful for a new era
+* Grateful for a line of gflags
+* Grateful for people walking and biking on Memorial day
+* Grateful for freedom from being a slave to other people
+* Grateful to work ethically
+* Grateful for balance in government buildings 
+* Grateful for the new playgrounds
+* Grateful for a smile of a stranger and friend on the walking path
+* Grateful for Gospel music
 
 <br>
 
@@ -3796,10 +3804,25 @@ America is a story of learning.
 America is a story of spiritual transformation.
 America is a story of perspiration.
 America is a story of courage.
-America is a story of community.
-America is a story of liberty.
+America is a story of community and communal work.
+America is a story of liberty and liberation.
+Ammerica is a story of redemption.
+America is a story of singing.
+America is a story of sacrifice.
+America is a story of culture.
+America is a story of the fight for independence.
+America is a story of home.
+America is a story of breath and breathing.
+America is a story of religion and a higher spirituality.
+America is a story of progress.
+America is a story of thanksgiving.
 
 America is a country of beliefs.
+America is a country of music.
+America is a country of government.
+America is a country of churches.
+America is a country of schools.
+America is a country of internationalities.
 America is a system of expression, the reverse of oppression.
 
 Some believe history is objective. Some believe history is subjective.
@@ -3877,6 +3900,8 @@ There's someone, there are people behind the cash register, and they have though
 There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
 There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
 There's someone, there are people behind the books in the bookstore.
+There's someone, there are people behind the trash cans.
+There's someone, there are people behind the post office.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
