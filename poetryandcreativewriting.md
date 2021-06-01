@@ -436,6 +436,18 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for graduates of Norfolk Academy and ways people use liberal arts degrees
 * Grateful for people who democratize words, the heart, and music
 * Grateful for the connection between Shakespeare and music
+* Grateful for people working in social jsutice
+* Grateful for dogs at the dog park
+* Grateful for memories of the expression of friendship
+* Grateful for security at the shopping mall
+* Grateful for all the shapes and colors in the universe
+* Grateful for the oval shape around a tree
+* Grateful for people keeping everything organized
+* Grateful for the *Thank you for the Troops* sign in the mall
+* Grateful for the colors in the mall
+* Grateful for the man, Shakespeare, who did the work
+* Grateful for *Community Feed*
+* Grateful for the history of streets, pedestrians, and cars and bikers
 
 <br>
 
@@ -4533,6 +4545,10 @@ So much good has happened, and so much good is waiting to be born again.
 
 <br>
 
+## Home ##
+Home, a living system that starts within and expands out.
+Love for one another, love for all the people that one another touch, love for what another share interest in.
+
 ## Weaving In and Out ##
 Weaving in and out.
 At one with the giving and the receiving of the aid.
@@ -4621,6 +4637,11 @@ where bad memories are replaced, new pictures captured
 
 # Creative Writing - Independent Writing #
 # God and Prayer #
+
+## The All-in-All of Love ##
+Loving all the individuals around loving all that they love through their work and their days.
+
+<br>
 
 ## God Knows the Room ##
 God knows the room really well.
@@ -5424,7 +5445,7 @@ There's always a deepr view.
 
 
 # Creative Writing - Independent Writing #
-# Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights #
+# Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights, A Circular World #
 
 ## The Coins ##
 The four coins sitting on the grounds.
@@ -5493,6 +5514,16 @@ The truth is within.
 The truth is there.
 The truth is free.
 The truth is light.
+The truth lifts her wings in a world full of colors.
+The truth lives on.
+The truth is at the center.
+The truth is within every's hearts.
+The truth raises her voice.
+The truth shares her wisdom.
+
+We all look to the same Truth.
+We all radiate out from the center.
+Beliefs, opinions are like colors on the spectrum.
 
 <br>
 
@@ -5562,6 +5593,20 @@ There is a rose within everyone's heart.
 It must be watered, it must be nourished.
 The love is strong, and the light is bright, even at night. It is all one with all of humanity.
 Nothing is as beautiful as a red rose in the harsh, blasts of a winter storm.
+
+<br>
+
+## A Circular World ##
+A circular world we are living in.
+New people born day in and day out.
+Other people finding heaven day in and day out.
+One door closes, another door opens.
+One chapter ends, another chapter beings.
+The sun sets on one side of the earth, the sun rises on the other side of the earth.
+It's constnalty unfolding.
+It's constantly rotating.
+It's constantly spinning.
+Trash thrown waay, new products born.
 
 <br>
 
@@ -5668,6 +5713,8 @@ Imagine a world where all the colors exude the light and shine their true colors
 Imagine a world where all 7.2 billion people are running towards the same goal.
 Imagine a world where all 7.2 billion people are aiming in the same direction.
 Imagine a world where all 7.2 billion people are helping each other grow.
+Imagine a world where all 7.2 billion people are loving all the people another loves.
+Imagine a world where all 7.2 billion people see the light that another spreads.
 The World would resound with light and sound.
 The World where the heavens, the sky smile down.
 All the colors of the universe are embraced as one.
@@ -5730,7 +5777,7 @@ All the right ideas grow out of everyone.
 
 Beyond physical reproduction,
 there is spiritual renewal
-through spiritualizign thought, letting go of falsehood.
+through spiritualization of thought, and letting go of falsehood.
 
 <br>
 
@@ -5842,11 +5889,31 @@ I am a graduate of UVa, and Thomas Jefferson never worked in a silo. He worked a
 People box people in. 
 I try not to be elitist. 
 I love egalitarianism.
-I don’t worship people. But sometimes I feel like people are superior to me, and sometimes I have felt I am superior to others. 
+I don’t worship people, but sometimes I feel like people are superior to me, and sometimes I have felt I am superior to others. 
 I worship the song of Love at the post office, and the Fed Ex office.
 I love that I am Southern. 
 
 This. Is. Who. I am. 
+
+<br>
+
+## Speak Up ##
+Speak up.
+Your voice.
+It's one in a million, but it matters.
+It has depth.
+It has grace.
+It has strength.
+It refelcts love.
+It's meant to express itself.
+It voices the Truth.
+It inspires people.
+It shares faith with people.
+It's uplifting.
+It's not hidden.
+It's not meant to hide.
+It's meant to be exposed.
+It's meant to be heard.
 
 <br>
 
@@ -5871,6 +5938,8 @@ Women must smell a certain way.
 Women should not work in certain areas of the workplace.
 Women express maternal instincts.
 Women depend on men to become a mother.
+
+<br>
 
 ## The Gun Images ##
 It started with a laugh and a small.
