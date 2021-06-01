@@ -401,7 +401,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the walkin in the city
 * Grateful for the people I met socializing with Black people and form interracial relationships
 * Grateful for a new era
-* Grateful for a line of gflags
+* Grateful for a line of flags
 * Grateful for people walking and biking on Memorial day
 * Grateful for freedom from being a slave to other people
 * Grateful to work ethically
@@ -427,6 +427,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for conversations that beging with "How are you?"
 * Grateful for the strength of people expressed in others
 * Grateful for the spunkiness of women in politics
+* Grateful for public music education
 
 <br>
 
