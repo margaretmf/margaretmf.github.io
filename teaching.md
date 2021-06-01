@@ -1,13 +1,23 @@
 # Children's Books #
-I read and analyze children's books. I hope to develop outlines for critically reading and teaching them.
-
-I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to share critical reading of children's books to youth.
-
-I hope to share outlines below.
+Reading and analyzing children's books feeds my soul. 
 
 The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", and "Charlie and the Chocolate Factory". Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
 
-I am interested in how filmmakers turn children's books into films, and I am interested in how teachers use children's books in Social-Emotional Learning.
+A framework for critically reading and teaching them is below.
+
+I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to share critical reading of children's books to youth. I am interested in how filmmakers turn children's books into films, and I am interested in how teachers use children's books in Social-Emotional Learning.
+
+<br>
+
+
+----------
+
+
+# Books #
+* [Peter Rabbitt 2]()
+
+
+
 
 
 # Critical Reading #
