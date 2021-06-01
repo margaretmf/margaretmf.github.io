@@ -428,6 +428,11 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the strength of people expressed in others
 * Grateful for the spunkiness of women in politics
 * Grateful for public music education
+* Grateful for the "pitch in" advertisements on trash cans
+* Grateful for communities of trust at Norfolk Academy and UVA
+* Grateful to trust people to do the right thing
+* Grateful to forgive people
+* Grateful for graduates of Norfolk Academy and ways people use liberal arts degrees
 
 <br>
 
@@ -3853,6 +3858,14 @@ There exist different viewpoints on the same thing.
 
 <br>
 
+## Democracy ##
+Democracy is a story of trust.
+Democracy is a story of discussing to understand.
+Democracy is a story of differences.
+Democracy is a story of Truth.
+
+<br>
+
 
 ----------
 
@@ -3925,6 +3938,7 @@ There's someone, there are people sweeping and mopping the floors, and they have
 There's someone, there are people behind the books in the bookstore.
 There's someone, there are people behind the trash cans.
 There's someone, there are people behind the post office.
+There's someone, there are people behind the work in churches.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
@@ -4094,7 +4108,6 @@ They have beautiful names. [Seeing Integration, Reconstruction's Effects]
 They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
 They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
 They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
-They lead the Reading Rainbow talk. [Seeing Integration, Reconstruction's Effects]
 They have interesting thoughts and ancestry. [Seeing Integration, Reconstruction's Effects]
 
 <br>
@@ -4113,9 +4126,9 @@ The United States of America is a Democratic Republic in that the Government is 
 <br>
 
 ## Thinking Above Political Lines ##
-Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the "consciousness of good", not any false beliefs about mankind.
+Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the *consciousness of good*, not any false beliefs about mankind.
 
-My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom share opinions and her perspective, and since then, I have felt cut off from the sense of Southern home, even though I feel "home" as the "consciousness of good." I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
+My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom share opinions and her perspective, and since then, I have felt cut off from the sense of Southern home, even though I feel *home* as the *consciousness of good* ([Christian Science Hymn](https://hymnary.org/text/home_is_the_consciousness_of_good)). I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
 
 My mom always felt like the ideal Southern woman, and I have felt angry sometimes over that; or when I see other women seeming like the ideal Southern woman, I have felt inferior. But I learn to express gratitude for all mankind, and love the consciousness of good more and more.
 
@@ -4157,7 +4170,7 @@ The clay is sprinkled on the floor, the ladder is against the wall, and the ligh
 Action by action,
 greeting by greeting,
 morning by morning,
-thought by thought,
+ladder by ladder,
 this day is alive.
 The town is moving.
 The neighborhood is vivid.
@@ -4166,6 +4179,7 @@ The greenery spreads on the fence, and the sun shines down with heat.
 Meeting by meeting,
 outing by outing,
 setting by setting,
+prayer by prayer,
 this day is done.
 The home is at peace.
 The lights are dimmed.
