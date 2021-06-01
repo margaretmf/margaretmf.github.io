@@ -386,7 +386,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for all the people working in an organization
 * Grateful for the art of cooking in a restaurant
 * Grateful for the art of cleaning up
-* Grateful for shpaes in architectur
+* Grateful for shpaes in architecture
 * Grateful for medieval history
 * Grateful for the soul of people at Norfolk Academy
 * Grateful for American flags everywhere - on construction sites, boats, homes, farms, schools
@@ -419,6 +419,11 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful that we are all learning something new today
 * Grateful for the little girl dancing
 * Grateful for the shapes in cities
+* Grateful for Black businesses
+* Grateful for encounters in the shopping mall with people from faith
+* Grateful for the government supporting public education and faith-based government work
+* Grateful for all the ways people express themselves
+* Grateful for the expression of democracy through all the schools and books people write
 
 <br>
 
@@ -434,7 +439,7 @@ Long before we had cities of stone or the technology to write, our ancestors wer
 
 Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
 
-In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think abouut how each relates to the topic or any connected experiences hyou've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think about how each relates to the topic or any connected experiences you've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
@@ -4742,7 +4747,7 @@ A lesson on giving candid feedback to people and listening to people well.
 A lesson on being ok with solitude and being ok with being single.
 A lesson on thoughts and conversations.
 A lesson on book writing.
-A lesson faith.
+A lesson on faith.
 A lesson on forgiveness.
 A lesson on drawing for change.
 
@@ -5718,6 +5723,15 @@ I tossed the bottle with bubbles coming up and water spewing out and message for
 
 <br>
 
+## Wishing Well ##
+Today I found a penny on the ground
+I gave it to my neighbors and wished them well.
+
+Today I saw a quarter on the ground
+I threw it in the pool and wished my friends well.
+
+<br>
+
 ## Coins ##
 Today I found a handful of coins.
 A handful of coins I found in the side of the car.
@@ -6559,7 +6573,7 @@ The Mother of Exiles. From her guiding and fixed hand
 She gives a world-wide welcome; her gentle eyes direct
 That this harbor frames.
 'Continue to display the important stories of your old lands!'
-SHe cries with a shut mouth. 'I welcome your country's 
+She cries with a shut mouth. 'I welcome your country's 
 Poor and hardworking, your people that desire freedom,
 And the unaccepted of yoru land.
 These homeless people shall be sent to me,
@@ -6581,7 +6595,7 @@ That by the same ensample taughte he me
 That I ne sholde wedded be but ones."
 
 ## Georg Puttenham, The Arte of English Poetie ##
-"But after a speach is fully fashioned to the common understanding, & accepted by consent of a whole countrey & natio, it is called a language, & receaueth none allowed alteration, but by extraordinary occasions by little & little, as it were insensibly bringing in of many corruptios that creepe along with the time: of all which matters, we haue more largely spoken in our bookes of the originals and pedigree of the English tong. Then when I lay language, I meane the speach wherein the Poet or maker writeth be it Greek or Latine or as our case is the vulgar English, & when it is peculiar unto a countrey it is called the moter speach of that people: the Greekes terme it Idioma; for is ours at this day the Norman English. Before the Conquest of the Normans it was the ANglesaxon and before that the British, which as some will, is at this day, the Walsh, or as others affirme the Cornish: I for my part thinke neither of both, as they be now spoken and p<r>onounced. This part in our maker or Poet must be heedyly looked unto that it be naturall, pure, and the most usuall of all his countrey: and for the same purpose rather that which is spoken in the kings Court, or in teh good townes and Cities within the land, then in the marches and frontiers, or in port townes, where straungers haunt for traffike fake, or yet in Universities where Schollers use much peeuish affectation of words out of the primatiue languages, or finally, in any uplandish village or corner of a Realme, where is no resort but of poore rusticall or unciuill people: neither shall he follow the speach of a craftes man or carter, or other of the inferiour ofrt, though he be inhabitant or bred in the best towne and Citie in this Realme, for such persons doe abuse good speaches by strange accents or ill shapen foundes, and false ortographie. But he shall follow generally the better brough up fort, such as the Greeks call [charientes] men ciuill and graciously behauored and bred. Our maker therefore at these days shalll not follow..."
+"But after a speach is fully fashioned to the common understanding, & accepted by consent of a whole countrey & natio, it is called a language, & receaueth none allowed alteration, but by extraordinary occasions by little & little, as it were insensibly bringing in of many corruptios that creepe along with the time: of all which matters, we haue more largely spoken in our bookes of the originals and pedigree of the English tong. Then when I lay language, I meane the speach wherein the Poet or maker writeth be it Greek or Latine or as our case is the vulgar English, & when it is peculiar unto a countrey it is called the moter speach of that people: the Greekes terme it Idioma; for is ours at this day the Norman English. Before the Conquest of the Normans it was the Anglesaxon and before that the British, which as some will, is at this day, the Walsh, or as others affirme the Cornish: I for my part thinke neither of both, as they be now spoken and pronounced. This part in our maker or Poet must be heedyly looked unto that it be naturall, pure, and the most usuall of all his countrey: and for the same purpose rather that which is spoken in the kings Court, or in the good townes and Cities within the land, then in the marches and frontiers, or in port townes, where straungers haunt for traffike fake, or yet in Universities where Schollers use much peeuish affectation of words out of the primatiue languages, or finally, in any uplandish village or corner of a Realme, where is no resort but of poore rusticall or unciuill people: neither shall he follow the speach of a craftes man or carter, or other of the inferiour ofrt, though he be inhabitant or bred in the best towne and Citie in this Realme, for such persons doe abuse good speaches by strange accents or ill shapen foundes, and false ortographie. But he shall follow generally the better brough up fort, such as the Greeks call [charientes] men ciuill and graciously behauored and bred. Our maker therefore at these days shalll not follow..."
 
 <br>
 
