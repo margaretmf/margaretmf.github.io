@@ -409,6 +409,16 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the new playgrounds
 * Grateful for a smile of a stranger and friend on the walking path
 * Grateful for Gospel music
+* Grateful for a scurrying squirrel
+* Grateful for memories of jogging in the neighborhood in Charlottesville
+* Grateful for shapes and colors on houses
+* Grateful for eco-friendly advertising and businesses and education programs
+* Grateful for God's people, God's son
+* Grateful for new exhibits at Nauticus
+* Grateful for people eating outside
+* Grateful that we are all learning something new today
+* Grateful for the little girl dancing
+* Grateful for the shapes in cities
 
 <br>
 
@@ -4345,8 +4355,10 @@ The lone bird rises high in the sky.
 The lone bird perches on the electric wire.
 The lone bird mounts on the street sign.
 The lone bird glides with the wind.
-The lone bird pecking at the lead.e
+The lone bird pecking at the lead.
 The lone bird flapping his wings just above the ground.
+The lone red bird who found her spot on a machine outside.
+The lone blue jay standing on a fence.
 
 <br>
 
@@ -5365,6 +5377,15 @@ It's a system.
 It is a whole system.
 We are all aiming otwards the same goal.
 We are all looking for salvation, freedom, safety.
+
+<br>
+
+## Hope ##
+There's always reason to hope.
+There's always reason to see something new.
+There's always something new to learn.
+There's always another angle.
+There's always a deepr view.
 
 <br>
 
