@@ -1471,8 +1471,8 @@ is_contact: true
 (1) Water rushing out
 (2) Water flowing in a sink
 (3) Keys on a keyboard clicking
-(4) 
-(5)
+(4) Whistle of the traffic guard
+(5) Click-clack of shoes on the ground
 
 ## **Day 86** ##
 ### **Images** ###
