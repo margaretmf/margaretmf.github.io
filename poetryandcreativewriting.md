@@ -433,6 +433,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful to trust people to do the right thing
 * Grateful to forgive people
 * Grateful for graduates of Norfolk Academy and ways people use liberal arts degrees
+* Grateful for people who democratize words, the heart, and music
 
 <br>
 
