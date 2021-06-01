@@ -1,5 +1,5 @@
 # Children's Books #
-Reading and analyzing children's books feeds my soul. 
+Reading and analyzing children's books feeds my soul. This page is to share children's books analyzed and literary tools.
 
 The top three books for children I have read are "The River", "Hatchet", "Where the Wild Fern Grows", and "Charlie and the Chocolate Factory". Other children's books authors of interest include Thornton Burgess and Laura Ingalls Wilder, and "Brian's Return", "Brian's Hunt".
 
@@ -7,31 +7,7 @@ A framework for critically reading and teaching them is below.
 
 I do not have a teaching degree, but with an interest in teaching, I work on critically thinking about how to share critical reading of children's books to youth. I am interested in how filmmakers turn children's books into films, and I am interested in how teachers use children's books in Social-Emotional Learning.
 
-<br>
-
-
-----------
-
-
-# Books #
-* [Peter Rabbitt 2]() by
-* [Where the Red Fern Grows]() by Wilson Rawls 
-* [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
-* [Mary Poppins](https://www.amazon.com/Mary-Poppins-P-L-Travers-ebook/dp/B0043EWTD0/ref=sr_1_6?dchild=1&keywords=mary+poppins&qid=1621287055&sr=8-6) by P. L. Travers (c. 1934, 1962, 1981)
-* [Charlie and the Chocolate Factory](https://www.amazon.com/Charlie-Chocolate-Factory-Roald-Dahl/dp/0142410314/ref=asc_df_0142410314/?tag=hyprod-20&linkCode=df0&hvadid=312089887152&hvpos=&hvnetw=g&hvrand=14532188306188360162&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-422923046130&psc=1) by Roald Dahl (c. 1964) 
-* [The Witch of Blackbird Pond](https://www.amazon.com/Witch-Blackbird-Elizabeth-George-Speare/dp/0547550294) by Elizabeth George Speare (c. 1958, takes place in 1687) 
-* [The Call of the Wild](https://www.amazon.com/Call-Wild-Readers-Library-Classics/dp/1954839146/ref=sr_1_1_sspa?dchild=1&keywords=the+call+of+the+wild&qid=1621260768&s=books&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVk05VkFEUENUOVBNJmVuY3J5cHRlZElkPUEwNTkzMDUyMzdQRkZLODdVVUZSWCZlbmNyeXB0ZWRBZElkPUEwMDcyOTQ1MkFFTkc2ME81OVlROSZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=) by Jack London 
-* [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1621260655&s=books&sr=1-1) by Jean Craighead George (c. 1999) 
-* [On the Far Side of the Mountain](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_1?dchild=1&keywords=on+the+far+side+of+the+mountain&qid=1621260711&s=books&sr=1-1) by Jean Craighead George (c. 1990) 
-* [Brian's Winter](https://www.amazon.com/Brians-Winter-Custom-Book-Bundles/dp/0307929582/ref=sr_1_1?dchild=1&keywords=brian%27s+winter&qid=1621260816&s=books&sr=1-1) by Holt McDougal (c. 1996) 
-* [Island of the Blue Dolphins](https://www.amazon.com/Island-Blue-Dolphins-Scott-ODell/dp/0547328613/ref=sr_1_1?crid=33ISZOLRK7YLL&dchild=1&keywords=island+of+the+blue+dolphins&qid=1621260877&s=books&sprefix=island+%2Cstripbooks%2C156&sr=1-1) by Scott O'Dell (c. 1960)
-* [Mandy](https://www.amazon.com/Mandy-Julie-Andrews-Collection-Edwards/dp/0061207071/ref=sr_1_1?dchild=1&keywords=mandy&qid=1621260927&s=books&sr=1-1) by Julie Andrews Edwards (c. 2006) 
-* [The River](https://www.amazon.com/River-Hatchet-Adventure-Gary-Paulsen/dp/0307929612/ref=sr_1_1?dchild=1&keywords=the+river+Gary+paulsen&qid=1621260981&s=books&sr=1-1) by Gary Paulsen (c. 2012) 
-* [Where the Red Fern Grows](https://www.amazon.com/Where-Fern-Grows-Wilson-Rawls/dp/0440412676/ref=sr_1_2?dchild=1&keywords=where+the+red+fern+grows&qid=1621261024&s=books&sr=1-2) by Wilson Rawls (c. 1996) 
-* [Hatchet] by Gary Paulsen 
-* The Secret of the Indian
-* The Return of the Indian
-* The Indian in the Cupboard
+I would love to explore software tools for educators and course development.
 
 <br>
 
@@ -102,6 +78,35 @@ I do not have a teaching degree, but with an interest in teaching, I work on cri
 
 
 ----------
+
+
+# Books #
+* [Peter Rabbitt 2]() by
+* [Where the Red Fern Grows]() by Wilson Rawls 
+* [James and the Giant Peach](https://www.amazon.com/James-Giant-Peach-Roald-Dahl/dp/0140374248/ref=asc_df_0140374248/?tag=hyprod-20&linkCode=df0&hvadid=312057607832&hvpos=&hvnetw=g&hvrand=6532599749006959306&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-473172269486&psc=1) by Roald Dahl
+* [Mary Poppins](https://www.amazon.com/Mary-Poppins-P-L-Travers-ebook/dp/B0043EWTD0/ref=sr_1_6?dchild=1&keywords=mary+poppins&qid=1621287055&sr=8-6) by P. L. Travers (c. 1934, 1962, 1981)
+* [Charlie and the Chocolate Factory](https://www.amazon.com/Charlie-Chocolate-Factory-Roald-Dahl/dp/0142410314/ref=asc_df_0142410314/?tag=hyprod-20&linkCode=df0&hvadid=312089887152&hvpos=&hvnetw=g&hvrand=14532188306188360162&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=1027239&hvtargid=pla-422923046130&psc=1) by Roald Dahl (c. 1964) 
+* [The Witch of Blackbird Pond](https://www.amazon.com/Witch-Blackbird-Elizabeth-George-Speare/dp/0547550294) by Elizabeth George Speare (c. 1958, takes place in 1687) 
+* [The Call of the Wild](https://www.amazon.com/Call-Wild-Readers-Library-Classics/dp/1954839146/ref=sr_1_1_sspa?dchild=1&keywords=the+call+of+the+wild&qid=1621260768&s=books&sr=1-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVk05VkFEUENUOVBNJmVuY3J5cHRlZElkPUEwNTkzMDUyMzdQRkZLODdVVUZSWCZlbmNyeXB0ZWRBZElkPUEwMDcyOTQ1MkFFTkc2ME81OVlROSZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=) by Jack London 
+* [Frightful's Mountain](https://www.amazon.com/Frightfuls-Mountain-Jean-Craighead-George/dp/0141312351/ref=sr_1_1?dchild=1&keywords=frightful%27s+mountain&qid=1621260655&s=books&sr=1-1) by Jean Craighead George (c. 1999) 
+* [On the Far Side of the Mountain](https://www.amazon.com/Side-Mountain-Jean-Craighead-George/dp/0141312416/ref=sr_1_1?dchild=1&keywords=on+the+far+side+of+the+mountain&qid=1621260711&s=books&sr=1-1) by Jean Craighead George (c. 1990) 
+* [Brian's Winter](https://www.amazon.com/Brians-Winter-Custom-Book-Bundles/dp/0307929582/ref=sr_1_1?dchild=1&keywords=brian%27s+winter&qid=1621260816&s=books&sr=1-1) by Holt McDougal (c. 1996) 
+* [Island of the Blue Dolphins](https://www.amazon.com/Island-Blue-Dolphins-Scott-ODell/dp/0547328613/ref=sr_1_1?crid=33ISZOLRK7YLL&dchild=1&keywords=island+of+the+blue+dolphins&qid=1621260877&s=books&sprefix=island+%2Cstripbooks%2C156&sr=1-1) by Scott O'Dell (c. 1960)
+* [Mandy](https://www.amazon.com/Mandy-Julie-Andrews-Collection-Edwards/dp/0061207071/ref=sr_1_1?dchild=1&keywords=mandy&qid=1621260927&s=books&sr=1-1) by Julie Andrews Edwards (c. 2006) 
+* [The River](https://www.amazon.com/River-Hatchet-Adventure-Gary-Paulsen/dp/0307929612/ref=sr_1_1?dchild=1&keywords=the+river+Gary+paulsen&qid=1621260981&s=books&sr=1-1) by Gary Paulsen (c. 2012) 
+* [Where the Red Fern Grows](https://www.amazon.com/Where-Fern-Grows-Wilson-Rawls/dp/0440412676/ref=sr_1_2?dchild=1&keywords=where+the+red+fern+grows&qid=1621261024&s=books&sr=1-2) by Wilson Rawls (c. 1996) 
+* [Hatchet] by Gary Paulsen 
+* The Secret of the Indian
+* The Return of the Indian
+* The Indian in the Cupboard
+
+<br>
+
+
+----------
+
+
+
 
 
 
