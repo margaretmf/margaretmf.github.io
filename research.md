@@ -21,6 +21,7 @@
 * A Study on the Boundaries on the Internet; the Relationship Between the Boundaries on the Internet and the Boundaries on the Road - the Internet Highway
 * A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
 * A Study on Names
+* A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
 
 
 ----------
