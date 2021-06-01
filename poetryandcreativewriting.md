@@ -82,7 +82,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (25 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (26 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -127,12 +127,13 @@ I believe in the older generation's ability to learn something new even if they 
 # Creative Writing - Gratitude List #
 ## Gratitude List ##
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
-* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?".
-* Grateful for the sound of the laundry machine.
-* Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her.
-* Grateful for a home someone architected at a schoolhouse on a farm.
-* Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified.
-* Grateful for the voice on the news, representing ethics and good judgment.
+* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
+* Grateful for the sound of the laundry machine
+* Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
+* Grateful for a home someone architected at a schoolhouse on a farm
+* Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified
+* Grateful for the voice on the news, representing ethics and good judgment
+* Grateful for the song "One Tribe"
 * Grateful or the Soaps and Suds in Norfolk that serves the community
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for self-assessment, honesty with myself about self-justification
@@ -434,6 +435,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful to forgive people
 * Grateful for graduates of Norfolk Academy and ways people use liberal arts degrees
 * Grateful for people who democratize words, the heart, and music
+* Grateful for the connection between Shakespeare and music
 
 <br>
 
