@@ -94,7 +94,7 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to mentor
 * Their ability to work with other teams effectively
 
-**What I have LEARNED
+**What I have LEARNED**
 * To appreciate the names of other people
 * To be more clear in providing guidance and respecting space with people through team meetings
 * To respect people doing work
