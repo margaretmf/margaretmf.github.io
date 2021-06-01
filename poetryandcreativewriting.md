@@ -424,6 +424,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the government supporting public education and faith-based government work
 * Grateful for all the ways people express themselves
 * Grateful for the expression of democracy through all the schools and books people write
+* Grateful for conversations that beging with "How are you?"
+* Grateful for the strength of people expressed in others
+* Grateful for the spunkiness of women in politics
 
 <br>
 
@@ -3831,6 +3834,8 @@ America is a story of breath and breathing.
 America is a story of religion and a higher spirituality.
 America is a story of progress.
 America is a story of thanksgiving.
+America is a story of exploring.
+America is a story of discovery.
 
 America is a country of beliefs.
 America is a country of music.
@@ -3839,6 +3844,8 @@ America is a country of churches.
 America is a country of schools.
 America is a country of internationalities.
 America is a system of expression, the reverse of oppression.
+America is a country of healthy conversations.
+America is a country of people who love nature.
 
 Some believe history is objective. Some believe history is subjective.
 There exist different viewpoints on the same thing.
