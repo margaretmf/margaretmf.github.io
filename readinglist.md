@@ -14,6 +14,21 @@ layout: default
 * The Pilgrim's Progress
 * Bipolar Faith
 * The Skeletons in God's Closet
+* Writing Better Lyrics
+* Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
+* Songwriter's Journal (Diary, Notebook) 
+* Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
+* Taylor Swift: In Her Own Words (In Their Own Words) by Helena Hunt
+* Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
+* Country Music Word Search: Book Of Puzzles Celebrating The #1 Songs In Country Music From 1990 Through 1999 - Large Print by Tasket Publications
+* Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
+* Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
+* Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
+* Taylor Swift: A Biography by Emily Harris
+* Dolly Parton, Songteller: My Life in Lyrics by Dolly Parton
+* Cash: The Autobiography by Johnny Cash
+* It's a Long Story: My Life by Willie Nelson
+* I Walked the Line: My Life with Johnny by Vivian Cash
 
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
