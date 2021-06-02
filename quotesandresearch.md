@@ -154,6 +154,21 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 
 "According to the Flathead Indians, the Great Spirit appointed COyote to bring order to the earth. In obedience, Coyote gave the antive people fire and showed them how to make tools and weapons." (p. 149, "The Call of the American West", David Weston Marshall)
 
+## [A Wrinkle in Time]() ## 
+"In the kitchen a light was already on, and Charls Wallace was sitting at the table drinking milk and eating bread and jam. He looked very small and vulnerable sitting there alone in the big old-fashioned kitchen, a blond little boy in faded blue Dr. Dentons, his feet swining a good six inches above the floor." (p. 12, "A Wrinkle in Time")
+
+"The warmth and light of the kitchen had relaxed her so that her attic fears were gon." (p. 16, "A Wrinkle in Time")
+
+"'Even traveling at the speed of light it would take us years and years to get here.'" (p. 70, "A Wrinkle in Time")
+
+"The silver light from the enormous moon poured over them, blending with the golden quality of the day, flowing over the children, over Mrs. Whatsit, over the mountain peak." (p. 80, "A Wrinkle in Time")
+
+"The sky darkened. The gold left the light and they were surrounded by blue, blue deepening until where there had been nothing but the evening sky there was now a faint pulse of star, and then another and another and another. THere were more stars than Meg had ever seen before." (p. 81, "A Wrinkle in Time")
+
+"Mrs Who's spectacles shone out at them triumphantly, *'And the light shineth inn darkness; and the darkness comprehended it not.'*" (p. 100, "A Wrinkle in Time")
+
+"Suddenly there was a great burst of light through the Darkness. The light spread out and where it touched the Darkness the Darkness disappeared. The light spread until the patch of Dark Thing had vanished, and there was only a gentle shining, and through the shining came the stars, clear and pure. Then, slwoly, the shining dwindled until it, too, was gone, and there was nothing but stars and starlight. No shadows. No fear. Only the stars and the clear darkness of space, quite different from the fearful darkness of the Thing." (p. 102, "A Wrinkle in Time")
+
 
 ----------
 
@@ -310,6 +325,13 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 "They say he made 'the light and the darkness, the fire and the water,' and that it is this 'Great Superintendent of all things, whose power sustains the universe, causing day and night with the varying seasons, making the grass grow, the water to run, and the rains to fall, for the god of man and beast.''" (p. 76, "Mountain Man: The Lewis & Clark Expedition, and the Call of the American West", David Weston Marshall)
 
 "Farther to the east, Heart Mountain reflected a reddish glow in the setting sun." (p. 97, "Mountain Man: The Lewis & Clark Expedition, and the Call of the American West", David Weston Marshall)
+
+## [A Wrinkle in Time]() ## 
+"She looked around rather wildly. They were standing in a sunlit field, and the air about them was moving with the delicious fragrance that comes only ont he rarest of spring days when the sun's touch is gentle and the apple blossoms are just beginning to unfold. She pushed her glasses up on her nose to reassure herself that what she was seeing was real." (p. 67, "A Wrinkle in Time")
+
+"They had left the silver glint of a biting autum evening; and now around them everything was golden with light." (p. 67, "A Wrinkle in Time")
+
+"The yellow light lit up their faces, and the plae blue of Charles's eyes abosrbed the yellow and turned green." (p. 155, "A Wrinkle in Time")
  
  
 ----------
