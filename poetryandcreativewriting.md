@@ -450,6 +450,12 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the history of streets, pedestrians, and cars and bikers
 * Grateful for the light through the darkness in history
 * Grateful for the Holy Qur'an
+* Grateful for everyone in the South
+* Grateful for inspired mornings
+* Grateful for the work in public education with UVA
+* Grateful for the people I met in the coffe shop
+* Grateful for people who made the clothes
+* Grateful for the colors the neighbor is wearing
 
 <br>
 
@@ -465,7 +471,7 @@ Long before we had cities of stone or the technology to write, our ancestors wer
 
 Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
 
-In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think about how each relates to the topic or any connected experiences you've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are now wrong answers; each poem is unique and personal to the writer.' 
+In this journal, you will start your writing exercise by selecting a topic that triggers an idea. Then, review the word associations and think about how each relates to the topic or any connected experiences you've ahd in your own life. Jot down whatever comes to mind in the space provided; disjointed thoughts and phrase or internal dialogue are all encouraged, these need not be complete sentences. Now, you're ready to put it all together in a lyrical masterpiece of your own. There are no wrong answers; each poem is unique and personal to the writer.' 
 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
@@ -2038,7 +2044,7 @@ A bestowal of supplies. A boon.
 
 <br>
 
-**Word Associations:** gifts, grace, thanks, benediction, luck, boon, betstow, bounty
+**Word Associations:** gifts, grace, thanks, benediction, luck, boon, bestow, bounty
 
 ## Values ##
 The values that our parents and teachers share with us show us how to treat people, cope with challenges, and recover after doing something bad.
@@ -6475,6 +6481,28 @@ Becoming individual and original through the source breathing in through them.
 This is the city we all call home.
 From the east to the west, from the north to the south we come here to sing.
 Each with our own song, our own story.
+
+<br>
+
+## America ##
+Exiting one stage, entering a new stage
+Leaving one era, entering a new one
+All is made new
+There's a perfect union
+There's equality for all
+
+One flag falling, another flag waving more boldly
+What a glorious flag is the red white and blue with the precious gold stars
+It belongs to all
+She cries her name in all states United
+
+<br>
+
+## This Country ##
+This country
+My hand on my heart
+A crane on the water
+A white bird flying just above the water
 
 <br>
 
