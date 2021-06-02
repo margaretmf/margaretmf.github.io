@@ -448,6 +448,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the man, Shakespeare, who did the work
 * Grateful for *Community Feed*
 * Grateful for the history of streets, pedestrians, and cars and bikers
+* Grateful for the light through the darkness in history
+* Grateful for the Holy Qur'an
 
 <br>
 
@@ -4401,6 +4403,10 @@ The lone bird pecking at the lead.
 The lone bird flapping his wings just above the ground.
 The lone red bird who found her spot on a machine outside.
 The lone blue jay standing on a fence.
+The lone bird exploring her freedom.
+The lone bird finding her support on the power line.
+The lone bird scurrying through the grass.
+The lone grey bird expanding her wings.
 
 <br>
 
@@ -4924,6 +4930,10 @@ It sees the light in you when darkness and discord are all around.
 
 <br>
 
+## Unifcation in Christ Jesus ##
+Thank you, God, for the unification in Christ Jesus.
+
+<br>
 
 ----------
 
@@ -5601,12 +5611,16 @@ A circular world we are living in.
 New people born day in and day out.
 Other people finding heaven day in and day out.
 One door closes, another door opens.
-One chapter ends, another chapter beings.
+One chapter ends, another chapter begins.
+It's constantly unfolding.
 The sun sets on one side of the earth, the sun rises on the other side of the earth.
-It's constnalty unfolding.
 It's constantly rotating.
+Exiting one stage, entering a new stage.
+Leaving one era, entering a new one.
 It's constantly spinning.
-Trash thrown waay, new products born.
+All is made new.
+Trash thrown way, new products born.
+It's constantly recycling.
 
 <br>
 
