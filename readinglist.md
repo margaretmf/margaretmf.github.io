@@ -51,6 +51,9 @@ layout: default
 * Comrpomised
 * Make America Healthy Again
 * Life Isn't Binary
+* [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
+* [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
+* [Dreams of My Father]()
 
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
@@ -66,9 +69,7 @@ layout: default
 * [And Then They Stopped Talking To Me: Making Sense of Middle School]() by Judith Warner
 * [Kill the Spider: Getting Rid of What's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) by Carlos Whittaker
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
-* [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
-* [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
-* [Dreams of My Father]()
+
 
 #### Completed
 * [First Principles: What America's Founders Learned from the Greeks and Romans and How That Shaped Our Country](https://www.amazon.com/First-Principles-Americas-Founders-Learned/dp/0062997459) by Thomas E. Ricks 
@@ -90,10 +91,12 @@ layout: default
 * [A Most Beautiful Thing: The True story of America's First All-Black High School Rowing Team](https://www.amazon.com/Most-Beautiful-Thing-Americas-All-Black/dp/1250754771/ref=sr_1_2?dchild=1&keywords=a+most+beautiful+thing&qid=1619549425&sr=8-2) by Arshay Cooper
 * [Mother Land: A Novel](https://www.amazon.com/Mother-Land-Novel-Leah-Franqui/dp/0062938843) by Leah Franqui
 * [beginners: the joy and transformative power of lifelong learning](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning/dp/1524732168) by tom vanderbilt
-* [And Theen They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
+* [And Then They Stopped Talking to Me: Making Sense of Middle School](https://www.amazon.com/Then-They-Stopped-Talking-Me/dp/1101905883) by Judith Warner
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 * [The Power of Ritual: Turning Everyday Activities into Soulful Practices](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) by Casper ter Kuile
 * [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622369974&sr=8-1) by David Weston Marshall
+* [American Gospel: God, the Founding Fathers, and the Making of a Nation]() by Jon Meacham
+* [Becoming]() by Michelle Obama
 
 ## 2020
 
