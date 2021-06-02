@@ -13,13 +13,13 @@ As a graduate of UVa, I was most passionate about religious liberty and lifelong
 
 As a woman, I have had a challenging time feeling confident in understanding nuances in politics, history, and culture. Because I struggled with communication in person, I turned to digital communications to compensate. Sometimes I shared ideas like 'you are good' to people treating me terribly and laughing at people in my face. Sometimes I wasn't expressing clear ideas at all.
 
-Important values of the United States of America are the pursuit of liberty, justice, and happiness. I believe that public or private education supports this pursuit. I believe that writing supports a democracy. I believe that without the beliefs of the original founders in architecting religious reliberty, Mary Baker Eddy would not have been able to do her work. The founders were not perfect. I believe that all people outside of a professional freelance job, outside of a church, and inside of democracy should feel liberated to write. What is freedom of the press to you? What is freedom of education? What is freedom of speech? How does writing in a democracy flow to church? My original discovery and thinking in collect was correct. I loved the idea of COEXISTENCE, respecting other faith backgrounds, and understanding the Decalogue in relationship to Christian Science.
+Important values of the United States of America are the pursuit of liberty, justice, and happiness. I believe that public or private education supports this pursuit. I believe that writing supports a democracy. I believe that without the beliefs of the original founders in architecting religious reliberty, Mary Baker Eddy would not have been able to do her work. The founders were not perfect. I believe that all people outside of a professional freelance job, outside of a church, and inside of democracy should feel liberated to write. What is freedom of the press to you? What is freedom of education? What is freedom of speech? How does writing in a democracy flow to church? My original discovery and thinking was correct. I loved the idea of COEXISTENCE, respecting other faith backgrounds, and understanding the Decalogue in relationship to Christian Science.
 
 Much of my work in this life has centered around the study of history and education. Most people in our society expect women to work in education. I also love teaching, so I am passionate about finding ways to support teaching.
 
 While working with EVERFI, my original intent was to grow out of a belief of animal magnetism's power through compassion. When I woke up to the Truth, I could not clearly discern how EVERFI related to Christian Science. It did in some ways, but it did not in other ways. I was trying to take a stance for the Christian Science Community, and report the power of Science. Christian Scientists do not actively teach the Matthew Code. Christian Scientists do not actively teach how to report gender-based harassment. Christian Scientists teach forgiveness. Christian Scientists teach The Golden Rule.
 
-I am sorry I reacted to you. I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe 'lifelong learning' supports freeing the human mind from 'the snares of mortal mind'. I also still believe that appreciating the faith of people in other churches and sometimes not even speaking the words 'Christian Science' is the best way to engage with people from other backgrounds.
+I am sorry I reacted to you. I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe 'lifelong learning' supports freeing the human mind. I also still believe that appreciating the faith of people in other churches and sometimes not even speaking the words 'Christian Science' is the best way to engage with people from other backgrounds.
 
 I am sorry to react to you. My original intent was to commit to Christian Science, learn to articulate ideas better, and see people correctly.
 
@@ -27,9 +27,9 @@ It was humbling to me that music in the Church community inadvertently arrested 
 
 On page 106 of *Science and Health with Key to the Scriptures*, Mary Baker Eddy writes, "Like our nation, Christian Science has its Declaration of Independence. God has endowed man with inalienable rights, among which are self-government, reason, and conscience. Man is properly self-governed when he is guided rightly and governed by his Maker, divine Truth and Love."
 
-* I LOVE THAT THIS IS PART OF ANIMAL MAGNETISM UNMASKED
+* I love that this is part of animal magnetism unmasked.
 
-* because I LOVE that education, religious liberty, freedom of the press, democracy promote freeing 'the human mind from the snares of mortal mind'
+because I LOVE that education, religious liberty, freedom of the press, democracy promote freeing 'the human mind from the snares of mortal mind'
 
 In the Spanish Version of page 106, Mary Baker Eddy writes in Ciencia Cristian con Clave de Las Escrituras "Como nuestra nacion, la Ciencia Cristiana teine su Declaracion de Independencia. Dios ha dotado al hombre con derechos inalienables, entre los cuales se encuentran el gobierno de si mismo, la razon y la conciencia. El hombre se gobierna a si mismo debidamente solo cuando esta dirigido correctamente y gobernado por su Hacedor, la Verdad y el Amor divinos."
 
