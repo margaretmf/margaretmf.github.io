@@ -1489,6 +1489,21 @@ is_contact: true
 (4) Church bells ringing
 (5) Birds tweeting
 
+## **Day 87** ##
+### **Images** ##
+(1) Colors in the fashion industry
+(2) Red berries
+(3) Rooftops
+(4) Leaves in the water
+(5) Coffee cups stacked
+
+### **Sounds** ###
+(1) An airplane soaring above a house and it sounds like a helium balloon
+(2) Someone whistling
+(3) A beeping of a machine at the coffee shop
+(4) A healthy conversation
+(5) A Muslim prayer
+
 <br>
 
 <br>
@@ -1550,6 +1565,7 @@ African music, African land, Cairo
 * Time Glass, and Sand
 * Pen on Paper
 * Paper, Sand, Ocean, Water
+* Smoke Rising - smoke rising up from a bagel, smoke rising up out of a house, smoke rising out of a truck
 
 
 <br>
