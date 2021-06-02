@@ -84,6 +84,9 @@ Spirituality was central to indigenous beliefs. Jim Beckwourth said, 'I have liv
 
 Other observers added that Native Americans universally believed 'in one Great Spirit, who has created all things, governs all important events, who is the author of all good, and the only object of religious homage.'" (p. 76, "Mountain Man: John Colter, The Lewis & Clark Exedition, and the Call of the American West", David Weston Marshall)
 
+## [A Wrinkle in Time](https://www.amazon.com/Wrinkle-Time-Quintet/dp/0312367546) ## 
+"What a child doesn't realize until he is grown is that in responding to fantasy, fairy tale, and myth he is responding to what Erich Fromm calls the one universal language, the one and only language in the world that cuts across all barriers of time, place, race, and culture. Many Newberry books are from this realm, beginning with Dr. Dolittle; books on Hindu myth, Chinese folklore, the life of Buddha, tales of American Indians, books that lead our children beyond all boundaries and into the one language of mankind." (p 244, "A Wrinkle in Time", Madeleine L'Engle)
+
 
 ----------
 
@@ -154,7 +157,7 @@ It's right there. God is LIGHT. And He is there in the darkness. We dont' need t
 
 "According to the Flathead Indians, the Great Spirit appointed COyote to bring order to the earth. In obedience, Coyote gave the antive people fire and showed them how to make tools and weapons." (p. 149, "The Call of the American West", David Weston Marshall)
 
-## [A Wrinkle in Time]() ## 
+## [A Wrinkle in Time](https://www.amazon.com/Wrinkle-Time-Quintet/dp/0312367546) ## 
 "In the kitchen a light was already on, and Charls Wallace was sitting at the table drinking milk and eating bread and jam. He looked very small and vulnerable sitting there alone in the big old-fashioned kitchen, a blond little boy in faded blue Dr. Dentons, his feet swining a good six inches above the floor." (p. 12, "A Wrinkle in Time")
 
 "The warmth and light of the kitchen had relaxed her so that her attic fears were gon." (p. 16, "A Wrinkle in Time")
