@@ -4408,6 +4408,8 @@ The lone bird finding her support on the power line.
 The lone bird scurrying through the grass.
 The lone grey bird expanding her wings.
 
+Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
+
 <br>
 
 ## Fighting for Her Independence ##
