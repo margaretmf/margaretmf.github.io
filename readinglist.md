@@ -29,6 +29,28 @@ layout: default
 * Cash: The Autobiography by Johnny Cash
 * It's a Long Story: My Life by Willie Nelson
 * I Walked the Line: My Life with Johnny by Vivian Cash
+* What Were We Thinking
+* The Audacity of Hope
+* Dare to Speak
+* Defund Fear
+* Front Row at the Trump Show
+* Impeach
+* The Lexus and the Olive Tree
+* The Undocumented Americans
+* Donald Trump and His Assault on Truth
+* Four Hundred Souls
+* The Women's History of the Modern World
+* A Woman is No Man
+* Recipe for a Perfect Wife
+* Nomadland
+* The Accidental Further Adventures of the 100-Year-Old Man
+* The Woman is No Importance
+* Where the Light Enters
+* Persist
+* A Brief History of Earth
+* Comrpomised
+* Make America Healthy Again
+* Life Isn't Binary
 
 #### Reading
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
