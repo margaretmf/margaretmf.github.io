@@ -5457,7 +5457,7 @@ There's always a deepr view.
 
 
 # Creative Writing - Independent Writing #
-# Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights, A Circular World #
+# Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights, A Circular World, The Airplane #
 
 ## The Coins ##
 The four coins sitting on the grounds.
@@ -5532,6 +5532,7 @@ The truth is at the center.
 The truth is within every's hearts.
 The truth raises her voice.
 The truth shares her wisdom.
+The truth can be tough to bear.
 
 We all look to the same Truth.
 We all radiate out from the center.
@@ -5625,6 +5626,11 @@ Trash thrown way, new products born.
 It's constantly recycling.
 
 <br>
+
+## The Airplane ##
+The airplane is launching.
+It's going up and up.
+It's lifting higher and higher.It's taking everyone with it.
 
 
 ----------
