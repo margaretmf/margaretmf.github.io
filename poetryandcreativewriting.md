@@ -72,6 +72,7 @@ I believe and have found that playing music and participating in improv brings j
 * Work on composing music and playing around. 
 * Interested in how filmmakers turn children's books and other books into film.
 * Learned about the idea of taking bold risks and "failing big" in an improv class, and how improv relates to entrepreneurship.
+* Interested in creating art with trash.
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
@@ -82,7 +83,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (27 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (29 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -450,6 +451,13 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the history of streets, pedestrians, and cars and bikers
 * Grateful for the light through the darkness in history
 * Grateful for the Holy Qur'an
+* Grateful for the love of Life, Liberty, and pursuit of Happiness in childhood
+* Grateful to see neighbors walking down the street
+* Grateful for newbord children
+* Grateful for artistic ways to use trash
+* Grateful for family conversations
+* Grateful for urban design and interesting photography
+* Grateful for forgiveness
 
 <br>
 
