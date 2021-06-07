@@ -56,7 +56,6 @@ layout: default
 * [Dreams of My Father]()
 
 #### Reading
-* [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
 * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
 * ["And Their Children After Them"]
@@ -231,6 +230,7 @@ Philip Taubman
 * [me and white supremacy: Combat Racism, Change the World, and Become a Good Ancestor](https://www.amazon.com/Me-White-Supremacy-Combat-Ancestor/dp/1728209803/ref=sr_1_1_sspa?dchild=1&keywords=me+and+white+supremacy&qid=1606419090&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzMlJGNFJSUEMyS1hEJmVuY3J5cHRlZElkPUEwODcyNzY1QVdINkZOOU5KTTZEJmVuY3J5cHRlZEFkSWQ9QTA5MzcwNDAyUlU5NDFINU9OUUlSJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Layla F. Saad & Robin DiAngelo 
 * [Shakespeare in a Divided America: What His Plays Tell Us About Our Past and Future](https://www.amazon.com/Shakespeare-Divided-America-Plays-Future/dp/0525522298) by James Shapiro
 * [A World More Bright](https://www.amazon.com/Bright-Isabel-Heather-Frederick-Ferguson/dp/0875104940) by  Isabel Ferguson and Heather Vogel Frederick (Author)
+* [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
 
 
 ## 2019
