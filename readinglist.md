@@ -95,7 +95,7 @@ layout: default
 * [The Power of Ritual: Turning Everyday Activities into Soulful Practices](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) by Casper ter Kuile
 * [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622369974&sr=8-1) by David Weston Marshall
 * [American Gospel: God, the Founding Fathers, and the Making of a Nation]() by Jon Meacham
-* [Becoming]() by Michelle Obama
+* [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136) by Michelle Obama
 
 ## 2020
 
