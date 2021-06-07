@@ -29,6 +29,10 @@ I am exploring how to sketch and how to use visual arts to share history and cul
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
 
+I love working on photography of light in the darkness, American flags, leaves, windows, every day objects in nature, homes, and doors.
+
+** **
+
 Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, in the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
 **Niños pequeños y niñas son cicatrización, organizando es mi pasión, y expresando buen animo en la Oficina Correo, en el edificio de Federal Rápida, y en las calles construcciónes mantiene la gente vivaz, humilde, y cantando por dentro.** 
