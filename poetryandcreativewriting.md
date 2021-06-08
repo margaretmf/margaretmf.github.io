@@ -464,6 +464,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for thepeople who stick behind women who are targets of sexual assault
 * Grateful for people who empathize with the perpetrators
 * Grateful for memories of going to Greek events with peers from Norfolk Academy
+* Grateful for the people in the mall expressing a love for cultural diversity
+* Grateful for the music play in the Amazon truck
+* Grateful for order, friendship, clarity, cleanliness, and humility
 
 <br>
 
@@ -3874,6 +3877,9 @@ America is a story of progress.
 America is a story of thanksgiving.
 America is a story of exploring.
 America is a story of discovery.
+America is a story of light in the darkness.
+America is a story of pilgrimage.
+America is a story of hard work, perspiration, new ideas, and inspiration.
 
 America is a country of beliefs.
 America is a country of music.
