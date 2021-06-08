@@ -99,6 +99,7 @@ layout: default
 * [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622369974&sr=8-1) by David Weston Marshall
 * [American Gospel: God, the Founding Fathers, and the Making of a Nation]() by Jon Meacham
 * [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136) by Michelle Obama
+* [The Truths We Hold: An American Journey](https://www.amazon.com/Truths-We-Hold-YRE-American/dp/1432885375/ref=sr_1_6?dchild=1&keywords=the+truths+we+hold&qid=1623162847&sr=8-6) by Kamala Harris
 
 ## 2020
 
