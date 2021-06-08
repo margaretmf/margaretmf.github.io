@@ -1504,6 +1504,21 @@ is_contact: true
 (4) A healthy conversation
 (5) A Muslim prayer
 
+## **Day 88** ##
+### **Images** ###
+(1) Water droplets
+(2) Water dew
+(3) Rainbow mirage in the water
+(4) Purple-green flowers
+(5) American flags near trees
+
+### **Sounds** ###
+(1) Bagpipes clicking
+(2) Laundy running
+(3) Birds singing and chirping
+(4) Keys clicking
+(5) A lawn mower running
+
 <br>
 
 <br>
@@ -1566,6 +1581,8 @@ African music, African land, Cairo
 * Pen on Paper
 * Paper, Sand, Ocean, Water
 * Smoke Rising - smoke rising up from a bagel, smoke rising up out of a house, smoke rising out of a truck
+* It's OK
+* American Flag
 
 
 <br>
