@@ -1584,6 +1584,10 @@ African music, African land, Cairo
 * It's OK
 * American Flag
 * Stepping Stones
+* Moon Cycles
+* Stars, galaxy - a whole galaxy is inside you, all the stars twinkling and shining near you
+* Water flowing through the earth
+* Punctuation Marks, Question Marks
 
 
 <br>
