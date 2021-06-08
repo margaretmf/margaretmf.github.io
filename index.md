@@ -31,7 +31,11 @@ I am exploring how to sketch and how to use visual arts to share history and cul
 
 I love working on photography of light in the darkness, American flags, leaves, windows, every day objects in nature, homes, and doors.
 
-** **
+**Me amo trabajando... **
+
+My true passion is writing about engineering, STEAM, and education content.
+
+**Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico **
 
 Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, in the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
@@ -156,6 +160,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 * A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
 * A Study on Names
 * A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
+* A Study on "political storms" (1960s, 2020s)
 
 <br>
 
