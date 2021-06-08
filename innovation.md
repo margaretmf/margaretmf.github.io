@@ -1583,6 +1583,7 @@ African music, African land, Cairo
 * Smoke Rising - smoke rising up from a bagel, smoke rising up out of a house, smoke rising out of a truck
 * It's OK
 * American Flag
+* Stepping Stones
 
 
 <br>
