@@ -56,6 +56,7 @@ layout: default
 * [Dreams of My Father]()
 * Melody in Songwriting: Tools and Techniques for Writing Hit Songs
 * How To Make It in the New Music Business: Practical Tips on Building a Loyal Following and Making a Living as a Musician
+* Smart on Crime: A Career Prosecutor's Plan to Make Us Safer (2009)
 
 #### Reading
 * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
