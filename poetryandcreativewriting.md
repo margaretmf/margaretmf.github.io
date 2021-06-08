@@ -460,6 +460,10 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for forgiveness
 * Grateful for memories walking to and from Church
 * Grateful for the people leading the country and the signs out for political work
+* Grateful for the next generation that can love the Earth and love the new presidents of the US
+* Grateful for thepeople who stick behind women who are targets of sexual assault
+* Grateful for people who empathize with the perpetrators
+* Grateful for memories of going to Greek events with peers from Norfolk Academy
 
 <br>
 
@@ -4550,6 +4554,30 @@ Your light makes me lighter.
 
 <br>
 
+## To You I Will Always Return ##
+To you I will always return.
+To me you wil always return as the reason to live.
+There's a world to explore.
+There's a home to build.
+
+<br>
+
+## What's Yours is Mine ##
+What's your is mine.
+What's mine is yours.
+It belongs to the earth.
+It belongs to our eyes.
+What you can see I can see.
+WHat I can see you can see.
+IT's the same world.
+It's the same idea.
+What you can hear I can hear.
+What I can hear you can hear.
+It's the same unvierse.
+It's the same planet.
+
+<br>
+
 ## Home ##
 This home of mine.
 It's been here all along.
@@ -4850,6 +4878,66 @@ I love to skip out side
 and run to the park
 and feel joy in my heart
 with everyone
+
+<br>
+
+## A New Day ##
+Oh, it's a glorious new day to wake up to the dawn and let the life within make the heart beat with love.
+The beating heart within gives me reason to rise.
+The pulsing heart within makes me want to sing out loud.
+There's a new song to sing to light up everything.
+
+Oh, it's a new bright morning for the sun to rise from the east to the west.
+I love how the rays shine through the trees and then warm my face with the heat.
+There are new people to meet, there are new things to be born.
+It's a new day for the sun to shine down and light up everything.
+
+Oh it's a radiant day to go and skip outside.
+There's a movement of people circling everywhere.
+I love meeting new friends, and seeing smiles of neighbors waving.
+I love hearing kids laugh and play and seeing people work.
+
+Oh it's a beautiful day to love the green earth.
+The grass is so fresh and the sky is so blue.
+I love seeing the clouds above and hearing the bees. I love smelling the buds and flying with the birds.
+It's a wonderful day to be free and sing and live on this earth.
+
+There's a brand new day every day.
+There's a reason to live and there's a reason to dance.
+There's a reason to watch all humanity smile in unity today.
+It's a great day...
+
+It's a new day for the new you to arise.
+There's a new self waiting to live.
+There's something new every day.
+
+<br>
+
+## Day In and Day Out ##
+This life is on repeat. 
+Day in and day out.
+It's another day for more of the same.
+There's the mundane and the pain.
+There's the joys and the laughs.
+This life is on repeat.
+
+Day in and day out.
+I'm circling through this world.
+What goes in comes out.
+It's another day for the wash.
+There's heartbreak and misery.
+There's surprises and fun.
+This life is on repeat.
+
+Day in and ay out.
+I return to you.
+I return to the things I love.
+I remember why I live.
+I return to the ways I can improve.
+There's nonstop growth ahead.
+There's always a work in progress.
+Day in and day out.
+It continues forever.
 
 <br>
 
@@ -5484,6 +5572,13 @@ Plop. Plip. Tlop.
 The coin causes the water to ripple.
 One ripple continues to ripple outwardly into other ripples.
 An outflowing of water rippling and flowing.
+
+<br>
+
+## The Ripple Effect ##
+When I look into your heart and love you I love all the people you love also, the love ripples out endlessly.
+
+When I create a spin off of something you have created, the creation ripples out endlessly.
 
 <br>
 
@@ -6493,6 +6588,21 @@ Becoming individual and original through the source breathing in through them.
 This is the city we all call home.
 From the east to the west, from the north to the south we come here to sing.
 Each with our own song, our own story.
+
+<br>
+
+## My Hand on My Heart ##
+I put my hand on my heart and love this land.
+This land is for everyone.
+I'm putting the shadows behind.
+
+The wind has echoes through for ages.
+It's now speaking in a new way.
+It hears our every need.
+
+The land is more green than ever.
+The lights in our hearts are brighter than ever.
+What a land we all love with the golden red, white, and blue waving.
 
 <br>
 
