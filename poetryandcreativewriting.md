@@ -3880,6 +3880,8 @@ America is a story of discovery.
 America is a story of light in the darkness.
 America is a story of pilgrimage.
 America is a story of hard work, perspiration, new ideas, and inspiration.
+America is a story of protest.
+America is a story of marching onward, upward and forward.
 
 America is a country of beliefs.
 America is a country of music.
