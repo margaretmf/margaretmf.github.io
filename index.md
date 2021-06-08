@@ -142,6 +142,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 ## Research Questions and Interesting Studies
 * A Study on How People Use a Liberal Arts or Humanities Degree in the World
 * A Study Comparing the city of Norfolk and Memphis in addition to Richmond, Charlottesville, and Nashville
+* A Study Comparing Dublin and Glasgow to Nashville and Louisville
 * A Study on Democracy, What it Means to Democratize, What a Republic Is, What It Means to Localize
 * A Study on Whether People Attend Church, What Church They Attend, Why People Attend That Church, What is the Theology, How Strong is the Faith, What Leads People to Doubt, the Relationship to God, and How People Feel Church and Democracy are Related
 * A Study on the American Flag, and what the American flag represents through Text
