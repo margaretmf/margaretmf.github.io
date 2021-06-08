@@ -3731,13 +3731,14 @@ I love that women are behind the rebirth of the American dream and that black me
 <br>
 
 ## E Pluribus Unum ##
-I am a voice in a sea of voices yearning to be free.
+I am a voice in a sea of voices yearning to be say the right thing.
 I am a conscience in a sea of consciences yearning to do the right thing.
-I am a body in a sea of bodies yearning to be asexual.
+I am a body in a sea of bodies yearning to be free.
 I am a heart in a sea of hearts yearning to love more.
 I am a set of eyes in a set of eyes yearning to see the good going on.
 I am one of a kind in the sea of humanity.
 Like a drop of water ripples outwardly, I am one of many leading to ripples outwardly in a sea of ripples.
+I am one in a million. There are a million ways to say and do the same thing.
 
 <br>
 
@@ -4188,6 +4189,14 @@ At the moment of death and wanting to escape the weight of this physical existen
 
 <br>
 
+## Trash ##
+The used material that people do not want.
+The things to dispose of and throw away.
+The containers empties of the substance to digest.
+The leftover goods, the pouring over of used goods.
+
+<br>
+
 ## Bricks ##
 Day by day,
 brick by brick,
@@ -4391,6 +4400,14 @@ One home in a row of homes.
 
 <br>
 
+## The Airplane Lifts Up ##
+The airplane lifts up.
+I want to fly.
+I want to see the aerial view.
+I want to look down below and see all thel and and all the flickering lights.
+
+<br>
+
 ## The Lone Bird ##
 The bird flies in solitude across the land.
 It lifts its wings alone so gracefully.
@@ -4421,6 +4438,7 @@ The lone bird exploring her freedom.
 The lone bird finding her support on the power line.
 The lone bird scurrying through the grass.
 The lone grey bird expanding her wings.
+The lone bird swoops down to hover the river.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
 
@@ -4677,6 +4695,11 @@ where bad memories are replaced, new pictures captured
 
 <br>
 
+## Swirling Leaves ##
+Yellow leaves swirling around above the side walk.
+
+<br>
+
 
 ----------
 
@@ -4911,6 +4934,10 @@ It's a new day for the new you to arise.
 There's a new self waiting to live.
 There's something new every day.
 
+There are good people everywhere to light up the path.
+There are new ways to see things and new views to hold.
+There's something ot learn every day with joy.
+
 <br>
 
 ## Day In and Day Out ##
@@ -4929,7 +4956,7 @@ There's heartbreak and misery.
 There's surprises and fun.
 This life is on repeat.
 
-Day in and ay out.
+Day in and day out.
 I return to you.
 I return to the things I love.
 I remember why I live.
