@@ -210,9 +210,15 @@ Something exists in consciousness. The image in mind has not been consciously co
 * To transfer or convey from one place to another
 
 ## Circle: ##
+* A round plane figure whose boundary (the circumference) consists of points equidistant from a fixed point (the center)
+* Move all the way around (someone or something), especially more than once
+* A closed plane (see PLANE entry 6 sense 2b) curve every point of which is equidistant (see EQUIDISTANT sense 1) from a fixed point within the curve
 
 ## Grade: ##
 
 ## Arrest: ##
 
 ## Recollect: ##
+
+## Spin : ##
+
