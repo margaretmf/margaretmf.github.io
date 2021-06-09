@@ -3906,6 +3906,16 @@ Democracy is a story of Truth.
 
 <br>
 
+## Dirt ##
+Dirt hole.
+Burying a hole.
+It goes deep.
+The seed is buried deep within the ground.
+The roots spread out.
+It covers the wholeg round.
+
+<br>
+
 
 ----------
 
@@ -4577,6 +4587,23 @@ I open my eyes to see your light.
 Your truth makes me bolder.
 Your love makes me stronger.
 Your light makes me lighter.
+
+<br>
+
+## I Am Looking For You ##
+I am looking for you.
+You are looking for me.
+I vaguely know you in another world.
+You already know how to reach me.
+I can feel your spirit.
+You can feel me.
+I know you're out there somewhere.
+I am here too becoming who I am destined to be.
+It's a match made in heaven.
+It's mutual and reciprocal.
+It's already there.
+It's something within.
+It has extended since the beginning of time.
 
 <br>
 
