@@ -69,7 +69,6 @@ layout: default
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
 * [And Then They Stopped Talking To Me: Making Sense of Middle School]() by Judith Warner
-* [Kill the Spider: Getting Rid of What's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) by Carlos Whittaker
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 
 
@@ -100,6 +99,7 @@ layout: default
 * [American Gospel: God, the Founding Fathers, and the Making of a Nation](https://www.amazon.com/American-Gospel-Founding-Fathers-Making/dp/0812976665/ref=sr_1_4?dchild=1&keywords=american+gospel&qid=1623196988&sr=8-4) Jon Meacham
 * [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136) by Michelle Obama
 * [The Truths We Hold: An American Journey](https://www.amazon.com/Truths-We-Hold-YRE-American/dp/1432885375/ref=sr_1_6?dchild=1&keywords=the+truths+we+hold&qid=1623162847&sr=8-6) by Kamala Harris
+* [Kill the Spider: Getting Rid of What's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) by Carlos Whittaker
 
 ## 2020
 
