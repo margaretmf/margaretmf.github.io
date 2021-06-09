@@ -65,7 +65,6 @@ layout: default
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
 * [Traffic]() by tom vanderbilt
-* [American Gospel: God, the Founding Fathers, and the Making of a Nation](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1537414852) by Jon Meacham
 * [My Sixty Years on the Plains: Trapping, Trading, and Indian Fighting](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1695768930/ref=pd_lpo_14_t_0/140-1164491-0949269?_encoding=UTF8&pd_rd_i=1695768930&pd_rd_r=b4345087-d11f-4ad2-9ec3-64ab247604d2&pd_rd_w=otZJk&pd_rd_wg=ohqCU&pf_rd_p=a0d6e967-6561-454c-84f8-2ce2c92b79a6&pf_rd_r=MHKQFHX5BASM0DW17AHK&psc=1&refRID=MHKQFHX5BASM0DW17AHK) by W. T. Hamilton
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
@@ -98,7 +97,7 @@ layout: default
 * [On Writing: A Memoir of the Craft](https://www.amazon.com/Writing-Memoir-Craft-Stephen-King/dp/1982159375/ref=sr_1_2?dchild=1&keywords=on+writing+a+memoir+of+the+craft&qid=1619296010&sr=8-2) by Stephen King
 * [The Power of Ritual: Turning Everyday Activities into Soulful Practices](https://www.amazon.com/Power-Ritual-Everyday-Activities-Practices/dp/0062881817) by Casper ter Kuile
 * [Mountain Man: John Colter, The Lewis & Clark Expedition, and the Call of the American West](https://www.amazon.com/Mountain-Man-Colter-Expedition-American/dp/1682684423/ref=sr_1_1?dchild=1&keywords=mountain+man+John+colter&qid=1622369974&sr=8-1) by David Weston Marshall
-* [American Gospel: God, the Founding Fathers, and the Making of a Nation]() by Jon Meacham
+* [American Gospel: God, the Founding Fathers, and the Making of a Nation](https://www.amazon.com/American-Gospel-Founding-Fathers-Making/dp/0812976665/ref=sr_1_4?dchild=1&keywords=american+gospel&qid=1623196988&sr=8-4) Jon Meacham
 * [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136) by Michelle Obama
 * [The Truths We Hold: An American Journey](https://www.amazon.com/Truths-We-Hold-YRE-American/dp/1432885375/ref=sr_1_6?dchild=1&keywords=the+truths+we+hold&qid=1623162847&sr=8-6) by Kamala Harris
 
