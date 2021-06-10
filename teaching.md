@@ -32,9 +32,10 @@ I would love to explore software tools for educators and course development.
 * [The River](https://www.amazon.com/River-Hatchet-Adventure-Gary-Paulsen/dp/0307929612/ref=sr_1_1?dchild=1&keywords=the+river+Gary+paulsen&qid=1621260981&s=books&sr=1-1) by Gary Paulsen (c. 2012) **NATURE** **AMERICAN**
 * [Where the Red Fern Grows](https://www.amazon.com/Where-Fern-Grows-Wilson-Rawls/dp/0440412676/ref=sr_1_2?dchild=1&keywords=where+the+red+fern+grows&qid=1621261024&s=books&sr=1-2) by Wilson Rawls (c. 1996) **AMERICAN** **NATURE**
 * [Hatchet](https://www.amazon.com/Hatchet-Gary-Paulsen/dp/1416936475/ref=sr_1_6?dchild=1&keywords=hatchet+children%27s+books&qid=1622549400&sr=8-6) by Gary Paulsen **NATURE** **AMERICAN**
-* The Secret of the Indian
-* The Return of the Indian
-* The Indian in the Cupboard
+* [The Indian in the Cupboard](https://www.amazon.com/Indian-Cupboard-Lynne-Reid-Banks/dp/0375847537/ref=sr_1_2?dchild=1&keywords=the+Indian+in+the+cupboard&qid=1623289996&sr=8-2)
+* [The Return of the Indian](https://www.amazon.com/Return-Indian-Cupboard/dp/0375855238/ref=sr_1_1?dchild=1&keywords=the+return+of+the+indian&qid=1623290023&sr=8-1)
+* [The Secret of the Indian](https://www.amazon.com/Secret-Indian-Cupboard/dp/0375855246/ref=sr_1_1?dchild=1&keywords=secret+of+the+indian&qid=1623290045&s=books&sr=1-1)
+* [The Key to the Indian](https://www.amazon.com/Key-Indian-Avon-Camelot-Book/dp/0380803739/ref=sr_1_1?dchild=1&keywords=the+key+to+the+indian&qid=1623290061&sr=8-1)
 
 <br>
 
