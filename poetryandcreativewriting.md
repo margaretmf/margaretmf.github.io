@@ -470,6 +470,7 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the kind woman in the 7-11 and her name, ethnicity, and life
 * Grateful for conversations with my cousins
 * Grateful to learn more about our leaders
+* Grateful for how all the political leaders in our country have turned to faith and the Bible
 
 <br>
 
