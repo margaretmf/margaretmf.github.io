@@ -1519,6 +1519,21 @@ is_contact: true
 (4) Keys clicking
 (5) A lawn mower running
 
+## ** Day 89** ##
+### **Images** ###
+(1) Smoke rising out of a bagel
+(2) Smoke rising out of a truck
+(3) Orange plastic paper on a road sign outside
+(4) An orange cone fallen over
+(5) Litter on the street
+
+### **Sounds** ###
+(1) Birds chirping
+(2) The flapping of birds wings
+(3) People moving trash cans
+(4) The creeking of a door behind a phone conversation
+(5) The creeking of trains in the neighborhood
+
 <br>
 
 <br>
