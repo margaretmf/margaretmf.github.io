@@ -83,7 +83,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (31 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (32 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -111,6 +111,7 @@ Christian Science teaches that 'we are all tributary to the same source', but th
 I believe in the idea of 'standing in union with everyone around in society and the world' as best as I can from this time forth
 
 ## What do I believe in? ##
+I believe that I, we are all a country and a world of beliefs.
 I believe in the next generation of humanity and all that they can learn each day and all that they can contribute.
 I believe in every individual as individual.
 I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
@@ -4283,7 +4284,7 @@ From port to port the sun shines in every place from different angles. We all lo
 
 
 # Creative Writing - Independent Writing #
-# Smiles, The Seed Within, Good Experience, A Voice in A Sea of Voices, Mistakes and Crashing, Relationships #
+# Smiles, The Seed Within, Good Experience, A Voice in A Sea of Voices, Mistakes and Crashing, Lost in the Mess, Relationships #
 
 ## Lessons from Grandparents ##
 Granmama - wide smiles, dancing, greeting people for who they are, lover of color and flowers, lover of the Catholic church
@@ -4558,6 +4559,22 @@ Let it shatter into pieces.
 Let it flee into the ocean.
 Let it fly across the sea.
 Let it fall to the floor.
+
+<br>
+
+## Lost in the Mess ##
+Lost in all the mess of this weary world.
+This wearly world has been living for ages.
+Where does this old soul of my go in a dried-out world?
+Things are begging for my attention.
+All I'm seeking for is rest.
+
+<br>
+
+## All These Things I've Done Wrong ##
+All these things I've done wrong, I lay them on the ground.
+They've been eating up my soul.
+I do my best to learn and move on.
 
 <br>
 
