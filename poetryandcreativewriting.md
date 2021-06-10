@@ -83,7 +83,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (30 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (31 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 
 ## Spirituality ##
@@ -467,6 +467,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the people in the mall expressing a love for cultural diversity
 * Grateful for the music play in the Amazon truck
 * Grateful for order, friendship, clarity, cleanliness, and humility
+* Grateful for the kind woman in the 7-11 and her name, ethnicity, and life
+* Grateful for conversations with my cousins
+* Grateful to learn more about our leaders
 
 <br>
 
