@@ -471,6 +471,9 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for conversations with my cousins
 * Grateful to learn more about our leaders
 * Grateful for how all the political leaders in our country have turned to faith and the Bible
+* Grateful for the people doing the political work and overcoming obstacles
+* Grateful for the sounds of the morning
+* Grateful for a healthy conversation with an aunt
 
 <br>
 
