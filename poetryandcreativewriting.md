@@ -3994,6 +3994,8 @@ There's someone, there are people behind the cash register, and they have though
 There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
 There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
 There's someone, there are people behind the books in the bookstore.
+There's someone, there are people behind the airplanes flying.
+There's someone, there are people behind the music.
 There's someone, there are people behind the trash cans.
 There's someone, there are people behind the post office.
 There's someone, there are people behind the work in churches.
@@ -4758,6 +4760,14 @@ Everything grows richer, deeper, fuller, and more alive. I see the beauty, not t
 Looking deeper, looking wider, I find my home, and the truth within
 I find the place where everyone, everything is interconnected
 where bad memories are replaced, new pictures captured
+
+<br>
+
+## Expanding Continously ##
+Expanding continously
+Forever raidating out
+Like the Truth echoing out
+The things that resonate continue to resonate
 
 <br>
 
@@ -5839,6 +5849,10 @@ It's constantly spinning.
 All is made new.
 Trash thrown way, new products born.
 It's constantly recycling.
+
+
+Every day a light bulb turns off and a light bulb turns on.
+Every day something is thrown out, and something is reborn or recreated.
 
 <br>
 
