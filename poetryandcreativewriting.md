@@ -4194,6 +4194,12 @@ It all started in Virginia, the home of the virgin, native land. Some people cho
 
 <br>
 
+## Another Year Lighter ##
+It's another year lighter.
+Everything I once kenw is amde known more clearly and deeply.
+These lessons I've learned.
+These people I've grown closer to.
+
 
 ----------
 
@@ -4460,6 +4466,7 @@ The lone bird finding her support on the power line.
 The lone bird scurrying through the grass.
 The lone grey bird expanding her wings.
 The lone bird swoops down to hover the river.
+The lone bird feathering her wings above the water.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
 
@@ -5270,6 +5277,23 @@ happiness with Mary for
 
 What blesses one blesses all,
 so the union can only bless everyone.
+
+<br>
+
+## Wedding ##
+It's a weddedness to love like the sun shining down midday.
+
+It's a union so tight that he knows to say 'I do' when her thought reaches up to love.
+
+It's a tie so close that it will never fall apart.
+
+It's the purest of pure speaking truth to one another.
+
+It's an openness to everyone around because the love for each other is so great.
+
+It's the highest form of love so strong that stops the storm in her midst.
+
+It's the perfect 'I will commit' to an innocent yearning for a bond so great.
 
 <br>
 
