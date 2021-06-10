@@ -63,6 +63,8 @@ layout: default
 * Books on Donald Trump
 * Books on other Women seek Presidential Office
 * Books on Islam, Spain, Africa, and Medieval History
+* Books on Iraq, Afghanistan, and Middle East
+* Age of Ambition: Chasing Fortune, Truth, and Faith in the New China
 
 #### Reading
 * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
