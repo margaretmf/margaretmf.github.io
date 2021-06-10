@@ -9,7 +9,7 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, and a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about the circular economy and financial principles.
+I am **Margaret Furr**, and a graduate of the University of Virginia. My dream job is a **Design Researcher** or **Art Historian** role, and I would love to learn more about the circular economy and financial principles.
 
 **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero...**
 
@@ -17,9 +17,9 @@ The values that Thomas Jefferson and other founders shared in the Declaration of
 
 **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.**
 
-Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to 'push the boundary of what's possible', hopefully 'in the name of the greater good.' It's also great to cultivate latent talents and play around like little kids and amateurs.
+Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to *push the boundary of what's possible*, hopefully *in the name of the greater good* (Thomas Jefferson). It's also great to cultivate latent talents and play around like little kids and amateurs.
 
-**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para la emprendedora de los límites de que posible, con esperanza que es 'en el nombre de la mayor bien.' Es también estupendo cultivar talentos latentes y jugar como niñas pequeñas.**
+**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para *la emprendedora de los límites de que posible*, con esperanza que es *en el nombre de la mayor bien* (Thomas Jefferson). Es también estupendo cultivar talentos latentes y jugar como niñas pequeñas.**
 
 I have retaliated after being hurt by people, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. 
 
@@ -33,11 +33,11 @@ I love working on photography of light in the darkness, American flags, leaves, 
 
 **Me amo trabajando... **
 
-My true passion is writing about engineering, STEAM, and education content.
+My true passion is writing about engineering, STEAM, and educational content, and I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings.
 
 **Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico. **
 
-Little children are healing, organizing things is my passion, and expressing good cheer in the Post Office, in the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
+Little children are healing, organizing things gives me life, and expressing good cheer in the Post Office, in the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
 **Niños pequeños y niñas son cicatrización, organizando es mi pasión, y expresando buen animo en la Oficina Correo, en el edificio de Federal Rápida, y en las calles construcciónes mantiene la gente vivaz, humilde, y cantando por dentro.** 
 
@@ -144,6 +144,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 * A Study Comparing the city of Norfolk and Memphis in addition to Richmond, Charlottesville, and Nashville
 * A Study Comparing Dublin and Glasgow to Nashville and Louisville
 * A Study on Democracy, What it Means to Democratize, What a Republic Is, What It Means to Localize
+* A Study on How Political Leaders Have Read Biblical and Scriptural Texts, What Texts They Studied, and How Scriptural Texts Inspired Them
 * A Study on Whether People Attend Church, What Church They Attend, Why People Attend That Church, What is the Theology, How Strong is the Faith, What Leads People to Doubt, the Relationship to God, and How People Feel Church and Democracy are Related
 * A Study on the American Flag, and what the American flag represents through Text
 * A Study on Light in the Darkness, and Where This Comes Up in Books, and What This Means, and Its Spiritual Significance
@@ -162,6 +163,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 * A Study on Names
 * A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
 * A Study on "political storms" (1960s, 2020s)
+* A Study on How to Use Art to Share History
 
 <br>
 
