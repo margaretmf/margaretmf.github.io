@@ -9,9 +9,9 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, and a graduate of the University of Virginia. My dream job is a **Design Researcher** or **Art Historian** role, and I would love to learn more about the circular economy and financial principles.
+I am **Margaret Furr**, and a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles.
 
-**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero...**
+**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros.**
 
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. 
 
@@ -21,10 +21,6 @@ Every day I seek to learn something new to stay alive. It's amazing how all huma
 
 **Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para *la emprendedora de los límites de que posible*, con esperanza que es *en el nombre de la mayor bien* (Thomas Jefferson). Es también estupendo cultivar talentos latentes y jugar como niñas pequeñas.**
 
-I have retaliated after being hurt by people, and shifted from being a rule-follower to someone who expresses anger; but I have begun to turn to poetry to process thoughts and feelings more artistically. 
-
-** **
-
 I am exploring how to sketch and how to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
@@ -33,7 +29,7 @@ I love working on photography of light in the darkness, American flags, leaves, 
 
 **Me amo trabajando... **
 
-My true passion is writing about engineering, STEAM, and educational content, and I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings.
+With a love for writing, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry.
 
 **Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico. **
 
@@ -45,19 +41,17 @@ I love world cultures, includng African, Arab, Chinese, Spanish, and Native cult
 
 **Me amo muchas de las culturas del mundo, incluyendo Africano, Árabes, Chino, Español, y Nativa.**
 
+Currently, I am studying the Spanish version of the Bible. I am revitalizing an appreciation for the beautiful language. I am listening to music and the radio in Spanish every day.
+
 **Actualmente, estudiando la versión de La Biblia en Español. Estoy revitalizando una apreciación por el idioma muy bonito. Escuchando a la música y la radio en Español todos de los días.**
 
 I believe that the stories that families share about ancestors are the most spiritual elements of who people are. I believe that details matter. I believe in respecting the secrets that people share. The way people capture stories is important.
 
+It is interesting how movements start from the ground-up. I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature.
+
 **Creo que los cuentos que familias contan sobre sus antepasados son los elementos más espirituales de quien la gente están. Creo que los detalles importan. Es importantae respitar los misterios que la gente comparte. Como la gente captura los cuentos es valiosa.**
 
-I am interested in how movements start from the ground-up.
-
-**Estoy interesada en como los movimientos comienzan desde el principio.**
-
-I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. The books for children by Jean Craighead George capture creatively the historic culture around engineering and nature.
-
-**Estoy interesada en las culturas, las narrativas, y los arquetipos sobre la ingeniería así como STEAM educación. Los libros para las niñas por Jean Craighead George capturan creativamente la cultura histórica alrededor la ingeniería y la naturaleza.**
+**Estoy interesada en como los movimientos comienzan desde el principio. Estoy interesada en las culturas, las narrativas, y los arquetipos sobre la ingeniería así como STEAM educación. Los libros para las niñas por Jean Craighead George capturan creativamente la cultura histórica alrededor la ingeniería y la naturaleza.**
 
 Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am and drove team members to practice in Charlottesville. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
 
