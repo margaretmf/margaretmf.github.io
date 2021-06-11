@@ -475,6 +475,8 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for the people doing the political work and overcoming obstacles
 * Grateful for the sounds of the morning
 * Grateful for a healthy conversation with an aunt
+* Grateful for the artwork in the coffeeshop
+* Grateful for the people in the coffeeshop
 
 <br>
 
@@ -3999,6 +4001,7 @@ There's someone, there are people behind the music.
 There's someone, there are people behind the trash cans.
 There's someone, there are people behind the post office.
 There's someone, there are people behind the work in churches.
+There's someone, there are people behind the artwork.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
@@ -4654,8 +4657,8 @@ What's mine is yours.
 It belongs to the earth.
 It belongs to our eyes.
 What you can see I can see.
-WHat I can see you can see.
-IT's the same world.
+What I can see you can see.
+It's the same world.
 It's the same idea.
 What you can hear I can hear.
 What I can hear you can hear.
@@ -5014,6 +5017,26 @@ There are good people everywhere to light up the path.
 There are new ways to see things and new views to hold.
 There's something ot learn every day with joy.
 
+
+Oh its a beautiful day to rise up with the sun
+And watch the rays shine through and light out the way
+I love how the sun rises up from the East to the West
+The light shines through in new angles and warms my face
+
+Oh it's a new day to fall in love with all the earth
+And feel the heart of humanity pulse aloud with life
+There's movement everywhere and there' joy everywhere
+There's good work everywhere and there's home everywhere
+
+Like the sun lighting up the earth
+There's a smile lighting up you and me
+And it's a radiant day for a smile to sweep through everyone all at once
+
+Like a smile sweeping through everyone all at once
+There's a song singing through everything all at once
+It's a new day to sing a sweet sweet song
+I love singing this song in everything I do
+
 <br>
 
 ## Day In and Day Out ##
@@ -5095,7 +5118,7 @@ There are new colors to paint with.
 
 <br>
 
-## Song of the Night ##
+## True Love ##
 True Love is not cheap.
 True Love is happy for others.
 True Love apolgoizes and accepts repercussions for wrongdoing.
@@ -5677,12 +5700,31 @@ There's always a deepr view.
 # Creative Writing - Independent Writing #
 # Ripple Effect, Time, and  Words of Wisdom, Fading Out, The Tide, The Truth, Flickering Lights, A Circular World, The Airplane #
 
+## Ripple Effect ##
+The ripple effect of all the people people love.
+A window into someone's eyes and how they see the world and love throughout their day.
+
+<br>
+
 ## The Coins ##
 The four coins sitting on the grounds.
 Whose are they?
 Where have they been?
 Who are they for next?
 They are shiny silver and bronze.
+
+<br>
+
+## A Note for Years from Now ##
+Today I write this note and I toss it into the sea.
+I toss it into the sea and hope that in 50 years I look back to see all that was going on today expand.
+I hope that in 50 years I cna look back to all the yesterdays and see how they turned into today.
+I hope that I can see how all the tomorrow's turned into this day in 50 years from now.
+Everything expands.
+What hs been done can continue.
+What is meant to be will be born.
+What has lived will live.
+What has loved will love.
 
 <br>
 
@@ -5762,6 +5804,8 @@ The truth can be tough to bear.
 We all look to the same Truth.
 We all radiate out from the center.
 Beliefs, opinions are like colors on the spectrum.
+We all aim to look towards the same Truth.
+A world of shapes and colors, patterns and textures.
 
 <br>
 
@@ -6408,6 +6452,8 @@ It's the same Truth, but different standpoints.
 It's the same Life, but different viewpoints.
 It's the same system, but different tracks.
 It's the same goal, but different skills.
+It's the same country, but different backgrounds.
+It's the same home, and the same meaning.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
@@ -6425,6 +6471,23 @@ It's two sides of the same coin.
 ## You Know Too Much About Me, You Spoke for Me ##
 You know too much about who I am.
 I heard my thoughts, and feelings captured through your voice.
+
+<br>
+
+## Too Good To Be True ##
+You were too good to be true
+You captured it all
+It really struck a chord
+You really knew my heart
+You really knew my pain
+You really knew it all
+It really dug deep
+It really led me to find my deepst self
+It really led me to explore another side
+
+You were so quick to know my deepest need
+You knew just how to ease the pain
+You knew how to make me laugh
 
 <br>
 
