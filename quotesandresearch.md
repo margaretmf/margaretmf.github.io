@@ -2,6 +2,7 @@
 # Political Rebellion #
 "Societies exist under three forms sufficiently distinguishable. 1. Without government, as among our Indians. 2. Under governments wherein the will of every one has a just influence, as is the case in England in a slight degree, and in our states in a great one. 3. Under governments of force: as is the case in all other monarchies and in most of the other republics. To have an idea of the curse of existence under these last, they must be seen. It is a government of wolves over sheep. It is a problem, not clear in my mind, that the 1st. condition is not the best. But I believe it to be inconsistent with any great degree of population. The second state has a great deal of good in it. The mass of mankind under that enjoys a precious degree of liberty and happiness. It has it’s evils too: the principal of which is the turbulence to which it is subject. But weigh this against the oppressions of monarchy, and it becomes nothing. Malo periculosam, libertatem quam quietam servitutem. Even this evil is productive of good. It prevents the degeneracy of government, and nourishes a general attention to the public affairs. I hold it that a little rebellion now and then is a good thing, and as necessary in the political world as storms in the physical.1 Unsuccesful rebellions indeed generally establish the incroachments on the rights of the people which have produced them. An observation of this truth should render honest republican governors so mild in their punishment of rebellions, as not to discourage them too much. It is a medecine necessary for the sound health of government." - Thomas Jefferson to James Madison, Paris, January 30, 17872
 
+"I can easily trace my goal of becoming mayor to my freshman year of college. Through my volunteer work, I'd already regularly attended city council emetings na understood the importance of a mayor's decisions in tackling the poverty in Atlanta. When I first added the goal to my spreadsheet, I held a superficial dream of being in charge of the city. But later in that spring of 1992, America exploded when the Rodney King verdict was announced in late April. In Los Angeles, the city teemed with a violence that had not been seen in decades. In downtown Atlanta, where I attended school, young black men and women smashed windows, overturned cars, and ransacked the city. For my part, I joined with fellow students in silent march down to city hall from the Atlanta University Center known to Atlantans at the AUC." (pp. 15-16, "Lead from the Outside")
 
 ----------
 
@@ -362,10 +363,14 @@ Joe Meek told how the mountain men gathered about the evening campfire and 'told
 
 The rugged frontiersmen who traveled with William Sublette, Jedediah Smith, and David Jackson carried a copy of the Bible and the works of Shakespeare." (p. 76, "Mountain Man: John Colter, The Lewis & Clark Exedition, and the Call of the American West", David Weston Marshall)
 
+# Lead from the Outside #
+"Knowing what you believe holds great power because you will be called upon to blaance the needs and desires and the arguments of many. A leader represents not only those who share her core values but those who despise all that she holds dear. Politics, for example, is a constant test of my capacity for learning. I know legislators who have a definite, firm, and unshakable opinion on everything before any new information is shared." (p. 171, "Lead from the Outside")
+
+"I do have core beliefs, but I don't have an unshakeable position on every issue. I accept that I may nto know enough about a situation to render immediate judgment, which is hwy I attend meetings and read everything I can. Whether you are a politican or an executive or an active citizen 
 
 ----------
 
-# Womandhood #
+# Womanhood #
 "We lift up a young woman who sees something new in herself that she'd never recognized before. We become the sounding board for the colleage who calls to share a moment of panic: Here's how I screwed up on Thursday, and I do not want to go back into that space. Can you help me think about how to do it.'" (p. 99, "")
 
 "My older sister, Andrea, is a college professor who teaches anthropology. One of a handful of tenured professors of color at her school, she found herself shying away from appointments to boards or committees. When she eventually conceded and joined them, one of her fears became a reality: every one of her comments, she felt had to be profound, and she thought she couldn't make any mistakes. She saw herself increasingly held to a higher standard than her white colleagues and the pressure became intense." (p. 45, "")
