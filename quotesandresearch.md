@@ -365,8 +365,14 @@ The rugged frontiersmen who traveled with William Sublette, Jedediah Smith, and 
 
 ----------
 
+# Womandhood #
+"We lift up a young woman who sees something new in herself that she'd never recognized before. We become the sounding board for the colleage who calls to share a moment of panic: Here's how I screwed up on Thursday, and I do not want to go back into that space. Can you help me think about how to do it.'" (p. 99, "")
+
+----------
+
 
 # America #
+# [Mother Land]() #
 "Rachel tried to speak slowly, which was not in her nature. Her in-laws had, when she met them, look confused when she spoke, which Dhruv told her was because she had an American accent, but she privately believed was because they couldn't speak English that well." (p. 12, "Mother Land", Leah Franqui)
 
 "She had seen that kind of happiness in television shows and movies, that American cheer, and she had thought that was just for Westerners. But if Dhruv could find it, if he could be so close with someone, so happy from that closeness, then surely it was not a Western trait at all." (p. 20, "Mother Land", Leah Franqui)
@@ -382,6 +388,11 @@ The rugged frontiersmen who traveled with William Sublette, Jedediah Smith, and 
 "'Why should I adapt to her just because she is American? She is living here,' Swati said, with more force than she intended. But it was true, wasn't it, it was what she had been telling herself day after day, that Rachel had to adapt, she had no choice. But wasn't that part of why you left Vinod? For choices?" (p. 178, "Mother Land", Leah Franqui)
 
 "'Not like I thought she might. It's not like America, people getting divorces all the time. We value marriage here.'" (p. 182, "Mother Land", Leah Franqui)
+
+## [Lead from Within]() ##
+"Despite the American fasciation with the gutsy move, society is more likely to punish rather than praise those of us whose performances stray from a prescribed plan. Consider the athelte who uses his platform to protest injustice, the woman who takes to social media to decry sexual assault, or the ex-felon who launches a business to give prisoners access to cheaper phone calls.
+
+The space to invent ourselves, to reimagine *our* futures is narower and soemtimes seemingly nonexistent for those who do not occupy a place of privilege. Like everything else, to defeat the problem, we have to first deconstruct the fictions of golden opportunity and realize not all worlds operate the same. We assume if we work hard, plan well, and follow the rules, we will achieve great things. At the very least, the lore tells us financial comfort awaits. For many of you reading this, you know the truth is more complicated than the illusions fed to us by this narrative. We aren't going to win playing by the written rules. So we have to discover the hidden pathways to win. I call it 'the hack' - by which I mean figuring out how to circumvent the traditioanl systems and own opportunity." (p. 56, "Lead from Within")
 
 
 ----------
