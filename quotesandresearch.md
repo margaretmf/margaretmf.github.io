@@ -368,6 +368,10 @@ The rugged frontiersmen who traveled with William Sublette, Jedediah Smith, and 
 # Womandhood #
 "We lift up a young woman who sees something new in herself that she'd never recognized before. We become the sounding board for the colleage who calls to share a moment of panic: Here's how I screwed up on Thursday, and I do not want to go back into that space. Can you help me think about how to do it.'" (p. 99, "")
 
+"My older sister, Andrea, is a college professor who teaches anthropology. One of a handful of tenured professors of color at her school, she found herself shying away from appointments to boards or committees. When she eventually conceded and joined them, one of her fears became a reality: every one of her comments, she felt had to be profound, and she thought she couldn't make any mistakes. She saw herself increasingly held to a higher standard than her white colleagues and the pressure became intense." (p. 45, "")
+
+"I wanted to write stories about women who looked like me, ones whose lives were as exciting as anythign I'd read or seen on a movie screen. I didn't have to be Ian Fleming to tell those tales. When I let go of my fixation on crafting the piece deresistance of spy craft fiction, I found a story - and a career - that I had never imagined." (p. 23, "")
+
 ----------
 
 
