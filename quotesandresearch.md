@@ -366,7 +366,14 @@ The rugged frontiersmen who traveled with William Sublette, Jedediah Smith, and 
 # Lead from the Outside #
 "Knowing what you believe holds great power because you will be called upon to blaance the needs and desires and the arguments of many. A leader represents not only those who share her core values but those who despise all that she holds dear. Politics, for example, is a constant test of my capacity for learning. I know legislators who have a definite, firm, and unshakable opinion on everything before any new information is shared." (p. 171, "Lead from the Outside")
 
-"I do have core beliefs, but I don't have an unshakeable position on every issue. I accept that I may nto know enough about a situation to render immediate judgment, which is hwy I attend meetings and read everything I can. Whether you are a politican or an executive or an active citizen 
+"I do have core beliefs, but I don't have an unshakeable position on every issue. I accept that I may nto know enough about a situation to render immediate judgment, which is hwy I attend meetings and read everything I can. Whether you are a politican or an executive or an active citizen trying to improve your community, always keep clear in your mind the difference between policy and belief. Policy is what you should do. Belief is why you do it. But when you believe too much, you often are willing to do too little." (p. 172, "Lead from the Outside")
+
+"Truth telling, especially stories about minorities, matters. We are so frequently viewed through lenses that encourage the majority to fear us or to distrust us. That afternoon, I watched as an entire city - a nation in microcosm - heard from their news reporters to once again be afraid of black people. To believe us all to be destructive, angry, vandals rather than complex human beings who had seen in a single verdict an indictment of our humanity. If Rodney King could be beaten on tape, and his known police assailants exonerated, what would stop others from furthering our treatment as subhuman?" (p. 18, "Lead from the Outside")
+
+"The literal translation of 'metanoia' is a transformative change of heart." (p. 194, "Lead from the Outside")
+
+"The anchors of belief should never weigh down the capacity for thoughtful engagement and reasonable compromise. Effective leaders must be truth seekers, and that requires a willingnes to understand truths other than our own." (p. 170, "Lead from the Outside")
+
 
 ----------
 
