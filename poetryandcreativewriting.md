@@ -4048,7 +4048,15 @@ I remember driving with a friend around election day.
 I remember listening to the song and appreciating the people who sang the song.
 I remember questioning if I was a lesbian or not and actually imagining if I was a lesbian, transgender, and someone asked me if I was a lesbian.
 I remember the story of my grandfather standing up for African American people on the bus in the 1900s.
-
+I remember peers nearby who were cheerful.
+I remember participating in the Multicultural Club and caring about those people.
+I remember caring about the friends at EVERFI working on the engineering team.
+I remember loving the poise expressed in both women supervisors.
+I remember the guys from swimming.
+I remember being aware of how the police reacted to people on the streets and I care about how they contributed to the school.
+I remember my friends from the International Residential College and loving their diversity.
+I remember the people in the lunch room at Norfolk Academy.
+I remember the people at the Polo Club, and I remember the people who shared with us Al Green.
 Memories, looking through the looking glass, seeing images and hear sounds that have existed in thought in the past.
 
 <br>
