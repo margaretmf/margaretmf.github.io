@@ -500,6 +500,14 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for a memory of the woman at the IRC who I would see in the library and her cheerful heart
 * Grateful for all of the people in the English class and the love teachers have for kids
 * Grateful for my friends in interracial relationships
+* Grateful for people who read and educate themself in prison
+* Grateful that book writing and education are the most democratic forces for mankind's liberation
+* Grateful for the passages from Corinthians that Martin Luther King, Jr. looked to about charity with love
+* Grateful for the work that Martin Luther King, Jr. did
+* Grateful for all the churches that supported the elections
+* Grateful for all the faiths of people on college campuses
+* Grateful for "freedom ringing"
+* Grateful that Black leadership is an expression of freedom
 
 <br>
 
@@ -3763,6 +3771,8 @@ Music is one form of cultural expression. Intuitively, music shares with people 
 # America Reborn #
 I once had a vision, or a dream of American reborn.
 I love that women are behind the rebirth of the American dream and that black men can lead the country well.
+Women are behind the rebirth of the American dream through the work in the postal office and the elections.
+A sense of America reborn actually came a live in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
 
 <br>
 
@@ -3928,6 +3938,8 @@ America is a country of people who love nature.
 
 Some believe history is objective. Some believe history is subjective.
 There exist different viewpoints on the same thing.
+
+Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
 
 <br>
 
@@ -4441,6 +4453,12 @@ The freedom is in the independence.
 The spirit is all around.
 The healing is in the mystery of the whirlwind of it all.
 The joy is in the leaves moving around.
+
+You thought you had an enemy
+You really had a friend in disguise
+You thought you were being laughed at
+You really were being taught a powerful lesson
+The light in the darkness it's so strong
 
 <br>
 
