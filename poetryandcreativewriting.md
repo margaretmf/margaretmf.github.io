@@ -83,8 +83,9 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (32 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (33 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
+* Take photos of leaves and share interest in how water flows through the Earth
 
 ## Spirituality ##
 *I believe* "God is all and God is good" [in 2009, 2010]
@@ -93,10 +94,12 @@ I also believe that the land belongs to everyone, and that we all share the same
 I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others.
 I have found that I can see God's expression everyone through compassion, intelligence, joy, peace.
 I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas.
+I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future.
 
 ## Relationship to Spirituality ##
 * Appreciate the architecture of all the churches in the community.
 * Learn about a dual language church.
+* Love Religioius Liberty.
 
 ## Individual/Society ##
 *I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
@@ -108,17 +111,20 @@ I feel like I have failed morally, but I am still learning and growing deeper an
 I love learning about interconnectedness, and how we are all connecting each other to a higher sense of life.
 I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
 Christian Science teaches that 'we are all tributary to the same source', but there are distinct differences between everyone in good ways. [2021]
-I believe in the idea of 'standing in union with everyone around in society and the world' as best as I can from this time forth
+I believe in the idea of 'standing in union with everyone around in society and the world' as best as I can from this time forth.
 
 ## What do I believe in? ##
 I believe that I, we are all a country and a world of beliefs.
 I believe in the next generation of humanity and all that they can learn each day and all that they can contribute.
 I believe in every individual as individual.
 I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
+I believe in giving credit to people who inspire other people, or who inspire us to change and grow.
+I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people.
 
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better.
 * Healed racism and started to realize that everyone is individual and distinct.
+* Appreciated authenticity in my first job for 3 years with an entrepreneur, and it was really a powerful experience.
 
 <br>
 
@@ -477,6 +483,23 @@ I believe in the older generation's ability to learn something new even if they 
 * Grateful for a healthy conversation with an aunt
 * Grateful for the artwork in the coffeeshop
 * Grateful for the people in the coffeeshop
+* Grateful for the healings people have shared at church of freedom from mistreatment
+* Grateful for the sound of the back door slamming and a sense of home
+* Grateful for the music playing in the restaurant and the love of all the people in the restaurant
+* Grateful for an understanding text from Mary
+* Grateful for memories of light shining through the window in the Christian Science nursing home and in grandmama's old house
+* Grateful for the memories of the colors on the wall in grandmama's old house
+* Grateful for a cheerful conversation about rewiring the brain with Aunt Jeanie
+* Grateful for the work done to solve problems and do technical work with EVERFI and bring a singing heart
+* Grateful for the progress in thinking
+* Grateful for memories of the party at Katy Wood's house and the love for all the women and Southern style there
+* Grateful that everyone I se includes everhting they love about nature
+* Grateful that as I pick up trash someone else is appreciating a greener planet
+* Grateful for the woman at EVERFI who did content development
+* Grateful for all the things that Black lives did
+* Grateful for a memory of the woman at the IRC who I would see in the library and her cheerful heart
+* Grateful for all of the people in the English class and the love teachers have for kids
+* Grateful for my friends in interracial relationships
 
 <br>
 
@@ -3850,7 +3873,7 @@ It brings an interesting feeling, a new perception, a beautiful insight to look 
 <br>
 
 ## Daily Conversations ##
-Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles. Learning and reading supports healthier communication and conversation.
+Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles. Learning and reading supports healthier communication and conversation. How a conversation starts expresses democracy, and I am grateful for daily conversations in the neighborhood.
 
 <br>
 
@@ -4069,6 +4092,8 @@ I realized the connection between the Arab world and Spain.
 I realized the connection between the woman who inspired MLK, Jr.
 I realized that Norfolk is not that different from Memphis or Nashville. There are common truths, roots, binds, images, stories, and scenery with shipping, trains, trucks, racial tension, and civil rights.
 I realized the importance of true self-government.
+I have felt very angry about sexuality and traditional gender roles in the South.
+I have tried to emulate her and read the books she read and learn more about politics in the way she transformed in my own way.
 
 <br>
 
@@ -4183,6 +4208,47 @@ They have interesting thoughts and ancestry. [Seeing Integration, Reconstruction
 
 <br>
 
+## Black Lives Matter, Interracial Relationships, and Christian Science ##
+I think that it's great that Black partnerships can be formed and that they have a right to do that and love their Black power.
+I love thinking about the idea of "two birds of a feather" for two Black people as well (it's mentioned in Sister Sledge, and Black Women's Songs)
+I was aware of the police reactions to Black lives but maybe I didn't do enough to respond but I deepen my thinking now to love these people I am aware of.
+I do my work to heal from prejudices and see the full human.
+I appreciated the opportunities to engage with Black Lives in college who were leaders and community members and friends but I had prejudices.
+I appreciated the opportunities to engage with Black Lives in college who were leaders and community members and friends but I had prejudices.
+I appreciated efforts to transform my thinking.
+I remember the Christ I saw expressed in people from the German Club and other people at Christmas parties.
+I remember engaging with Black men on the street in DC and not thinking anything less of them.
+I remember chaning my thinking around housekeepers to see the full human.
+I remember the pull to be a traditional white person, whatever that means.
+I remember regretting not listening to Desmond enough and he expressed concerns, and I awas aware of him.
+I remember being open to learning from another perspective.
+I remember taking the time to be more aware of their names.
+I remember zooming in to see the guns on the police and questioning that.
+I remember thinking highly of Black men at Church I saw and appreciating their talents.
+I remember getting very angry over the South, Debuts partly because of racial issues and partly because of being rejected and excluded and isolated, I remember getting very angry over feeling like I had failed and had no social life but I did enjoy some social outings with people, I remember getting very angry over people exerting power over me at working, mispronouncing my name, harassing me and streetcalling me, and bullying me in their apartment
+I remember retaliating very heavily and threatening people partly out of accusations of being petty, partly out of fear, and I remember being strategically excluded from people
+I am grateful for healthy homes in Norfolk
+My immediate instinct was that the romanticism of the South reminded me of ancestors and grandparents but I was also conscious of the racism traditionally in Georgia and VA and TN
+I have delved more deeply to learn about specific stories of people and what has happened to them
+I am grateful for people I have met on the street 
+I remember deepening my awareness of surroundings in Norfolk, neighborhoods I had not fully paid attention to because they are traditioanlly less safe, or suroundings in VA and WV in the country
+I am grateful for people's love of Black lives influencing music
+I remember the work of the dancers at Norfolk Academy
+Tokenism, Prejudice, Breaking Barriers, Gun Violence separate from Interracial Issues separate from Prison and Criminal Reform
+I am grateful for abolitionists and women who freed the slaves and the love that children can have for these role mdoels
+I am grateful for all the work EVERFI is doing and the work kids all across the nation are learning about entrepreneurship and Black history
+I remember God leading me to get more in touch with my authentic self at EVERFI
+I remember reading the Addie books as a kid and I remember healthy relationships with Jasmine in chorus, in Baltimore, and in grade school
+I remember listening to Christian Science hymns in Nam's car for a year near where I met Chris
+The same words and phrases are in different songs and music "birds of a feather"
+I love the Black women singing "We Are Family"
+I love the Black Power Movement
+The birds are in Southern Gospel Music in Kentucky
+
+## Women and Engineering ##
+I remember working in the field of engineering as the only women and feeling really really uncomfortable and fearful and like I didn't belong
+I am grateful for the other men in the engineering classes
+
 ## The Agitation in America ##
 When the riots fell down on the White house, the breakdowns happened at the Confederate Monuments, and the sense of loss and of lack stirred up agitation,
 the American dream felt out of reach to people. The American dream is not lost. What is great about America remains in memory, waiting to be reborn. What is wrong about America will be revisited and retold. America, founded on a rock, will always represent freedom to humanity. Have no fear, American people, we are all God's sons and daughters, and there's a new day under the Sun. What's great about America remains great. What needs to be known about America will be known. The dross of the country will be removed, and the gold of the country will be refined and come to the surface. There's newness for the country coming to life. There's grace, equity, equality, and justice for today. The governors represent the people, all the people. Nothing is lost, nothing about America's roots are being displaced. Everyone in the country belongs - all races, all creeds, all cultures, all religions. America, a melting pot. We were and can all be immigrants made new, we were and can all be explorers of the new earth, we were and can all be settlers finding our place to rest and be at peace, we were and can all be freedom-finders, no matter our background. Americans, tied to the land, has a new day in the Sun. The land belongs to everyone. America is not at the center, but represents freedom-finding, for all ethnic backgrounds and races.
@@ -4239,6 +4305,7 @@ The used material that people do not want.
 The things to dispose of and throw away.
 The containers empties of the substance to digest.
 The leftover goods, the pouring over of used goods.
+The things that can be reused and recycled to create something new.
 
 <br>
 
