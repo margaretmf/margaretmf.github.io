@@ -6546,6 +6546,7 @@ It's the same Life, but different viewpoints.
 It's the same system, but different tracks.
 It's the same goal, but different skills.
 It's the same country, but different backgrounds.
+It's the same pattern, but different forms.
 It's the same home, and the same meaning.
 
 --We are all weaving in and out and learning the same lessons.
