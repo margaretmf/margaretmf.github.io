@@ -4041,6 +4041,19 @@ There are people behind the word "Queen" on the advertisement. All of humanity, 
 
 <br>
 
+## Parallels ##
+When running through the storm here someone is running through storm in another city.
+When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
+When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
+When walking by a hotel's front door here, I think of standing in front of hotel in another city.
+When walking by a bookstore here, I remember walking in a bookstore somewhere else.
+When writing notes on my phone, someone on the other side of the country is doing the same thing.
+When sitting alone in bed, someone on the other side of the world is feeling the same way.
+While I'm walking by a car today I love remembering a moment of walking by a running car in another city.
+While walking by apartments here I love thinking of apartments in another place.
+
+<br>
+
 ## Where You are From, Where You are From From ##
 I appreciate where you're from, where you're from from.
 I appreciate where your ancestors come from.
@@ -4501,6 +4514,16 @@ This is good for you. This is not bad.
 
 <br>
 
+## Your Enemy Is Your Friend ##
+You thought you had an enemy
+You reall had a friend in disguise
+You thought you were being laughed at 
+You reall were being taught a powerful lesson
+The light in the darkness, it's so strong and true
+THis experience is good for you
+
+<br>
+
 ## Independence ##
 You can stand on your own two feet.
 You can give it a whirl.
@@ -4621,6 +4644,9 @@ There's a choice to lift oneself up.
 Let life carry through.
 Meet the demands of the day.
 See the sun rise.
+
+Falling under all of the regrets.
+You can't go back in time.
 
 <br>
 
@@ -5441,6 +5467,12 @@ It's an openness to everyone around because the love for each other is so great.
 It's the highest form of love so strong that stops the storm in her midst.
 
 It's the perfect 'I will commit' to an innocent yearning for a bond so great.
+
+<br>
+
+## Weddedness to the Earth ##
+I am wedded to the earth
+In all it's glory and all its inhabitants
 
 <br>
 
