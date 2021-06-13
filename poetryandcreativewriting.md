@@ -4097,6 +4097,9 @@ When writing notes on my phone, someone on the other side of the country is doin
 When sitting alone in bed, someone on the other side of the world is feeling the same way.
 While I'm walking by a car today I love remembering a moment of walking by a running car in another city.
 While walking by apartments here I love thinking of apartments in another place.
+When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
+
+It's all one.
 
 <br>
 
