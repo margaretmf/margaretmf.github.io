@@ -65,6 +65,11 @@ layout: default
 * Books on Islam, Spain, Africa, and Medieval History
 * Books on Iraq, Afghanistan, and Middle East
 * Age of Ambition: Chasing Fortune, Truth, and Faith in the New China
+* What Would Dolly Do?: How to Be a Diamond in a Rhinestone World by Lauren Marino
+* Dream More: Celebrate the Dreamer in You by Dolly Parton
+* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart
+* Persist
+* While Justice Sleeps: A NovelWhile Justice Sleeps: A Novel
 
 #### Reading
 * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
@@ -110,7 +115,7 @@ layout: default
 * [Lead from the Outside]() by Stacey Abrams
 * [Joe Biden: The Life, The Run, and What Matters Now]() y Evan Osnos
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
-
+* [Kamala's Way: An American Life](https://www.amazon.com/Kamalas-Way-American-Dan-Morain/dp/1982175761/ref=sr_1_1?dchild=1&keywords=Kamala%27s+way%3A+an+American+life&qid=1623592745&sr=8-1) by Dan Morain
 
 ## 2020
 
