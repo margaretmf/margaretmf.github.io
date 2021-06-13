@@ -73,6 +73,7 @@ I believe and have found that playing music and participating in improv brings j
 * Interested in how filmmakers turn children's books and other books into film.
 * Learned about the idea of taking bold risks and "failing big" in an improv class, and how improv relates to entrepreneurship.
 * Interested in creating art with trash.
+* Exploring the idea of "filter" for art, and copying vs. creating. vs original
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
@@ -509,6 +510,23 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for "freedom ringing"
 * Grateful that Black leadership is an expression of freedom
 * Grateful for text messages with Mary Daniel
+* Grateful for the real conversation with someone on the street, and how there is always progress going on
+* Grateful for healing from nervous laughter
+* Grateful that there is always progress
+* Grateful for the conversation with Darius, the outing "the filter through which people perceive, see, and experience the world is what supports art, so someone will hear or see art, analyze it, evaluate it, or express something with a new filter"
+* Grateful for the conversation with Darius, "culture is what gives life to people and what lights people up" - "what is normal, what dictates, what is not normal" "culture is neighborhood in Darius's eyes" "in my eyes culture is color, I love colors I see and the colors I see people wearing"
+* Grateful that Darius and the real human connection and ligtening up and having real conversation about things and I love that he studies philosophy
+* Grateful for all the people around him and me
+* Grateful for the light in the darkness
+* Grateful for the reflection and the Source
+* Grateful to recall the ideas of Universal and Particular and to remember ideas from metaphysics
+* Grateful for the "Adopt A Street" - no more litter in the city
+* Grateful that every step to different people is leading closer to more Truth, more awareness, more perspective, more progress, more perception
+* Grateful for the time spent reading the Qur'an
+* Grateful for the ideas of enlightenment, day and night, light and dark in the Bible
+* Grateful for how people across history in the country have used the Bible
+* Grateful for resources on how presidential leaders have studied the Bible
+* Grateful for all of the people outside of the Christian Science schools being educated, expressing faith, and identifying in ways belonging to God but not shared through the conduit and the filter of "Christian Science"
 
 <br>
 
@@ -3926,6 +3944,8 @@ America is a story of pilgrimage.
 America is a story of hard work, perspiration, new ideas, and inspiration.
 America is a story of protest.
 America is a story of marching onward, upward and forward.
+America is a story of neighborhood.
+America is a story of country.
 
 America is a country of beliefs.
 America is a country of music.
@@ -3936,11 +3956,14 @@ America is a country of internationalities.
 America is a system of expression, the reverse of oppression.
 America is a country of healthy conversations.
 America is a country of people who love nature.
+America is a country of neighborhoods.
 
 Some believe history is objective. Some believe history is subjective.
 There exist different viewpoints on the same thing.
 
 Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
+
+History is an expression of experiences, individual and collective.
 
 <br>
 
@@ -4231,6 +4254,7 @@ They run in the neighborhood. [Seeing Integratio, Reconstruction's Effects]
 They love God, and they have great faith through adversity. [Seeing Integration, Reconstruction's Effects]
 They also love Allah, the same God that Christians worship.  [Seeing Integration, Reconstruction's Effects]
 They have interesting thoughts and ancestry. [Seeing Integration, Reconstruction's Effects]
+They are on the streets engaging in enlightening conversations. [Seeing Integration, Reconstruction's Effects]
 
 <br>
 
@@ -4611,6 +4635,26 @@ She lets go of the weakness.
 
 She lets the true strength and true light-heartedness reign within.
 With each new day under the Sun, she opens her heart to more independence, love, and innocence that can shine through the land that belongs to everyone.
+
+<br>
+
+## Hey Lovely Woman ##
+Hey lovely woman
+You know what you're doing
+You're really fine
+You got it all within
+You are free and whole
+You're mroe able than you realize
+You have the whole world inside of you
+You're free to love
+You're free to dance
+You're free to be you
+You're free to have fun
+You're perfect the way you are
+You're the best lady for everyone you meet
+You got it all
+You ahve no need to be jealous
+You're free to be you
 
 <br>
 
@@ -5064,6 +5108,7 @@ A lesson on book writing.
 A lesson on faith.
 A lesson on forgiveness.
 A lesson on drawing for change.
+A lesson on conversations on the street, thoughts, and culture.
 
 <br>
 
@@ -5157,6 +5202,12 @@ There's a song singing through everything all at once
 It's a new day to sing a sweet sweet song
 I love singing this song in everything I do
 
+Oh it's a new day for the earth to be whole 
+and the people to be free
+It's a new day for the flwoers to bloom
+It's a new day for the sky to open up for you and me
+It's a new day to see with different eyes
+
 <br>
 
 ## Day In and Day Out ##
@@ -5193,6 +5244,8 @@ It takes faith to walk out the door.
 It takes faith to take a step forward.
 It takes faith to forgive and heal a relationship.
 It takes faith to move on and trust people.
+Everyone has faith.
+Everyone with a heart has faith.
 
 <br>
 
@@ -5841,6 +5894,11 @@ They are shiny silver and bronze.
 
 <br>
 
+## "Penny for Your Thoughts" ##
+"Penny for your thoughts is an idiom"
+
+<br>
+
 ## A Note for Years from Now ##
 Today I write this note and I toss it into the sea.
 I toss it into the sea and hope that in 50 years I look back to see all that was going on today expand.
@@ -5926,6 +5984,7 @@ The truth is within every's hearts.
 The truth raises her voice.
 The truth shares her wisdom.
 The truth can be tough to bear.
+The truth is there.
 
 We all look to the same Truth.
 We all radiate out from the center.
@@ -6745,7 +6804,6 @@ Every experience can help people to learn to think in new ways, explain the worl
 
 <br>
 
-
 ----------
 
 
@@ -6810,6 +6868,19 @@ Where has it been? Whose was it? Why is it on the ground? Imagine.
 Being the CTO of your house, your home.
 Controlling your searches, your emails, your time online, your social media usage.
 Being aware of the boundaries.
+
+<br>
+
+## Universals and Particulars ##
+There are universal qualities of mankind, and there are particular qualities of mankind.
+Mankind is musical universally, but some people are musicians, other people listen to music, some people play one instrument, other people play another instrument, some people like some kind of music, other people like other kinds, and there are particular filters in each heart through which someone can choose to creative music, feeling inspired by others and what is within.
+
+Is music just for 1% or 99% or 100%?
+
+When led to study data science, I did not feel comfortable with everything, but I drew from what I knew in Christian Science to learn about metaphysics.
+Metaphysics in philosophy is different from metaphysics in Christian Science.
+I remember finding it hard to understand the difference.
+There is universal Truth, universal Faith, universal Spirit, universal Church, however, different churches, religious groups, faiths, schools, local places can be a conduit for particular forms of expression or pointing people to authenticity (like the Norton Hall Band, grandmama's faith, Mary's faith, people from Norfolk Academy, Jahan, people from EVERFI had particular faiths, Muslim faith, Atheist faith)
 
 <br>
 
@@ -6945,6 +7016,12 @@ The place the country began and started.
 
 <br>
 
+## Sound ##
+Sound is a part of mankind.
+Everyone has a different sound or tone.
+Sounds resound. Sounds affect. Sounds inspire. Sounds bounce off of sound. Sounds echo. Sound continues to sound. 
+Sound has semantic meaning.
+
 ## Southern Titles ##
 "Ladies" at home, and the country club, and "women" at work.
 "Babygirl" and "babe" on the street, which sounds like a cat call after being raised to be a Southern lady.
@@ -7050,6 +7127,110 @@ Be someone on the inside, being safe, being a friend to those you know.
 Share photos like a Christmas Card, but limit the usage to those you know.
 
 <br>
+
+
+----------
+
+
+I am Margaret Furr.
+I love to write.
+I love Country music.
+I understand people in the Rural South.
+I love people who love Country music.
+I understand and have expressed the underlying sentiment of the Outlaw Country.
+I am from the Urban South.
+I loved aspects of the Rural South.
+African Americans and Black people belong to the Republican Party.
+African Americans and Black people belong to the Country.
+African Americans and Black people are free to express Country music differently.
+People like Elvis lived with Black people and were inspired by and took music from Black people, which is why some people find White Culture as dangerous and people like Elvis as racist.
+There is destructive behavior in both the African American community and the White Community. What drives this destructive behavior? 
+Sin
+
+In the past, I have felt less comfortable with my voice, my thoughts, and my sexuality than do other people.In the past, I have felt like I am working all the time.
+In the past, I have felt like people make me feel very bad about myself for fundamental aspects of who I am and what I desire to do.
+In the past and in the present, I have felt concerned about not being original fully.
+In the present, I am growing more concerned about appreciating other people as fully human with interests, talents, and full expression, originality, and ideas.
+
+Liberal Arts is about expressing freedom, being a free(er) thinker, using good judgment, discerning the false from the true.
+Liberal Arts is supposed to be a broad education for a democracy.
+Liberal Arts teaches people to read and write and also express through the Arts.
+Norfolk Academy is a Liberal Arts school.
+Liberal Arts is Cultural Analysis.
+Christian Science is supposed to be a broad education.from Latin liberalis "free" and ars "art or principled practice"
+
+In the past in the South not everyone has been fully free.
+Being fully free means being not enslaved.
+Healing prejudice.
+Not all Black people have been enslaved.
+Some Black people in other countries have never been enslaved.
+Some White people have been enslaved in other parts of the world.
+Everyone is individual.
+
+I remember in Church appreciating the expression of Soul in the woman in the "Healing Racism" workshop.
+My family in the past was driven by social status and money.
+I heard strong opinions and judgments.
+I have learned to judge less based on hair color and house style and money.
+I have felt inferior to family members who make more money and seem more free and more talented.
+I have felt superior to family members who make less money and also seem more free and less stressed out.
+I have appreciated people on the Street who I can talk to openly about thoughts, feelings, and philosophy, and music, and Soul
+As a conscientious thinker, I feel like everything I do needs to flow into a Church, where people make me feel like I am jealous or inferior.
+
+People have refused to speak to me and have exerted a sense of control over me because I seem not to match up to the full functioning capacity or intelligence level of other humans.
+
+Black / White Thinking
+Traditionally, there is racism in the South.
+
+Soul belongs to everyone.
+Talent stems from Soul.
+From sense to Soul.
+Talent stems from one's heart.
+I work to see everyone as expression of Soul
+
+Some of my family members have enjoyed Southern Culture and Debuts.
+For me, because Discrimination was such a big part of everything, I have done work to be more inclusive of Black people and African American people.
+The Confederate Flag is a political thing.Southern Patriarchy is a political thing.
+
+I felt like I saw the Soul expressed through people at work very clearly.
+I am concerned about criminality
+I am concerned about me not being able to play music
+I am concerned about people making fun of me
+I am concerned about me nervous laughing
+I am concerned about people condemning me
+I am concerned about people technology usage
+
+In situations where there have been conflict, it is challenging because I feel like I am trying to do the work with my best effort and a good attitude but I can't fully read the mind of the supervisor and they have another vision for the work. 
+
+If they feel like they have another vision for the work than how I am approaching something with my best effort, then it's frustrating for me because it's not being communicated, and it's frustrating for them because it's not being executed. 
+
+If the approach I take does not match up with the vision they have then I need to feel punished for that, but there's no direct flow of communication clarifying the goals, approach, and output for the project. 
+
+People do not like hiring younger people because they are not comfortable with ambiguity, lack of structure, or lack of clarity. 
+
+People sometimes push the blame on younger people for not doing work clearly or making it difficult. 
+
+Leaders and younger people must respect each other's places, lead downwardly and upwardly to clarify and communicate the goal for a project, assumptions, and what is being done. 
+
+It's good management practice to be open to communicating openly as a manager and an employee about work and workflow so that people meet eye-to-eye and clearly understand what is going on. It is good for people from both sides to ask good and thoughtful questions so that people can understand.
+
+If a younger individual is not a good communicator, they won't know how to ask the right questions, examine assumptions, or correct people. 
+
+Younger interns or employees need mentors or support figures like practitioners outside of an employment role who can help them understand how to speak up effectively if something seems wrong or questionable. If someone really needs healing also, summer interns need to know what resources are accessible to them for support and how to feel ok with opening up about sensitive issues.
+
+If someone advises someone to get a graduate degree, why should they get that degree? Who is paying for it? Where does it lead? Better advice for someone might be," think about what projects and tasks you enjoyed and what you would like to continue to expand or learn in the future". Some interns after this program have moved on to the following activities: graduate programs, mission trips, further employment. These options can be considered and evaluated based on what is discovered through life.
+
+From a metaphysical standpoint, when working with colleagues, there is only the Source, one Mind directing the work, leading, governing, and following. From a metaphysical standpoint, God is always governing the way.
+
+We are in a new age.
+
+What is healing racism?
+Perceiving the full picture, seeing the whole person, seeing the whole-Souled individual, seeing the full culture, seeing new possibilities, seeing the full history, appreciating the full heritage, perceiving someone in the true light, perceiving the beauty of Black skin, seeing the animus and individuality of an individual, seeing the interests, passions, and full freedom, latent abilities, talents, and possibilities of an individual, seeing the full ethnicity
+
+Healing is about Freedom and Wholeness
+Intuition is about Freedom and Wholeness
+
+The Confederate Flag seems to communicate something symbolizing enslavement, derogatory things, discrimination, and fracture, as well as social status and Southern culture
+The American Flag and the expression "America" can mean different things to people and symbolize different things
 
 
 ----------
