@@ -84,7 +84,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (33 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (34 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 * Take photos of leaves and share interest in how water flows through the Earth
 
@@ -537,6 +537,12 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the woman who does workplace design and workplace art
 * Grateful to sympathize with people anti-LGBTQ
 * Grateful for people who are pro-LGBTQ and the legislation
+* Grateful for memories of Roaring Gap
+* Grateful for the life experiences of Taylor Swift
+* Grateful for the leader(s) at church to show, educate, and share everything about Church architecture and design
+* Grateful that little include everything they need to know about the Holy Spirit and the universe already within
+* Grateful for the belief that everyone can create music and sing music and share from their filter and their artistic expression and way of connecting with humanity, so in a way artists copy each other but in another way they are bouncing off, re-interpreting, re-sharing, resonating, resoundig, reanalyzing
+* Grateful that stories told are expressions of gratitude for the people that have gone before us and the ways they have loved and expressed life
 
 <br>
 
@@ -5267,6 +5273,9 @@ It's a new day for the sky to open up for you and me
 It's a new day to see with different eyes, see through another's eyes
 
 It's a new day for the wind to breeze and the air to chime 
+It's a new day for the water to glisten on the green green grass
+It's a new day for all the sounds of the earth to lift up into harmony, heaven
+It's a new day for the story to be told and the story to be shared and the story to weave itself through the universe
 
 <br>
 
@@ -5668,6 +5677,11 @@ She's graceful, balanced, life-giving, and free.
 He provides strength and structure.
 He's law-abiding and principled.
 He's eternal, and omnipotent.
+
+<br>
+
+## God Knows Everything ##
+God knows everything you have thought before and desired before and known before. It all belongs to God.
 
 <br>
 
@@ -6700,6 +6714,7 @@ It's the same goal, but different skills.
 It's the same country, but different backgrounds.
 It's the same pattern, but different forms.
 It's the same home, and the same meaning.
+It's the same story, but different voices.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
