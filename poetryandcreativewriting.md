@@ -530,6 +530,13 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for oral story telling and oration
 * Grateful for improv
 * Grateful for Faf and people who share stories well that have been passed down and on
+* Grateful for the work in high school to learn about Senator Kerry and understand how the government works
+* Grateful for love and read about Vice President Kamala Harris and her way of leading
+* Grateful that women know more and can do more than they believe and think they realize because it's all within beneath the self-doubt, all the work is there and they may sell and promote less
+* Grateful for the conversation with Megan
+* Grateful for the woman who does workplace design and workplace art
+* Grateful to sympathize with people anti-LGBTQ
+* Grateful for people who are pro-LGBTQ and the legislation
 
 <br>
 
@@ -3953,6 +3960,7 @@ America is a story of protest.
 America is a story of marching onward, upward and forward.
 America is a story of neighborhood.
 America is a story of country.
+America is a story of struggles.
 
 America is a country of beliefs.
 America is a country of music.
@@ -4071,6 +4079,10 @@ There's someone, there are people behind the trash cans.
 There's someone, there are people behind the post office.
 There's someone, there are people behind the work in churches.
 There's someone, there are people behind the artwork.
+There's someone, there are people behind the psych ward.
+There's soemone, there are people behind the bank accounts.
+There's soemone, there are people behind the homes.
+There's soemone, there are people behind the data.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
@@ -4654,7 +4666,7 @@ You know what you're doing
 You're really fine
 You got it all within
 You are free and whole
-You're mroe able than you realize
+You're more able than you realize
 You have the whole world inside of you
 You're free to love
 You're free to dance
@@ -4665,6 +4677,38 @@ You're the best lady for everyone you meet
 You got it all
 You ahve no need to be jealous
 You're free to be you
+
+<br>
+
+## Hey Strong Man ##
+Hey strong man
+You are amazing
+You've got it all going
+You really know what to do
+You are lovely and caring
+You dare to be the best
+The whole universe surrounds you
+You lift people up
+You laugh well
+You lighten the room
+You're good how you are
+You pump others up
+You're the coolest man there is to know
+You got it all
+You have no need to compete
+You are the best of who you are
+
+<br>
+
+## Dare to Achieve ##
+Dare to achieve.
+Dare to rise up again stronger than you were.
+Dare to push the boundaries.
+Dare to love harder than ever.
+Dare to meet new people.
+Dare to shift the thought forward.
+Dare to accomplish everything envisioned and dreamed.
+Dare to stop doing what is harmful.
 
 <br>
 
@@ -4779,6 +4823,7 @@ I want to know you without words being spoken.
 I want to love you in the peace and quiet.
 I want to feel like it's true love on the other side of the Earth.
 I want to see through the window to your Soul.
+I want to see through different eyes.
 
 <br>
 
@@ -5216,7 +5261,9 @@ Oh it's a new day for the earth to be whole
 and the people to be free
 It's a new day for the flwoers to bloom
 It's a new day for the sky to open up for you and me
-It's a new day to see with different eyes
+It's a new day to see with different eyes, see through another's eyes
+
+It's a new day for the wind to breeze and the air to chime 
 
 <br>
 
