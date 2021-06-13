@@ -5,72 +5,6 @@ layout: default
 ## 2021
 
 ### Books
-#### Interest
-* Cervantes
-* Jorge Louis Borges
-* Shakespeare
-* Robinson Cruesoe
-* The Arabia Nights
-* The Pilgrim's Progress
-* Bipolar Faith
-* The Skeletons in God's Closet
-* Writing Better Lyrics
-* Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
-* Songwriter's Journal (Diary, Notebook) 
-* Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
-* Taylor Swift: In Her Own Words (In Their Own Words) by Helena Hunt
-* Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
-* Country Music Word Search: Book Of Puzzles Celebrating The #1 Songs In Country Music From 1990 Through 1999 - Large Print by Tasket Publications
-* Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
-* Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
-* Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
-* Taylor Swift: A Biography by Emily Harris
-* Dolly Parton, Songteller: My Life in Lyrics by Dolly Parton
-* Cash: The Autobiography by Johnny Cash
-* It's a Long Story: My Life by Willie Nelson
-* I Walked the Line: My Life with Johnny by Vivian Cash
-* What Were We Thinking
-* The Audacity of Hope
-* Dare to Speak
-* Defund Fear
-* Front Row at the Trump Show
-* Impeach
-* The Lexus and the Olive Tree
-* The Undocumented Americans
-* Donald Trump and His Assault on Truth
-* Four Hundred Souls
-* The Women's History of the Modern World
-* A Woman is No Man
-* Recipe for a Perfect Wife
-* Nomadland
-* The Accidental Further Adventures of the 100-Year-Old Man
-* The Woman is No Importance
-* Where the Light Enters
-* Persist
-* A Brief History of Earth
-* Comrpomised
-* Make America Healthy Again
-* Life Isn't Binary
-* [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
-* [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
-* [Dreams of My Father]()
-* Melody in Songwriting: Tools and Techniques for Writing Hit Songs
-* How To Make It in the New Music Business: Practical Tips on Building a Loyal Following and Making a Living as a Musician
-* Smart on Crime: A Career Prosecutor's Plan to Make Us Safer (2009)
-* [Christian Books](https://ncf-jcn.org/resources/books-and-media)
-* Books on Hillary Clinton
-* Books on Bernie Sanders
-* Books on Donald Trump
-* Books on other Women seek Presidential Office
-* Books on Islam, Spain, Africa, and Medieval History
-* Books on Iraq, Afghanistan, and Middle East
-* Age of Ambition: Chasing Fortune, Truth, and Faith in the New China
-* What Would Dolly Do?: How to Be a Diamond in a Rhinestone World by Lauren Marino
-* Dream More: Celebrate the Dreamer in You by Dolly Parton
-* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart
-* Persist
-* While Justice Sleeps: A NovelWhile Justice Sleeps: A Novel
-
 #### Reading
 * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
@@ -115,7 +49,77 @@ layout: default
 * [Lead from the Outside]() by Stacey Abrams
 * [Joe Biden: The Life, The Run, and What Matters Now]() y Evan Osnos
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
-* [Kamala's Way: An American Life](https://www.amazon.com/Kamalas-Way-American-Dan-Morain/dp/1982175761/ref=sr_1_1?dchild=1&keywords=Kamala%27s+way%3A+an+American+life&qid=1623592745&sr=8-1) by Dan Morain
+
+
+#### Interested
+* Cervantes
+* Jorge Louis Borges
+* Shakespeare
+* Robinson Cruesoe
+* The Arabia Nights
+* The Pilgrim's Progress
+* Bipolar Faith
+* The Skeletons in God's Closet
+* Writing Better Lyrics
+* Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
+* Songwriter's Journal (Diary, Notebook) 
+* Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
+* Taylor Swift: In Her Own Words (In Their Own Words) by Helena Hunt
+* Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
+* Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
+* Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
+* Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
+* Taylor Swift: A Biography by Emily Harris
+* Dolly Parton, Songteller: My Life in Lyrics by Dolly Parton
+* Cash: The Autobiography by Johnny Cash
+* It's a Long Story: My Life by Willie Nelson
+* I Walked the Line: My Life with Johnny by Vivian Cash
+* What Were We Thinking
+* The Audacity of Hope
+* Dare to Speak
+* Defund Fear
+* Front Row at the Trump Show
+* Impeach
+* The Lexus and the Olive Tree
+* The Undocumented Americans
+* Donald Trump and His Assault on Truth
+* Four Hundred Souls
+* The Women's History of the Modern World
+* A Woman is No Man
+* Recipe for a Perfect Wife
+* Nomadland
+* The Accidental Further Adventures of the 100-Year-Old Man
+* The Woman is No Importance
+* Where the Light Enters
+* Persist
+* A Brief History of Earth
+* Comrpomised
+* Make America Healthy Again
+* Life Isn't Binary
+* Elvis Presley
+* Stories of Georgia
+* That Old Country Music
+* [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
+* [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
+* [Dreams of My Father]()
+* Melody in Songwriting: Tools and Techniques for Writing Hit Songs
+* How To Make It in the New Music Business: Practical Tips on Building a Loyal Following and Making a Living as a Musician
+* Smart on Crime: A Career Prosecutor's Plan to Make Us Safer (2009)
+* [Christian Books](https://ncf-jcn.org/resources/books-and-media)
+* Books on Hillary Clinton
+* Books on Bernie Sanders
+* Books on Donald Trump
+* Books on other Women seek Presidential Office
+* Books on Islam, Spain, Africa, and Medieval History
+* Books on Iraq, Afghanistan, and Middle East
+* Age of Ambition: Chasing Fortune, Truth, and Faith in the New China
+* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
+* Taylor Swift: The Whole Story
+* Fewer, Better Things: The Hidden Wisdom of Objects by Glenn Adamson
+* Bricks Now & Then: The Oldest Man-Made Building Material (BRAUN) by Chris van Uffelen
+* Stories Of Georgia by Joel Chandler Harris
+* The True Flag: Theodore Roosevelt, Mark Twain, and the Birth of American Empire by Stephen Kinzer
+
 
 ## 2020
 
