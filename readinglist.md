@@ -119,6 +119,9 @@ layout: default
 * Bricks Now & Then: The Oldest Man-Made Building Material (BRAUN) by Chris van Uffelen
 * Stories Of Georgia by Joel Chandler Harris
 * The True Flag: Theodore Roosevelt, Mark Twain, and the Birth of American Empire by Stephen Kinzer
+* Our Time Is Now
+* Begin Again: James Baldwin's America and Its Urgent Lessons for Our Own
+* Into the Wild Paperback by Jon Krakauer  (Author)
 
 
 ## 2020
