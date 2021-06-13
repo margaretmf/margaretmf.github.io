@@ -527,6 +527,9 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for how people across history in the country have used the Bible
 * Grateful for resources on how presidential leaders have studied the Bible
 * Grateful for all of the people outside of the Christian Science schools being educated, expressing faith, and identifying in ways belonging to God but not shared through the conduit and the filter of "Christian Science"
+* Grateful for oral story telling and oration
+* Grateful for improv
+* Grateful for Faf and people who share stories well that have been passed down and on
 
 <br>
 
@@ -3821,6 +3824,10 @@ The purpose of studying history and the humanities is to learn to become a moral
 
 No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day.
 
+The study of history is the study of what has always and already been there, the stories unmasked.
+The study of history is the art of telling stories, and the art of communication.
+In the Newseum, "journalism is the first draft of history".
+
 <br>
 
 ## Tennessee and Nashville ##
@@ -3964,6 +3971,9 @@ There exist different viewpoints on the same thing.
 Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
 
 History is an expression of experiences, individual and collective.
+
+The study of history is the study of what has always and already been there, the stories unmasked.
+The study of history is the art of telling stories, and the art of communication.
 
 <br>
 
