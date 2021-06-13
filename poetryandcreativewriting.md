@@ -543,6 +543,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful that little include everything they need to know about the Holy Spirit and the universe already within
 * Grateful for the belief that everyone can create music and sing music and share from their filter and their artistic expression and way of connecting with humanity, so in a way artists copy each other but in another way they are bouncing off, re-interpreting, re-sharing, resonating, resoundig, reanalyzing
 * Grateful that stories told are expressions of gratitude for the people that have gone before us and the ways they have loved and expressed life
+* Grateful for the Silver Lining
 
 <br>
 
