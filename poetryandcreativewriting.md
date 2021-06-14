@@ -546,6 +546,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the Silver Lining
 * Grateful for Chinese calligraphy and the people from my class in China
 * Grateful for teachers at Norfolk Academy
+* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
 
 <br>
 
@@ -4107,6 +4108,7 @@ When sitting alone in bed, someone on the other side of the world is feeling the
 While I'm walking by a car today I love remembering a moment of walking by a running car in another city.
 While walking by apartments here I love thinking of apartments in another place.
 When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
+When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
 
 It's all one.
 
@@ -4744,6 +4746,13 @@ Dare to stop doing what is harmful.
 
 ## The Wind ##
 The wind knows my name.
+
+<br>
+
+## The Wind ##
+The wind blowing through the Earth calling our names.
+The sounds of the universe speaking to our ears.
+Wind chimes.
 
 <br>
 
