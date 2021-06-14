@@ -544,6 +544,8 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the belief that everyone can create music and sing music and share from their filter and their artistic expression and way of connecting with humanity, so in a way artists copy each other but in another way they are bouncing off, re-interpreting, re-sharing, resonating, resoundig, reanalyzing
 * Grateful that stories told are expressions of gratitude for the people that have gone before us and the ways they have loved and expressed life
 * Grateful for the Silver Lining
+* Grateful for Chinese calligraphy and the people from my class in China
+* Grateful for teachers at Norfolk Academy
 
 <br>
 
@@ -4188,6 +4190,24 @@ There exist many of us humans like there exist many leaves on a tree, many trees
 
 <br>
 
+## Ripple Effect ##
+When you sing, you inspire everyone around you to sing.
+When you read, you inspire everyone around you to read.
+When you dance, you insprie everyone around you to dance.
+When you pray, you inspire everyone around you to pray.
+
+<br>
+
+## We All Look to the Same Universe ##
+We all look to the same sky, moon, stars, and sun.
+We all walk through this earth and look to the trees and the homes.
+The universe is one.
+How does how I see and express differ from how you see and express?
+What makes you you?
+What makes me me?
+
+<br>
+
 ## Start Each Day with a Question ##
 What are you thinking about today?
 How can I listen to God more clearly?
@@ -5277,6 +5297,7 @@ It's a new day for the wind to breeze and the air to chime
 It's a new day for the water to glisten on the green green grass
 It's a new day for all the sounds of the earth to lift up into harmony, heaven
 It's a new day for the story to be told and the story to be shared and the story to weave itself through the universe
+It's a new day for a hand to reach out to reach out a hand
 
 <br>
 
@@ -6459,7 +6480,7 @@ It's one in a million, but it matters.
 It has depth.
 It has grace.
 It has strength.
-It refelcts love.
+It reflects love.
 It's meant to express itself.
 It voices the Truth.
 It inspires people.
