@@ -14,7 +14,6 @@ layout: default
 * [My Sixty Years on the Plains: Trapping, Trading, and Indian Fighting](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1695768930/ref=pd_lpo_14_t_0/140-1164491-0949269?_encoding=UTF8&pd_rd_i=1695768930&pd_rd_r=b4345087-d11f-4ad2-9ec3-64ab247604d2&pd_rd_w=otZJk&pd_rd_wg=ohqCU&pf_rd_p=a0d6e967-6561-454c-84f8-2ce2c92b79a6&pf_rd_r=MHKQFHX5BASM0DW17AHK&psc=1&refRID=MHKQFHX5BASM0DW17AHK) by W. T. Hamilton
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
-* [And Then They Stopped Talking To Me: Making Sense of Middle School]() by Judith Warner
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 
 
@@ -122,6 +121,7 @@ layout: default
 * Our Time Is Now
 * Begin Again: James Baldwin's America and Its Urgent Lessons for Our Own
 * Into the Wild Paperback by Jon Krakauer  (Author)
+* Captivating by John and Stasi Eldridge
 
 
 ## 2020
