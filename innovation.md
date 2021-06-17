@@ -1534,6 +1534,21 @@ is_contact: true
 (4) The creeking of a door behind a phone conversation
 (5) The creeking of trains in the neighborhood
 
+## **Day 90** ##
+### **Images** ###
+(1) Plants in a window
+(2) A jacket in a tree
+(3) Two butterflies flying
+(4) Litter on the street
+(5) Broken glass
+
+### **Sounds** ###
+(1) Backdoors slamming
+(2) Voices talking
+(3) Music playing
+(4) Airplane zooming
+(5) Trash can rolling
+
 <br>
 
 <br>
@@ -1603,6 +1618,14 @@ African music, African land, Cairo
 * Stars, galaxy - a whole galaxy is inside you, all the stars twinkling and shining near you
 * Water flowing through the earth
 * Punctuation Marks, Question Marks
+* A New Day
+* The Lone Bird
+* This is Good for You
+* "Loving Enemies"
+* It's Ok to Cry
+* A relationship on a partnership like the stars
+* Wishing Well, how money moves
+* American Flag song
 
 
 <br>
