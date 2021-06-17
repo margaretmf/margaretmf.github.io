@@ -1,5 +1,22 @@
 ## I love reading the Christian Science Quarterly Bible Lesson and studying it. In the year 2021, I am interacting with it online. ##
 
+## June 17, 2021 - Inspiration ##
+* "Mortal existence is a dream. Mortal existence has no real entity but siath 'It is I.'"
+
+* "The Honor Men
+
+The University of Virginia writes her highest degree on the souls of her sons.
+
+The parchment page of scholarship - the colored ribbon of a soceity - the jeweled emblem of a fraternity - the orange symbol of atheltic prowess - all these, a year hence, will be at the best mementos of happy hours - like the withered flower a woman presses between the pages of a book for sentiment's sake.
+
+But...if you live a long, long time, and hold honesty of conscience and honesty of purse; and turn aside without ostentiation to aid the weak; and treasure ideals more than raw ambition; and track no man to his undeserved hurt; and pursue no woman to her tears; and love the beauty of noble music and mist - veiled mountains and blossoming valleys and great monuments -
+
+If you live a long time and, keeping the faith in all these things hour by hour, still see that the sun gilds your path with real gold and that the moon floats in dream silver; then...remembering the purple shadows of the lawn, the majesty of the colonnades, and the dream of your youth, you may say in reverence and thankfulness:
+
+'I have worn the honors of honor, I graduated from Virginia.'"
+
+by James Hay, Jr., Editor in Chief, Corks & Culrs, 1903
+
 ## May 29, 2021 - Animal Magnetism ##
 * "'In regard to the existence and utility of animal magnetism, we have come to the unanimous conclusions that there is no proof of the existence of the animal magnetic fluid; that the violent effects, which are observed in the public practice of magnetism, are due to manipulations, or to the excitement of the imagination and the impressions made upon the senses; and that there is one more fact to be recorded in the history of the errors of the human mind, and an important experiment upon the power of the imagination.'" (Science and Health with Key to the Scriptures, pp. 100-101)
 
