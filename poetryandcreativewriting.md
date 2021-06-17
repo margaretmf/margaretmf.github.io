@@ -547,6 +547,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for Chinese calligraphy and the people from my class in China
 * Grateful for teachers at Norfolk Academy
 * Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
+* Grateful for people in the neighborhood
 
 <br>
 
@@ -5298,7 +5299,7 @@ I love singing this song in everything I do
 
 Oh it's a new day for the earth to be whole 
 and the people to be free
-It's a new day for the flwoers to bloom
+It's a new day for the flowers to bloom
 It's a new day for the sky to open up for you and me
 It's a new day to see with different eyes, see through another's eyes
 
@@ -5307,6 +5308,9 @@ It's a new day for the water to glisten on the green green grass
 It's a new day for all the sounds of the earth to lift up into harmony, heaven
 It's a new day for the story to be told and the story to be shared and the story to weave itself through the universe
 It's a new day for a hand to reach out to reach out a hand
+
+It's a new day to open your ears to the sounds everywhere
+It's a new day to open your arms to the people everywhere
 
 <br>
 
@@ -5335,6 +5339,68 @@ There's nonstop growth ahead.
 There's always a work in progress.
 Day in and day out.
 It continues forever.
+
+<br>
+
+## Days of the Week ##
+Monday mornings, it's a fresh start
+It's a fresh start, it's time to begin again
+It's time to arise, it's time to go tow ork
+
+It's a Saturday, it's a day for laying around, reading a book, laying on the couch, taking a nap
+
+It's a Sunday
+It's a day for peace, for life, for activities and fun
+
+<br>
+
+## A Face in My Dreams ##
+I remember this face on the other side of the world speaking to me in my sleep, smiling to me in a dram, waking me up to life.
+It came to me in a vision, a vision swirling in my head.
+It was so vivid, it was so real.
+I could see the bright eyes, the mysterious gaze to the other side of the universe, and the whole face.
+She was with other people.
+She was dancing and twirling around.
+She was smiling a mysterious smile.
+SHe was creating a life.
+She was making crafts.
+
+<br>
+
+## There's Another Side ##
+There's a side of me I have yet to know.
+There's a side of you you have yet to know.
+You wake me up to a deeper part ofme within.
+You know just how I need to grow.
+You show me a side of me I need to understand.
+You help me see a side of me that I love.
+I see a deeper side of you I love.
+I can see through to a part of you that cares.
+I know you want what's best for me.
+You know also through the thick of it I care for you so.
+There's more to me I can learn about.
+I love to dig more deeply in this life.
+There's more to you to come to life.
+It is great to see this waken up.
+
+Thank you for being my friend.
+Thank you for lighting me up.
+Thank you for pushing me to change.
+Thank you for helping me freel good about myself.
+Thank you for holding the door.
+Thank you for the concern.
+Thank you for forgiving me.
+
+It would be great to grow with you.
+I want to see us be real.
+I want to love what lights you up.
+I want to learn waht I need to know.
+
+<br>
+
+## Broken Glass ##
+Broken glass, turning into crystals
+THe light shining down, it returns to wholeness
 
 <br>
 
@@ -5468,6 +5534,92 @@ She can hear the beauty of the sounds.
 She can open her eyes to new people in roadside hotels and at gas stations.
 She can cherish the order and harmony of all the cars driving together through mid-day traffic.
 She remembers the long drives from VA through TN and back down to NC.
+
+<br>
+
+## Freedom Fighters ##
+This is a country of freedom fighres
+Daily fightiing for another to live.
+
+<br>
+
+## Gone With the Wind ##
+Gone with the wind to the urts of the past.
+The past moves behind me as the wind blows.
+
+Into the future with the wind that knows my name.
+The wind calls me home and points me to where I always belonged.
+
+The wind sings it's song and knows how to still my heart.
+The wind returns me to where I always once was.
+
+The wind is the breath that has been there forever the same.
+It sweeps through to show how the seasons are change.
+
+With the wind, I feel the breeze and I feel it bring me home.
+It rushes through the whole earth at once and makes me one with all.
+
+The wind, it's always showing me what I need to know.
+
+<br>
+
+## Hand on My Heart ##
+I put my hand on my heart in a nation with two sides of the same coin. The dots all connect. The puzzle pieces all fit. THe 50 states all fit with lines and shapes and rules and boundaries and highways.
+
+We all live in the smae world. We all want to be someone to someone else. THe present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
+
+<br>
+
+## Climb Back Up ##
+You can climb back up even after you fall.
+You can start over from the bottom and think big.
+You can begin again afresh after ending miserably.
+When one ladder moves, there's another ladder to climb.
+
+You can find another route, even after falling off course.
+You can find side doors and detours after missing an exit.
+You can take a turn for the best after taking a turn for the worst.
+You can see the world with different eyes after being blindsided.
+
+You can always take a step back after moving two steps too fast.
+There's a full picture to see and there's an aerial view.
+You can reutrn to where you started when you've gone too far out.
+You can return to whrere you were it's time to go back out.
+
+You can always find a different mountain.
+It's waiting for you to walk up.
+It's the land you belong to.
+You can find the world there.
+
+<br>
+
+## He Was One of Those Guys ##
+He was one of those guys that knows how to make you smile. He walks a mile in another's shoes. He sees thorugh someone else's eyes. He will hear your needs before they ask. He will know just how to reach someone.
+
+<br>
+
+## The Penny ##
+He found a penny on the ground and gave it to af riend.
+'Penny for your thoughts,' he said.
+He was interested in her thoughts.
+He handed over the coin, and she said with a smile 'sometimes love awakens and love moves mountains and love reunites.'
+Then she threw the penny into the well and wished well the people on the earth.
+'I hope they feel loved,' she says.
+'I hope that boy all alone on the bus finds a friend.'
+'I hope that girl smiles to a stranger.'
+'I hope that mom finds the strength within to be herself.'
+'I hope that man is ok with crying.'
+'I hope that dad hugs his child.'
+'I hope that woman finds her dreams met.'
+'It's a beautiful world,' he said, 'thanks for your thoguths, and thanks for your wishes.'
+With a plop, the coin fell into the well with a plop and it touched the water, and the water rippled out.
+This love ripples on and on and on.
+The wishes ripple on and one and on.
+
+<br>
+
+## Tearing Leaves ##
+Tearing leaves and throwing them into the grass.
 
 <br>
 
