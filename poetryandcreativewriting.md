@@ -549,6 +549,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
 * Grateful for people in the neighborhood
 * Grateful for the girls on the bike ride
+* Grateful for the people learning to play the mandolin and enjoying summer camps
 
 <br>
 
@@ -6382,6 +6383,39 @@ The airplane is launching.
 It's going up and up.
 It's lifting higher and higher.It's taking everyone with it.
 
+<br>
+
+## Bloodstain ##
+Red bloodstains on a white counter
+
+<br>
+
+## Leaves ##
+A red leaf on the ground turning to crumbling pieces in a pocket, falling to the ground.
+
+<br>
+
+## City Sounds and Visions ##
+Kids yelling at the pool.
+Lunch orders called.
+Doors slamming.
+Birds calling.
+People eating and smiling.
+Fan running.
+
+These old city sounds -
+the truck running,
+the neighborhood pool yelling,
+the machiens beeping,
+the trai whistles,
+the tic toccing of tools,
+the cars zooming,
+the summer bike rides,
+the letters in the mail,
+the greetings of postal workers and mailman,
+the riverview loft views
+
+<br>
 
 ----------
 
