@@ -6406,8 +6406,8 @@ Fan running.
 These old city sounds -
 the truck running,
 the neighborhood pool yelling,
-the machiens beeping,
-the trai whistles,
+the machines beeping,
+the train whistles,
 the tic toccing of tools,
 the cars zooming,
 the summer bike rides,
