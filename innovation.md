@@ -1549,6 +1549,21 @@ is_contact: true
 (4) Airplane zooming
 (5) Trash can rolling
 
+## **Day 91** ##
+### **Images** ##
+(1) Bloodstain on a white counter
+(2) Masks on a street
+(3) Red cherries on the ground
+(4) A leaf on a jacket
+(5) An American flag reflected through the door
+
+## **Sounds** ##
+(1) Keyboards on keys clicking
+(2) Airplane flying
+(3) Birds chirping
+(4) People talking
+(5) Teeth chattering
+
 <br>
 
 <br>
