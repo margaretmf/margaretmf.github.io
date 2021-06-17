@@ -84,7 +84,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (34 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (35 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 * Take photos of leaves and share interest in how water flows through the Earth
 
@@ -548,6 +548,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for teachers at Norfolk Academy
 * Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
 * Grateful for people in the neighborhood
+* Grateful for the girls on the bike ride
 
 <br>
 
@@ -4816,6 +4817,37 @@ The storm will die down.
 
 <br>
 
+## Chasing ##
+Chasing for nothing.
+CHasing for the love within.
+Chasing for the memories from the past.
+Chasing to live a good day today.
+Chasing for the best inside of you so we can get along, so you can get along.
+Chasing to be understood.
+Chasing for the freedom to move.
+
+<br>
+
+## Stumbling and Falling ##
+He strikes out of the blue
+You won't know he's coming until he's come
+
+She hits without a warning
+You won't see her approaching until she targets
+
+Stumbling and falling and getting back up
+Losing control and finding the peace
+
+Running around and finding that it all fits together
+
+Playing the fool
+Running around crazy
+Doing dumb things
+Doing what you know you shouldn't do
+Crashing down
+
+<br>
+
 ## Let It Go ##
 Let it go.
 Let it shatter into pieces.
@@ -5567,6 +5599,9 @@ The wind, it's always showing me what I need to know.
 I put my hand on my heart in a nation with two sides of the same coin. The dots all connect. The puzzle pieces all fit. THe 50 states all fit with lines and shapes and rules and boundaries and highways.
 
 We all live in the smae world. We all want to be someone to someone else. THe present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
+
+*It's a grand old flag, it's a high flying flag*
+Nothing like that good old flag waving on old porches and construction sites
 
 <br>
 
