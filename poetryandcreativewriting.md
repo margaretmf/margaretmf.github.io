@@ -4112,6 +4112,7 @@ While I'm walking by a car today I love remembering a moment of walking by a run
 While walking by apartments here I love thinking of apartments in another place.
 When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
 When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
+When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
 
 It's all one.
 
@@ -4405,6 +4406,10 @@ The work of engineering, a career of singing, and nature, and where the construc
 ## An Aerial View ##
 At the moment of death and wanting to escape the weight of this physical existence, thought lifts up. Thought lifts up and flies freely up above with an inner sight lifts into the sky. Thought lifts up so that it feels like mentally flying above and seeing the whole city, all the mountains, all the clouds from up above. Everything can be seen from a birds-eye view. Everything moves down below. A beautiful scenery down below. Inner freedom, freedom from the entrapment of the physicality. Living fully inwardly in the sky like a bird mentally.
 
+Airplanes shooting in the sky
+White trails
+Sailing above it all
+
 <br>
 
 ## Trash ##
@@ -4413,6 +4418,17 @@ The things to dispose of and throw away.
 The containers empties of the substance to digest.
 The leftover goods, the pouring over of used goods.
 The things that can be reused and recycled to create something new.
+
+<br>
+
+## Traffic Signals ##
+Walking to the streetlight
+I see a woman in the car sitting poised
+with the right blinker on, signaling a turn.
+
+Walking across the bridge
+I see the line of peopels' cars in afternoon rush hour
+with lights shining on the back of them all.
 
 <br>
 
@@ -4557,6 +4573,44 @@ The light in the darkness it's so strong
 
 <br>
 
+## Serpents ##
+Serpents attacking her in her sleep.
+Snakes coming out of her mouth.
+It's attacking.
+It's creepy.
+It's weird.
+It's cruel.
+This cruel cruel world hitting us hard.
+It's a cruel cruel world of hardship and pain.
+
+<br>
+
+## It's Ok to Cry ##
+It's ok to cry when left alone.
+It's ok to cry when unsure.
+It's ok to cry when hitting the wall.
+It's ok to cry, and it's ok to cry cry cry alone.
+
+It's ok to cry when you've failed.
+It's ok to cry when you've shared too much.
+It's ok to cry when she's hurt you.
+It's ok to cry, and it's ok to cry cry cry alone.
+
+It's ok to cry when no one cares.
+It's ok to cry when you're stuck once again.
+It's ok to cry when the script has flipped.
+It's ok to cry, and it's ok to cry cry cry alone.
+
+Someone will be there to pick you up.
+Someone will be there to say it's ok.
+Someone will be there to wipe off your tears.
+Someone will be there to share a sweet smile.
+Someone will be there to answer your plea.
+Someone will be here with just the right words.
+Someone will be there who understands.
+Someone will be there to open the door.
+Someone will be there to let you in.
+
 ## Smile ##
 There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
 
@@ -4641,6 +4695,9 @@ I want to fly.
 I want to see the aerial view.
 I want to look down below and see all thel and and all the flickering lights.
 
+Airplanes shooting in the sky
+Trains of white trailing
+
 <br>
 
 ## The Lone Bird ##
@@ -4677,6 +4734,16 @@ The lone bird swoops down to hover the river.
 The lone bird feathering her wings above the water.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
+
+<br>
+
+## The Church Bells ##
+The church bells are ringing.
+You can hear them through the universe.
+In this kissing of the hearts I hear the bells echoing out from you to me and through to the churhc.
+In this oneness with a lvoe so deep I feel this sacredness within.
+
+Churches everywhere, trees reflecting through windows
 
 <br>
 
@@ -4756,6 +4823,17 @@ The wind knows my name.
 The wind blowing through the Earth calling our names.
 The sounds of the universe speaking to our ears.
 Wind chimes.
+
+The wind will move you forward.
+The wind will sing your praises.
+The wind will spread your truth.
+The wind will lift like eagles' wings.
+
+<br>
+
+## The Wind ##
+The wind moving my hair and blowing my face.
+The wind sweeping across the land with the leaves.
 
 <br>
 
@@ -5632,6 +5710,8 @@ You can find the world there.
 ## He Was One of Those Guys ##
 He was one of those guys that knows how to make you smile. He walks a mile in another's shoes. He sees thorugh someone else's eyes. He will hear your needs before they ask. He will know just how to reach someone.
 
+His eyes are so deep they see to the heart.
+
 <br>
 
 ## The Penny ##
@@ -6122,6 +6202,24 @@ Dropping the narrative that I have made a mistake. Taking on the narrative that 
 
 <br>
 
+## Eternity is a Concept ##
+"Eternity" is a concept that can be expresed through different ways, and can mean broader and higher things relating to time, place, and mankind.
+
+Collective sunrise, and collective sunset
+
+<br>
+
+## People are Good ##
+People are good.
+Your people are everywhere, "Oh Lord".
+
+<br>
+
+## Culture, Soul ##
+Culture is rooted in Soul. Music is Soul. Culture Wars. There is no culture war in Soul.
+
+<br>
+
 ## Healing from Abuse, both the Abused and the Abuser ##
 There was no reason to be jealous.
 You have it all within, sister.
@@ -6138,6 +6236,8 @@ You look like you have it all
 I have a lot going also
 No one needs to be picture perfect
 Just one day at a time recognize the goodness within
+
+Who doesn't love their brown-haired sisters?
 
 <br>
 
@@ -6376,6 +6476,10 @@ It's constantly recycling.
 Every day a light bulb turns off and a light bulb turns on.
 Every day something is thrown out, and something is reborn or recreated.
 
+Turn on the light, and the answer is there.
+Flip the script, and the whole is in place.
+Shift the perspective, and there is something fitting underneath.
+
 <br>
 
 ## The Airplane ##
@@ -6459,6 +6563,8 @@ It warms our faces equally in different seasons,
 Imagine all the people we live with sharing smiles, a laugh, an exchange, forgiveness while looking up to this same Sun,
 Seeing a friend in everyone, loving everyone's view.
 
+Collective sunrise and collective sunset
+
 <br>
 
 
@@ -6528,6 +6634,8 @@ All the colors of the universe are embraced as one.
 For 365 days a year, the Sun lights up the Earth like the love that lights up our hearts.
 People sing with their full hearts and sing their own tunes.
 I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
+
+Collective sunrise and collective sunset
 
 <br>
 
@@ -6641,6 +6749,8 @@ The world is open for me to spend my money and bless the world.
 2 buckles.
 4 pennies.
 
+*"In ancient times, coins and the copper ensured infenctious-clear water."
+
 <br>
 
 ## Stars Twinkling At Each Other ##
@@ -6659,6 +6769,11 @@ They are all loving each other like bright lights glowing, and flickering.
 --They can see the start of a new friendship.
 --It's like all the other stars in the sky sharing the light and love
 --In a universal dance of peace, love, and joy.
+
+<br>
+
+## A Knot on the Floor ##
+A knot on the floor, where has it been?
 
 <br>
 
