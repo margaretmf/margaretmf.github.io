@@ -550,6 +550,9 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for people in the neighborhood
 * Grateful for the girls on the bike ride
 * Grateful for the people learning to play the mandolin and enjoying summer camps
+* Grateful for people running outside in Washington, DC and staying motivated
+* Grateful for Bible lessons and quizzes on Social Media and Instagram
+* Grateful for work around LGBTQA+
 
 <br>
 
