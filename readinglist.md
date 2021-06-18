@@ -78,6 +78,60 @@ layout: default
 * Dare to Speak
 * Defund Fear
 * Front Row at the Trump Show
+* Accidentally Wes Anderson
+* The Golden Thread
+* Shiloh (children's book)
+* Boone: A Biography
+* A Place for Everything
+* Spanish Novels: Pasaje de Ida
+* Thank You for Arguing, Fourth
+* Romanticism: A Very Short
+* Nashville: Scenes from the New
+* The War on Normal People
+* Jim Bridger: Mountain Man
+* The Age of Gold: The California
+* America's First Highways
+* Divided Highways: Building the Interstate Highways, Transforming American Life
+* Yesterday's Highways (America's Historic Highways)
+* The American Highway: The History and Culture of Roads in the United States
+* Highway 99: The History of California's Main Street (California's Historic Highways, 1)
+* The Beartooth Highway: A History of America S Most Beautiful Drive
+* U.S. 23 Country Music Highway: The History, The Towns, and The Artists
+* The Age of Wood
+* Remarkable Diaries
+* Hidden in the Mix: The African American Presence in Country Music
+* The African-American Century : How Black Americans Have Shaped Our Country
+* Black Power and Palestine: Transnational Countries of Color (Stanford Studies in Comparative Race and Ethnicity)
+* The Hero with a Thousand Faces (The Collected Works of Joseph Campbell)
+* The Cafe on the Edge of the World: A Story About the Meaning of Life
+* Hotter Than a Pepper Sprout: A Hillbilly Poet's Journey From Appalachia to Yale to Writing Hits for Elvis, Johnny Cash & More
+* Sam Phillips: The Man Who Invented Rock 'n' Roll
+* Elvis in Arkansas
+* Have a Little Faith: The John Hiatt Story
+* Americanaland: Where Country & Western Met Rock 'n' Roll (Music in American Life)
+* Country Music Icons: The Lives and Careers of Gene Autry, Roy Rogers, Hank Williams, Johnny Cash, and Dolly Parton
+* American Legends: The Life of Johnny Cash
+* West Memphis
+* Stephen Miller: The Million Dollar Quartet
+* A Guide to Historic Downtown Memphis (History & Guide)
+* Good Rockin' Tonight: Sun Records and the Birth of Rock 'N' Roll
+* American Legends: The Life of Dolly Parton
+* Coal Miner's Daughter
+* The Train Kept A-Rollin: How The Train Song Changed The Face Of Popular Music
+* It Still Moves: Lost Songs, Lost Highways, and the Search for the Next American Music
+* Willie Nelson: The Outlaw
+* Waylon: An Autobiography
+* American Legends: The Life of Willie Nelson
+* Memphis Going Down: A Century of Blues, Soul and Rock 'n' Roll
+* Chasing Fireflies: An Englishman's Recollection of Travelling through America in 1974
+* Sweet Soul Music: Rhythm and Blues and the Southern Dream of Freedom
+* Last Train to Memphis: The Rise of Elvis Presley
+* Blood and Treasure: Daniel Boone and the Fight for America's First Frontier
+* Baby, Let's Play House: Elvis Presley and the Women Who Loved Him 
+* Dream Boogie: The Triumph of Sam Cooke
+* Theater of a Separate War: The Civil War West of the Mississippi River, 1861–1865 (Littlefield History of the Civil War Era)
+* Thrilling Incidents of the Indian War of 1862: Being a Personal Narrative of the Outrages and Horrors Witnessed by Mrs. L. Eastlick in Minnesota (1864)
+* Kentucky's Bluegrass (KY) (Postcard History Series)
 * Impeach
 * The Lexus and the Olive Tree
 * The Undocumented Americans
