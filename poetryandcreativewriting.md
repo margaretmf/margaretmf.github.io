@@ -553,6 +553,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for people running outside in Washington, DC and staying motivated
 * Grateful for Bible lessons and quizzes on Social Media and Instagram
 * Grateful for work around LGBTQA+
+* Grateful to gain a more enlightened view of the country
 
 <br>
 
