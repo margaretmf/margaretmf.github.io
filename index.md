@@ -25,13 +25,13 @@ I am exploring how to sketch and how to use visual arts to share history and cul
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
 
-I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. Currently, I am researching themes in books like Oneness, Unity, Faith in Politics, Women's roles in Elections, the Story of America, Black lives' roles, Republican-Democratic party dynamics, and what the American States are. I also love exploring how people create music.
+I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. Currently, I am researching themes in books like oneness, unity, faith in politics, women's role in elections, the story of America, black lives' roles, republican-democratic party dynamics, and what the American States are. I also love exploring how people create music.
 
-**Me amo trabajando en fotografia de la luz en la oscuridad, la bandera de los Estados Unidos, las hojas, las ventanas, las puertas, los objetos cotidianos en la naturaleza, y las cosas. En este momento, estoy...** researching
+**Me amo trabajando en fotografia de la luz en la oscuridad, la bandera de los Estados Unidos, las hojas, las ventanas, las puertas, los objetos cotidianos en la naturaleza, y las cosas. En este momento, investigando los temas en los libros como la Unidad, la unión, la fe en las ciencias políticas, papel de la mujer en las elecciones, la historida de America, las vidas de los afroamericanos, la dinámica republicano-democrática del partido, y qué son los Estados americanos. Me amo explorando cómo la gente crea música.**
 
 With a love for writing, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry.
 
-**Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico. **
+**Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico.**
 
 Little children are healing, organizing things gives me life, and expressing good cheer in the Post Office, in the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
 
