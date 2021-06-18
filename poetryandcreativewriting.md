@@ -6187,7 +6187,7 @@ It expands out into the community that
 unfolds forever and ever
 in love, one remain
 Thank you for your structure, and overlapping spheres, oh Lord,
-You manitain our spheres as the stars that shine
+You maintain our spheres as the stars that shine
 Thank you, God, for always being with us.
 
 <br>
