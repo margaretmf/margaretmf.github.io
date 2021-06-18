@@ -3775,6 +3775,7 @@ Composing music expresses both the head and the heart, and writing songs helps t
 * "What a Wonderful World" --- **interested in writing and composing a song called 'A New Day' inspired by this**
 
 * "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
+* "He" - Tammy Wynette, interested in these lyrics
 
 * "Jailhouse Rock" --- **interested in female version of this song**
 * "Folsom Prison Blues" --- **interested in female version of this song**
