@@ -27,7 +27,7 @@ I am exploring how to sketch and how to use visual arts to share history and cul
 
 I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. Currently, I am researching themes in books like Oneness, Unity, Faith in Politics, Women's roles in Elections, the Story of America, Black lives' roles, Republican-Democratic party dynamics, and what the American States are. I also love exploring how people create music.
 
-**Me amo trabajando... **
+**Me amo trabajando en fotografia de la luz en la oscuridad, la bandera de los Estados Unidos, las hojas, las ventanas, las puertas, los objetos cotidianos en la naturaleza, y las cosas. En este momento, estoy...** researching
 
 With a love for writing, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry.
 
