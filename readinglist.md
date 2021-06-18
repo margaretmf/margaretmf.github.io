@@ -72,6 +72,8 @@ layout: default
 * Dolly Parton, Songteller: My Life in Lyrics by Dolly Parton
 * Cash: The Autobiography by Johnny Cash
 * It's a Long Story: My Life by Willie Nelson
+* Sweethearts of Montana: Mail Order Bride Western Romance 7 Book Box Set
+* Looking to Get Lost: Adventures in Music and Writing 
 * I Walked the Line: My Life with Johnny by Vivian Cash
 * What Were We Thinking
 * The Audacity of Hope
@@ -85,6 +87,10 @@ layout: default
 * A Place for Everything
 * Spanish Novels: Pasaje de Ida
 * Thank You for Arguing, Fourth
+* How the Post Office Created America: A History
+* Express, Mail & Merchandise Service
+* The Swayne Lumber Company: Narrow gauge logging in the Merrimac Forest
+* First mail west;: Stagecoach lines on the Santa Fe Trail,
 * Romanticism: A Very Short
 * Nashville: Scenes from the New
 * The War on Normal People
