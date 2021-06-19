@@ -574,6 +574,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for good leaders
 * Grateful the people in the Middle East and to understand the Arab world better
 * Grateful for support from my sister
+* Grateful for liberal arts thinking
 
 <br>
 
