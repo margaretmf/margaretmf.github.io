@@ -556,6 +556,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful to gain a more enlightened view of the country
 * Grateful for a healthy car ride and a healthy dinner
 * Grateful for singing with my sister
+* Grateful to understand what Revisionist history is
 
 <br>
 
@@ -3820,6 +3821,8 @@ Music is one form of cultural expression. Intuitively, music shares with people 
 How does African, Chinese, and European fairytales from medieval period influence country music?
 How does Shakespeare influence country music?
 What is the connection between V, MT, Kentucky, TN, NC, and WV?
+Old Hymns - "He is leading me" vs. "She is leading me"
+"She" in country music
 
 <br>
 
@@ -4143,6 +4146,7 @@ While walking by apartments here I love thinking of apartments in another place.
 When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
 When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
 When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
+When running down a trail here I think of running down trails in other places in TN and DC.
 
 It's all one.
 
@@ -4847,6 +4851,8 @@ The lone bird scurrying through the grass.
 The lone grey bird expanding her wings.
 The lone bird swoops down to hover the river.
 The lone bird feathering her wings above the water.
+The big lone bird standing on the grass nea rhte farm holding her poise.
+The lone bird skating on ice.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
 
@@ -4859,6 +4865,35 @@ In this kissing of the hearts I hear the bells echoing out from you to me and th
 In this oneness with a lvoe so deep I feel this sacredness within.
 
 Churches everywhere, trees reflecting through windows
+
+<br>
+
+## Night Hours ##
+Night hours.
+When you can't fully see.
+There's the light in the darkness, saying "I can trust in you."
+The flickering lights. They are everywhere like the fairie dust.
+You don't know what's on the other side, but something is there to greet you iwht love, a surprise, the answer that was there all along.
+The crickets, the creeking of the railroad in the dark evening night.
+
+<br>
+
+## Stars ##
+All these stars in the midnight sky
+They glisten and glow
+They grow and glitter
+They are crystal clear
+They are the yellow-white silence of the night
+With the cars driving by, the zooms on the highway, and the crickets singing and hummingtheir songs, the stars are white, graceful, a symphony, a dance, a waltz in the sky.
+
+They know their names and yours.
+They sit still up there.
+They sparkle.
+They guide me, they guide me to the light, to your glory, to your beauty.
+They remind me of the peace, and the reason to live.
+
+## Leaves ##
+Everything you thought you knew falls off like the dead leaves on trees.
 
 <br>
 
@@ -4929,6 +4964,14 @@ You have no need to compete
 You are the best of who you are
 
 <br>
+
+## His Hands ##
+His hands are running into the ground.
+He's got a hold of all four corners of the universe.
+He's been down these roads.
+He's blazed these trails.
+They are for all to find.
+He wants them known.
 
 ## Dare to Achieve ##
 Dare to achieve.
@@ -5031,6 +5074,19 @@ The red dirt on the side of the road.
 The gold-yellow haystack needles.
 The yellow brown dirt on the road.
 The smell of fresh grass.
+
+<br>
+
+## Old Farm Road ##
+An old farm road with a fence that goes up for miles, mailboxes, and rusted wire.
+
+<br>
+
+## Rocky Road ##
+It's been a rocky road
+a rough start
+painful memories
+overcoming
 
 <br>
 
@@ -5823,6 +5879,8 @@ We all live in the same world. We all want to be someone to someone else. THe pr
 
 It's a land of many.
 It's a country created by trailblazers.
+
+It's a tale of two sides both fighting for freedom.
 
 *It's a grand old flag, it's a high flying flag*
 Nothing like that good old flag waving on old porches and construction sites
