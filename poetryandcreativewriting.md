@@ -557,6 +557,23 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for a healthy car ride and a healthy dinner
 * Grateful for singing with my sister
 * Grateful to understand what Revisionist history is
+* Grateful to feel free at the pool
+* Grateful for all the little kids at the pool
+* Grateful for true womanhood expressed
+* Grateful for my brother's piano playing
+* Grateful for the pop music
+* Grateful for all the people at Milestones
+* Grateful for all the way people express liberal arts and innovative thinking
+* Grateful for people enjoying their summers with good drinks
+* Grateful for Nam and Faf
+* Grateful for good artwork
+* Grateful for the painting of walls in the bathroom
+* Grateful for inspiration
+* Grateful for healthy advice
+* Grateful to feel like my authentic self at work
+* Grateful for good leaders
+* Grateful the people in the Middle East and to understand the Arab world better
+* Grateful for support from my sister
 
 <br>
 
