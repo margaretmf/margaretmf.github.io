@@ -40,7 +40,7 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 
 ## The American Chain, Edited in 2021 ##
 As a child, I grew up singing *I Am proud to be an American* as many of my peers did. I did not know what it meant to be an American as deeply as recently though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (pp. 11-12, 329).
-
+z
 A little over a year ago, in February 2008, I went to the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech, the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
 
 I had a similar experience in October 2008 when I went to another Barack Obama rally at the Tides' Stadium one week before the election. This event strengthened my love of being present in a community of Americans. Everyone had to behave and work together in the thirty degree weather to make the rally successful. Once again, each person I saw expressed friendliness and happiness. People stood in line patiently for hours before entering the stadium. Friends and neighbors helped each other when rushing through security. Volunteers gave their time to guide people to open seats.
@@ -84,7 +84,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (35 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (36 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
 * Take photos of leaves and share interest in how water flows through the Earth
 
@@ -555,6 +555,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for work around LGBTQA+
 * Grateful to gain a more enlightened view of the country
 * Grateful for a healthy car ride and a healthy dinner
+* Grateful for singing with my sister
 
 <br>
 
@@ -3764,6 +3765,10 @@ Composing music expresses both the head and the heart, and writing songs helps t
 
 <br>
 
+I've said these words, I struggle with feeling like I'm copying other more established musicians. My family is from TN, and some music unveiled to me the connection between the South and the West Some women sometimes don't know as much about political and cultural history, and music, an intuitive form of expression helps to teach that when combined with books and curiosity.
+
+<br>
+
 ## Top Songs ##
 * "Be Thou My Vision"
 * "Lo, How a Rose Ere Blooming"
@@ -3808,6 +3813,13 @@ Popular culture speaks subtly. One must think to understand different perspectiv
 
 ## Music ##
 Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
+
+<br>
+
+## Influences on Music ##
+How does African, Chinese, and European fairytales from medieval period influence country music?
+How does Shakespeare influence country music?
+What is the connection between V, MT, Kentucky, TN, NC, and WV?
 
 <br>
 
@@ -3913,6 +3925,12 @@ Being an everyday common citizen on the road, part of the E Pluribus Unum.
 
 <br>
 
+## Blue and Green Mountains ##
+These blue and green mountains I am destined for.
+It's heavenly to look to.
+
+<br>
+
 
 ----------
 
@@ -3991,6 +4009,9 @@ America is a system of expression, the reverse of oppression.
 America is a country of healthy conversations.
 America is a country of people who love nature.
 America is a country of neighborhoods.
+America is a country of trailblazers.
+
+America is a land of many.
 
 Some believe history is objective. Some believe history is subjective.
 There exist different viewpoints on the same thing.
@@ -4210,6 +4231,10 @@ When you sing, you inspire everyone around you to sing.
 When you read, you inspire everyone around you to read.
 When you dance, you insprie everyone around you to dance.
 When you pray, you inspire everyone around you to pray.
+
+Plop in the water and then it ripples out
+A drop in the water ripples out
+It's quiet, and graceful, and peaceful, and flowing
 
 <br>
 
@@ -4621,6 +4646,23 @@ Take the time to pause and stop the broken record.
 
 <br>
 
+## Playing the Fool ##
+Making things worse.
+Playing the fool.
+Doing dumb things. 
+Being exposed, exposing oneself.
+
+<br>
+
+## The Mask ##
+You're not the mask.
+The comes off.
+It's a game of make-believe and pretend.
+Masking the hurts and the pain.
+You're so much more than that.
+
+<br>
+
 ## Serpents ##
 Serpents attacking her in her sleep.
 Snakes coming out of her mouth.
@@ -4855,6 +4897,19 @@ You're free to be you
 
 <br>
 
+## Hey Man ##
+Hey honey, you're amazing.
+you really got it under control.
+You knew my every need before I asked.
+You knew just how to get things done on time.
+
+Hey love, you're the man.
+You know how to reach my heart.
+I feel you tuning in.
+You're so on point every time.
+
+<br>
+
 ## Hey Strong Man ##
 Hey strong man
 You are amazing
@@ -4966,6 +5021,16 @@ There's a way.
 The ocean is always moving.
 The water is always stirring.
 The storm will die down.
+
+<br>
+
+## Red Dirt ##
+The red dirt reflected through the water.
+The red dirt tracks.
+The red dirt on the side of the road.
+The gold-yellow haystack needles.
+The yellow brown dirt on the road.
+The smell of fresh grass.
 
 <br>
 
@@ -5496,6 +5561,8 @@ It's a new day for a hand to reach out to reach out a hand
 It's a new day to open your ears to the sounds everywhere
 It's a new day to open your arms to the people everywhere
 
+It's a new day to think a different thought, and discover something new
+
 <br>
 
 ## Day In and Day Out ##
@@ -5745,12 +5812,17 @@ It rushes through the whole earth at once and makes me one with all.
 
 The wind, it's always showing me what I need to know.
 
+With the wind and the breeze, the leaves sprinkle and dance and spin around in the air, around the tree and fall off.
+
 <br>
 
 ## Hand on My Heart ##
 I put my hand on my heart in a nation with two sides of the same coin. The dots all connect. The puzzle pieces all fit. THe 50 states all fit with lines and shapes and rules and boundaries and highways.
 
-We all live in the smae world. We all want to be someone to someone else. THe present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
+We all live in the same world. We all want to be someone to someone else. THe present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
+
+It's a land of many.
+It's a country created by trailblazers.
 
 *It's a grand old flag, it's a high flying flag*
 Nothing like that good old flag waving on old porches and construction sites
@@ -6640,6 +6712,9 @@ Seeing a friend in everyone, loving everyone's view.
 
 Collective sunrise and collective sunset
 
+It's always rotating, always shifting
+See new things, discover new things
+
 <br>
 
 
@@ -7158,6 +7233,7 @@ It's the same pattern, but different forms.
 It's the same home, and the same meaning.
 It's the same story, but different voices.
 It's the same feelings, but different problems.
+It's the same music, but different tones.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
