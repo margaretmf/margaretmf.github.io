@@ -554,6 +554,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for Bible lessons and quizzes on Social Media and Instagram
 * Grateful for work around LGBTQA+
 * Grateful to gain a more enlightened view of the country
+* Grateful for a healthy car ride and a healthy dinner
 
 <br>
 
@@ -4048,6 +4049,9 @@ Books help people understand what they cannot understand.
 In God we trust, each day, in all of our business activites. It's amazing that people in the business world have faith and know God. It's on the dollar bill.
 They say, 'money doesn't grow on trees.'
 
+In God We Trust
+Leaves turn Gold
+
 <br>
 
 
@@ -4578,6 +4582,45 @@ The light in the darkness it's so strong
 
 <br>
 
+## Whirlwind ##
+Losing it all in the whirlwind.
+Going crazy.
+Spinning in circles in the hotel motel.
+It's all falling to pieces.
+It's like a storm brewing.
+The yanking and the pulling.
+The pushing and the hitting.
+The kicking and the screaming.
+The world pushing me around.
+The world spinning me around.
+The world pushing me down.
+The world beating me up.
+It's a cruel, cruel world for sure.
+I can be cruel.
+You can be cruel.
+We can all be cruel, and we can all be kind.
+The world pushing me around.
+I've said this a million times.
+I'll say it again just a little bit louder.
+I sound like a broken record.
+It's on repeat.
+All these concerns.
+All these pain points.
+They keep showing up.
+I try to explain myself.
+I try to understand.
+I repeat myself.
+The depest wounds.
+It's a broken record.
+Ignored. Rejected. Denied. Unheard.
+Do you hear me?
+Change the tone.
+Switch the chord.
+Shift the tune.
+Take the time to pause and stop the broken record.
+
+<br>
+
 ## Serpents ##
 Serpents attacking her in her sleep.
 Snakes coming out of her mouth.
@@ -4623,6 +4666,31 @@ There's a reason to smile today. Appreciate the smiles you see from people. Ther
 
 ## The Seed Within ##
 The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
+
+<br>
+
+## It's Not About Me ##
+It's not about me.
+It's about the girl next door kinder than me.
+It's about the girl in class struggling more than me.
+It's about me too.
+
+It's not about me.
+It's about everyone.
+It's about my mom. It's about my grandmom.
+It's about us, and it's on all of us.
+
+It's not about me.
+It's about him.
+It's about me helping him.
+It's not about me.
+It's about him, and it's on us.
+
+It's about all of us.
+We're all helping each other.
+It's on us, and it's about all of us.
+We're all heping each other rise higher.
+All of us rising stronger and wiser.
 
 <br>
 
@@ -5686,6 +5754,8 @@ We all live in the smae world. We all want to be someone to someone else. THe pr
 
 *It's a grand old flag, it's a high flying flag*
 Nothing like that good old flag waving on old porches and construction sites
+
+It's a union where there's two sides to the same story, the same whole.
 
 <br>
 
@@ -7087,6 +7157,7 @@ It's the same country, but different backgrounds.
 It's the same pattern, but different forms.
 It's the same home, and the same meaning.
 It's the same story, but different voices.
+It's the same feelings, but different problems.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
@@ -7098,6 +7169,8 @@ It's like a river flowing.
 ## It's One in the Same ##
 It's one in the same.
 It's two sides of the same coin.
+
+It's a union where there's two sides to the same story, the same whole.
 
 <br>
 
