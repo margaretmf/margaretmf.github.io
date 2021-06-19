@@ -3792,6 +3792,7 @@ I've said these words, I struggle with feeling like I'm copying other more estab
 * "Folsom Prison Blues" --- **interested in female version of this song**
 * "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
 * [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
+* "Man in Black" --**interested in this song**
 
 * "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
 
@@ -4126,9 +4127,9 @@ There's someone, there are people behind the post office.
 There's someone, there are people behind the work in churches.
 There's someone, there are people behind the artwork.
 There's someone, there are people behind the psych ward.
-There's soemone, there are people behind the bank accounts.
-There's soemone, there are people behind the homes.
-There's soemone, there are people behind the data.
+There's someone, there are people behind the bank accounts.
+There's someone, there are people behind the homes.
+There's someone, there are people behind the data.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
@@ -4611,6 +4612,25 @@ The light in the darkness it's so strong
 
 <br>
 
+## He's An Old Time Boy ##
+He's an old time boy
+He's been here for so many incarnations
+Many lifetimes he's reborn on this planet
+He has come to wake up to the destiny of life
+He's here for the true glory
+He's here to help
+He's here to share a good laugh and a smile
+
+<br>
+
+## Woman in Black ##
+I'm the one who turned into the girl wearing all black.
+The girl in black. That's who I beecame.
+I wear it for the women working to be bold.
+I wear it for the women being strong in a man's world.
+I wear it for the run-down and the weary.
+I wear it to show this sentiment of depression.
+
 ## Whirlwind ##
 Losing it all in the whirlwind.
 Going crazy.
@@ -4771,11 +4791,11 @@ This is good for you. This is not bad.
 
 ## Your Enemy Is Your Friend ##
 You thought you had an enemy
-You reall had a friend in disguise
+You really had a friend in disguise
 You thought you were being laughed at 
 You reall were being taught a powerful lesson
 The light in the darkness, it's so strong and true
-THis experience is good for you
+This experience is good for you
 
 <br>
 
@@ -4942,6 +4962,17 @@ Hey love, you're the man.
 You know how to reach my heart.
 I feel you tuning in.
 You're so on point every time.
+
+<br>
+
+## It's Not a Love Triangle ##
+It's not a love triangle.
+She's not your babe.
+She's the girl you're supposed to know.
+She's the girl you're supposed to love.
+She's the girl who will help you grow in ways you never knew you should.
+She's that girl on the outskirts who knows how to help you when you've fallen.
+She's fallen too so don't worry she needs help getting back up.
 
 <br>
 
@@ -7147,6 +7178,12 @@ I'm making a scene.
 It's so funny to watch, it's so funny to ridicule and condemn.
 I can't read between the lines.
 I was falling for it.
+
+<br>
+
+I love how you know just how to light up the darkness when there's a need for a joke.
+This god damn tease, it yanks at my heart.
+This true love runs deeper than the surface, as deep as a river flowing from me to you.
 
 <br>
 
