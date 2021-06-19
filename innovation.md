@@ -1564,6 +1564,21 @@ is_contact: true
 (4) People talking
 (5) Teeth chattering
 
+## **Day 92** ##
+### **Images** ###
+(1) Rusted wire
+(2) Leaves on the trail
+(3) Three blackbirds outside
+(4) Window in a window
+(5) White paint
+
+### **Sounds** ##
+(1) Truck sounds
+(2) Family voices
+(3) Tires hitting the road
+(4) Crickety machines
+(5) An airplane in the sky
+
 <br>
 
 <br>
