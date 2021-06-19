@@ -179,7 +179,11 @@ layout: default
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
-
+* Respect Yourself: Stax Records and the Soul Explosion
+* Johnny Cash, by Robert Hilburn 
+* Roads to Berlin, by Cees Nooteboom, translated from the Dutch by Laura Watkinson 
+* The Fata Morgana Books, by Jonathan Littell, translated from the French by Charlotte Mandell (Two Lines)
+* The Book of Circles: Visualizing Spheres of Knowledge
 
 ## 2020
 
