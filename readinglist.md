@@ -100,6 +100,31 @@ layout: default
 * The Cafe on the Edge of the World: A Story About the Meaning of Life
 * Hotter Than a Pepper Sprout: A Hillbilly Poet's Journey From Appalachia to Yale to Writing Hits for Elvis, Johnny Cash & More
 * Sam Phillips: The Man Who Invented Rock 'n' Roll
+* Adair's History of the American Indians, James Adair
+* Diary of Drury Armstrong, 1846-1846, Drury Armstrong
+* Travels through North and South Carolina, Georgia and East and West Florida, the Cherokee Country, etc., William Bartram
+* The Travels of William Bartram, William Bartram
+* A Treasury of Southern Folklore: Stories, Ballads, Traditions, and Folkways of the People of the South, B.A. Botkin
+* Life As It Is Or Matters and Things in General, J. W. M. Breazeale
+* Tellico Archeology: 12,000 Years of Native American History, Jefferson Chapman
+* The Wilderness Road, The First Family and Other Stories That Need to be Told, Ken Coffey
+* The Tennesse, The Old River: Frontier to Secession, Donald Davidson
+* Strangers in High Places: The Story of the Great Smoky Mountains, Michael Frome
+* Engineers on the Twin Rivers, Lelan R. Johnson
+* Footprints Across the South: Bartram's Trail Revisited, James Kautz
+* The Wilderness Road, Robert Kincaid
+* The Prehistory of Chickamauga Basin in Tennessee, T. M. N. Lewis
+* Myths of the Cherokee and Sacred Formulas of the Cherokee, James Mooney
+* The Death of Meriwether Lewis, J. H. Moore
+* The Annals of Tennessee: TO the End of the Eighteenth Century, J. G. M. Ramsey
+* Culture, Crisis & Conflict: Cherokee British Relations 1756-1765, Anne F. Rogers and Barbara R. Duncan
+* Carolina Traders Among the Overhill Cherokees, 1690-1760, Mary Rothrock
+* Tennessee's Indian Peoples: From White Contact to Removal, 1540-1840, Rondald N. Satz
+* A History of Navigation on the Teennessee Rier System, Tennessee Valley Authority
+* The Memoirs of Lt. Henry Timberlake: The Story of a Soldier, Adventurer, and Emissary to the Cherokee, 1756-1765, Henry Timberlake
+* The Plant Hunters, Tyler Whittle
+* Early Travels in the Tennessee Country 1540-1800, Samuel Cole Williams
+* The Memoris of Lieut. Henry Timberlake, Samuel Cole Williams
 * Elvis in Arkansas
 * Have a Little Faith: The John Hiatt Story
 * Americanaland: Where Country & Western Met Rock 'n' Roll (Music in American Life)
