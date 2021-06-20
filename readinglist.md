@@ -36,6 +36,7 @@ layout: default
 * [Lead from the Outside]() by Stacey Abrams
 * [Joe Biden: The Life, The Run, and What Matters Now]() y Evan Osnos
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
+* [When the West Was Tennessee](https://www.amazon.com/When-Tennessee-William-Anthony-Landry/dp/0998980935) by Bill Landry 
 
 
 #### Interested
@@ -100,6 +101,7 @@ layout: default
 * The Cafe on the Edge of the World: A Story About the Meaning of Life
 * Hotter Than a Pepper Sprout: A Hillbilly Poet's Journey From Appalachia to Yale to Writing Hits for Elvis, Johnny Cash & More
 * Sam Phillips: The Man Who Invented Rock 'n' Roll
+* It Came from Memphis
 * Adair's History of the American Indians, James Adair
 * Diary of Drury Armstrong, 1846-1846, Drury Armstrong
 * Travels through North and South Carolina, Georgia and East and West Florida, the Cherokee Country, etc., William Bartram
