@@ -65,14 +65,14 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality, but real musicians lead me to hate playing music. [2021]
 
 ## Relationship to Art ##
-* Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships and literature.
-* Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, The Riverside Group, and Corinne Bailey Rae.
-* Learned about light in the darkness through my own memories of seeing the light in the darkness. 
-* Appreciate the artwork in office spaces. 
-* Work on composing music and playing around. 
-* Interested in how filmmakers turn children's books and other books into film.
-* Learned about the idea of taking bold risks and "failing big" in an improv class, and how improv relates to entrepreneurship.
-* Interested in creating art with trash.
+* Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships and literature
+* Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, The Riverside Group, and Corinne Bailey Rae
+* Learned about light in the darkness through my own memories of seeing the light in the darkness
+* Appreciate the artwork in office spaces
+* Work on composing music and playing around
+* Interested in how filmmakers turn children's books and other books into film
+* Learned about the idea of taking bold risks and "failing big" in an improv class, and how improv relates to entrepreneurship
+* Interested in creating art with trash
 * Exploring the idea of "filter" for art, and copying vs. creating. vs original
 
 ## Nature ##
@@ -84,9 +84,10 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth. (37 days)
-* Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese.
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (37 days)
+* Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
+* Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
 
 ## Spirituality ##
 *I believe* "God is all and God is good" [in 2009, 2010]
@@ -98,9 +99,9 @@ I have also found God to be at my right hand in situations, voicing the Truth, a
 I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future.
 
 ## Relationship to Spirituality ##
-* Appreciate the architecture of all the churches in the community.
-* Learn about a dual language church.
-* Love Religioius Liberty.
+* Appreciate the architecture of all the churches in the community
+* Learn about a dual language church
+* Love Religioius Liberty
 
 ## Individual/Society ##
 *I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
@@ -123,9 +124,10 @@ I believe in giving credit to people who inspire other people, or who inspire us
 I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people.
 
 ## Relationship to Individual and Society ##
-* Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better.
-* Healed racism and started to realize that everyone is individual and distinct.
-* Appreciated authenticity in my first job for 3 years with an entrepreneur, and it was really a powerful experience.
+* Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better
+* Healed racism and started to realize that everyone is individual and distinct
+* Appreciated authenticity in my first job for 3 years with an entrepreneur, and it was really a powerful experience
+* Rocky relationship to technology and social media and email that I need to improve
 
 <br>
 
