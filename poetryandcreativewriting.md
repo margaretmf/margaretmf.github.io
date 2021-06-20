@@ -6134,8 +6134,12 @@ I put my hand on my heart in a nation with two sides of the same coin. The dots 
 
 We all live in the same world. We all want to be someone to someone else. THe present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
 
+It's the native land.
 It's a land of many.
 It's a country created by trailblazers.
+It's a country of discovers and explorers.
+
+I see what's common in my neighbor's eyes.
 
 It's a tale of two sides both fighting for freedom.
 
@@ -6143,6 +6147,26 @@ It's a tale of two sides both fighting for freedom.
 Nothing like that good old flag waving on old porches and construction sites
 
 It's a union where there's two sides to the same story, the same whole.
+
+<br>
+
+## Stories Passed Down ##
+All these stories passed down through words shared in a song.
+It's a family story.
+It's not just about me.
+It's about everyone around me.
+It's about all I hold dear to my heart.
+It's about what everyone around me holds dear to their hearts.
+These stories passed down, these lessons learned last and echo down.
+
+So many other people share these types of stories and lessons echoing down though.
+
+It's like the rippling of water in the lake, the pond.
+
+One drop ripples out.
+One story is part of my stories rippling out, echoing out, and harmonizing.
+
+A song can lead to a new song, and a new song can lead to a new question, and a new question can lead to a new book to read, and a new book to read can lead to a new view.
 
 <br>
 
