@@ -641,6 +641,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the stars and how the innocence of children and the peace of people are as the stars in the sky
 * Grateful for Bible Truths
 * Grateful for the Churches in and around Boston
+* Grateful for Father's Day and Fathers all around the world, as well as the Father in heaven and in hymns
 
 <br>
 
@@ -3908,6 +3909,7 @@ How does Shakespeare influence country music?
 What is the connection between V, MT, Kentucky, TN, NC, and WV?
 Old Hymns - "He is leading me" vs. "She is leading me"
 "She" in country music
+How is folk music created in America in comparison to other countries?
 
 <br>
 
@@ -4432,6 +4434,7 @@ They have healthy, beautiful homes.  [Seeing Integration, Reconstruction's Effec
 They drive trucks. [Seeing Integration, Reconstruction's Effects]
 They work humbly in construction. [Seeing Integration, Reconstruction's Effects]
 They manage wealth. [Seeing Integration, Reconstruction's Effects]
+They work in the medical world. [See Integration, Reconstruction's Effects]
 They lead schools. [Seeing Integration, Reconstruction's Effects]
 They built our country. [Seeing Integration, Reconstruction's Effects]
 They have beautiful names. [Seeing Integration, Reconstruction's Effects]
@@ -5321,6 +5324,20 @@ Let it fall to the floor.
 
 <br>
 
+## Regrets ##
+Regrets.
+Things done wrong.
+You can't go back.
+You can only go forward.
+Time only moves forward.
+Positive memories from the past can relived.
+Lessons can be learned.
+Think something new.
+Do something different.
+Rear view mirror vs. Front window
+
+<br>
+
 ## Lost in the Mess ##
 Lost in all the mess of this weary world.
 This wearly world has been living for ages.
@@ -6142,6 +6159,22 @@ The wishes ripple on and one and on.
 
 ## Tearing Leaves ##
 Tearing leaves and throwing them into the grass.
+
+<br>
+
+## Marks and Trails ##
+Bloodstains
+Paint stains
+Chalk powder
+Powder trails
+Dirt tracks
+Leaf prints
+Shoe prints
+
+<br>
+
+## Shoes on a Wire ##
+Shoes on a wire
 
 <br>
 
