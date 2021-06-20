@@ -612,6 +612,10 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for maturity
 * Grateful for the Christian Science practitioner
 * Grateful for the early sunset
+* Grateful for history of Christian Science healings and Mary Baker Eddy's relationships with people
+* Grateful for early Christian history in the Middle East
+* Grateful for Bill Landry and all of the early discoveries, and folktales passed down through the land
+* Grateful for all of the adventure, the freedom, the wholeness, the discoveries through the wilderness
 * Grateful for memories of listening to nature at camp
 * Grateful for libraries with books that people research
 * Grateful for people that begin got learn new things at older ages
@@ -4089,6 +4093,9 @@ America is a story of neighborhood.
 America is a story of country.
 America is a story of struggles.
 America is a story of education.
+America is a story of adventure.
+America is a story of danger.
+America is a story of wholeness.
 
 America is a country of beliefs.
 America is a country of music.
@@ -4219,6 +4226,7 @@ There's someone, there are people behind the psych ward.
 There's someone, there are people behind the bank accounts.
 There's someone, there are people behind the homes.
 There's someone, there are people behind the data.
+There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
 
 <br>
