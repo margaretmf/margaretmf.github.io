@@ -579,6 +579,68 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the people in the construction work
 * Grateful for the architecture in Washington, DC
 * Grateful for the people in Kentucky
+* Grateful for all the love of people in the information sciences in Scotland
+* Grateful for the woman supervisor at Church and her cheerfulness
+* Grateful for all the love for the liberal arts in the workplace and grateful for people who use liberal arts in consulting
+* Grateful to accept advice, material advice, and feedback gracefully, but know how to decline in thoughtfully
+* Grateful for the Creator who created the government, who help people be freed, and who created balance and symmetry
+* Grateful for Christian music 
+* Grateful for democracy
+* Grateful for public education
+* Grateful for mandolin playing in and around Charlottesville
+* Grateful for the Truth and the architecture at Church
+* Grateful to open my eyes to the agriculture and the hiking and the cows in Charlottesville
+* Grateful for everyone in touch with the Creator of the government, architecture, the universe, and the people at UVa
+* Grateful for other painters and the ripple effect of creativity
+* Grateful to look to the same flowers artists look to and homeowners look to
+* Grateful for other musicians and all the people that love the same conepts they love and the ripple effect of ideas
+* Grateful for supervisors at EVERFI working hard and bringing a good mindset
+* Grateful for the neighborhood I lived in in Washington, DC
+* Grateful for a friend from church
+* Grateful for the water for the rowing
+* Grateful for a phone call with Harrison
+* Grateful for Currie's singing and harmony
+* Grateful for Robert's poise and work in Arab world
+* Grateful for singers and musicians inspiring Elvis
+* Grateful for all the people Elvis Presley loved
+* Grateful for memories at the psych ward in group therapy
+* Grateful for the water for rowing
+* Grateful for land and mountains and the Sunrise and Sunset in the Middle Eastern countries
+* Grateful for the infinite people
+* Grateful for forgiveness
+* Grateful for autonomy
+* Grateful for maturity
+* Grateful for the Christian Science practitioner
+* Grateful for the early sunset
+* Grateful for memories of listening to nature at camp
+* Grateful for libraries with books that people research
+* Grateful for people that begin got learn new things at older ages
+* Grateful for continuous learning
+* Grateful for young people who overcome challenges
+* Grateful for memories of listening to nature at camp
+* Grateful for the music camps in Tennessee and Virginia
+* Grateful for the Science of the Universe
+* Grateful that we all look to the same Truths and the same facts from different reference points
+* Grateful for the Christians who create country music in Georgia
+* Grateful for an image of a map with the oceans the greenery rotating inwardly
+* Grateful for folk music from other countries
+* Grateful for ereference points
+* Grateful for all the people working in laundry services and restaurants in and around Crossville, TN
+* Grateful for mapping tools and technologies for engineering and history
+* Grateful for mapping references in music
+* Grateful for a vision of a map with the oceans and green continents
+* Grateful for all the work in the business world to support healthy finance
+* Grateful for music analysis and to understand what is inspiring different music
+* Grateful for the Christian Science Church in Memphis and the roots to the Middle East
+* Grateful for the birds singing in the early wee morning hours
+* Grateful for the people driving on highways in the early wee morning hours
+* Grateful for highway sounds
+* Grateful to learn about the Shia and Sunni Muslims and the Middle East
+* Grateful for the vision of the light in the darkness in a stormy night in the sea, the light is there
+* Grateful for the vision of the map of the Earth turned over
+* Grateful for the stars and how the innocence of children and the peace of people are as the stars in the sky
+* Grateful for Bible Truths
+* Grateful for the Churches in and around Boston
 
 <br>
 
@@ -4024,6 +4086,7 @@ America is a story of marching onward, upward and forward.
 America is a story of neighborhood.
 America is a story of country.
 America is a story of struggles.
+America is a story of education.
 
 America is a country of beliefs.
 America is a country of music.
@@ -4036,6 +4099,8 @@ America is a country of healthy conversations.
 America is a country of people who love nature.
 America is a country of neighborhoods.
 America is a country of trailblazers.
+America is a country of freedom fighters.
+America is a country of stories.
 
 America is a land of many.
 
@@ -4268,6 +4333,7 @@ It's quiet, and graceful, and peaceful, and flowing
 ## We All Look to the Same Universe ##
 We all look to the same sky, moon, stars, and sun.
 We all walk through this earth and look to the trees and the homes.
+We all look to the same Truth, the same truths.
 The universe is one.
 How does how I see and express differ from how you see and express?
 What makes you you?
@@ -4560,6 +4626,10 @@ These are the cities my family loves.
 
 The whistle blows in both.
 The rivers are flowing in both.
+
+<br>
+
+## Poem on Maps ##
 
 <br>
 
@@ -7090,6 +7160,20 @@ The world is open for me to spend my money and bless the world.
 
 *"In ancient times, coins and the copper ensured infenctious-clear water."
 
+I wish well that girl who that guy goes out with and I hurt
+I wish well that guy who tried to get under my skin
+I wish well that guy looking for help on the side of the road
+
+<br>
+
+## Seeds of a Vision ##
+A seeds of a vision given to me in my mind and my heart.
+A little baby looking up to the sky with brown eyes in my sleep in the morning.
+She's the dream, the vision of hope and love and life for the next generation.
+Visions and dreams and images in the mind that come.
+A little boy hugging me in my sleep.
+An old woman from the other side of the earth smiling and weaving.
+
 <br>
 
 ## Stars Twinkling At Each Other ##
@@ -7108,6 +7192,13 @@ They are all loving each other like bright lights glowing, and flickering.
 --They can see the start of a new friendship.
 --It's like all the other stars in the sky sharing the light and love
 --In a universal dance of peace, love, and joy.
+
+We all see the stars and the tres and the birds from our individual places. 
+A GPS point place.
+
+There's a whole world inside you.
+There's a whole galaxy inside you.
+There's a whole map inside you.
 
 <br>
 
