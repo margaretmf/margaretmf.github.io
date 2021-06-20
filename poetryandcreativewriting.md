@@ -575,6 +575,10 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful the people in the Middle East and to understand the Arab world better
 * Grateful for support from my sister
 * Grateful for liberal arts thinking
+* Grateful for the people at nursing homes and Milestones
+* Grateful for the people in the construction work
+* Grateful for the architecture in Washington, DC
+* Grateful for the people in Kentucky
 
 <br>
 
@@ -4478,6 +4482,16 @@ The things that can be reused and recycled to create something new.
 
 <br>
 
+Yellow, read, and orange flags in the dirt
+The tall grass sprouting up
+
+<br>
+
+## The Highway System ##
+Driving down these highways like driving old school wagons.
+
+<br>
+
 ## Traffic Signals ##
 Walking to the streetlight
 I see a woman in the car sitting poised
@@ -4539,6 +4553,16 @@ From port to port the sun shines in every place from different angles. We all lo
 
 <br>
 
+## Norfolk to Memphis ##
+From Norfolk to Memphis and back a million times.
+These are the cities I love.
+These are the cities my family loves.
+
+The whistle blows in both.
+The rivers are flowing in both.
+
+<br>
+
 
 ----------
 
@@ -4573,6 +4597,16 @@ I love the song of the South singing through the lumber industry and the railroa
 I love the beauty of Soul reflected through my great grandmother during the age of Jazz music in Memphis.
 I love the good luck rushing through my great grandfather McCardell's Irish blood.
 I love the songs of peace "like a river" sung through my great grandmother.
+
+<br>
+
+## Norfolk to Memphis ##
+From Norfolk to Memphis and back a million times.
+These are the cities I love.
+These are the cities my family loves.
+
+The whistle blows in both.
+The rivers are flowing in both.
 
 <br>
 
@@ -5116,6 +5150,23 @@ The storm will die down.
 
 <br>
 
+## It Was All A Dream ##
+It was all a dream.
+It was all a dream in a little girl's heart wanting to be someone.
+She watched all the other girls having fun and beeing free.
+She was the one on the outskirts.
+It was all a dream not for me. It was a dream for some other girl that crashed down on me.
+It crashed down, and I grew up.
+
+<br>
+
+## The Devil ##
+The devil's got a hold on you.
+Every time you find freedom you want to fight back.
+Striking back.
+Hitting back.
+The trigger within.
+
 ## Red Dirt ##
 The red dirt reflected through the water.
 The red dirt tracks.
@@ -5126,8 +5177,29 @@ The smell of fresh grass.
 
 <br>
 
+## Bottles with Dirt ##
+These leftover water bottles with dirt
+Left on the side of the road
+Dirt mud and muck in them
+Bootleggers left on the side of the road on a rocky dirt road
+
+<br>
+
+## Footprints and Leaf Prints ##
+Footprints and leaf prints in the sidwalk
+The footprints have paved the way
+
+<br>
+
 ## Old Farm Road ##
 An old farm road with a fence that goes up for miles, mailboxes, and rusted wire.
+
+<br>
+
+## Cracks ##
+Cracks in the earth that go back to the beginning of time and show what we are made of.
+
+A red rose, a red flower with green leaves peeping out of the cracks showing the beginning of time.
 
 <br>
 
@@ -5236,6 +5308,14 @@ I open my eyes to see your light.
 Your truth makes me bolder.
 Your love makes me stronger.
 Your light makes me lighter.
+
+<br>
+
+## One in the Family ##
+You are one of the family
+People come along to teach us lessons and show us more about families
+You are one of the family
+You remind me of people I know
 
 <br>
 
@@ -5918,6 +5998,8 @@ It rushes through the whole earth at once and makes me one with all.
 The wind, it's always showing me what I need to know.
 
 With the wind and the breeze, the leaves sprinkle and dance and spin around in the air, around the tree and fall off.
+
+The wind blowing my hair. The breeze hitting my neck.
 
 <br>
 
