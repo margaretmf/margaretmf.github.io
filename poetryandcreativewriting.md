@@ -648,6 +648,17 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for Bible Truths
 * Grateful for the Churches in and around Boston
 * Grateful for Father's Day and Fathers all around the world, as well as the Father in heaven and in hymns
+* Grateful for the Crane on the water
+* Grateful for the memorialization of civil rights workers in a workspace mural and the welcoming fo all people into the space
+* Grateful for women sharing their stories about getting off the expected timeline for life
+* Grateful for Bill Landry and his work and all the people who he loves thorugh his work
+* Grateful for Indian folklore and the land they were tied to
+* Grateful for the country and the land in Massachusetts and outside of MA
+* Grateful for the stories from the 1700s and 1800s as well as 1900s
+* Grateful for the nuances in political and cultural history
+* Grateful for the freedom for people share in the Juneteenth holiday
+* Grateful for the male engineer who I worked with in Montana
+* Grateful for Christian Science, and the true, highest sense of it when seeing signs for healing at a workplace
 
 <br>
 
@@ -4098,6 +4109,7 @@ America is a story of education.
 America is a story of adventure.
 America is a story of danger.
 America is a story of wholeness.
+"America is a story of individual and indivisible."
 
 America is a country of beliefs.
 America is a country of music.
@@ -4234,7 +4246,7 @@ There are people behind the word "Queen" on the advertisement. All of humanity, 
 <br>
 
 ## Parallels ##
-When running through the storm here someone is running through storm in another city.
+When running through the storm here someone is running through a rainstorm in another city.
 When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
 When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
 When walking by a hotel's front door here, I think of standing in front of hotel in another city.
@@ -4247,6 +4259,11 @@ When buying coffee and filling a cup with hot chocolate, I remember filling up a
 When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
 When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
 When running down a trail here I think of running down trails in other places in TN and DC.
+When writing poems and creatively writing, someone else is doing this somewhere else.
+When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
+When folding towels I appreciate those folding towels somewhere else.
+When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
+
 
 It's all one.
 
@@ -4802,6 +4819,14 @@ Change the tone.
 Switch the chord.
 Shift the tune.
 Take the time to pause and stop the broken record.
+
+We've already heart his a thousand times before.
+He goes after the broken hearted.
+Her heart is broken.
+He...
+She...
+It sounds like a broken record.
+A broken record of hurt, pain, and hardship.
 
 <br>
 
@@ -5844,6 +5869,10 @@ It's a new day to open your ears to the sounds everywhere
 It's a new day to open your arms to the people everywhere
 
 It's a new day to think a different thought, and discover something new
+
+There's always a new day ahead
+There's always something new to learn
+There's always a surprise to come
 
 <br>
 
@@ -7206,6 +7235,29 @@ The world is open for me to spend my money and bless the world.
 I wish well that girl who that guy goes out with and I hurt
 I wish well that guy who tried to get under my skin
 I wish well that guy looking for help on the side of the road
+
+<br>
+
+## The Sea ##
+A million miles of open sea
+It goes on and on.
+Boats out.
+Seagulls flying.
+Airplanes in the summer sky.
+Seashells. Sandcastles. Sunlight.
+People are on the other side.
+Blue land on the other side.
+It gets dark and there's light shining in the darkness.
+
+The pier
+
+<br>
+
+## Stepping Stones ##
+Stepping stones to life
+Stepping stones to learning
+Stepping stones
+Learning something from everyone I meet, everywhere I go
 
 <br>
 
