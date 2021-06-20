@@ -1579,6 +1579,21 @@ is_contact: true
 (4) Crickety machines
 (5) An airplane in the sky
 
+## **Day 93** ##
+## **Images** ##
+(1) White and yellow flowers on the highway
+(2) Orange flowers on the side of the road
+(3) A trashcan tipped over
+(4) Black and white wallpaper
+(5) Red dirt on the street
+
+## **Sounds** ##
+(1) A bus pulling up onto the street
+(2) Church bells
+(3) Buses screeching
+(4) Cars honking horns
+(5) "Hello" greetings
+
 <br>
 
 <br>
