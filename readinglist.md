@@ -109,6 +109,7 @@ layout: default
 * Stephen Miller: The Million Dollar Quartet
 * A Guide to Historic Downtown Memphis (History & Guide)
 * Good Rockin' Tonight: Sun Records and the Birth of Rock 'N' Roll
+* Remarkable Diaries: The World's Greatest Diaries, Journals, Notebooks, & Letters by DK
 * American Legends: The Life of Dolly Parton
 * Coal Miner's Daughter
 * The Train Kept A-Rollin: How The Train Song Changed The Face Of Popular Music
