@@ -27,8 +27,8 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Studied and worked in Ireland
 
 ### INDEPENDENT EDUCATION
-* Human-Centered Design & Systems Practice | Acumen Plus | September - May 2019
-* Religious Studies - Islam, Christianity, Sustained Dialogue Facilitation, & 21-Day Race Equity | Religious Freedom Center, Soliya, & Myers Park Presbyterian Church | January 2019
+* Human-Centered Design & Systems Practice - Acumen Plus, September - May 2019
+* Religious Studies - Islam, Christianity, Sustained Dialogue Facilitation, & 21-Day Race Equity - Religious Freedom Center, Soliya, & Myers Park Presbyterian Church, January 2019
 
 <br>
  
@@ -41,9 +41,7 @@ Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Pr
 * Manage over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
 * Research trends and organize design and systems research meetup groups to understand patterns, problems, and solutions
 
-
 * Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
-
 
 * Participated in 100 Days of Peace
 * Participated in 21-day Race Equity Challenge
@@ -61,18 +59,10 @@ American Credo Project
 * Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
 * Picked up trash as a citizen across neighborhoods in Norfolk, Charlottesville, and Richmond
 * Drove through 12 states in the United States of America and learned about the highway system, gas stations, the hotel industry, nature, music, and American citizens
-
-Music Composer
 * Compose 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo and flying freely"
 * Develop a dream album or list of songs to compose if anything were possible
-
-Photographer 
 * Work on four series of photos - "Light in the Darkness", "American Flags", "Leaves", and "Engineering Scenery"
-
-Researcher
 * Research themes in books and document them on Github
-
-Writer
 * Write poetry to explore observations, thoughts, and feelings
 
 Children's Book Analyst
