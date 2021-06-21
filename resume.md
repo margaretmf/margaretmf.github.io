@@ -28,7 +28,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 ### INDEPENDENT EDUCATION
 * Human-Centered Design & Systems Practice | Acumen Plus | September - May 2019
-* Religious Studies - Islam, Christianity, Sustained Dialogue Facilitation, & Christian-driven 21-Day Race Equity | Religious Freedom Center, Soliya, & Myers Park Presbyterian Church | January 2019
+* Religious Studies - Islam, Christianity, Sustained Dialogue Facilitation, & 21-Day Race Equity | Religious Freedom Center, Soliya, & Myers Park Presbyterian Church | January 2019
 
 <br>
  
