@@ -26,12 +26,12 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
 * Studied and worked in Ireland
 
-### OTHER EDUCATION
-Acumen Plus | Human-Centered Design | September - November 2019
-Acumen Plus | Systems Practice | January - May 2019
-Religious Freedom Center | DC Interfaith Summit, Soliya | Sustained Dialogue Facilitation | January 2019
-Religious Studies | Islam, Christianity, & 100 Days of Peace | June - August 2020
-Myers Park Presbyterian Church | Better When We're Back Together | 21-Day Race Equity Challenge (continued for 55 days) | June - August 2020
+### INDEPENDENT EDUCATION
+* Acumen Plus | Human-Centered Design | September - November 2019
+* Acumen Plus | Systems Practice | January - May 2019
+* Religious Freedom Center | DC Interfaith Summit, Soliya | Sustained Dialogue Facilitation | January 2019
+* Religious Studies | Islam, Christianity, & 100 Days of Peace | June - August 2020
+* Myers Park Presbyterian Church | Better When We're Back Together | 21-Day Race Equity Challenge (continued for 55 days) | June - August 2020
 
 <br>
  
