@@ -651,7 +651,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the Crane on the water
 * Grateful for the memorialization of civil rights workers in a workspace mural and the welcoming fo all people into the space
 * Grateful for women sharing their stories about getting off the expected timeline for life
-* Grateful for Bill Landry and his work and all the people who he loves thorugh his work
+* Grateful for Bill Landry and his work and all the people who he loves through his work
 * Grateful for Indian folklore and the land they were tied to
 * Grateful for the country and the land in Massachusetts and outside of MA
 * Grateful for the stories from the 1700s and 1800s as well as 1900s
@@ -662,6 +662,12 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for all the cheerful people in 7-11
 * Grateful for what people are doing to appreciate the summer days
 * Grateful for all the workers in hotels and healing spaces in hotels
+* Grateful for the songs on heartbreak in hotels
+* Grateful for the sun shining down in Memphis
+* Grateful for the Cherokee stories
+* Grateful for the River and the entrepreneurs in Tennessee
+* Grateful for the caring people outside the restaurant on Colley Avenue
+* Grateful for the woman in the CVS
 
 <br>
 
