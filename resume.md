@@ -69,32 +69,53 @@ Christianity
  
 ## RELEVANT WORK EXPERIENCE
 
-### INDEPENDENT WORK
-American Credo Project
-* Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
-
-Music Composer
-* Composing 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo"
-
-Children's Book Analyst
-* [Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career.](https://margaretmf.github.io/teaching) Developed an interest in how filmmakers turn children's books into films.
-
-Photographer 
-* Working on two series - "Light in the Darkness" and "American Flags"
-
-Researcher
-* Research themes in books
-
 ### VIBRANT WORLD
-Trends and News Reviewer, Data Science Project Application Reviewer, Blog Writer, Media Manager, Researcher, Sketcher, Ideator, & Musician | January 2019 - Present
+Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Present
 * Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
 * Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
 * Manage over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
 * Research trends and organize design and systems research meetup groups to understand patterns, problems, and solutions
+
+
 * Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
+
+
 * Teach myself to sketch in a notebook and see beauty in the world
 * Record scraps from books in field notebooks for art ideas
 * Compose music on the piano
+* Research the automobile and trucking industry 
+* Pick up trash in the neighborhood
+* Learn about urban design
+
+<br>
+
+### INDEPENDENT WORK
+American Credo Project
+* Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
+* Picked up trash as a citizen across neighborhoods in Norfolk, Charlottesville, and Richmond
+* Drove through 12 states in the United States of America and learned about the highway system, gas stations, the hotel industry, nature, music, and American citizens
+
+Music Composer
+* Compose 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo and flying freely"
+* Develop a dream album or list of songs to compose if anything were possible
+
+Photographer 
+* Work on two series - "Light in the Darkness" and "American Flags"
+
+Researcher
+* Research themes in books and document them on Github
+
+Writer
+* Write poetry to explore observations, thoughts, and feelings
+
+Children's Book Analyst
+* [Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career.](https://margaretmf.github.io/teaching) 
+* Developed an interest in how filmmakers turn children's books into films
+
+Innovator
+* Write down 5 images and 5 sounds that inspire new channels of thinking every day
+
+<br>
 
 ### EVERFI
 Data Analyst | April 2016 - January 2019
