@@ -18,52 +18,20 @@ BA in [History](http://as.virginia.edu) | August 2010 - May 2014
 * Award: International Residential College Leadership
 * Studied and worked in Argentina, Scotland, and the Dominican Republic
  
+## CONTINUING EDUCATION
+### UNIVERSITY OF VIRGINIA
 MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Capstone Advisor: Laura Barnes  
 * GPA: 3.91
 * Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
 * Studied and worked in Ireland
- 
-### ACUMEN PLUS 
-Human-Centered Design | September - November 2019
-* Completing course on human-centered design process with Acumen Plus to master four steps of the human-centered design process to create innovative solutions to real-world challenges, build an effective interview guide to learn and document research, practice creative techniques for rapid prototyping builds, and effectively test prototypes
 
-Systems Practice | January - May 2019
-* Completing course on systems practice with Acumen Plus and participating in group systems practice project for a social justice challenge in which we conduct qualitiatve research on a system, develop systems map and systems narratives, and identify leverage points within the system
-
-
-### RELIGIOUS FREEDOM CENTER, DC INTERFAITH SUMMIT, AND SOLIYA
-Sustained Dialogue Faciliation
-* Learning to engage with difference through communication techniques.
-
-
-### MYERS PARK PRESBYTERIAN CHURCH, BETTER WHEN WE'RE BACK TOGETHER
-21-Day Race Equity Challenge
-* Reading, listening, watching, noticing, connecting, engaging, acting, and reflecting to understand racism, African American Culture, and white privilege and power for 55 days.
-* Learning about how engaging in anti-racism attitudes and behaviors is a lifelong journey and should be a give. African American lives don't just matter; African American lives are amazing and sing through our world.
-
-
-### ASPEN IDEAS
-Aspen Ideas Festival
-* Engaged with the Aspen Ideas Videos
-
-
-### RELIGIOUS STUDIES
-Islam
-* Read the Holy Qur'an
-
-Christianity
-* Read the Holy Bible
-
-
-### 100 DAYS OF PEACE
-100 Days of Peace
-* Engage with the pieces of artwork that are part of the 100 Days of Peace 
-
-## Inspiration ##
-* Laurie Burgdorff's children's book inspired thought on light in the darkness
-
-* Grace Askew's collective music project inspired a love for democratization 
+### OTHER EDUCATION
+Acumen Plus | Human-Centered Design | September - November 2019
+Acumen Plus | Systems Practice | January - May 2019
+Religious Freedom Center | DC Interfaith Summit, Soliya | Sustained Dialogue Facilitation | January 2019
+Religious Studies | Islam, Christianity, & 100 Days of Peace | June - August 2020
+Myers Park Presbyterian Church | Better When We're Back Together | 21-Day Race Equity Challenge (continued for 55 days) | June - August 2020
 
 <br>
  
