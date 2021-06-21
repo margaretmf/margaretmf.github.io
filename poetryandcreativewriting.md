@@ -659,6 +659,9 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the freedom for people share in the Juneteenth holiday
 * Grateful for the male engineer who I worked with in Montana
 * Grateful for Christian Science, and the true, highest sense of it when seeing signs for healing at a workplace
+* Grateful for all the cheerful people in 7-11
+* Grateful for what people are doing to appreciate the summer days
+* Grateful for all the workers in hotels and healing spaces in hotels
 
 <br>
 
