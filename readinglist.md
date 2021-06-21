@@ -33,10 +33,11 @@ layout: default
 * [Becoming](https://www.amazon.com/Becoming-Michelle-Obama/dp/1524763136) by Michelle Obama
 * [The Truths We Hold: An American Journey](https://www.amazon.com/Truths-We-Hold-YRE-American/dp/1432885375/ref=sr_1_6?dchild=1&keywords=the+truths+we+hold&qid=1623162847&sr=8-6) by Kamala Harris
 * [Kill the Spider: Getting Rid of What's Really Holding You Back](https://www.amazon.com/Kill-Spider-Getting-Really-Holding/dp/031033800X) by Carlos Whittaker
-* [Lead from the Outside]() by Stacey Abrams
-* [Joe Biden: The Life, The Run, and What Matters Now]() y Evan Osnos
+* [Lead from the Outside](https://www.amazon.com/Lead-Outside-Build-Future-Change/dp/1250214807/ref=sr_1_1?dchild=1&keywords=lead+from+the+outside&qid=1624282291&sr=8-1) by Stacey Abrams
+* [Joe Biden: The Life, The Run, and What Matters Now](https://www.amazon.com/Joe-Biden-Life-What-Matters/dp/1982174021/ref=sr_1_1?dchild=1&keywords=Joe+Biden+the+life+the+run&qid=1624284404&sr=8-1) by Evan Osnos
 * [The 99% Invisible City: A Field Guide to the Hidden World of Everday Design](https://www.worldcat.org/title/99-invisible-city-a-field-guide-to-the-hidden-world-of-everyday-design/oclc/1202267483) by Roman Mars and Kurt Kohlstedt
 * [When the West Was Tennessee](https://www.amazon.com/When-Tennessee-William-Anthony-Landry/dp/0998980935) by Bill Landry 
+* [Promise Me, Dad: A Year of Hope, Hardship, and Purpose](https://www.amazon.com/Promise-Me-Dad-Hardship-Purpose/dp/1250171679/ref=sr_1_2?dchild=1&keywords=a+year+of+hope%2C+hardship%2C+and+purpose&qid=1624282239&sr=8-2) by Joe Biden
 
 
 #### Interested
@@ -86,6 +87,12 @@ layout: default
 * Jim Bridger: Mountain Man
 * The Age of Gold: The California
 * America's First Highways
+* Girl Behind the Smile
+* Made for Hope: Discovering Unexpected Gifts in Brokenness
+* A Recipe for Bad Lemons: Ingredients for Success from Life's Sour Moments
+* Failing Up: A Professor's Odyssey of Flunking, Determination, and Hope
+* He's a Porn Addict...Now What?: An Expert and a Former Addict Answer Your Questions
+* Promises to Keep: On Life and Politics
 * Divided Highways: Building the Interstate Highways, Transforming American Life
 * Yesterday's Highways (America's Historic Highways)
 * The American Highway: The History and Culture of Roads in the United States
