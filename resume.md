@@ -57,7 +57,6 @@ Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Pr
 
 <br>
 
-### INDEPENDENT WORK
 American Credo Project
 * Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
 * Picked up trash as a citizen across neighborhoods in Norfolk, Charlottesville, and Richmond
@@ -68,7 +67,7 @@ Music Composer
 * Develop a dream album or list of songs to compose if anything were possible
 
 Photographer 
-* Work on two series - "Light in the Darkness" and "American Flags"
+* Work on four series of photos - "Light in the Darkness", "American Flags", "Leaves", and "Engineering Scenery"
 
 Researcher
 * Research themes in books and document them on Github
