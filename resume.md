@@ -27,11 +27,8 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Studied and worked in Ireland
 
 ### INDEPENDENT EDUCATION
-* Acumen Plus | Human-Centered Design | September - November 2019
-* Acumen Plus | Systems Practice | January - May 2019
-* Religious Freedom Center | DC Interfaith Summit, Soliya | Sustained Dialogue Facilitation | January 2019
-* Religious Studies | Islam, Christianity, & 100 Days of Peace | June - August 2020
-* Myers Park Presbyterian Church | Better When We're Back Together | 21-Day Race Equity Challenge (continued for 55 days) | June - August 2020
+* Human-Centered Design & Systems Practice | Acumen Plus | September - May 2019
+* Religious Studies - Islam, Christianity, Sustained Dialogue Facilitation, & Christian-driven 21-Day Race Equity | Religious Freedom Center, Soliya, & Myers Park Presbyterian Church | January 2019
 
 <br>
  
@@ -47,6 +44,9 @@ Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Pr
 
 * Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
 
+
+* Participated in 100 Days of Peace
+* Participated in 21-day Race Equity Challenge
 
 * Teach myself to sketch in a notebook and see beauty in the world
 * Record scraps from books in field notebooks for art ideas
