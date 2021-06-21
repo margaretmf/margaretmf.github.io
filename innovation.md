@@ -1594,6 +1594,21 @@ is_contact: true
 (4) Cars honking horns
 (5) "Hello" greetings
 
+## **Day 94** ##
+## **Images** ##
+(1) M&ms broken on the street
+(2) Water droplets on leaves
+(3) A man writing in a journal like a field note taker
+(4) Books in a window
+(5) American flags outside of a restaurant
+
+## **Sounds** ##
+(1) A bus driving by
+(2) Water flowing
+(3) Oldies music on the radio
+(4) Women's voices in the restaurant
+(5) Clicking of glasses
+
 <br>
 
 <br>
