@@ -670,6 +670,11 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the woman in the CVS
 * Grateful for the time spent at Nam's and Faf's condo
 * Grateful for the runs outside in Charlottesville and Norfolk
+* Grateful for Nam's friends in California
+* Grateful for the woman at the psych ward who I met
+* Grateful that everyone had their own identities and individualities
+* Grateful when Tennessee was the West
+* Grateful for the state of Arkansas
 
 <br>
 
@@ -4043,9 +4048,25 @@ Being an everyday common citizen on the road, part of the E Pluribus Unum.
 
 <br>
 
-## Blue and Green Mountains ##
+## Blue and Green Mountains - Virginia ##
 These blue and green mountains I am destined for.
 It's heavenly to look to.
+
+<br>
+
+## Tennessee - The West ##
+The path through from the East to the West
+It was here all along but out of sight
+It's a new frontier hidden from view
+This whole country is one here for you and me
+There are highways, rivers, trees and bridges
+Pioneering thorugh unknown territory
+Blazing trails
+Discovering new roads and detours
+It's a land of adventure
+It's a land of danger
+It's a land of fighting for freedom
+It's a land for many, me and you
 
 <br>
 
@@ -4121,6 +4142,8 @@ America is a story of adventure.
 America is a story of danger.
 America is a story of wholeness.
 "America is a story of individual and indivisible."
+America is a story of ancestors.
+America is a story of the Spirit.
 
 America is a country of beliefs.
 America is a country of music.
@@ -4135,6 +4158,7 @@ America is a country of neighborhoods.
 America is a country of trailblazers.
 America is a country of freedom fighters.
 America is a country of stories.
+America is a country of the new birth that was always here.
 
 America is a land of many.
 
@@ -4274,7 +4298,7 @@ When writing poems and creatively writing, someone else is doing this somewhere 
 When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
 When folding towels I appreciate those folding towels somewhere else.
 When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
-
+When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
 
 It's all one.
 
@@ -4841,6 +4865,24 @@ A broken record of hurt, pain, and hardship.
 
 <br>
 
+## "Heartbreak Hotel" ##
+These nights in hotels
+These daystops in gas stations
+
+It's a road trip to calm the raging heart
+It's a round trip back home to heal the breaking heart
+
+It tore my heart, my heart is breaking, my heart spinning
+I'm spending nighta fter night praying and dancing in hotels
+
+Look at these people
+Cheerful people everywhere
+
+They're serving the world
+They're serving the country
+
+<br>
+
 ## Playing the Fool ##
 Making things worse.
 Playing the fool.
@@ -4903,6 +4945,9 @@ There's a reason to smile today. Appreciate the smiles you see from people. Ther
 
 ## The Seed Within ##
 The seed within lays buried deep. It's deep within and grows it roots to spread out throughout the earth.
+
+There's a seed underground.
+These green plants and these flowers growing through the cracks.
 
 <br>
 
@@ -5046,6 +5091,22 @@ The big lone bird standing on the grass nea rhte farm holding her poise.
 The lone bird skating on ice.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
+
+<br>
+
+## Married to the Earth ##
+Married to the Earth.
+This green and blue and brown earth that supplies all our needs
+with the rivers and the sea
+and the grass and the dirt
+It circles round and round
+With all these wonderful people
+Married to the earth
+A place for adventure and beauty
+There's always more wonders to see
+This union with all the people
+The wonder in everyone's eyes 
+I meet someone new every day
 
 <br>
 
@@ -5293,6 +5354,11 @@ The red dirt on the side of the road.
 The gold-yellow haystack needles.
 The yellow brown dirt on the road.
 The smell of fresh grass.
+
+<br>
+
+## Bandwagon ##
+Jumping on the bandwagon to this glory road
 
 <br>
 
