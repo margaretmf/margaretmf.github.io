@@ -760,6 +760,14 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful to understand the concept of "Manifest Destiny" across two countries, multiple countries, multiple cultures
 * Grateful for medieval history
 * Grateful for a broader understanding of the United States of America
+* Grateful for the new release of a Hawaiaan song
+* Grateful for all the people centering around the Hawaiaan song
+* Grateful for the sharing of stories in Georgia
+* Grateful for all the people centering around those stories
+* Grateful that everything that once existed still exists
+* Grateful for new life
+* Grateful for the history of gun usage in America to shine a light on guns
+* Grateful for the construction work
 
 <br>
 
