@@ -68,6 +68,7 @@ layout: default
 * What Were We Thinking
 * The Audacity of Hope
 * Dare to Speak
+* Memphis Rent Party: The Blues, Rock & Soul in Music's Hometown
 * Defund Fear
 * Front Row at the Trump Show
 * Accidentally Wes Anderson
