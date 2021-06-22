@@ -665,7 +665,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the songs on heartbreak in hotels
 * Grateful for the sun shining down in Memphis
 * Grateful for the Cherokee stories
-* Grateful for the River and the entrepreneurs in Tennessee
+* Grateful for the TN River and the entrepreneurs in Tennessee
 * Grateful for the caring people outside the restaurant on Colley Avenue
 * Grateful for the woman in the CVS
 * Grateful for the time spent at Nam's and Faf's condo
@@ -675,6 +675,44 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful that everyone had their own identities and individualities
 * Grateful when Tennessee was the West
 * Grateful for the state of Arkansas
+* Grateful for the schools managers and good cheers with EVERFI
+* Grateful for the man who worked next to me at the desk
+* Grateful for the song "What a Wonderful World"
+* Grateful for the ribbons on trees
+* Grateful for everyone in traffic in Charlottesville that day
+* Grateful for the next generation
+* Grateful for memories of babysitting
+* Grateful for the little boy in the train station
+* Grateful to look at the world through someone else's eyes
+* Grateful for the healings of little kids
+* Grateful for the people on the street giving me a hug
+* Grateful for movement forward, movement across, movement deeper, movement wider
+* Grateful for my uncle
+* Grateful for reflective listening and to hear people and to feel heard
+* Grateful for people at church 
+* Grateful for memories of running in Washington, DC similar to running in Glasgow, Scotland
+* Grateful for the love of summer I see people expressing
+* Grateful for the "Grind, Pray" t-shirt and the rapper behind it
+* Grateful for the gifts mom and Aunt Mary give to people
+* Grateful for people who let things bounce off of them
+* Grateful for all the guys from the physics class
+* Grateful for Nancy's love of flowers
+* Grateful that all of mankind, all of humanity love flowers
+* Grateful for all the musicians on my iPod
+* Grateful for the improv class in college and the women and men in it
+* Grateful for the woman ont he run I saw
+* Grateful for the little baby I saw on the run
+* Grateful for the pahses of the moon
+* Grateful for everyone praying in and at the Catholic Church
+* Grateful for peers laughing in class at UVA
+* Grateful for the professor at UVA
+* Grateful for the client
+* Grateful for people learning and starting over and doing new things at an older age
+* Grateful for all the families coming together
+* Grateful for the airports in England and Ireland
+* Grateful for the assumption analysis that led to the work on the engineering team, and me just responding in the right way as a result of a class led to the internship
+* Grateful for the leaders of the Underground Railroad
+* Grateful for the woman somewhere else who has the whole world inside and has a heart filled with love and light and peace
 
 <br>
 
@@ -4299,6 +4337,8 @@ When looking at these flowers I appreciate, someone else is drawing these flower
 When folding towels I appreciate those folding towels somewhere else.
 When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
 When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
+When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
+When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them.
 
 It's all one.
 
@@ -5089,6 +5129,7 @@ The lone bird swoops down to hover the river.
 The lone bird feathering her wings above the water.
 The big lone bird standing on the grass nea rhte farm holding her poise.
 The lone bird skating on ice.
+The shadow of the lone bird in/on the grass.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
 
@@ -5263,6 +5304,10 @@ The wind will sing your praises.
 The wind will spread your truth.
 The wind will lift like eagles' wings.
 
+The wind has my back.
+The wind touches my face.
+The wind moves the water.
+
 <br>
 
 ## The Wind ##
@@ -5327,6 +5372,26 @@ There's a way.
 The ocean is always moving.
 The water is always stirring.
 The storm will die down.
+
+<br>
+
+## Falling to Pieces ##
+Falling to pieces.
+A wrold surrounded by idols, people you are not supposed to know.
+Kicking and screaming in a world surrounded by people you're not supposed to know.
+They've got it all going.
+I'm going crazy.
+They take the lead.
+I am spinning off them.
+A world full of idols.
+It's like broken glass..
+Torn leaves.
+Branches fallen off from the tree.
+Leaves in puddles.
+The storm is so loud in a world full of idols.
+Water droplets on the grass.
+Water droplets on the leaves.
+Sunken leaves.
 
 <br>
 
@@ -5951,6 +6016,14 @@ There's always a new day ahead
 There's always something new to learn
 There's always a surprise to come
 
+It's a day under the sun
+There's always a new day
+Every day
+It's a lifelong day
+It's a day to do something new
+It's an infinite day
+My whole life is a day under the Sun
+
 <br>
 
 ## Day In and Day Out ##
@@ -6160,6 +6233,15 @@ They've walked down sidewalks.
 They've walked through forests.
 They've hit the mall.
 They've been down grassland.
+
+<br>
+
+## Clothes Outdoors ##
+A hat on a fence.
+A shirt on the ground.
+A sweatshirt on the tree with a leaf on it.
+A mask on the ground.
+A shoelace on the sidwalk.
 
 <br>
 
@@ -6857,6 +6939,24 @@ A window into someone's eyes and how they see the world and love throughout thei
 
 <br>
 
+## Movement ##
+Movement forward.
+Starting something.
+Continuing it.
+It grows and grows through a forward movement.
+Movement across.
+Someone does something.
+It inspires someone else.
+The flame ignites ine veryone.
+The movement is across.
+Movement deeper.
+Doing something.
+Diving deeper into what was already done.
+Continuing to do it.
+Going beneath the surface.
+Movement wider.
+Appreciating more people.
+
 ## The Coins ##
 The four coins sitting on the grounds.
 Whose are they?
@@ -6974,6 +7074,8 @@ The flickering lights in the night sky that reach other galaxies.
 You can see them from up above in the plane looking down through the seat window.
 You can see them while walking around through the city.
 A society run by electric lines, power grids, and lightbulbs.
+The flickering light reflected thorugh the water.
+The flickering light in the middle of sea.
 
 <br>
 
@@ -7218,6 +7320,7 @@ People sing with their full hearts and sing their own tunes.
 I love that 7.2 billion people on Earth look to the same seas from different places, thinking of one another.
 
 Collective sunrise and collective sunset
+The face of the earth, all the faces
 
 <br>
 
