@@ -78,7 +78,22 @@ layout: default
 * A Place for Everything
 * Spanish Novels: Pasaje de Ida
 * Thank You for Arguing, Fourth
+* An English Medieval and Renaissance Song Book: Part Songs and Sacred Music for One to Six Voices
+* Paper Trails: The US Post and the Making of the American West
 * How the Post Office Created America: A History
+* I've Been Here All the While: Black Freedom on Native Land (America in the Nineteenth Century) 
+* Unworthy Republic: The Dispossession of Native Americans and the Road to Indian Territory
+* Cherokee Narratives: A Linguistic Study
+* Voices of Cherokee Women (Real Voices, Real History)
+* Breaking Old Rhythms: Answering the Call of a Creative God 
+* Trail of Tears: The Rise and Fall of the Cherokee Nation 
+* Beyond Shame: Creating a Healthy Sex Life on Your Own Terms
+* Remarkable Diaries: The World's Greatest Diaries, Journals, Notebooks, & Letters
+* A Treasury of Southern Folklore: Stories, Ballads, Traditions, & Folkways of the People of the South 
+* A Treasury of American Folklore: Stories, Ballads, and Traditions of the People
+* Covered Bridges of Kentucky and Tennessee (B&W)
+* Songs from Shakespeare's Plays and Popular Songs of Shakespeare's Time
+* Shakespeare's Songbook 
 * Express, Mail & Merchandise Service
 * The Swayne Lumber Company: Narrow gauge logging in the Merrimac Forest
 * First mail west;: Stagecoach lines on the Santa Fe Trail,
