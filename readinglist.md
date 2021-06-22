@@ -39,6 +39,7 @@ layout: default
 * [When the West Was Tennessee](https://www.amazon.com/When-Tennessee-William-Anthony-Landry/dp/0998980935) by Bill Landry 
 * [Promise Me, Dad: A Year of Hope, Hardship, and Purpose](https://www.amazon.com/Promise-Me-Dad-Hardship-Purpose/dp/1250171679/ref=sr_1_2?dchild=1&keywords=a+year+of+hope%2C+hardship%2C+and+purpose&qid=1624282239&sr=8-2) by Joe Biden
 * [Taylor Swift: A Biography](https://www.amazon.com/Taylor-Swift-Biography-Emily-Harris/dp/1723538949/ref=sr_1_1?dchild=1&keywords=Taylor+Swift+a+biography+Emily+harris&qid=1624361042&sr=8-1) by Emily Harris
+* [Taylor Swift: In Her Own Words (In Their Own Words)](https://www.amazon.com/Taylor-Swift-Her-Words-Their/dp/1572842784/ref=sr_1_1?dchild=1&keywords=Taylor+swift+in+her+own+words&qid=1624397654&sr=8-1) by Helena Hunt
 
 
 #### Interested
@@ -54,7 +55,6 @@ layout: default
 * Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
 * Songwriter's Journal (Diary, Notebook) 
 * Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
-* Taylor Swift: In Her Own Words (In Their Own Words) by Helena Hunt
 * Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
 * Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
