@@ -713,6 +713,41 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the assumption analysis that led to the work on the engineering team, and me just responding in the right way as a result of a class led to the internship
 * Grateful for the leaders of the Underground Railroad
 * Grateful for the woman somewhere else who has the whole world inside and has a heart filled with love and light and peace
+* Grateful for the way African Americans and Black man can express, share, and love country music, and their version of it
+* Grateful for African American, Black history at UVa
+* Grateful for memories of praying with music as a metophor and harmony at UVA
+* Grateful that music brings together the head and the heart
+* Grateful for the music camps for little kids
+* Grateful for the piano lessons and principle of music
+* Grateful for everyone expressing a lvoe for summer in a new way
+* Grateful for everyone appreciating Juneteenth
+* Grateful for everyone overcoming a limitation or rejection
+* Grateful for the humanity of Taylor Swift
+* Grateful for young people achieving success at young ages
+* Grateful for everyone who appreciates Father's Day
+* Grateful for all the unique expressions
+* Grateful for memories in the library at the University of Glasgow
+* Grateful for all the faith of people in the world at UVa
+* Grateful for the goodness of that guy in NY supporting the dogs
+* Grateful for folk music from other countries that resonate with people in the US and Nashville
+* Grateful for memories of chemistry class
+* Grateful that eveyrone in the South and in the West will have different meanings and stories and memories tied to the word and that it will resonate in different ways and that not everything is centered around one individual 
+* Grateful for all the hearts filled with love amidst struggling on social media, and the long flow of comments filled with hearts on social media coming from different places in the world
+* Grateful for memories of people I worked with at EVERFI
+* Grateful for how country music can come from all 50 states and the land and the country in each
+* Grateful for the girlfriend, wife of the Black Country musician
+* Grateful for the love for little kids or girls or guys struggling
+* Grateful for the male perspective in country music and around country music
+* Grateful for the time the Scotts are spending in Florida
+* Grateful for the time the Grinders spend in Michigan
+* Grateful for the collective "Our Father" and the appreciation at the fireworks of people overcoming challenges in DC with Nam
+* Grateful for the appreciation of solitude and the ability to rise up out of loneliness
+* Grateful for young kids who are writers
+* Grateful for English teachers in middle school
+* Grateful for what everyone is learning through the next generation and the continuity of life and the new era
+* Grateful for word artists and the ability to articulate reality and existence
+* Grateful for middle school physics
+* Grateful for African American history in Nashville
 
 <br>
 
@@ -4431,6 +4466,11 @@ When you pray, you inspire everyone around you to pray.
 Plop in the water and then it ripples out
 A drop in the water ripples out
 It's quiet, and graceful, and peaceful, and flowing
+
+I love all the people the man loves in the restaurant.
+I love the man in the restaurant and the world and universe and interests and passions inside him.
+I love all the people Taylor Swift loves and inspires.
+I love the light in all the people that helped Taylor Swift light up and all the people they've loved and inspired and helped.
 
 <br>
 
