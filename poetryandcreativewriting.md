@@ -768,6 +768,8 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for new life
 * Grateful for the history of gun usage in America to shine a light on guns
 * Grateful for the construction work
+* Grateful for the native world in VA, TN, and across the US in the West
+* Grateful for the nature mixed with engineering
 
 <br>
 
