@@ -781,6 +781,39 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the book on Mister Rogers
 * Grateful for childhood memories
 * Grateful for the Newseum
+* Grateful for the memory of going to the bank in Memphis and learning from some of people working there
+* Grateful for the rowers in Scotland working as a team
+* Grateful for the engineering work from Scotland
+* Grateful for the work from India that contributes to USA and Scotland
+* Grateful for the Soul of business and how investors choose to invest in musicians
+* Grateful for the memories at the clothing stores in DC
+* Grateful for the wall painting at the condo
+* Grateful for wall design in a photo on Instagram
+* Grateful for folklore from other ethnicities shared in America
+* Grateful for the FedEx truck in Norfolk near the shipyard
+* Grateful for the USPS truck near the shipyard
+* Grateful for the packing and shipping outside of church and the workers there
+* Grateful for camp friends from Arkansas
+* Grateful for history of family in Arkansas, the memories of Mimi there
+* Grateful for learnig constructs and research on what people learn about relationships
+* Grateful for th epeople from Roaring Gap and Chicago who I used to babysit
+* Grateful for Colton
+* Grateful for old friends from Norfolk Academy and the people they help
+* Grateful for a friend on the other side of the world
+* Grateful for the faith and healinge expressed in the areas of the world where Christianity began
+* Grateful for the joy that comes through playing music
+* Grateful that Elvis Presley left a legacy and was inspired by a legacy
+* Grateful for construction sites
+* Grateful for the nursing home outside of Charlottesville
+* Grateful for the lunch Name and Faf are having
+* Grateful for a prayer for the Association
+* Grateful for all the workers at the hotel
+* Grateful for the little lives and older lives appreciating newness and summer
+* Grateful for baseball games
+* Grateful for opportunities ahead
+* Grateful for the people who work on Cash App
+* Grateful for my sister who centers around music like other people do
+* Grateful for the man calling me
 
 <br>
 
@@ -4406,8 +4439,9 @@ When folding towels I appreciate those folding towels somewhere else.
 When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
 When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
 When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
-When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them.
+When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
 When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
+When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
 
 It's all one.
 
@@ -4516,6 +4550,22 @@ The universe is one.
 How does how I see and express differ from how you see and express?
 What makes you you?
 What makes me me?
+
+It's a universe.
+The prime mover of the universe.
+The author writing the book.
+The painter painting the colors.
+The thought behind the existence.
+The breath behind the life and the raising up.
+The animator behind the expression.
+
+<br>
+
+## It's An Open Book ##
+It's an open book ahead.
+All the pages waiting to be written.
+Pages have been written.
+It's an open book ahead.
 
 <br>
 
@@ -5204,8 +5254,9 @@ The lone bird feathering her wings above the water.
 The big lone bird standing on the grass nea rhte farm holding her poise.
 The lone bird skating on ice.
 The shadow of the lone bird in/on the grass.
+The bird alone on the city map, she knows her city and she loves the water.
 
-Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing
+Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing, Curious, Observant
 
 <br>
 
