@@ -755,6 +755,8 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for Taylor Swift's perspective on love and crushes
 * Grateful for the young generation's ability to enjoy swimming
 * Grateful for my uncle
+* Grateful for the history of murders and a cultural understanding of gun usage in the country
+* Grateful for memories of going to the Christian Science church in Scotland
 
 <br>
 
@@ -4381,6 +4383,7 @@ When walking on the urban streets of Richmond, I think of the urban streets in N
 When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
 When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
 When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them.
+When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
 
 It's all one.
 
