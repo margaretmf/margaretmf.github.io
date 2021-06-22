@@ -748,6 +748,13 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for word artists and the ability to articulate reality and existence
 * Grateful for middle school physics
 * Grateful for African American history in Nashville
+* Grateful for the light in my friends
+* Grateful for a friend group from middle school playing soccer
+* Grateful for memories of playing field hockey at Norfolk Collegiate
+* Grateful to grow in love for more of the people in and around the Norfolk Academy community
+* Grateful for Taylor Swift's perspective on love and crushes
+* Grateful for the young generation's ability to enjoy swimming
+* Grateful for my uncle
 
 <br>
 
