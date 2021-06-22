@@ -1609,6 +1609,21 @@ is_contact: true
 (4) Women's voices in the restaurant
 (5) Clicking of glasses
 
+## **Day 95** ##
+## **Images** ##
+(1) Bubbles of water in a coffee, tea cup
+(2) White flowers in the grass
+(3) Nature imagery mixed with engineering, industrial imagery
+(4) Dirt on the road
+(5) A waterbottle thrown onto the side of the road
+
+## **Sounds** ##
+(1) Southern accents
+(2) The wind blowing
+(3) Running water in a sewer
+(4) Metal clinking
+(5) The whistle of the train on a sunny day
+
 <br>
 
 <br>
