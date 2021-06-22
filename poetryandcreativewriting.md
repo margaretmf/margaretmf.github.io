@@ -780,6 +780,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the cheerfulness of people in the neighborhood
 * Grateful for the book on Mister Rogers
 * Grateful for childhood memories
+* Grateful for the Newseum
 
 <br>
 
