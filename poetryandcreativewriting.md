@@ -309,6 +309,8 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the sound of open space
 * Grateful for all of God's people singing at Big House
 * Grateful for people's enthusiasm for wisdom
+* Grateful for the career and college counselor at Norfolk Academy
+* Grateful for my friends teaching
 * Grateful for the people in the psych wards
 * Grateful for sustainable businesses and signs on the walls that show the efficiency
 * Grateful to be a "Steward of the Earth" by cleaning up
