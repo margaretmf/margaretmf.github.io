@@ -814,6 +814,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the people who work on Cash App
 * Grateful for my sister who centers around music like other people do
 * Grateful for the man calling me
+* Grateful for memories of the song "Choose God" playing in the car
 
 <br>
 
@@ -4502,6 +4503,11 @@ Memories, looking through the looking glass, seeing images and hear sounds that 
 
 <br>
 
+## Memories ##
+Everything that once existed still exists.
+
+<br>
+
 ## My Mom and I ##
 My mom and I are on different journeys.
 We are two different people with two different perspectives and career projectories.
@@ -5047,6 +5053,22 @@ They're serving the country
 
 <br>
 
+## Broken Record ##
+The coiled sin
+The making a scene
+The need for attention
+The again and again and again
+The repeat of words
+The over-explanation
+Saying the same thing over and over and over again without being heard
+Hearing the same tactics to hurt and bring down over and over and over
+It's a broken record
+Nothing is changing
+Nothing is shifting 
+It's a broken record, stuck on repeat, stuck on the pain, stuck on the explanation, stuck on the hurt
+
+<br>
+
 ## Playing the Fool ##
 Making things worse.
 Playing the fool.
@@ -5537,6 +5559,18 @@ Striking back.
 Hitting back.
 The trigger within.
 
+<br>
+
+## Lugging The Weight ##
+Lugging this weight around, dont want to be here feeling
+
+<br>
+
+## Who You Are ##
+It's funny when people try to tell you who you are
+
+<br>
+
 ## Red Dirt ##
 The red dirt reflected through the water.
 The red dirt tracks.
@@ -5557,6 +5591,16 @@ These leftover water bottles with dirt
 Left on the side of the road
 Dirt mud and muck in them
 Bootleggers left on the side of the road on a rocky dirt road
+
+A waterbottle left on the side of the road
+
+<br>
+
+## Summer Rain ##
+Summer rain
+The grey clouds overhead
+It's pouring
+It's time to run
 
 <br>
 
@@ -6411,6 +6455,8 @@ With the wind and the breeze, the leaves sprinkle and dance and spin around in t
 
 The wind blowing my hair. The breeze hitting my neck.
 
+The wind, the breeze blowing the leaves
+
 <br>
 
 ## Hand on My Heart ##
@@ -6522,6 +6568,18 @@ Shoe prints
 
 ## Shoes on a Wire ##
 Shoes on a wire
+
+<br>
+
+## Walking Through the Fire ##
+Walking thorugh the fire
+Everything unlike evaporates
+
+<br>
+
+## Beauty ##
+People hugging a grandfather
+People sharing friendship and love and art on social media
 
 <br>
 
@@ -7447,6 +7505,9 @@ I love that 7.2 billion people on Earth look to the same seas from different pla
 Collective sunrise and collective sunset
 The face of the earth, all the faces
 
+Year after year
+widening, broadening, deepening, growing, learning, understanding, relearning, fading
+
 <br>
 
 ## A World That Is Always Moving ##
@@ -8018,6 +8079,12 @@ they confuse,
 they challenge thought to look at culture from different angles,
 they encourage people to feel untouched and walk through the fire,
 they exist on the dark web, in the deep corners of the universe, in the places where our hearts are most sensitive.
+
+<br>
+
+## Hitting Back ##
+Why get back at those who hurt you?
+Dwell in love where you're not hurt
 
 <br>
 
