@@ -770,6 +770,16 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the construction work
 * Grateful for the native world in VA, TN, and across the US in the West
 * Grateful for the nature mixed with engineering
+* Grateful for all the students from India and China in my classes
+* Grateful for the work in healthcare to support spirituality
+* Grateful for the work of Martin Luther King, Jr. in New York City
+* Grateful for the woman painting the same flower another woman sketched
+* Grateful for the similarities between Norfolk and Memphis
+* Grateful for the rain
+* Grateful for all the people enjoying swimming
+* Grateful for the cheerfulness of people in the neighborhood
+* Grateful for the book on Mister Rogers
+* Grateful for childhood memories
 
 <br>
 
