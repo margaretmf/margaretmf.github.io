@@ -757,6 +757,9 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for my uncle
 * Grateful for the history of murders and a cultural understanding of gun usage in the country
 * Grateful for memories of going to the Christian Science church in Scotland
+* Grateful to understand the concept of "Manifest Destiny" across two countries, multiple countries, multiple cultures
+* Grateful for medieval history
+* Grateful for a broader understanding of the United States of America
 
 <br>
 
