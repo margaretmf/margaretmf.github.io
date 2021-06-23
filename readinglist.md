@@ -105,6 +105,12 @@ layout: default
 * Jim Bridger: Mountain Man
 * The Age of Gold: The California
 * America's First Highways
+* Birth Order by Linda Blair
+* The Artist's Way by Julia Cameron
+* Taylor Swift: The Rise of the Nashville Teen by Chloe Govan
+* Taylor Swift by Louisa Jepson
+* Adele: The Biography by Chas Newkey-Burden
+* Taylor Swift: The Platinum Edition by Liv Spencer
 * Girl Behind the Smile
 * Made for Hope: Discovering Unexpected Gifts in Brokenness
 * A Recipe for Bad Lemons: Ingredients for Success from Life's Sour Moments
