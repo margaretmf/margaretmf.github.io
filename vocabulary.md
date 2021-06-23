@@ -1,5 +1,5 @@
 # Vocabulary #
-This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com), and [Cambridge Dictionary](http://dictionary.cambridge.org).
+This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com),[Cambridge Dictionary](http://dictionary.cambridge.org), https://www.reddit.com/r/etymology/comments/36e8g9/so_according_to_facebook_meme_universe_means_one/, and https://forum.cosmoquest.org/archive/index.php/t-8345.html.
 
 ## Remember: ##
 * To have in or be able to bring to one's mind in awareness
@@ -221,4 +221,17 @@ Something exists in consciousness. The image in mind has not been consciously co
 ## Recollect: ##
 
 ## Spin : ##
+
+## Universe: ##
+* Everything that exists, especially all physical matter, including all the stars, planets, galaxies, etc. in space
+* A collection of people, things, or companies that have similar characteristics or features
+* A sphere of interest, activity, or understanding
+* A model or conception of the earth and everything else that exists
+* The totality of known or supposed objects and phenomena throughout space; the cosmos; macrocosm
+* The whole world, esp. with reference to humanity
+* A world or sphere in which something exists or prevails
+* It comes from the prefix *uni*' meaning *one*, and *verse* meaning a line of poetry. Hence, *universe* means *a line of poetry* :wink: It's like haiku, but shorter
+* The key error is in Verse (I doubt anyone would make the mistake of *uni* meaning anything but '1'). *Verse* comes from vertere, Latin, which means *to turn*. It's use in song is a metaphor: As the plow-turns from plow-line to plow-line, so does the *verse* turn from song-line to song-line.
+So *Universe* actually just means *one turn*. Which interestingly enough, implies a belief that a second, third, and so on number of *turns* might happen. One can imagine the phrase *cycle* being close to interchangeable with *turn*. Edit: otherwise the term might be omniverse: *all the turns*.
+
 
