@@ -902,6 +902,20 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for dual language programs
 * Grateful for a vision of a painting or sketch of a flower, and three-four people looking to the flower in different ways, and the harmony expressed
 * Grateful for idioms that show up again and again in song lyrics from different people, books, and more song lyrics
+* Grateful for stories told in families in North Carolina and Georgia sharing a love of the logging and timber
+* Grateful for memories of seeing the churches, the school buses, and the logging in North Carolina
+* Grateful for God's care on the highway
+* Grateful for highway songs
+* Grateful for the connection to nature in Tennessee and Kentucky
+* Grateful for the musicians in Tennessee
+* Grateful for the heart in Memphis
+* Grateful for the loving heart and water emojis
+* Grateful for discipline
+* Grateful for the Moore family nearby and their children in college
+* Grateful for the understanding of people in this generation in regards to information overload and technology
+* Grateful for organizational tools
+* Grateful for the memories of going into a museum somewhere
+* Grateful for the mandolin instructor
 
 <br>
 
@@ -5169,6 +5183,16 @@ Cheerful people everywhere
 They're serving the world
 They're serving the country
 
+It was a heartbreak hotel experience
+It broke my heart
+I was so confused
+I felt lonely
+There were people all aroud
+I prayed in a car
+From hotel to hotel this heart of mine so fragile and broken
+
+**Elivs Presley**
+
 <br>
 
 ## Broken Record ##
@@ -7812,6 +7836,18 @@ Stepping stones to life
 Stepping stones to learning
 Stepping stones
 Learning something from everyone I meet, everywhere I go
+
+Stepping stones aren't bad
+Every day is a stepping stone to the future and the rest of time
+Every thought is a stepping stone to the next thought
+What feeds this moment feeds the next moment
+What I choose to do right now feeds what I choose to do the next
+What feeds today feeds tomorrow
+Every encounter with someone is a stepping stone to a lesson in life
+
+It's all a stepping stone to progress, to greater consciousness, to truth, to depth, to love, to understanding, to grace
+
+It's all been done before
 
 <br>
 
