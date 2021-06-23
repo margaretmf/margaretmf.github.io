@@ -74,6 +74,8 @@ I believe and have found that playing music and participating in improv brings j
 * Learned about the idea of taking bold risks and "failing big" in an improv class, and how improv relates to entrepreneurship
 * Interested in creating art with trash
 * Exploring the idea of "filter" for art, and copying vs. creating. vs original
+* Appreciate the way multiple people turn to the same things in nature to photograph, sketch, paint, or appreciate
+* Apreciate how music expresses feelings that multiple people have
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
@@ -871,11 +873,23 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the strength and expression of the women
 * Grateful for all the love in Boston
 * Grateful for all the work my friend did in Boston
-* Grateful for the constnat joy coming to the country
+* Grateful for the constant joy coming to the country
 * Grateful for healthy teachers
 * Grateful for memories of seeing Tabor's friend who has overcome challenges
 * Grateful for the poise expressed by President Barack Obama and him coming into my dream
 * Grateful for the Living Museum
+* Grateful for the hiking we did at UVA as part of the Christian group
+* Grateful for the other Christians on grounds
+* Grateful for the hallway in the politics building at UVa
+* Grateful for where all the things in the mail sent sent at Church
+* Gratful for the teacher who taught about writing and Thomas Jefferson
+* Grateful for memories at the train station
+* Grateful for the children int he neighborhood
+* Grateful for their love of fairy tales and imagination
+* Grateful for music from Ireland and Scotland that inspires music in the USA and the theme of broken-heartedness
+* Grateful for the connection between the country and the land in Ireland and Scotland and the country and the land in the USA
+* Grateful that multiple people, multiple artists are looking to God, the artist and taking photos, sketching, and painting the same flower that other people appreciate in their garden, same thing with leaves, mulitple people looking to the beauty of leaves
+* Grateful for sunlight and shadow
 
 <br>
 
@@ -887,7 +901,7 @@ I believe it's important to live from a place of authenticity and remember what 
 ## Quarto Publishing Group Leaders, Rage Kindelsperger (Publisher), Laura Dew (Creative Director), and Cara Donaldson (Managing Editor) wrote the following about poetry: ##
 
 'You're a poet, and you know it.
-Long before we had cities of stone or the technology to write, our ancestors were expressing their wants, needs, and personalities through singing and reciting poetry. Poetry was a record of history, an art form for every age, and a weapon capable of swaying any battle. It was the simplest and most reveed form of communication for centuries.
+Long before we had cities of stone or the technology to write, our ancestors were expressing their wants, needs, and personalities through singing and reciting poetry. Poetry was a record of history, an art form for every age, and a weapon capable of swaying any battle. It was the simplest form of communication for centuries.
 
 Connecting you to the legacy of poetry, this journal helps you dive into writing poems no matter your level of experience. Poems can be anything born of words - descriptions of random thoughts, simple stories, or fleeting feelings. 
 
@@ -4197,6 +4211,21 @@ Tennessee used to be the west, and the state of the frontier, not just the south
 
 <br>
 
+## Tennessee ## 
+All these roads lead to and from home
+From VA to TN from TN to VA
+From PA to TN from TN to PA
+From KY to TN from TN to KY
+From AK to TN from TN to AK
+From TX to TN from TN to TX
+From MT to TN from TN to MT
+From MI to TN from TN to MI
+From GA to TN from TN to GA
+
+Country music, country-western
+
+<br>
+
 ## Bible Imagery ##
 My favorite imagery is the rose in the desert surrounded by drops of water.
 
@@ -4389,7 +4418,9 @@ Burying a hole.
 It goes deep.
 The seed is buried deep within the ground.
 The roots spread out.
-It covers the wholeg round.
+It covers the whole ground.
+
+Dirt on the sidewalk
 
 <br>
 
@@ -4835,6 +4866,12 @@ Sailing above it all
 
 <br>
 
+## Ribbons  on the Tree, Engineering ##
+
+Ribbons
+
+<br>
+
 ## Trash ##
 The used material that people do not want.
 The things to dispose of and throw away.
@@ -5132,6 +5169,18 @@ Can you really not get over it?
 Can you not get over it?
 Can I not be heard?
 It strikes a chord.
+
+<br>
+
+## A Chord Struck ##
+It was a hit.
+It really struck a chord.
+It captured the heart.
+IT reminded me of those country tunes I listened to.
+
+It rung a bell.
+It revived my heart.
+It brought back all those memories of home sweet home.
 
 <br>
 
@@ -6313,6 +6362,11 @@ It's a Saturday, it's a day for laying around, reading a book, laying on the cou
 
 It's a Sunday
 It's a day for peace, for life, for activities and fun
+It's a day for picnics
+It's a day for dancing in the streets
+It's a day for neighborhood parties
+It's a day for the sun to shine down
+It's a day for a hike
 
 <br>
 
@@ -8560,6 +8614,11 @@ Driving by the train tracks, feeling the freshness of the Rivers, and seeing the
 America felt new, yet the same.
 I remembered my family, and the deep, deep roots that run through the ground.
 I saw why people want to #MakeAmericaGreatAgain, but it has always been great and will always be great.
+
+<br>
+
+## Rivers ##
+Rivers, forward coarse, rivers in the United States
 
 <br>
 
