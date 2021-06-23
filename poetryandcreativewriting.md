@@ -86,7 +86,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (39 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (40 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
@@ -896,6 +896,11 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful that other people love their grandmothers
 * Grateful for my grandmother's family history and the Walker family
 * Grateful for the farmland in Arkansas
+* Grateful for the man working outside
+* Grateful for the perspective of LGBTQ+ employees in businesses like IDEO
+* Grateful for all the little kids at pre-school centers
+* Grateful for dual language programs
+* Grateful for a vision of a painting or sketch of a flower, and three-four people looking to the flower in different ways, and the harmony expressed
 
 <br>
 
@@ -4541,8 +4546,14 @@ When wearing the Alt Spring Break I think of all the people who did ALt Spring B
 When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
 When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
 When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
+When I set down to ask a question about a word, other people have asked the same question.
 
 It's all one.
+
+<br>
+
+## A Painting and A Flower ##
+A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
 
 <br>
 
@@ -5409,6 +5420,7 @@ The shadow of the lone bird in/on the grass.
 The bird alone on the city map, she knows her city and she loves the water.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing, Curious, Observant
+Hidden, Nested
 
 <br>
 
