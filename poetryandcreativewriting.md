@@ -901,6 +901,7 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for all the little kids at pre-school centers
 * Grateful for dual language programs
 * Grateful for a vision of a painting or sketch of a flower, and three-four people looking to the flower in different ways, and the harmony expressed
+* Grateful for idioms that show up again and again in song lyrics from different people, books, and more song lyrics
 
 <br>
 
