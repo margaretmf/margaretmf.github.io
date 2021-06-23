@@ -1,5 +1,6 @@
 # Vocabulary #
-This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com),[Cambridge Dictionary](http://dictionary.cambridge.org), https://www.reddit.com/r/etymology/comments/36e8g9/so_according_to_facebook_meme_universe_means_one/, and https://forum.cosmoquest.org/archive/index.php/t-8345.html.
+This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com), [Cambridge Dictionary](http://dictionary.cambridge.org), [Reddit](https://forum.cosmoquest.org/archive/index.php/t-8345.html), and [Cosmoquest](https://cosmoquest.org/x/).
+
 
 ## Remember: ##
 * To have in or be able to bring to one's mind in awareness
