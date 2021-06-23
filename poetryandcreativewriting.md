@@ -817,6 +817,65 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for my sister who centers around music like other people do
 * Grateful for the man calling me
 * Grateful for memories of the song "Choose God" playing in the car
+* Grateful for people doing environmentally friendly work
+* Grateful that the world is always unfolding as it should
+* Grateful to dwell in Love
+* Grateful for all the people in India
+* Grateful for people who love religious liberty
+* Grateful for religious liberty
+* Grateful for the friends who shared some of India with me
+* Grateful for healing work
+* Grateful for a new age in Memphis
+* Grateful for th epeople working to assist the elderly
+* Grateful for the beauty, color, and intelligence expressed in women I see
+* Grateful for the nursing home
+* Grateful for the people at the crime spot
+* Grateful for the pianot eachers ad the love of music in the Association
+* Grateful for Church music history and the people who played it
+* Grateful for all the people in church attending music workshop sessions
+* Grateful for mom picking me up from 711 yesterday
+* Grateful for the music of the spheres
+* Grateful for allusions to music in Shakespeare
+* Grateful for the rebirth of America
+* Grateful for all the little kids sharing their happiest stories at school
+* Grateful for memories walking around Washington, DC and the people there
+* Grateful for the cheerfulness and intelligence and fully agency of people
+* Grateful for what people have overcome
+* Grateful for all the people working in the office building
+* Grateful for conversations with Aunt Nell
+* Grateful for the beauty in Pittsburgh and Philly
+* Grateful for all the work in the military
+* Grateful for the woman and her family from Idaho
+* Grateful for all the people from Idaho
+* Grateufl for the people in the hotel
+* Grateful for the musicians
+* Grateful for the music
+* Grateful for the adventure
+* Grateful for the west and the connection between the South and the West
+* Grateful for everything a friend overcame
+* Grateful to see another friend walking around Norfolk
+* Grateful for the origin of fairy tales in Scotland and other countries
+* Grateful for professors who teach children's literature and an appreciation for fairy tales
+* Grateful for all the people Taylor Swift loves through her music
+* Grateful for all the people listening to Taylor Swift
+* Grateful for other people from Norfolk Academy who overcame things
+* Grateful for the woman in the hotel who shared Christianity
+* Grateful for all the people in the state of Georgia
+* Grateful for all the country musicians alluded to in the Word Search
+* Grateful for literary allusions in the business world
+* Grateful for the bookshop in Washington, DC
+* Grateful for the love of church members for practitioners
+* Grateful for the people democratizing music
+* Grateful for cousins
+* Grateful for the new birth going on hourly
+* Grateful for the strength and expression of the women
+* Grateful for all the love in Boston
+* Grateful for all the work my friend did in Boston
+* Grateful for the constnat joy coming to the country
+* Grateful for healthy teachers
+* Grateful for memories of seeing Tabor's friend who has overcome challenges
+* Grateful for the poise expressed by President Barack Obama and him coming into my dream
+* Grateful for the Living Museum
 
 <br>
 
@@ -5069,6 +5128,11 @@ Nothing is changing
 Nothing is shifting 
 It's a broken record, stuck on repeat, stuck on the pain, stuck on the explanation, stuck on the hurt
 
+Can you really not get over it?
+Can you not get over it?
+Can I not be heard?
+It strikes a chord.
+
 <br>
 
 ## Playing the Fool ##
@@ -5079,12 +5143,19 @@ Being exposed, exposing oneself.
 
 <br>
 
+## Love Triangles ##
+Love Triangles
+Enemies to Lovers
+
+<br>
+
 ## The Mask ##
 You're not the mask.
 The comes off.
 It's a game of make-believe and pretend.
 Masking the hurts and the pain.
 You're so much more than that.
+Make-believe, pretend
 
 <br>
 
@@ -5333,6 +5404,11 @@ They sit still up there.
 They sparkle.
 They guide me, they guide me to the light, to your glory, to your beauty.
 They remind me of the peace, and the reason to live.
+
+Stars dancing through the universe
+Echoing out
+Sharing the love
+Loving the earth
 
 ## Leaves ##
 Everything you thought you knew falls off like the dead leaves on trees.
@@ -6194,6 +6270,9 @@ It's a lifelong day
 It's a day to do something new
 It's an infinite day
 My whole life is a day under the Sun
+
+It's a new day to choose to love and love within your heart
+There are people everywhere loving and to love
 
 <br>
 
@@ -7122,6 +7201,13 @@ There's always a deepr view.
 The ripple effect of all the people people love.
 A window into someone's eyes and how they see the world and love throughout their day.
 
+I love the people who put the ribbons on the trees.
+I love the people who left the litter out and moved on with their days with joy and hope and love.
+I love all the people in the hospitals today.
+I love all the people in the airport doing their work.
+I love all the people in the banking industry.
+I love all the people teaching today and taking care of little ones.
+
 <br>
 
 ## Movement ##
@@ -7686,6 +7772,11 @@ A GPS point place.
 There's a whole world inside you.
 There's a whole galaxy inside you.
 There's a whole map inside you.
+
+Stars dancing through the universe
+Echoing out
+Sharing the love
+Loving the earth
 
 <br>
 
