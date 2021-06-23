@@ -40,6 +40,7 @@ layout: default
 * [Promise Me, Dad: A Year of Hope, Hardship, and Purpose](https://www.amazon.com/Promise-Me-Dad-Hardship-Purpose/dp/1250171679/ref=sr_1_2?dchild=1&keywords=a+year+of+hope%2C+hardship%2C+and+purpose&qid=1624282239&sr=8-2) by Joe Biden
 * [Taylor Swift: A Biography](https://www.amazon.com/Taylor-Swift-Biography-Emily-Harris/dp/1723538949/ref=sr_1_1?dchild=1&keywords=Taylor+Swift+a+biography+Emily+harris&qid=1624361042&sr=8-1) by Emily Harris
 * [Taylor Swift: In Her Own Words (In Their Own Words)](https://www.amazon.com/Taylor-Swift-Her-Words-Their/dp/1572842784/ref=sr_1_1?dchild=1&keywords=Taylor+swift+in+her+own+words&qid=1624397654&sr=8-1) by Helena Hunt
+* [Taylor Swift: The Whole Story](https://www.amazon.com/Taylor-Swift-Whole-Chas-Newkey-Burden/dp/0007544219/ref=asc_df_0007544219/?tag=hyprod-20&linkCode=df0&hvadid=312111908051&hvpos=&hvnetw=g&hvrand=2397980912033550855&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9008590&hvtargid=pla-554841479888&psc=1) by Chas Newkey-Burden
 
 
 #### Interested
