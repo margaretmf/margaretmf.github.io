@@ -890,6 +890,12 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the connection between the country and the land in Ireland and Scotland and the country and the land in the USA
 * Grateful that multiple people, multiple artists are looking to God, the artist and taking photos, sketching, and painting the same flower that other people appreciate in their garden, same thing with leaves, mulitple people looking to the beauty of leaves
 * Grateful for sunlight and shadow
+* Grateful for the expression of democracy shared by the men on the street
+* Grateful for the cheerfulness of the people working with the trees and the nature
+* Grateful for my grandmother's love of flower arranging
+* Grateful that other people love their grandmothers
+* Grateful for my grandmother's family history and the Walker family
+* Grateful for the farmland in Arkansas
 
 <br>
 
@@ -4649,6 +4655,8 @@ How does how I see and express differ from how you see and express?
 What makes you you?
 What makes me me?
 
+We all look to the same flowers.
+
 It's a universe.
 The prime mover of the universe.
 The author writing the book.
@@ -7388,6 +7396,7 @@ We all radiate out from the center.
 Beliefs, opinions are like colors on the spectrum.
 We all aim to look towards the same Truth.
 A world of shapes and colors, patterns and textures.
+We all appreciate the same flowers and leaves.
 
 <br>
 
@@ -8152,6 +8161,7 @@ It's the same home, and the same meaning.
 It's the same story, but different voices.
 It's the same feelings, but different problems.
 It's the same music, but different tones.
+It's the same flowers, but different pieces of art.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
