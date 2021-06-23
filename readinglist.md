@@ -75,6 +75,8 @@ layout: default
 * Defund Fear
 * Front Row at the Trump Show
 * Accidentally Wes Anderson
+* Long-Ago Stories of the Eastern Cherokee (American Heritage)
+* Celtic Fairy Tales
 * The Golden Thread
 * Shiloh (children's book)
 * Boone: A Biography
