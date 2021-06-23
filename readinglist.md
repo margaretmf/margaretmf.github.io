@@ -71,6 +71,7 @@ layout: default
 * Dare to Speak
 * Memphis Rent Party: The Blues, Rock & Soul in Music's Hometown
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
+* The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
 * Defund Fear
 * Front Row at the Trump Show
 * Accidentally Wes Anderson
