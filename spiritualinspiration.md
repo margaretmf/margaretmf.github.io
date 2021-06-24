@@ -8,6 +8,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Gratitude List 
+
 ### Education and Spirituality
 As a graduate of UVa, I was most passionate about religious liberty and lifelong learning. I expressed curiosity about the meaning of 'freedom of the press' and 'freedom of speech'. I think it's cool that beliefs of the original founders, some good, and some evil, given to people by mankind's Creator gave way to the possibility for people to become free of limtiations and engage in a higher version of spirituality.
 
