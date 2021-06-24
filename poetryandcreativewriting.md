@@ -5585,6 +5585,8 @@ My whole life is a day under the Sun
 It's a new day to choose to love and love within your heart
 There are people everywhere loving and to love
 
+It's a lifetime of days with you in my heart
+
 <br>
 
 ## Day In and Day Out ##
@@ -6619,6 +6621,16 @@ You can look through the shattered glass and see the positive memories beneath i
 
 <br>
 
+## The Edge ##
+Reaching the edge of death
+the edge of time
+the edge of the universe when the past crumbles away
+There's a new beginning
+to understand more
+to start over
+
+<br>
+
 ## Tide ##
 The roll of the tide, where the sea meets the land.
 
@@ -6992,6 +7004,9 @@ I gave it to my neighbors and wished them well.
 Today I saw a quarter on the ground
 I threw it in the pool and wished my friends well.
 
+A happy family life
+A rainbow in the sky
+
 <br>
 
 ## Coins ##
@@ -7030,6 +7045,9 @@ The world is open for me to spend my money and bless the world.
 I wish well that girl who that guy goes out with and I hurt
 I wish well that guy who tried to get under my skin
 I wish well that guy looking for help on the side of the road
+
+Family harmony
+Rainbow in the sky
 
 <br>
 
@@ -7114,6 +7132,10 @@ A knot on the floor, where has it been?
 
 <br>
 
+## Apple Cider. Cider ##
+Apple Cider. Cider
+
+<br>
 
 ----------
 
