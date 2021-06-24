@@ -3438,6 +3438,19 @@ Maps show visually the relationships of places culturally and historically, and 
 
 <br>
 
+## Mapmaking ##
+Map making
+Bridge building
+Trail blazing
+Stair climbing
+Dot connecting 
+
+The past, the present, and future exiting all right now
+The golden threat tying a knot through the universe 
+The principle in everything
+
+<br>
+
 ## The Purpose of Studying History ##
 The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
 
@@ -3469,6 +3482,14 @@ Country music, country-western
 
 <br>
 
+## Shadow Imagery ##
+Shadows of myself.
+Shadows of leaves.
+Shadows of trees.
+Shadows of birds.
+
+<br>
+
 ## Bible Imagery ##
 My favorite imagery is the rose in the desert surrounded by drops of water.
 
@@ -3476,6 +3497,20 @@ My favorite imagery is the rose in the desert surrounded by drops of water.
 
 ## Spiritual Imagery ##
 My favorite imagery are a flower with water droplets, green weeds, and a flower with snow on it.
+
+<br>
+
+## Heart to Heart - Bells ##
+Through the hart to heart I can hear the bells ringing
+The harmony echoing out
+The rainbow colors broadening through the sky and the earth
+The crystal clear color making the path clear
+The bells ringing from a distance waking us up
+Calling us to a life of love
+
+Those old church bells
+Those old sweet hymns
+That old clock ticking 
 
 <br>
 
@@ -3779,6 +3814,9 @@ When walking by the flowers I think of how someone else has observed them, loved
 When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
 When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
 When I set down to ask a question about a word, other people have asked the same question.
+When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
+When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
+When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
 
 It's all one.
 
@@ -3786,6 +3824,28 @@ It's all one.
 
 ## A Painting and A Flower ##
 A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
+
+Someone else is looking to this same flower.
+
+3-5 people appreciating it in different ways.
+
+<br>
+
+## Time Distance ##
+It's amazing that someone is six hours behind me somewhere doing the same activities.
+
+<br>
+
+## Falling, Rising ##
+Falling low, rising higher to the destiny
+
+<br>
+
+## Open Windows ##
+Open windows
+open to the air
+drying the fresh paint on the wall
+the sun shining through
 
 <br>
 
@@ -4720,6 +4780,11 @@ Stars dancing through the universe
 Echoing out
 Sharing the love
 Loving the earth
+
+There's a whole world inside of you of thinks you love
+There's an entire world out there waiting to be known
+
+<br>
 
 ## Leaves ##
 Everything you thought you knew falls off like the dead leaves on trees.
@@ -7124,6 +7189,9 @@ Stars dancing through the universe
 Echoing out
 Sharing the love
 Loving the earth
+
+There's a whole world inside of you of things you love
+There's an entire world out there waiting to be known
 
 <br>
 
