@@ -5,8 +5,6 @@
 
 <img src = "sketches/sketch1.jpg">
 
-<img src = "sketches/sketch1.jpg">
-
 <img src = "sketches/sketch2.jpg">
 
 <img src = "sketches/sketch3.jpg">
