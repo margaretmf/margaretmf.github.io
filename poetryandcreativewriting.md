@@ -916,6 +916,74 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for organizational tools
 * Grateful for the memories of going into a museum somewhere
 * Grateful for the mandolin instructor
+* Grateful for the Church in Richmond
+* Grateful for the congregation in Richmond
+* Grateful for all of the professors at a school like UVA, and their love for books and their love for people, and their love for the world
+* Grateful for all the students at UVA
+* Grateful for the congregation in Richmond
+* Grateful for positive experiences of healing I shared
+* Grateful for the experience at the Chipotle
+* Grateful for the musician Tabor loves
+* Grateful for all the people at the concert
+* Grateful for the musician in Scotland
+* Grateful for all the people in Scotland I appreciated
+* Grateful that America has symbolized "rebirth" from the beginning
+* Grateful for the Cherokee women
+* Grateful for treasures in our land an in our histories and in our earth
+* Grateful for the Lazarus poem that everyone in our country looks to
+* Grateful for protection for women on college campuses and ways that can be taught to speak up
+* Grateful for prevention for women
+* Grateful for purity in women
+* Grateful for the work fo EVERFI leaders to seek to do the right thing
+* Grateful for memories at Columbia and in the neighborhood in NY
+* Grateful for the good people there
+* Grateful for the good heart of peope
+* Grateful for the memories of running in DC
+* Grateful that Washington, DC represents the entire country
+* Grateufl for newness of energy every day
+* Grateful for new channels of thought
+* Grateful for all the people at Milestones
+* Grateful for Christianity in rural VA and WV
+* Grateful for the goodness of God on the college campus
+* Grateful for the American flags at the nursing home
+* Grateful for all the people at the party in Virginia Beach
+* Grateful for teachers using technology and organiational tools for education
+* Grateful for all the people being alert
+* Grateful for guys from the summer pool
+* Grateful for memories at Trinka's
+* Grateful for the harmony that echoes out and continues forever
+* Grateful for all the singers and musicians that use the same phrase
+* Grateful for all the colors in Grandmama's home - the yellow, the green, the red, the white, the sun, and her prayerful work
+* Grateful that little girls have full lives and are looking to the same flowers
+* Grateful for the people in the restaurant
+* Grateful for people's positive relationships with their dad
+* Grateful for my friend singing
+* Grateful for a positive connection with a family member
+* Grateful for the people teaching about India in the library
+* Grateful for all the people throughout the country
+* Grateful for the trees
+* Grateful to hold people to their new self and not their old selves
+* Grateful for the churches in DC and the people with faith
+* Grateful for cousins
+* Grateful for sound of the church bells from afar
+* Grateful that a singer, songwriter Willie Nelson read this same book I am reading
+* Grateful for other books like 'Fingerprints of the Gods'
+* Grateful for clocks on bank buildings
+* Grateful for the text message I received from peers years ago
+* Grateful for people working in banks
+* Grateful for people daring to do something new
+* Grateful for artistis looking to the same nature and the same idioms
+* Grateful for a more enlightened view of the country and some people who knew this and some people who don't
+* Grateful for a man's love for his nephew
+* Grateful for all of the moms in the neighborhood
+* Grateful for the life of the woman in the neighborhood who I babysit for
+* Grateful for peers from UVA
+* Grateful for the mom who udnerstood 
+* Grateful for little kids
+* Grateful to look at everything from a different perspective
+* Grateful for the people from the 4th of July who I saw overcoming challenges
+* Grateful for home design
+* Grateful for people who express gratitude in Washington, DC
 
 <br>
 
