@@ -866,6 +866,46 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people who express gratitude in Washington, DC
 * Grateful for the rebirth of the country
 * Grateful for the Eagle that belongs to everyone in America
+* Grateful for the workers lab
+* Grateful for new ideas for workers and structure
+* Grateful for Chris's apartment
+* Grateful for gratitude journals for kids
+* Grateful for a memory of going to the movie with a friend
+* Grateful for all the music listened to last summer to learn about Johnny Cash in Virginia
+* Grateful for music mentioning Memphis
+* Grateful for the folk stories from other lands
+* Grateful for the nation under God shared in all the schools
+* Grateful for the branch above someone's bed
+* Grateful for good artwork and painting
+* Grateful for all the people in the city in Nashville
+* Grateful for little kids turning to the classics
+* Grateful for the practitioners who have overcome challenges
+* Grateful for the Black history in DC
+* Grateful for memories walking in the neighborhood in DC
+* Grateful for the light in the building
+* Grateful for the preparation work
+* Grateful for the orange walls at work
+* Grateful for creative people doing interior design and making our world a prettier place
+* Grateful for memories of how people met in business school
+* Grateful for memories of appreciating the churches
+* Grateful for memories on the boat and people working on the boat
+* Grateful for desert imagery
+* Grateful for cousins
+* Grateful for memories on the golf coarse
+* Grateful for the literature bought at church and all the people who wrote them
+* Grateful for spiritual people from NA
+* Grateful for friends' love of data science
+* Grateful for all the prayerful work with (in) courage
+* Grateful for memories of turning to (in) courage
+* Grateful for memories of the trails in Norfolk
+* Grateful for a new age at camp
+* Grateful for Black history in Georgetown
+* Grateful for all the people living in Charlottesville
+* Grateful for the dialogue event in DC
+* Grateful for fairy tales and apples from medieval time period
+* Grateful for young girls creating music with the same themes
+* Grateful for a parallel between June Carter Cash's music and the music in Scotland
+* Grateful for the women I used to row with
 
 
 <br>
