@@ -16,13 +16,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 ### Gratitude List - Creative Writing
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
-* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
+* Grateful for the song by the Black Eyed Peas, asking **Where is the Love?**
 * Grateful for the sound of the laundry machine
 * Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
 * Grateful for a home someone architected at a schoolhouse on a farm
 * Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified
 * Grateful for the voice on the news, representing ethics and good judgment
-* Grateful for the song "One Tribe"
+* Grateful for the song **One Tribe**
 * Grateful or the Soaps and Suds in Norfolk that serves the community
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for self-assessment, honesty with myself about self-justification
@@ -58,7 +58,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the construction workers
 * Grateful for my cousins in Suffolk, Whaleyville
 * Grateful to learn about Kentucky, Indiana, and the Rust Belt
-* Grateful for the Spanish language on the Screen in the CVS - "Cambiar El Idioma"
+* Grateful for the Spanish language on the Screen in the CVS - **Cambiar El Idioma**
 * Grateful for the man working at CVS and his love for the work
 * Grateful for the African American engineer
 * Grateful for the architecture at The Mother Church
@@ -78,7 +78,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the stories of African Americans in Spain
 * Grateful for all the girls at Camp Nakanawa
 * Grateful for the people in the Courthouse
-* Grateful for the advertisement "Can you see me?"
+* Grateful for the advertisement **Can you see me?**
 * Grateful for the walking challenge in the Sun with a friend from UVA
 * Grateful for the imagery of a rose
 * Grateful for all the neighbors outside walking, running, and driving
@@ -103,13 +103,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for memories of Shakespeare plays at Camp Tabor
 * Grateful for memories at the Beach Cottage with the Furr Family and the Talbot family
 * Grateful for my aunt
-* Grateful for the man on the street, Jamal, who blessed with a complement "you have a beautiful soul"
+* Grateful for the man on the street, Jamal, who blessed with a complement **you have a beautiful soul**
 * Grateful for the man at church who shared his testimony
 * Grateful for the Holy Bible in the hotel room
 * Grateful for the man on the street and his name
 * Grateful for the ways different people on social media share nature and observations
 * Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
-* Grateful for the sign "Today is a nice day"
+* Grateful for the sign **Today is a nice day**
 * Grateful for the Spanish signs
 * Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
 * Grateful for cheerfulness of the Construction workers
@@ -131,7 +131,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for homes aligned in rows next to each other
 * Grateful for the sense of renewal at UVA
 * Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
-* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men
+* Grateful for car rides with an African American man proclaiming that **I LOVE the Black man** after four other outings with African American men
 * Grateful for conversations with him about a key African American leader.
 * Grateful for the friendly policeman this morning
 * Grateful for the dignity of people in the car while driving
@@ -191,7 +191,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my friends teaching
 * Grateful for the people in the psych wards
 * Grateful for sustainable businesses and signs on the walls that show the efficiency
-* Grateful to be a "Steward of the Earth" by cleaning up
+* Grateful to be a **Steward of the Earth** by cleaning up
 * Grateful for the man from the Arab world online
 * Grateful for the people from Albania. met in the coffee shop
 * Grateful for the public libraries
@@ -243,7 +243,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for full forgiveness towards people who have hurt me and the freedom to not keep going over it
 * Grateful for the lesson learned about stopping to use gun images
 * Grateful for the opportunities to pick up trash
-* Grateful for people from other religious backgrounds in schools and the idea of "Coexistence" with God
+* Grateful for people from other religious backgrounds in schools and the idea of **Coexistence** with God
 * Grateful for the freedom to express religious rights in schools and the freedom to care for Christianity
 * Grateful for the freedom to love other religions in schools
 * Grateful for an informed citizenry
@@ -260,7 +260,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for recycling projects
 * Grateful for the design and size and space of cities
 * Grateful for art with trash
-* Grateful for signs in Starbucks "be nice to your barista"
+* Grateful for signs in Starbucks **be nice to your barista**
 * Grateful for the people who write books
 * Grateful for all the people from Camp Nakanwa
 * Grateful for a new era, a new age
@@ -320,11 +320,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the government supporting public education and faith-based government work
 * Grateful for all the ways people express themselves
 * Grateful for the expression of democracy through all the schools and books people write
-* Grateful for conversations that beging with "How are you?"
+* Grateful for conversations that beging with **How are you?**
 * Grateful for the strength of people expressed in others
 * Grateful for the spunkiness of women in politics
 * Grateful for public music education
-* Grateful for the "pitch in" advertisements on trash cans
+* Grateful for the **pitch in** advertisements on trash cans
 * Grateful for communities of trust at Norfolk Academy and UVA
 * Grateful to trust people to do the right thing
 * Grateful to forgive people
@@ -393,26 +393,26 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the work that Martin Luther King, Jr. did
 * Grateful for all the churches that supported the elections
 * Grateful for all the faiths of people on college campuses
-* Grateful for "freedom ringing"
+* Grateful for **freedom ringing**
 * Grateful that Black leadership is an expression of freedom
 * Grateful for text messages with Mary Daniel
 * Grateful for the real conversation with someone on the street, and how there is always progress going on
 * Grateful for healing from nervous laughter
 * Grateful that there is always progress
-* Grateful for the conversation with Darius, the outing "the filter through which people perceive, see, and experience the world is what supports art, so someone will hear or see art, analyze it, evaluate it, or express something with a new filter"
-* Grateful for the conversation with Darius, "culture is what gives life to people and what lights people up" - "what is normal, what dictates, what is not normal" "culture is neighborhood in Darius's eyes" "in my eyes culture is color, I love colors I see and the colors I see people wearing"
+* Grateful for the conversation with Darius, the outing **the filter through which people perceive, see, and experience the world is what supports art, so someone will hear or see art, analyze it, evaluate it, or express something with a new filter**
+* Grateful for the conversation with Darius, **culture is what gives life to people and what lights people up** - **what is normal, what dictates, what is not normal** **culture is neighborhood in Darius's eyes** **in my eyes culture is color, I love colors I see and the colors I see people wearing**
 * Grateful that Darius and the real human connection and ligtening up and having real conversation about things and I love that he studies philosophy
 * Grateful for all the people around him and me
 * Grateful for the light in the darkness
 * Grateful for the reflection and the Source
 * Grateful to recall the ideas of Universal and Particular and to remember ideas from metaphysics
-* Grateful for the "Adopt A Street" - no more litter in the city
+* Grateful for the **Adopt A Street** - no more litter in the city
 * Grateful that every step to different people is leading closer to more Truth, more awareness, more perspective, more progress, more perception
 * Grateful for the time spent reading the Qur'an
 * Grateful for the ideas of enlightenment, day and night, light and dark in the Bible
 * Grateful for how people across history in the country have used the Bible
 * Grateful for resources on how presidential leaders have studied the Bible
-* Grateful for all of the people outside of the Christian Science schools being educated, expressing faith, and identifying in ways belonging to God but not shared through the conduit and the filter of "Christian Science"
+* Grateful for all of the people outside of the Christian Science schools being educated, expressing faith, and identifying in ways belonging to God but not shared through the conduit and the filter of **Christian Science**
 * Grateful for oral story telling and oration
 * Grateful for improv
 * Grateful for Faf and people who share stories well that have been passed down and on
@@ -432,7 +432,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the Silver Lining
 * Grateful for Chinese calligraphy and the people from my class in China
 * Grateful for teachers at Norfolk Academy
-* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
+* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being **simple and insular**, and less comfort around sexuality
 * Grateful for people in the neighborhood
 * Grateful for the girls on the bike ride
 * Grateful for the people learning to play the mandolin and enjoying summer camps
@@ -561,7 +561,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the state of Arkansas
 * Grateful for the schools managers and good cheers with EVERFI
 * Grateful for the man who worked next to me at the desk
-* Grateful for the song "What a Wonderful World"
+* Grateful for the song **What a Wonderful World**
 * Grateful for the ribbons on trees
 * Grateful for everyone in traffic in Charlottesville that day
 * Grateful for the next generation
@@ -576,7 +576,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people at church 
 * Grateful for memories of running in Washington, DC similar to running in Glasgow, Scotland
 * Grateful for the love of summer I see people expressing
-* Grateful for the "Grind, Pray" t-shirt and the rapper behind it
+* Grateful for the **Grind, Pray** t-shirt and the rapper behind it
 * Grateful for the gifts mom and Aunt Mary give to people
 * Grateful for people who let things bounce off of them
 * Grateful for all the guys from the physics class
@@ -624,7 +624,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the male perspective in country music and around country music
 * Grateful for the time the Scotts are spending in Florida
 * Grateful for the time the Grinders spend in Michigan
-* Grateful for the collective "Our Father" and the appreciation at the fireworks of people overcoming challenges in DC with Nam
+* Grateful for the collective **Our Father** and the appreciation at the fireworks of people overcoming challenges in DC with Nam
 * Grateful for the appreciation of solitude and the ability to rise up out of loneliness
 * Grateful for young kids who are writers
 * Grateful for English teachers in middle school
@@ -641,7 +641,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my uncle
 * Grateful for the history of murders and a cultural understanding of gun usage in the country
 * Grateful for memories of going to the Christian Science church in Scotland
-* Grateful to understand the concept of "Manifest Destiny" across two countries, multiple countries, multiple cultures
+* Grateful to understand the concept of **Manifest Destiny** across two countries, multiple countries, multiple cultures
 * Grateful for medieval history
 * Grateful for a broader understanding of the United States of America
 * Grateful for the new release of a Hawaiaan song
@@ -698,7 +698,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people who work on Cash App
 * Grateful for my sister who centers around music like other people do
 * Grateful for the man calling me
-* Grateful for memories of the song "Choose God" playing in the car
+* Grateful for memories of the song **Choose God** playing in the car
 * Grateful for people doing environmentally friendly work
 * Grateful that the world is always unfolding as it should
 * Grateful to dwell in Love
@@ -807,7 +807,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people at the concert
 * Grateful for the musician in Scotland
 * Grateful for all the people in Scotland I appreciated
-* Grateful that America has symbolized "rebirth" from the beginning
+* Grateful that America has symbolized **rebirth** from the beginning
 * Grateful for the Cherokee women
 * Grateful for treasures in our land an in our histories and in our earth
 * Grateful for the Lazarus poem that everyone in our country looks to
