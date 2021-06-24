@@ -906,6 +906,65 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for young girls creating music with the same themes
 * Grateful for a parallel between June Carter Cash's music and the music in Scotland
 * Grateful for the women I used to row with
+* Grateful for the sound bath meditation in DC
+* Grateful for the chants people at the Religious Liberty Center shared
+* Grateful for the women sharing the sound bath meditation
+* Grateful for the little kids showing up for mediation
+* Grateful for daily creativity and insights
+* Grateful for the honor system at Norfolk Academy and UVA
+* Grateful that Christian Science can be made available to those looking for it
+* Grateful for all the summer interns at church
+* Grateful for all they can learn about Christian Science and the way God provides unexpected blessings
+* Grateful for the bells ringing in Boston
+* Grateful for creativity expressed intelligently through people younger than me
+* Grateful for the Catholic Church discovered in DC
+* Grateful for all the young college students at the Church in DC
+* Grateful for the father of lights and the light within everyone
+* Grateful for all the people working in Starbucks
+* Grateful for the water flowing
+* Grateful for everyone form my class at Norfolk Academy
+* Grateful for the rebirth of the US
+* Grateful that the eage is symbol for rebirth
+* Grateful for the cooks at camp
+* Grateful for June Carter Cash on her birthday
+* Grateful for the artists in the community
+* Grateful for all the true thoughts from God that echo through today after yesterday and last summer
+* Grateful for the people in the apartment complex
+* Grateful for the people I worked with in Washington, DC
+* Grateufl for the work in the DC metro subway
+* Grateufl for the people working in NY entrepreneurship
+* Grateful for the life of little kids
+* Grateful for all the people working on software development
+* Grateful for Darius's love of music
+* Grateful for the Appalachia region
+* Grateful for Black leaders who taught to stay in the present
+* Grateful for the Christian Scientist and the Black leader who turend to the same Gospel
+* Grateful for people appreciating the same highway system
+* Grateful for memories with Nam's friend in Washington, DC
+* Grateful for memories at the Data Science Institute
+* Grateful for women who love music
+* Grateful for cheerful hearts
+* Grateful for the branch above someone's bedGrateful for all the people working in the mall
+* Grateful for the people celebrating the life of George Floyd
+* Grateful for the church in DC attended
+* Grateful for leaves people love
+* Grateful for all the history of the country
+* Grateful for people painting leaves
+* Grateful for the women at EVERFI
+* Grateful for Christian Science practitioners and life lessons
+* Grateful for th epeopel still alive on this earth
+* Grateful for the Christians in Scotland I met
+* Grateful for the Scholars' Lab at UVA
+* Grateful for STEAM
+* Grateful for the awareness that little kids have of their feelings
+* Grateful for the newness
+* Grateful for people being honest about sobriety and overcoming dark things
+* Grateful for everyone collectively to learn not to compare to others
+* Grateful for all the people that have come before us and all of our ancestors
+* Grateful for all the people on the chat
+* Grateful for my friend from Memphis in DC and the time with her there eating
+* Grateful for all the children being taught
+* Grateful for all the members of the LGBTQ community begin accepted for who they are
 
 
 <br>
