@@ -8,6 +8,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Steward of the Earth
+**41** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+
+
+<br>
+
 ### Gratitude List - Creative Writing
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
 * Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
@@ -852,12 +858,14 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all of the moms in the neighborhood
 * Grateful for the life of the woman in the neighborhood who I babysit for
 * Grateful for peers from UVA
-* Grateful for the mom who udnerstood 
+* Grateful for the mom who understood
 * Grateful for little kids
 * Grateful to look at everything from a different perspective
 * Grateful for the people from the 4th of July who I saw overcoming challenges
 * Grateful for home design
 * Grateful for people who express gratitude in Washington, DC
+* Grateful for the rebirth of the country
+* Grateful for the Eagle that belongs to everyone in America
 
 
 <br>
