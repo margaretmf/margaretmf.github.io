@@ -331,6 +331,10 @@ I believe it's important to live from a place of authenticity and remember what 
 * Grateful for the woman in the grocery store who knew who I was and had the cards for me
 * Grateful for a conversation with a cousin
 * Grateful for the smell of cleaning materials
+* Grateful for an accurate reading of history
+* Grateful for the bells everywhere
+* Grateful for the Liberty Bell in Philiadelphia and the World Peace Bell in Kentucky and all the other ways sounds in other cultures contributes to wholeness, healing, and spirituality
+* Grateful for the bells in Norfolk and at the Church in Boston
 * Grateful for the little boy
 * Grateful for the woman dancing in Starbucks
 * Grateful for architecture and sketching
