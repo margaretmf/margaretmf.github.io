@@ -9,188 +9,190 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Gratitude List - Creative Writing
-Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
-Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
-Grateful for the sound of the laundry machine
-Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
-Grateful for a home someone architected at a schoolhouse on a farm
-Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified
-Grateful for the voice on the news, representing ethics and good judgment
-Grateful for the song "One Tribe"
-Grateful or the Soaps and Suds in Norfolk that serves the community
-Grateful for friends who share news articles and support my spiritual growth
-Grateful for self-assessment, honesty with myself about self-justification
-Grateful for Black History month
-Grateful for the man singing with the Consortium in Memphis
-Gratitude for Muslim prayers 
-Gratitude for the world history teacher at Norfolk Academy
-Grateful for the sound of the dishwasher
-Grateful for a smile shared with someone in the car next to me
-Grateful for American flags reflecting through glass doors
-Grateful for positive memories of my grandmother
-Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
-Grateful for Medieval organ music
-Grateful for global cultures
-Grateful for sketches
-Grateful for the workers in the post office
-Grateful for piano playing
-Grateful for two women on the street
-Grateful for a phone call with someone from high school and meeting new friends
-Grateful to play music on the piano intuitively - I have 3 drafts of songs
-Grateful for the light in the Christian Science Mother Church
-Grateful for the first responders
-Grateful for the man working with the USPS in the postal service
-Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
-Grateful for the construction sites
-Grateful for the men working on the street
-Grateful for the memories of working as an aide at camp
-Grateful for all of the ethnicities represented at camp
-Grateful for the call of the geese in the morning
-Grateful for the lessons learned in the shower
-Grateful for the cooks at camp
-Grateful for the signs on the road
-Grateful for the construction workers
-Grateful for my cousins in Suffolk, Whaleyville
-Grateful to learn about Kentucky, Indiana, and the Rust Belt
-Grateful for the Spanish language on the Screen in the CVS - "Cambiar El Idioma"
-Grateful for the man working at CVS and his love for the work
-Grateful for the African American engineer
-Grateful for the architecture at The Mother Church
-Grateful for the man in Memphis who loves Math and Music
-Grateful for the natural love of the little kids at the Preschoo
-Grateful for the spontaneous trip to the softball game
-Grateful for the stoplights
-Grateful for orange marker balls, they hang from power lines
-Grateful for advertisements and billboards on highways
-Grateful for the Post Office
-Grateful for a society built on notes and letters, and the underground messaging
-Grateful for the Matthew Code and bringing challenges directly to people
-Grateful for a conversation with my aunt
-Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
-Grateful for positive memories of spending the summers reading in bunk beds with cousins
-Grateful for the boys playing outside
-Grateful for the stories of African Americans in Spain
-Grateful for all the girls at Camp Nakanawa
-Grateful for the people in the Courthouse
-Grateful for the advertisement "Can you see me?"
-Grateful for the walking challenge in the Sun with a friend from UVA
-Grateful for the imagery of a rose 
-Grateful for all the neighbors outside walking, running, and driving
-Grateful for the leader of Discipleship Training School who overcame darkness like gun violence with God
-Grateful for the people with Discipleship Training School who whovercame darkness like porn addiction with God
-Grateful for the lunch with a man from Africa, digging into his family's ancestory and roots in Cameroon and his shirt on Cameroonian Roots
-Grateful for memories of the Operation Smile event in Virginia Beach
-Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
-Grateful for the construction workers
-Grateful for the car ride with Nate
-Grateful for the time with the missionaires
-Grateful for memories on the airplane with the people from Brazil and Argentina
-Grateful for the law of abundance
-Grateful for a new perspective
-Grateful for the children's books by Jean Craighead George
-Grateful for memories of Camp Tabor at May Creek with kickball games, softball games, and other games led by two uncles, grateful for the harmony expressed by all 13 cousins
-Grateful for the leaders of the chorus groups I have been in and the work to blend in and sing different parts, including Alto and Soprano
-Grateful for the good cheer of a friend I drove around
-Grateful for memories at camp of the cooks
-Grateful for memories at camp of running
-Grateful for the memories of singing Amazing Grace at Camp Nakanawa on Sundays
-Grateful for memories of Shakespeare plays at Camp Tabor
-Grateful for memories at the Beach Cottage with the Furr Family and the Talbot family
-Grateful for my aunt
-Grateful for the man on the street, Jamal, who blessed with a complement "you have a beautiful soul"
-Grateful for the man at church who shared his testimony
-Grateful for the Holy Bible in the hotel room
-Grateful for the man on the street and his name
-Grateful for the ways different people on social media share nature and observations
-Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
-Grateful for the sign "Today is a nice day"
-Grateful for the Spanish signs
-Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
-Grateful for cheerfulness of the Construction workers
-Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
-Grateful for the Spanish music on the radio
-Grateful for power lines
-Grateful for the man sitting outside the Post Office
-Grateful for the man sitting outside his home on runs when in Downtown
-Grateful for the light in the darkness at the candlelight choral concert
-Grateful for the woman working at CVS
-Grateful for the woman working at the coffee shop
-Grateful for the chiming of the bells outside
-Grateful for how Taylor Swift expresses emotions, stories, and relationships through song 
-Grateful for the early learning center
-Grateful for the student studying biology
-Grateful to tutor my cousin in Chemistry and help her improve her work and study habits
-Grateful for memories of rappelling with other Christians
-Grateful for Christian music
-Grateful for homes aligned in rows next to each other
-Grateful for the sense of renewal at UVA
-Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
-Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men
-Grateful for conversations with him about a key African American leader.
-Grateful for the friendly policeman this morning
-Grateful for the dignity of people in the car while driving
-Grateful for the woman in Rural Virginia who sympathized and empathized
-Grateful for new insights and fresh thoughts
-Grateful for the Southern Gospel Music at the church down the street
-Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
-Grateful to walk around Norfolk
-Grateful for the little kids on the playground
-Grateful for a good conversation at 7-11 with someone
-Grateful for the ways people give their change to charity
-Grateful to meet an old friend outside
-Grateful for the warmth of the Sun
-Grateful for the Arab world
-Grateful for the Israel world
-Grateful for a morning wake-up call with my sister
-Grateful to learn about posture at camp
-Grateful for the people I met in 7-11
-Grateful for the woman working at 7-11
-Grateful for a positive memory of singing in chorus with Norfolk Academy
-Grateful for positive memories of studying Wuthering Heights with a teacher at Norfolk Academy
-Grateful for the conversations at the grocery store
-Grateful for a healthy Sunday
-Grateful for the traffic signals
-Grateful for new insights into Gothic literature and Southern Gothic literature as well as societal standards and self-destructiveness
-Grateful for a sense of humor that breaks the ice
-Grateful for people that have come into new life and broken out of the old man
-Grateful for how the liberal arts adds value in the world
-Grateful for professors who are Renaissance thinkers, find the interconnections, and help people break out of boxes
-Grateful for the diversity in the mll
-Grateful for the confidence and style that people exude
-Grateful for Black leadership
-Grateful for cheerfulness I see expressed
-Grateful for the architecture in the mall
-Grateful for interracial couples I see outside and inside public spaces
-Grateful for cool fashion and the brown shirt someone is wearing
-Grateful for the people sweeping the floor
-Grateful for memories of mentoring the girls in technology and STEM in Washington, DC
-Grateful for memories of washing movies with Grandmama as a child
-Grateful for memories of the meditation studio in Washington, DC
-Grateful for the man in the neighborhood who thought of me and appreciated me and wished me well
-Grateful for memories at Camp Tabor of reading on the bunk beds during HOP
-Grateful for memories of being a summer camp counselor with a music camp for little kids
-Grateful for memories of reading about the Underground Railroad, Harriet Tubman, and John Brown, an abolitionist in West Virginia
-Grateful for the memorial for enslaved laborers
-Grateful to articulate thoughts and experiences
-Grateful for experiences with the Salvation Army
-Grateful for the people working in the shopping mall
-Grateful for the exchanges of money day in and day out
-Grateful for the opportunity to learn about shapes while running outside on the sidewalk
-Grateful for the greetings this morning on the walk to 7-11
-Grateful for what brings the man cleaning the house gratitude and how we met heart to heart in gratitude
-Grateful for the sound of open space
-Grateful for all of God's people singing at Big House
-Grateful for people's enthusiasm for wisdom
-Grateful for the career and college counselor at Norfolk Academy
-Grateful for my friends teaching
-Grateful for the people in the psych wards
-Grateful for sustainable businesses and signs on the walls that show the efficiency
-Grateful to be a "Steward of the Earth" by cleaning up
-Grateful for the man from the Arab world online
-Grateful for the people from Albania. met in the coffee shop
-Grateful for the public libraries
-Grateful for the singer singing the song
-Grateful for the man who wrote the book and researched it
+# Creative Writing - Gratitude List #
+## Gratitude List ##
+* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
+* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
+* Grateful for the sound of the laundry machine
+* Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
+* Grateful for a home someone architected at a schoolhouse on a farm
+* Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified
+* Grateful for the voice on the news, representing ethics and good judgment
+* Grateful for the song "One Tribe"
+* Grateful or the Soaps and Suds in Norfolk that serves the community
+* Grateful for friends who share news articles and support my spiritual growth
+* Grateful for self-assessment, honesty with myself about self-justification
+* Grateful for Black History month
+* Grateful for the man singing with the Consortium in Memphis
+* Gratitude for Muslim prayers 
+* Gratitude for the world history teacher at Norfolk Academy
+* Grateful for the sound of the dishwasher
+* Grateful for a smile shared with someone in the car next to me
+* Grateful for American flags reflecting through glass doors
+* Grateful for positive memories of my grandmother
+* Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
+* Grateful for Medieval organ music
+* Grateful for global cultures
+* Grateful for sketches
+* Grateful for the workers in the post office
+* Grateful for piano playing
+* Grateful for two women on the street
+* Grateful for a phone call with someone from high school and meeting new friends
+* Grateful to play music on the piano intuitively - I have 3 drafts of songs
+* Grateful for the light in the Christian Science Mother Church
+* Grateful for the first responders
+* Grateful for the man working with the USPS in the postal service
+* Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
+* Grateful for the construction sites
+* Grateful for the men working on the street
+* Grateful for the memories of working as an aide at camp
+* Grateful for all of the ethnicities represented at camp
+* Grateful for the call of the geese in the morning
+* Grateful for the lessons learned in the shower
+* Grateful for the cooks at camp
+* Grateful for the signs on the road
+* Grateful for the construction workers
+* Grateful for my cousins in Suffolk, Whaleyville
+* Grateful to learn about Kentucky, Indiana, and the Rust Belt
+* Grateful for the Spanish language on the Screen in the CVS - "Cambiar El Idioma"
+* Grateful for the man working at CVS and his love for the work
+* Grateful for the African American engineer
+* Grateful for the architecture at The Mother Church
+* Grateful for the man in Memphis who loves Math and Music
+* Grateful for the natural love of the little kids at the Preschoo
+* Grateful for the spontaneous trip to the softball game
+* Grateful for the stoplights
+* Grateful for orange marker balls, they hang from power lines
+* Grateful for advertisements and billboards on highways
+* Grateful for the Post Office
+* Grateful for a society built on notes and letters, and the underground messaging
+* Grateful for the Matthew Code and bringing challenges directly to people
+* Grateful for a conversation with my aunt
+* Grateful for positive memories of my cousin's love for dolphins and memories of going to their house
+* Grateful for positive memories of spending the summers reading in bunk beds with cousins
+* Grateful for the boys playing outside
+* Grateful for the stories of African Americans in Spain
+* Grateful for all the girls at Camp Nakanawa
+* Grateful for the people in the Courthouse
+* Grateful for the advertisement "Can you see me?"
+* Grateful for the walking challenge in the Sun with a friend from UVA
+* Grateful for the imagery of a rose
+* Grateful for all the neighbors outside walking, running, and driving
+* Grateful for the leader of Discipleship Training School who overcame darkness like gun violence with God
+* Grateful for the people with Discipleship Training School who whovercame darkness like porn addiction with God
+* Grateful for the lunch with a man from Africa, digging into his family's ancestory and roots in Cameroon and his shirt on Cameroonian Roots
+* Grateful for memories of the Operation Smile event in Virginia Beach
+* Grateful for the opportunity to meet students from China and learn about their names as a studnet at UVA
+* Grateful for the construction workers
+* Grateful for the car ride with Nate
+* Grateful for the time with the missionaires
+* Grateful for memories on the airplane with the people from Brazil and Argentina
+* Grateful for the law of abundance
+* Grateful for a new perspective
+* Grateful for the children's books by Jean Craighead George
+* Grateful for memories of Camp Tabor at May Creek with kickball games, softball games, and other games led by two uncles, grateful for the harmony expressed by all 13 cousins
+* Grateful for the leaders of the chorus groups I have been in and the work to blend in and sing different parts, including Alto and Soprano
+* Grateful for the good cheer of a friend I drove around
+* Grateful for memories at camp of the cooks
+* Grateful for memories at camp of running
+* Grateful for the memories of singing Amazing Grace at Camp Nakanawa on Sundays
+* Grateful for memories of Shakespeare plays at Camp Tabor
+* Grateful for memories at the Beach Cottage with the Furr Family and the Talbot family
+* Grateful for my aunt
+* Grateful for the man on the street, Jamal, who blessed with a complement "you have a beautiful soul"
+* Grateful for the man at church who shared his testimony
+* Grateful for the Holy Bible in the hotel room
+* Grateful for the man on the street and his name
+* Grateful for the ways different people on social media share nature and observations
+* Grateful for the Native American names in neighborhoods and street names; grateful for the Native American stories and specificity of the different tribes resonating throughout the land in Virginia, and TN and uncovering what's true about them
+* Grateful for the sign "Today is a nice day"
+* Grateful for the Spanish signs
+* Grateful for the Spanish version of Science and Health and the opportunity to speak the Spanish language
+* Grateful for cheerfulness of the Construction workers
+* Grateful for the chance to clean the bathrooms with the people at the Discipleship Training School
+* Grateful for the Spanish music on the radio
+* Grateful for power lines
+* Grateful for the man sitting outside the Post Office
+* Grateful for the man sitting outside his home on runs when in Downtown
+* Grateful for the light in the darkness at the candlelight choral concert
+* Grateful for the woman working at CVS
+* Grateful for the woman working at the coffee shop
+* Grateful for the chiming of the bells outside
+* Grateful for how Taylor Swift expresses emotions, stories, and relationships through song
+* Grateful for the early learning center
+* Grateful for the student studying biology
+* Grateful to tutor my cousin in Chemistry and help her improve her work and study habits
+* Grateful for memories of rappelling with other Christians
+* Grateful for Christian music
+* Grateful for homes aligned in rows next to each other
+* Grateful for the sense of renewal at UVA
+* Grateful for the man at the Customer Service finding an alternative idea, an alternative way to charge the cards, and share his favorite book
+* Grateful for car rides with an African American man proclaiming that "I LOVE the Black man" after four other outings with African American men
+* Grateful for conversations with him about a key African American leader.
+* Grateful for the friendly policeman this morning
+* Grateful for the dignity of people in the car while driving
+* Grateful for the woman in Rural Virginia who sympathized and empathized
+* Grateful for new insights and fresh thoughts
+* Grateful for the Southern Gospel Music at the church down the street
+* Grateful for the people on the street in Downtown Norfolk that I met and their cheerfulness
+* Grateful to walk around Norfolk
+* Grateful for the little kids on the playground
+* Grateful for a good conversation at 7-11 with someone
+* Grateful for the ways people give their change to charity
+* Grateful to meet an old friend outside
+* Grateful for the warmth of the Sun
+* Grateful for the Arab world
+* Grateful for the Israel world
+* Grateful for a morning wake-up call with my sister
+* Grateful to learn about posture at camp
+* Grateful for the people I met in 7-11
+* Grateful for the woman working at 7-11
+* Grateful for a positive memory of singing in chorus with Norfolk Academy
+* Grateful for positive memories of studying Wuthering Heights with a teacher at Norfolk Academy
+* Grateful for the conversations at the grocery store
+* Grateful for a healthy Sunday
+* Grateful for the traffic signals
+* Grateful for new insights into Gothic literature and Southern Gothic literature as well as societal standards and self-destructiveness
+* Grateful for a sense of humor that breaks the ice
+* Grateful for people that have come into new life and broken out of the old man
+* Grateful for how the liberal arts adds value in the world
+* Grateful for professors who are Renaissance thinkers, find the interconnections, and help people break out of boxes
+* Grateful for the diversity in the mll
+* Grateful for the confidence and style that people exude
+* Grateful for Black leadership
+* Grateful for cheerfulness I see expressed
+* Grateful for the architecture in the mall
+* Grateful for interracial couples I see outside and inside public spaces
+* Grateful for cool fashion and the brown shirt someone is wearing
+* Grateful for the people sweeping the floor
+* Grateful for memories of mentoring the girls in technology and STEM in Washington, DC
+* Grateful for memories of washing movies with Grandmama as a child
+* Grateful for memories of the meditation studio in Washington, DC
+* Grateful for the man in the neighborhood who thought of me and appreciated me and wished me well
+* Grateful for memories at Camp Tabor of reading on the bunk beds during HOP
+* Grateful for memories of being a summer camp counselor with a music camp for little kids
+* Grateful for memories of reading about the Underground Railroad, Harriet Tubman, and John Brown, an abolitionist in West Virginia
+* Grateful for the memorial for enslaved laborers
+* Grateful to articulate thoughts and experiences
+* Grateful for experiences with the Salvation Army
+* Grateful for the people working in the shopping mall
+* Grateful for the exchanges of money day in and day out
+* Grateful for the opportunity to learn about shapes while running outside on the sidewalk
+* Grateful for the greetings this morning on the walk to 7-11
+* Grateful for what brings the man cleaning the house gratitude and how we met heart to heart in gratitude
+* Grateful for the sound of open space
+* Grateful for all of God's people singing at Big House
+* Grateful for people's enthusiasm for wisdom
+* Grateful for the career and college counselor at Norfolk Academy
+* Grateful for my friends teaching
+* Grateful for the people in the psych wards
+* Grateful for sustainable businesses and signs on the walls that show the efficiency
+* Grateful to be a "Steward of the Earth" by cleaning up
+* Grateful for the man from the Arab world online
+* Grateful for the people from Albania. met in the coffee shop
+* Grateful for the public libraries
+* Grateful for the singer singing the song
+* Grateful for the man who wrote the book and researched it
 * Grateful for the people in the book
 * Grateful for the signs of encouragement in Starbucks
 * Grateful for how people at church speak about the sun
@@ -860,6 +862,7 @@ Grateful for the man who wrote the book and researched it
 * Grateful for people who express gratitude in Washington, DC
 
 <br>
+
 
 ### Education and Spirituality
 As a graduate of UVa, I was most passionate about religious liberty and lifelong learning. I expressed curiosity about the meaning of 'freedom of the press' and 'freedom of speech'. I think it's cool that beliefs of the original founders, some good, and some evil, given to people by mankind's Creator gave way to the possibility for people to become free of limtiations and engage in a higher version of spirituality.
