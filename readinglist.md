@@ -58,6 +58,7 @@ layout: default
 * Songwriter's Journal (Diary, Notebook) 
 * Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
 * Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
+* Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
 * Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
