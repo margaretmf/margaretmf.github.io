@@ -3,3 +3,4 @@
 
 <img class="profile-picture" src=".jpg">
 
+<img src = "sketches/sketch1.jpg">
