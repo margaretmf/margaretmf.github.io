@@ -107,7 +107,8 @@ layout: default
 * Shakespeare's Songbook 
 * Express, Mail & Merchandise Service
 * The Swayne Lumber Company: Narrow gauge logging in the Merrimac Forest
-* First mail west;: Stagecoach lines on the Santa Fe Trail,
+* First mail west;: Stagecoach lines on the Santa Fe Trail
+* Engineers on the Twin Rivers - A History of the U. S. Army Engineers Nashville District 1769-1978 by Leland R. Johnson
 * Romanticism: A Very Short
 * Nashville: Scenes from the New
 * The War on Normal People
