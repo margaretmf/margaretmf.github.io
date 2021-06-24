@@ -22,6 +22,9 @@
 - name: "Reading List"
   link: "readinglist"
   
+- name: "Gratitude List
+  link: "gratitudelist"
+  
 - name: "Spiritual Inspiration"
   link: "spiritualinspiration"
   
