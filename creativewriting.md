@@ -7116,6 +7116,24 @@ Rainbow in the sky
 
 <br>
 
+## The Apple ##
+He threw an apple down, and I caught it
+He told me he loved me, and I loved him right back
+He showed me the world of knowledge, and I became more aware of how beautiful this world is
+
+An apple, a cherry on the gorund
+
+**Themes of apples in the Bible, the Reanissance, and fairy tales and myths
+
+<br>
+
+## Bubbles ##
+Bubbles in the tea cup.
+Bubbles in the bathtub.
+Bubbles in the sink.
+
+<br>
+
 ## The Sea ##
 A million miles of open sea
 It goes on and on.
