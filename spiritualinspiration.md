@@ -9,8 +9,6 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Gratitude List - Creative Writing
-# Creative Writing - Gratitude List #
-## Gratitude List ##
 * Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
 * Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
 * Grateful for the sound of the laundry machine
@@ -861,8 +859,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for home design
 * Grateful for people who express gratitude in Washington, DC
 
-<br>
 
+<br>
 
 ### Education and Spirituality
 As a graduate of UVa, I was most passionate about religious liberty and lifelong learning. I expressed curiosity about the meaning of 'freedom of the press' and 'freedom of speech'. I think it's cool that beliefs of the original founders, some good, and some evil, given to people by mankind's Creator gave way to the possibility for people to become free of limtiations and engage in a higher version of spirituality.
