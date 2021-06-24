@@ -61,6 +61,7 @@ layout: default
 * Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
+* Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
 * Dolly Parton, Songteller: My Life in Lyrics by Dolly Parton
 * Cash: The Autobiography by Johnny Cash
 * It's a Long Story: My Life by Willie Nelson
@@ -75,6 +76,9 @@ layout: default
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
 * Defund Fear
 * Front Row at the Trump Show
+* The Book of Circles: Visualizing Spheres of Knowledge: (with over 300 beautiful circular artworks, infographics and illustrations from across history) by Manuel Lima
+* Favorite African Folktales by Nelson Mandela
+* Rails across the Mississippi: A HISTORY OF THE ST. LOUIS BRIDGE by Robert W. Jackson
 * Accidentally Wes Anderson
 * Long-Ago Stories of the Eastern Cherokee (American Heritage)
 * Celtic Fairy Tales
