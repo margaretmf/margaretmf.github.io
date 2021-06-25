@@ -76,6 +76,7 @@ I believe and have found that playing music and participating in improv brings j
 * Exploring the idea of "filter" for art, and copying vs. creating. vs original
 * Appreciate the way multiple people turn to the same things in nature to photograph, sketch, paint, or appreciate
 * Apreciate how music expresses feelings that multiple people have
+* Realized that art shares the same idioms, language, or concepts from that other art uses but spins off it to share an original viewpoint or filter, and multiple artists may look to the same object in different ways, and there's harmony since we all belong to the same universe
 
 ## Nature ##
 *I believe* nature allows a simpler and fuller life [in 2009, 2010]
@@ -3849,6 +3850,15 @@ the sun shining through
 
 <br>
 
+## Time ##
+He was old Mr. Time.
+He had watched down from heaven on all the days.
+He had lived through this all bfore.
+He saved us all from things we could not foresee.
+He knew how to synch us up.
+
+<br>
+
 ## Where You are From, Where You are From From ##
 I appreciate where you're from, where you're from from.
 I appreciate where your ancestors come from.
@@ -7124,6 +7134,18 @@ He showed me the world of knowledge, and I became more aware of how beautiful th
 An apple, a cherry on the gorund
 
 **Themes of apples in the Bible, the Reanissance, and fairy tales and myths
+
+<br>
+
+## Save Your Kisses ##
+They say to save your kisses
+Leave your kisses for the right one.
+It will be meaningful and lasting.
+You deserve the best.
+Your innocence is there.
+He can't destory it.
+He's free to hold the door for you.
+He's free to make you feel great.
 
 <br>
 
