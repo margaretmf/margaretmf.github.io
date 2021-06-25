@@ -965,6 +965,18 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my friend from Memphis in DC and the time with her there eating
 * Grateful for all the children being taught
 * Grateful for all the members of the LGBTQ community begin accepted for who they are
+* Grateful for friends' dads in Nashville
+* Grateful for memories in Ireland
+* Grateful for how Taylor Swift writes notes on toilet paper
+* Grateufl for the cuteness of little children and their intelligence
+* Grateful for memories in airports and with people all over the airport
+* Grateful for memroies at UVA of interesting people in class
+* Grateful for Christians who love music
+* Grateful for the people in the train station
+* Grateful for the people in the CVS
+* Grateful for the people working in the mall
+* Grateful for the people in the psych ward and the moon analogy
+* Grateful for other people taking photos of leaves but writing down the specific type of leaaf
 
 
 <br>
