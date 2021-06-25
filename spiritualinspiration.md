@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Steward of the Earth
-**41** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+**42** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
 
 
 <br>
@@ -976,7 +976,78 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people in the CVS
 * Grateful for the people working in the mall
 * Grateful for the people in the psych ward and the moon analogy
-* Grateful for other people taking photos of leaves but writing down the specific type of leaaf
+* Grateful for other people taking photos of leaves but writing down the specific type of leaf
+* Grateful for all the people doing the Broadway plays
+* Grateful for memories in the hotel
+* Grateful for the shower
+* Grateful for musical families from camp
+* Grateful for joy at weddings
+* Grateful for brotherly and sisterly love
+* Grateful for the singers and musicians singing with the same ideas
+* Grateful for how God shares ideas and intuitioins
+* Grateful for a happy baby
+* Grateful for a world inside everyone
+* Grateful for Charlottesville and all the people there
+* Grateful for Mary's relationship to Dattee
+* Grateful for Dattee's wisdom
+* Grateful for the lessons of history to go back to the source
+* Grateful for the prayer at the summit
+* Grateful for the light in the darkness and both day and night
+* Grateful for Passenger lyrics
+* Grateful for the people at Big House Church
+* Grateful for compassion education
+* Grateful for people at the car shop
+* Grateful for that woman in West Virginia
+* Grateful for people working to record history accurately
+* Grateful for memories with Paige and Aunt Dee Dee
+* Grateful for Victorian pasttimes
+* Grateful for the people I met at the apartment complex
+* Grateful for people overcoming challenges at Big House
+* Grateful for all the people at the healing expo
+* Grateful for the musicians at Big House
+* Grateful for their loving families
+* Grateful for memories at the coffee shop
+* Grateful for people celebrating other musicains
+* Grateful for PResident Barack Obama's dad
+* Grateful for the workers outside who are fully human
+* Grateful for families gathering
+* Grateful for memories of walking in Washington, DC
+* Grateful for the good memories on top of the bad ones
+* Gratful for the guys on the streets
+* Grateful for other musicians on crying
+* Grateful for all the musicians in Memphis
+* Grateful for all the people around
+* Grateful for all the people in NY
+* Grateful for Dabble, bookwriting software
+* Grateful for people celebrating birthdays
+* Grateful for all there is to learn about the Memphis music scene
+* Grateful for people working in the htoel
+* Grateful for everyone in the htoel business
+* Grateful for the man sitting outside the apartment complex
+* Grateful for the cabbage meal
+* Grateful for leaves in my sweater pocket
+* Grateful for leaves outside the 711
+* Grateful for family histories
+* Grateful for the adventures of little kids, boys and girls
+* Grateful for Thanksgiving
+* Grateful for all the people in other countries like France and Spain
+* Grateful for the joy that comes today
+* Grateful for all the next generation learns and creates
+* Grateful for the apartment in DC
+* Grateful for friends who loved **The Giving Tree** mutually
+* Grateful for other singers and musicians on Istagram
+* Grateful for what little kids express gratitude for
+* Grateful for library spaces
+* Grateful for shapes in the bathroom
+* Grateful for all that little kids are learning in school
+* Grateful for the idea of eternity
+* Grateful for the democratization of music
+* Grateful for the work at church
+* Grateful for Sesame Street
+* Grateful for the people at the Salvation Army
+* Grateful for the perspective of the LGBTQ community
+* Grateful for the problem solving and team work
+* Grateful for family members at church
 
 
 <br>
