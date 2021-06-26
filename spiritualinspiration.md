@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Steward of the Earth
-**42** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+**43** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
 
 
 <br>
