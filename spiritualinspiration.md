@@ -1121,6 +1121,61 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people finishing graduate programs
 * Grateful for old neighbors from high school
 * Grateful for the enthusiasm of leaders at work
+* Grateful for the gratitude coloring books in the airport
+* Grateful for people working for the airport
+* Grateful for the graduates of MUS doing good things for the economy
+* Grateful for the nature photos from other people at church
+* Grateful for a conversation with Paige
+* Grateful for her daughter's work in teaching
+* Grateful for people creating music
+* Grateful for th epeople writing the books on Tennessee
+* Grateful for moms and their babies
+* Grateful for Chritsian friends from Norfolk Academy
+* Grateful for the people writing books
+* Grateful for the idea of aiming for the stars and the trees
+* Grateful for all the colors
+* Grateful for wisdom teachers from other countries
+* Grateful for friends who work on Spanish
+* Grateful for art from Morocco
+* Grateful for the people from Mississippi who love "Where the Red Fern Grows"
+* Grateful for the childlike qualities of people
+* Grateful for vintage interior design
+* Grateful for the people working with Hutchison
+* Grateufl for people working in law and doing the right thing
+* Grateful for people enjoying Disney Land
+* Grateful for people in DC engaging in interfaith
+* Grateful for the physical representation of lifting people up
+* Grateful for classroom design
+* Grateful for friends from UVA
+* Grateful for the women creating new music
+* Grateful for other singer songwriters
+* Grateufl for the stars and the moon
+* Grateful for the dialogue event in DC
+* Grateful for the man working in Starbucks
+* Grateful for the guy singing a song about wraparound porches
+* Grateful for good memroies in DC of praying about mankind, India, and eating ice cream
+* Grateful for the ice cream socials at church
+* Grateful for memories of UVA
+* Grateful for the Spanish influence on our country
+* Grateful for the neighborhoods in DC
+* Grateful for a connection with the woman at the 711
+* Grateful for the adventure of people
+* Grateful for Mary and Tyelr in Va
+* Grateful for beauty every day
+* Grateful for memories back at home of partying
+* Grateufl for the lvoe that lights up the home
+* Grateful for lights flickering on and off
+* Grateful for the Cumberland Gap
+* Grateful for Christians creating music
+* Grateful for grace in the Catholic Church
+* Grateful for all the Christians in Boston
+* Grateful for the activity in the Christian Science Reading Room
+* Grateful for all the lvoe at the camps
+* Grateful for all the good at gas stations
+* Grateful for country and hroses in England and Africa and Spain
+* Grateful for people doing interior design work
+* Grateful for Sesame Street
+* Grateufl for people from chruch and their moms
 
 
 <br>
