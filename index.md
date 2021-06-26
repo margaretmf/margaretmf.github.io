@@ -59,48 +59,67 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
-* Daily, I work to explore the idea of belief and believing.
-* Daily, I work to listen to the feedback I receive from people.
-* Daily, I work to know how I can better work with people.
-* Daily, I work to know how I can respect the boundaries of others.
-* Daily, I work to forgive people who have hurt me.
-* Daily, I work to move outside of my comfort zone in some way.
-* Daily, I work to commit to people who I already know.
-* Daily, I work to appreciate and expand upon the work already done in the past.
-* Daily, I work to give credit to people where credit is already due.
-* Daily, I work to let go of the past.
-* Daily, I work to love someone who I haven't fully loved better.
-* Daily, I work to give up any vain or personal ambition.
-* Daily, I work to listen to the needs of others.
-* Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-* Daily, I work to appreciate my family.
-* Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
-* Daily, I work to appreciate the names of people I meet.
-* Daily, I learn not to retaliate when hurt.
-* Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
-* Daily, I am grateful for democracy and democratization.
+**Todos de los días, trabajo para expresar gratitude por la gente y agradeco los talentos latentos que veo en la gente.**
 
-* Todos de los días, trabajo para expresar gratitude por la gente y agradeco los talentos latentos que veo en la gente.
-* Todos de los días, trabajo para explorar la idea de creencia y creyendo.
-* Todos de los días, trabajo para escuchar a realimentación que recibo de le gente.
-* Todos de los días, trabajo para conocer
-* Todos de los días, trabajo para conocer como 
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
-* Todos de los días, trabajo para
+* Daily, I work to explore beliefs and believing.
+**Todos de los días, trabajo para explorar las creencias y creyendo.**
+
+* Daily, I work to listen to the feedback I receive from people.
+**Todos de los días, trabajo para escuchar a realimentación que recibo de le gente.**
+
+* Daily, I work to know how I can better work with people.
+**Todos de los días, trabajo para conocer...**
+
+* Daily, I work to know how I can respect the boundaries of others.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to forgive people who have hurt me.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to move outside of my comfort zone in some way.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to commit to people who I already know.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to appreciate and expand upon the work already done in the past.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to give credit to people where credit is already due.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to let go of the past.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to love someone who I haven't fully loved better.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to give up any vain or personal ambition.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to listen to the needs of others.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to appreciate my family.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
+**Todos de los días, trabajo para...**
+
+* Daily, I work to appreciate the names of people I meet.
+**Todos de los días, trabajo para...**
+
+* Daily, I learn not to retaliate when hurt.
+**Todos de los días, trabajo para...**
+
+* Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
+**Todos de los días, trabajo para...**
+
+* Daily, I am grateful for democracy and democratization.
+**Todos de los días, trabajo para...**
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
