@@ -80,9 +80,9 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 * Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
 * Daily, I am grateful for democracy and democratization.
 
-* Todos de los días, trabajo para expresar gratitude por la gente y 
-* Todos de los días, trabajo para explorar
-* Todos de los días, trabajo para escuchar
+* Todos de los días, trabajo para expresar gratitude por la gente y agradeco los talentos latentos que veo en la gente.
+* Todos de los días, trabajo para explorar la idea de creencia y creyendo.
+* Todos de los días, trabajo para escuchar a realimentación que recibo de le gente.
 * Todos de los días, trabajo para conocer
 * Todos de los días, trabajo para conocer como 
 * Todos de los días, trabajo para
