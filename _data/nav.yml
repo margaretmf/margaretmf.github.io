@@ -22,9 +22,6 @@
 - name: "Reading List"
   link: "readinglist"
   
-- name: "Spiritual Inspiration"
-  link: "spiritualinspiration"
-  
 - name: "Resume"
   link: "resume"
   
@@ -33,9 +30,6 @@
   
 - name: "Calendar"
   link: "calendar"
-  
-- name: "Spiritual Inspiration and Bible Lesson Interaction"
-  link: "spiritualinspirationandbiblelessoninteraction"
   
 - name: "Teaching"
   link: "teaching"
