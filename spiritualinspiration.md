@@ -1048,6 +1048,79 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the perspective of the LGBTQ community
 * Grateful for the problem solving and team work
 * Grateful for family members at church
+* Grateful for all 13 cousins
+* Grateful for memories of the zoo
+* Grateful for sisters
+* Grateful for electriciation
+* Grateful for children on playgrounds
+* Grateful for the daily system and the larger system
+* Grateful for all the little kids taking music lessons
+* Grateful for lvoers of the Sciences and Arts and Renaissance thinking
+* Grateful for friend's sisters
+* Grateful for global history
+* Grateful for memories at the cousins' house
+* Grateful for the rivers powering electricity
+* Grateful for people who enjoyed the Mississippi Delta
+* Grateful for history of West Tennessee and the people who used to play music on porches
+* Grateful for friends from UVA from Tennessee and have deep relationship to Christianity
+* Grateful for the work of military workers
+* Grateful for healing testimonies in Sunday School from the military
+* Grateful for deeper and wider views
+* Grateful for all the people with Bibles from years past
+* Grateful for the Kaplan family
+* Grateful for memories from high school with people from the arts crowd
+* Grateful for the canoeing in DC
+* Grateful for the party a friend had
+* Grateful for the work a friend
+* Grateful for genuine friendships
+* Grateful for all the teachers
+* Gratefulf or the peace of the cousins
+* Grateful for all the leaves
+* Grateful for nature and the specific types that people take time to know
+* Grateful for our early founders and discoveres who knew nature tpes
+* Grateful for all the people at the coffee shop for the Christian meeting
+* Grateful for history of rivers and music and folklore in China
+* Grateful for all the homes in Charlottesville
+* Grateful for meetings at EVERFI
+* Grateful for the meals at camp
+* Grateful for real stories of messages in a bottle found from 100 years ago
+* Grateful for music architecture
+* Grateful for the music building
+* Grateful for the rhododendrons
+* Grateful for the trust in Japan and the ability for them to leave their laptops
+* Grateful for the food near EVERFI
+* Grateful for memories at friends' houses
+* Grateful for the entrepreneurs in Tennessee
+* Grateful for people from church
+* Grateful for indigenous children
+* Grateful for the crickets
+* Grateful for children's love of crickets in the summer
+* Grateful for professors at UVA
+* Grateful for the history of mankind intuitively known to the next generation
+* Grateful for rebirth
+* Grateful for the people in history who lived and loved through storms and stilled them
+* Grateful for the nighttime prayer available to everyone and all children
+* Grateful for the time with the missionary work
+* Grateful for the Georgetown neighborhood and everyone in it
+* Grateful for the spiritual people at the Georgetown church
+* Grateful for the people I talked to over the phone
+* Grateful for the woman at the Airbnb
+* Grateful for the teachers at Norfolk Academy who created books
+* Grateful for the people working in stores
+* Grateful for everything that everyone learns and creates each day
+* Grateful for the joy of people and the learning experiences
+* Grateful for the love in every child's heart
+* Grateful for the joy that comes from watching someone discover, create, or learn
+* Grateful for the social life at school
+* Grateful for the next generation at Norfolk Academy
+* Grateful for the community service program
+* Grateful for people my age teaching
+* Grateful for inspiration from God on presidential speeches
+* Grateful for inspiration from God that women don't need a title
+* Grateful for people at the international homes in DC
+* Grateful for people finishing graduate programs
+* Grateful for old neighbors from high school
+* Grateful for the enthusiasm of leaders at work
 
 
 <br>
