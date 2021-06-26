@@ -9,17 +9,17 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, and a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles.
+I am **Margaret Furr**, a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles. As a historian, I care most about going back to the primary origin of ideas.
 
-**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros.**
+**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como historiadora, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. 
 
 **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.**
 
-Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to *push the boundary of what's possible*, hopefully *in the name of the greater good* (Thomas Jefferson). It's also great to cultivate latent talents and play around like little kids and amateurs.
+Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to **push the boundary of what's possible**, hopefully **in the name of the greater good** (Thomas Jefferson). It's great to cultivate latent talents and play around like little kids and amateurs, and I seek to do work scientifically, applying best practices.
 
-**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para *la emprendedora de los límites de que posible*, con esperanza que es *en el nombre de la mayor bien* (Thomas Jefferson). Es también estupendo cultivar talentos latentes y jugar como niñas pequeñas.**
+**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para *la emprendedora de los límites de que posible*, con esperanza que es *en el nombre de la mayor bien* (Thomas Jefferson). Es excelente cultivar talentos latentes y jugar como niñas pequeñas, y busco trabajar científicamente, aplicando mejores prácticas.**
 
 I am exploring how to sketch and how to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
@@ -68,7 +68,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Todos de los días, trabajo para escuchar a realimentación que recibo de le gente.**
 
 * Daily, I work to know how I can better work with people.
-**Todos de los días, trabajo para conocer...**
+**Todos de los días, trabajo para conocer como puedo mejorar trabajar con la gente.**
 
 * Daily, I work to know how I can respect the boundaries of others.
 **Todos de los días, trabajo para...**
