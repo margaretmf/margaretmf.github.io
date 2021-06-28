@@ -3681,6 +3681,36 @@ History is an expression of experiences, individual and collective.
 The study of history is the study of what has always and already been there, the stories unmasked.
 The study of history is the art of telling stories, and the art of communication.
 
+Believe in silver linings
+Believe in family
+Believe in beauty
+Believe in grace
+Believe in laughter
+Believe in color
+Believe in rainbows
+Believe in relating
+Believe in sincerity
+Believe in the power of kindness
+Believe in music
+Believe in peace
+Believe in the voice
+Believe in opportunity
+Believe that anything can be achieved
+Believe in a liberal, broad education
+Believe in a team
+Believe in the power of people
+Believe in the South
+Believe in unity
+Believe in a better tomorrow
+Believe in the ability of someone else
+Believe in a new America
+Believe in the entrepreneurship
+Believe in youth
+Believe in what is right
+Believe in the power of love
+Believe in sunlight
+Believe that one can do it
+
 <br>
 
 ## Democracy ##
