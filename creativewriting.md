@@ -4451,6 +4451,15 @@ All around me the sun will always peek through at the end.
 
 <br>
 
+## A World Always Moving ##
+There's a world outside these walls of stars and of colors
+There's a world outside of movement
+There's a world outside of trees and leaves and sunlight 
+There's a world outside of people loving, living, dancing, learning, acting, thinking, teaching, helping, selling
+There's a symphony, a harmony outside
+
+<br>
+
 ## Woman in Black ##
 I'm the one who turned into the girl wearing all black.
 The girl in black. That's who I beecame.
