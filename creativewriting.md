@@ -4416,6 +4416,11 @@ You thought you were being laughed at
 You really were being taught a powerful lesson
 The light in the darkness it's so strong
 
+It's ok to cry
+It's ok to let the tears flow
+It's ok to cry
+It's like the water droplets after a heavy rain
+
 <br>
 
 ## He's An Old Time Boy ##
