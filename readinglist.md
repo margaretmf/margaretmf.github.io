@@ -42,6 +42,8 @@ layout: default
 * [Taylor Swift: In Her Own Words (In Their Own Words)](https://www.amazon.com/Taylor-Swift-Her-Words-Their/dp/1572842784/ref=sr_1_1?dchild=1&keywords=Taylor+swift+in+her+own+words&qid=1624397654&sr=8-1) by Helena Hunt
 * [Taylor Swift: The Whole Story](https://www.amazon.com/Taylor-Swift-Whole-Chas-Newkey-Burden/dp/0007544219/ref=asc_df_0007544219/?tag=hyprod-20&linkCode=df0&hvadid=312111908051&hvpos=&hvnetw=g&hvrand=2397980912033550855&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9008590&hvtargid=pla-554841479888&psc=1) by Chas Newkey-Burden
 * [The United Symbolism of America: Deciphering Hidden Meanings in America's Most Famous Art, Architecture, and Logos](https://www.amazon.com/United-Symbolism-America-Deciphering-Architecture/dp/1601630018/ref=sr_1_2?dchild=1&keywords=the+united+symbolism+of+america&qid=1624542188&sr=8-2) by Robert Hieronimus, PhD with Laura Cortner
+* [Symmetry Comes of Age: The Role of Pattern in Culture](https://www.amazon.com/Symmetry-Comes-Age-Pattern-Culture/dp/0295983663) by Dorothy K. Washburn and Donald W. Crowe
+* [Dolly Parton, Songteller: My Life in Lyrics](https://www.amazon.com/Dolly-Parton-Songteller-Life-Lyrics/dp/1797205099/ref=sr_1_3?dchild=1&keywords=Dolly+Parton%2C+Songteller%3A+My+Life+in+Lyrics&qid=1626385032&s=books&sr=1-3) by Dolly Parton
 
 
 #### Interested
@@ -58,13 +60,12 @@ layout: default
 * Songwriter's Journal (Diary, Notebook) 
 * Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
 * Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
-* Nashville Songwriter: The Inside Stories Behind Country Musics Greatest Hits
+* Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
 * Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
 * Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
 * Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
-* Dolly Parton, Songteller: My Life in Lyrics by Dolly Parton
 * Cash: The Autobiography by Johnny Cash
 * It's a Long Story: My Life by Willie Nelson
 * Sweethearts of Montana: Mail Order Bride Western Romance 7 Book Box Set
