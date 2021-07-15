@@ -64,6 +64,23 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the architecture at The Mother Church
 * Grateful for the man in Memphis who loves Math and Music
 * Grateful for the natural love of the little kids at the Preschoo
+* Graetful for memories running in DC
+* Grateful for family
+* Grateful for a good education
+* Grateful for nature
+* Grateful to love organizing things
+* Grateful for the CHKD circle
+* Grateful for home
+* Grateful to be alive
+* Grateful for sketches
+* Grateful to set a goal to regain a sense of control over decisions in life
+* Grateful to be free from people giving unsolicited advice
+* Grateful to gain dominion over wrongdoing
+* Grateful to acknowledge that I can be empathetic, enthusiastic, and curious
+* Grateful for the balance between the rational mind and the emotional mind
+* Grateful to be a survivor
+* Grateful for all the colors in the universe
+* Grateful for the stars that continuously shine no matter where I am
 * Grateful for the spontaneous trip to the softball game
 * Grateful for the stoplights
 * Grateful for orange marker balls, they hang from power lines
