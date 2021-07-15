@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Steward of the Earth
-**43** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+**46** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
 
 
 <br>
@@ -104,6 +104,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the boys playing outside
 * Grateful for the stories of African Americans in Spain
 * Grateful for all the girls at Camp Nakanawa
+* Grateful to pick up trash
+* Grateful for family members
+* Grateful for church members
+* Grateful for medieval history
+* Grateful for friends from DC
 * Grateful for the people in the Courthouse
 * Grateful for the advertisement **Can you see me?**
 * Grateful for the walking challenge in the Sun with a friend from UVA
