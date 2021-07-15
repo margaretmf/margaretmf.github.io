@@ -4434,6 +4434,23 @@ He's here to share a good laugh and a smile
 
 <br>
 
+## It's Not a Fairy Tale ##
+It's not a fairy tale
+It's not a happy ending
+It's a sad ending
+It's a harsh ending
+It's an ending with bitterness, reactions, jealousy, vengeance, indignance, frustration and anger. I feel all these feelings at once.
+Life keeps going on.
+Beauty is still there.
+I'm still alive.
+Better days are coming.
+New dreams can still be born and awakened.
+There's still a rainbow shining, smiling through while all alone, in the psych ward, the ambulance car, the cell with white walls.
+The rainbow is the smile of a stranger, the colors in the hospital building, the stars in everyone's hearts outside of these gray walls.
+All around me the sun will always peek through at the end.
+
+<br>
+
 ## Woman in Black ##
 I'm the one who turned into the girl wearing all black.
 The girl in black. That's who I beecame.
@@ -4550,11 +4567,36 @@ It brought back all those memories of home sweet home.
 
 <br>
 
+## Familiar Streets ##
+These old familiar streets.
+I recognize them through a song.
+I recognize them through a visit.
+I sigh with relief, "this is my home".
+
+I recognize the ducks.
+I recognize the people with a warm embrace.
+I recognize the streets.
+I recognize the home.
+I recognize the smells.
+I recognize the birds.
+I recognize the love.
+I recognize the harmony.
+I recognize the light.
+I recognize the trees.
+
+<br>
+
 ## Playing the Fool ##
 Making things worse.
 Playing the fool.
 Doing dumb things. 
 Being exposed, exposing oneself.
+
+<br>
+
+## Rough Night ##
+It's been a rough night yelling, sorrow, frustration, sadness, loneliness, and depression.
+The music always resounds.
 
 <br>
 
