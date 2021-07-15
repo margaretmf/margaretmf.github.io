@@ -4880,6 +4880,10 @@ Loving the earth
 There's a whole world inside of you of thinks you love
 There's an entire world out there waiting to be known
 
+I love you like a star in the darkness of the night
+I love you like a morning star ready to start the day
+I hope to be with you both day and night
+
 <br>
 
 ## Leaves ##
@@ -5747,6 +5751,9 @@ It's a new day to choose to love and love within your heart
 There are people everywhere loving and to love
 
 It's a lifetime of days with you in my heart
+
+It's a day to try something new
+It's a beautiful and amazing day to be alive
 
 <br>
 
@@ -7009,6 +7016,10 @@ Collective sunrise and collective sunset
 
 It's always rotating, always shifting
 See new things, discover new things
+
+Every day, the perspective the perception shifts of the world
+The world shifts like the earth rotates
+The sun was always there
 
 <br>
 
