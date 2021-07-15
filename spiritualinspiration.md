@@ -81,6 +81,16 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to be a survivor
 * Grateful for all the colors in the universe
 * Grateful for the stars that continuously shine no matter where I am
+* Grateful to throw the football
+* Grateful for football players
+* Grateful for the crunching of leaves
+* Grateful for the mental photography or capturing of beautiful leaves at Rolling Hills
+* Grateful for people engaging in joy, fun today
+* Grateful for the brick wall reflecting through the window
+* Grateful for the people appreciating music
+* Grateful for all the people at Rolling Hills
+* Grateful for the leaves
+* Grateful for the architecture
 * Grateful for the spontaneous trip to the softball game
 * Grateful for the stoplights
 * Grateful for orange marker balls, they hang from power lines
