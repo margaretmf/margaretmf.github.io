@@ -79,6 +79,37 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the African American engineer
 * Grateful for the architecture at The Mother Church
 * Grateful for the man in Memphis who loves Math and Music
+* Grateful for musicians from Indiana, Illinois, Maryland coming to Nashville
+* Grateful for the man downstairs
+* Grateful for shifts in perception
+* Grateful for the experiences at Roling HIlls
+* Grateful for the people I met
+* Grateful for the snacks 
+* Grateful for books read
+* Grateful for the work of data management
+* Grateful for the expressive art therapy
+* Grateful for no social media
+* Grateful for all the people in the airport
+* Grateful for musicians who encourage me to play music
+* Grateful for southern accents
+* Grateful for people who respond on social media
+* Grateful for all the people in the airport, there are so many people
+* Grateful for the ring bought today
+* Grateful for the transportation signals
+* Grateful for how people in cars and cars themselves communicate between each other
+* Grateful for the man who drove me today
+* Grateful for a healthy conversation with the man who drove me
+* Grateful for my sister who is really strong and capable
+* Grateful for the innocence of a couple playing music
+* Grateful for the harmony of my music
+* Grateufl for American Eagle airways flying high in the sky
+* Grateful for all the people on the plane
+* Grateful for country music embraced by all ethnicities' cultures and sounds
+* Grateful for the experiences with the Spanish language
+* Grateful for the painter painting the wlal
+* Grateful for redeeming grace, unchanging love
+* Grateful for Nam's and Aunt Mary's thoughts on nature and clothing
+* Grateful to be honest with myself and others
 * Grateful for the natural love of the little kids at the Preschoo
 * Graetful for memories running in DC
 * Grateful for family
