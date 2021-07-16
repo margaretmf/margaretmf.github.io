@@ -6425,6 +6425,13 @@ a penny for the people looking for change
 a penny for a smile on my parents' face
 a penny for my sister and brother
 
+There's a penny on the ground
+I toss it up and throw it into the green trees and the bushes
+The leaves turn gold
+
+I wish for a better day
+I wish for the love in a girl's heart to shine true
+
 <br>
 
 ## Tearing Leaves ##
@@ -8411,6 +8418,21 @@ A connection to the land.
 A love of home and family.
 Freedom from racial, gender, and cultural politics.
 The place the country began and started.
+
+<br>
+
+## Southern Living ##
+Front porch swining
+Laughing and singing
+Back doors slamming
+Greetings and hellos
+Neighbors everywhere
+Sippin on tea and lemonade
+Ants crawling and ladybugs out
+The suns shining
+I hear the shoes hitting the ground
+I hear the kids yelling at the pool
+I see the trucks driving by
 
 <br>
 
