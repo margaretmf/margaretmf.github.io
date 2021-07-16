@@ -3957,6 +3957,11 @@ the emeting and greeting of
 ## This Holy Book ##
 This holy book, it's everywhere I go.
 Hotel rooms, psych wards, libraries, and churches.
+You'll find this book every where you go.
+It goes back to King James, before King James.
+It lightens up the room. It lightens up the hotels and hospitals.
+It's a torch for people.
+It helps people heal.
 
 <br>
 
@@ -3987,6 +3992,11 @@ Bottled up in a Bottle, not my heart
 <br>
 
 ## Changing Seasons ##
+
+<br>
+
+## Another's Lens ##
+Looking at life and everything around through the lens of someone else.
 
 <br>
 
@@ -6564,6 +6574,9 @@ a penny for the South to live on
 a penny for the people looking for change
 a penny for a smile on my parents' face
 a penny for my sister and brother
+a penny for the people's freedom
+a penny for the couple's harmony
+a penny for a love for a neighbor
 
 There's a penny on the ground
 I toss it up and throw it into the green trees and the bushes
@@ -7594,6 +7607,8 @@ The sun is the center
 The rays of light radiate out
 The hearts filled with love radiate out from the central heart of hearts
 
+Day in, day out, the earth continues to move
+
 <br>
 
 ## A World ##
@@ -8205,6 +8220,11 @@ but willfulness, heaviness, and pain took over and used me.
 Knowing what's right, but doing what's wrong will lead to prison.
 Complaining when I could pause, and being grateful will lead to prison.
 Hitting back when I can forgive will lead to prison.
+
+<br>
+
+## A Whole World Outside ##
+Outside of these prison walls, there's a whole universe of stars
 
 <br>
 
