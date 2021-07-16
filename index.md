@@ -9,9 +9,9 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles. As a historian, I care most about going back to the primary origin of ideas.
+I am **Margaret Furr**, a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles. As a classically educated historian, I care most about going back to the primary origin of ideas.
 
-**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como historiadora, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
+**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. 
 
