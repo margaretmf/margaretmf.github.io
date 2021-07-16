@@ -4595,6 +4595,9 @@ It strikes a chord.
 ## Guitar ##
 The pain of playing guitar.
 The heartbreaking guitar playing.
+Sticking with it.
+Letting it hurt.
+Bearing the pain.
 
 ## A Chord Struck ##
 It was a hit.
@@ -4824,7 +4827,7 @@ All I want to do is yell out or be quiet.
 The airplane lifts up.
 I want to fly.
 I want to see the aerial view.
-I want to look down below and see all thel and and all the flickering lights.
+I want to look down below and see all the land and and all the flickering lights.
 
 Airplanes shooting in the sky
 Trains of white trailing
@@ -4904,7 +4907,7 @@ Night hours.
 When you can't fully see.
 There's the light in the darkness, saying "I can trust in you."
 The flickering lights. They are everywhere like the fairie dust.
-You don't know what's on the other side, but something is there to greet you iwht love, a surprise, the answer that was there all along.
+You don't know what's on the other side, but something is there to greet you with love, a surprise, the answer that was there all along.
 The crickets, the creeking of the railroad in the dark evening night.
 
 <br>
@@ -6995,6 +6998,8 @@ You can see them while walking around through the city.
 A society run by electric lines, power grids, and lightbulbs.
 The flickering light reflected thorugh the water.
 The flickering light in the middle of sea.
+
+**1950s- rural electrification, paved roads**
 
 <br>
 
