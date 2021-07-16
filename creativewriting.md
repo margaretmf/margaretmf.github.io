@@ -3587,6 +3587,15 @@ It's a land of danger
 It's a land of fighting for freedom
 It's a land for many, me and you
 
+A beginning
+The West, the moon
+The South
+The Earth
+wax, wane
+A new cycle
+a closing
+the south was the beginning, the first colony
+
 <br>
 
 
@@ -4609,6 +4618,10 @@ I love the beauty of Soul reflected through my great grandmother during the age 
 I love the good luck rushing through my great grandfather McCardell's Irish blood.
 I love the songs of peace "like a river" sung through my great grandmother.
 
+My grandmother always taught me to sing with all my heart.
+My grandfather always pushed me to play a little louder.
+My grandfather always taught to share a good laugh.
+
 <br>
 
 ## She Looked Me in the Eye ##
@@ -4792,6 +4805,13 @@ A broken record of hurt, pain, and hardship.
 
 <br>
 
+## Bad Words ##
+All the curse words.
+They're creating noise on the street.
+The mean two different things depending on how you say it.
+
+<br>
+
 ## "Heartbreak Hotel" ##
 These nights in hotels
 These daystops in gas stations
@@ -4816,7 +4836,7 @@ There were people all aroud
 I prayed in a car
 From hotel to hotel this heart of mine so fragile and broken
 
-**Elivs Presley**
+**Heartbreak Hotel *by Elivs Presley***
 
 <br>
 
@@ -4876,6 +4896,14 @@ The record becomes new
 
 <br>
 
+## Talking Over ##
+Writing over someone's words
+Assuming what someone's thinking
+Making a rash judgment call
+Not listening clearly to the other side
+
+<br>
+
 ## Guitar ##
 The pain of playing guitar.
 The heartbreaking guitar playing.
@@ -4906,6 +4934,26 @@ IT reminded me of those country tunes I listened to.
 It rung a bell.
 It revived my heart.
 It brought back all those memories of home sweet home.
+
+<br>
+
+## Put It Down ##
+The drink is put down.
+The bottle is in the trash.
+The phone is put away.
+The substance no longer makes me better.
+
+I am whole within
+I know who I am
+I know I am free and equal
+
+The idols are people
+They don't have power
+They are loved and loving expressions
+
+I am human too
+I know who I am
+I know I am capable of something
 
 <br>
 
@@ -5027,7 +5075,8 @@ Everything is going to be ok.
 Everything is going to be alright.
 Everything is moving forward still.
 
-**Cry, Cry, Cry *by Johnny Cash***
+**Cry, Cry, Cry *by Johnny Cash*** 
+(not exactly the meaning looking for)
 
 <br>
 
@@ -5262,6 +5311,7 @@ There's the light in the darkness, saying "I can trust in you."
 The flickering lights. They are everywhere like the fairie dust.
 You don't know what's on the other side, but something is there to greet you with love, a surprise, the answer that was there all along.
 The crickets, the creeking of the railroad in the dark evening night.
+A window into the light.
 
 <br>
 
@@ -5789,7 +5839,7 @@ He knows how to make me laugh
 He knows how to help me heal
 He knows just what I needed to hear
 
-My heart and yorus are in synch with each other in the universe for ever
+My heart and yours are in synch with each other in the universe for ever
 We were destined to become one and be greater than the two of us alone
 Our hearts reach love
 An eternal day and night, day after day, night after night, year after year, from sunrise to sunset
@@ -6337,6 +6387,15 @@ There are a thousand, infinite, many new days for you and for me to live and lov
 
 There are new friends to meet every day.
 
+Every day I'm humbled by a new view to take, a new lesson to learn, a new wrong I've done, a new mistake I've made
+Seeing from a new angle
+
+<br>
+
+## Musical Chairs ##
+Trading places
+Shifting views
+
 <br>
 
 ## Day In and Day Out ##
@@ -6537,6 +6596,15 @@ It knows you with all your full glory and colors.
 It knows how to guide and protect you.
 It nudges you always to the right intuitions and ideas.
 It sees the light in you when darkness and discord are all around.
+
+<br>
+
+## Rhythm ##
+Rhythm, harmony, synchronizing, weaving, sailing, gliding
+In, and out, moving
+in heaven we become one
+two candles burning
+two rays of sun
 
 <br>
 
@@ -6867,6 +6935,19 @@ The darkness cannot touch it because so much light is bouncing off of light, and
 
 ## The Fire ##
 Through the fire I saw it all burn, become nothing, become pure, refined, golden, and glowing with grace.
+
+<br>
+
+## A Childlike Home ##
+A childlike heart rings true
+It continues on and on in upward ways
+Seeing the world with different eyes, new colors
+Feeling restored
+Sharing a hug, a picture
+Coming back home
+Coming back to where I always belonged
+Circling back
+Returning
 
 <br>
 
@@ -7573,8 +7654,10 @@ You can see them while walking around through the city.
 A society run by electric lines, power grids, and lightbulbs.
 The flickering light reflected thorugh the water.
 The flickering light in the middle of sea.
+A window into the light
 
 **1950s- rural electrification, paved roads**
+Currents, water, electric
 
 <br>
 
@@ -7795,6 +7878,8 @@ The rays of light radiate out
 The hearts filled with love radiate out from the central heart of hearts
 
 Day in, day out, the earth continues to move
+
+Worldview
 
 <br>
 
@@ -8412,6 +8497,25 @@ Hitting back when I can forgive will lead to prison.
 
 ## A Whole World Outside ##
 Outside of these prison walls, there's a whole universe of stars
+Outside of these walls, there are all these other people outside of you and me
+A whole mankind
+A whole younger generation
+A whole worled filled with love, life, color, movement, grace, beauty, evolution, family
+
+<br>
+
+## The People Come From Everywhere ##
+The people come from everywhere
+They come from all these states
+They come from the country in all these states
+
+<br>
+
+## The Dream ##
+The dream is a way, a concept
+The dream is life
+It's already been manifested
+The dream is an idea
 
 <br>
 
