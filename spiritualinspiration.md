@@ -85,6 +85,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to learn about Kentucky, Indiana, and the Rust Belt
 * Grateful for literature from a college English class with Professor Levenson
 * Grateful for the Spanish language on the Screen in the CVS - **Cambiar El Idioma**
+* Grateful for the people who work in the country and the way they support people working through challenges
+* Grateful for the little kids in the airport
+* Grateful for spiritual purging
 * Grateful for the man working at CVS and his love for the work
 * Grateful for the African American engineer
 * Grateful for the people eating lunch
