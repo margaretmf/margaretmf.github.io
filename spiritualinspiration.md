@@ -141,6 +141,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the harmony of my music
 * Grateufl for American Eagle airways flying high in the sky
 * Grateful for all the people on the plane
+* Grateful for Dolly Parton's song on "wildflowers"
 * Grateful for country music embraced by all ethnicities' cultures and sounds
 * Grateful for the experiences with the Spanish language
 * Grateful for the painter painting the wlal
