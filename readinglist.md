@@ -44,6 +44,8 @@ layout: default
 * [The United Symbolism of America: Deciphering Hidden Meanings in America's Most Famous Art, Architecture, and Logos](https://www.amazon.com/United-Symbolism-America-Deciphering-Architecture/dp/1601630018/ref=sr_1_2?dchild=1&keywords=the+united+symbolism+of+america&qid=1624542188&sr=8-2) by Robert Hieronimus, PhD with Laura Cortner
 * [Symmetry Comes of Age: The Role of Pattern in Culture](https://www.amazon.com/Symmetry-Comes-Age-Pattern-Culture/dp/0295983663) by Dorothy K. Washburn and Donald W. Crowe
 * [Dolly Parton, Songteller: My Life in Lyrics](https://www.amazon.com/Dolly-Parton-Songteller-Life-Lyrics/dp/1797205099/ref=sr_1_3?dchild=1&keywords=Dolly+Parton%2C+Songteller%3A+My+Life+in+Lyrics&qid=1626385032&s=books&sr=1-3) by Dolly Parton
+* [Dreams of My Father](https://www.amazon.com/Dreams-My-Father-Story-Inheritance/dp/1400082773/ref=sr_1_3?crid=101Z9MJH2X7GT&dchild=1&keywords=dreams+of+my+father+barack+obama&qid=1626432821&sprefix=dreams+of+my%2Caps%2C183&sr=8-3) by Barack Obama
+* [A Promised Land](https://www.amazon.com/Promised-Land-Barack-Obama/dp/1524763160/ref=sr_1_2?dchild=1&keywords=the+promised+land+Barack+obama&qid=1626432868&sr=8-2) by Barack Obama
 
 
 #### Interested
@@ -67,6 +69,8 @@ layout: default
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
 * Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
 * Cash: The Autobiography by Johnny Cash
+* Draft No. 4: On the Writing Process by John McPhee
+* Pilgrim by David Whyte
 * It's a Long Story: My Life by Willie Nelson
 * Sweethearts of Montana: Mail Order Bride Western Romance 7 Book Box Set
 * Looking to Get Lost: Adventures in Music and Writing 
