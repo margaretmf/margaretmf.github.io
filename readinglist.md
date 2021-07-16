@@ -67,6 +67,11 @@ layout: default
 * Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
 * Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
 * Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
+* The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
+* The Art of Songwriting by Ed Bell
+* Great Songwriting Techniques by Jack Perricone
+* The Craft of Lyric Writing by Sheila Davis
+* All You Need to Know About the Music Business: 10th Edition by Donald S. Passman
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
 * Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
