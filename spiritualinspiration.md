@@ -72,6 +72,16 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for each and every day that the Truth, the light shines on something new
 * Grateful for Sam Cooke seeing a changge coming
 * Grateful for a secure sense of self, less affected by people
+* Grateful for the accents, the boldness, the freedom, the health, the growth, the life, the grace, the goodness
+* Grateful for all the musicians on the 4th of July singing for the nation
+* Grateful for the light in the darkness on the 4th of July at the Capitol
+* Grateful for all the cheerful people in our country celebrating freedom, unitedness, independence, health, love, family, and friendliness
+* Grateful for the audacity to dream again
+* Grateful for sincere apologies
+* Grateful for the good underlying everything going on
+* Grateful for daily surprises
+* Grateful for eyes and hearts that see what's true
+* Grateful to see with childlikeness
 * Grateful for boundaries with myself
 * Grateful for all the people in the Cumberland
 * Grateful for an ode to ants crawling
