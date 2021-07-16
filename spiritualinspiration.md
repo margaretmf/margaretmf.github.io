@@ -87,11 +87,31 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the snacks 
 * Grateful for books read
 * Grateful for the work of data management
+* Grateful for TV shows for teaching lessons and native names
 * Grateful for the expressive art therapy
 * Grateful for no social media
+* Grateful for the people in Nashville
+* Grateful for the people in Memphis
+* Grateful for the people in Fishersville
+* Grateful for the nurses
+* Grateful for the noise of voices
+* Grateful for my car
+* Grateful for innovative ways to use trash and love the people
+* Grateful for the power of the people
+* Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book
+* Grateful for sketches
+* Grateful for ribbons and engineering
+* Grateful for golen thread
+* Grateful for the rose imagery
+* Grateufl for architecture
+* Grateful for God's plan
+* Grateful for the Grand Creator
+* Grateful for all the people in the US bluegrass
+* Grateful for people I've met in the subway, the metro
 * Grateful for all the people in the airport
 * Grateful for musicians who encourage me to play music
 * Grateful for southern accents
+* Grateful for memories of playing cards with cousins
 * Grateful for people who respond on social media
 * Grateful for all the people in the airport, there are so many people
 * Grateful for the ring bought today
