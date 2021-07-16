@@ -66,6 +66,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for freedom from codependency
 * Grateful for the nature and the camps in Tennessee and Virginia
 * Grateful for mothers and their children and nurturing
+* Grateful for the books on light in the darkness, opposites, day and night, light and dark
+* Grateful for the design of the universe
+* Grateful for a self-assuredness and confidence in Divine Love that's free from abusive and distant behavioral patterns in family
+* Grateful that the doctor felt like I had experienced long-term stress and had brain inflammation
 * Grateful that it is human to make mistakes, everyone makes them, and what do I do with them
 * Grateful for a path that God has paved for me
 * Grateful that people are musical
