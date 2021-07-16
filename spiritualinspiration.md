@@ -111,6 +111,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Nam's and Aunt Mary's thoughts on nature and clothing
 * Grateful to be honest with myself and others
 * Grateful for the natural love of the little kids at the Preschoo
+* Grateful for the previous president's, President Barack Obama's faith and journey
+* Grateful for president Barack Obama's dad who was Muslim
+* Grateful for president Barack Obama's mother
+* Grateful for the quote on strangers that president Barack Obama shared, no one is a stranger to God, and God knows how to place people in the place just right
 * Graetful for memories running in DC
 * Grateful for family
 * Grateful for Eliza and Jack
