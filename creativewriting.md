@@ -4416,6 +4416,20 @@ I love the songs of peace "like a river" sung through my great grandmother.
 
 <br>
 
+## She Looked Me in the Eye ##
+She looked me straight in the eye and said 'I love you'
+
+She looked him straight in the eye and said 'I love you'
+
+<br>
+
+## A City of Angels, Strangers ##
+A city of angels, strangers, friends
+
+<br>
+
+## Love the People ##
+I love the people she, he, they love thorughout the day
 ## Norfolk to Memphis ##
 From Norfolk to Memphis and back a million times.
 These are the cities I love.
@@ -6283,6 +6297,11 @@ His eyes are so deep they see to the heart.
 
 <br>
 
+## Wisdom Tree ##
+Idea of a wisdom tree
+
+<br>
+
 ## The Penny ##
 He found a penny on the ground and gave it to af riend.
 'Penny for your thoughts,' he said.
@@ -6313,6 +6332,12 @@ a penny for my sister and brother
 
 ## Tearing Leaves ##
 Tearing leaves and throwing them into the grass.
+
+Crumbling, crinkling, sprinkling of leaves falling to the ground
+A pile of leaves
+
+Tattered, broken pieces falling and hitting the water, landing on the water
+The brown pieces floating
 
 <br>
 
