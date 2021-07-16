@@ -42,6 +42,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
 * Grateful for Medieval organ music
 * Grateful for global cultures
+* Grateful for the growth that comes from experiences
+* Grateful for ongoing communication
 * Grateful for sketches
 * Grateful for the workers in the post office
 * Grateful for piano playing
