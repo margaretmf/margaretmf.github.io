@@ -25,6 +25,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the song **One Tribe**
 * Grateful or the Soaps and Suds in Norfolk that serves the community
 * Grateful for friends who share news articles and support my spiritual growth
+* Grateful for the dancers and the musicians
+* Grateful for the people behnd middle school dances and high school
+* Grateful for people in the hospital
+* Grateful for the trees
+* Grateful for memories of UVA and DC
 * Grateful for self-assessment, honesty with myself about self-justification
 * Grateful for Black History month
 * Grateful for the man singing with the Consortium in Memphis
@@ -66,6 +71,21 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the natural love of the little kids at the Preschoo
 * Graetful for memories running in DC
 * Grateful for family
+* Grateful for Eliza and Jack
+* Grateful for sports players
+* Grateful for the earth and all that's in the green earth
+* Grateful for how movements move
+* Grateful for a change in a friend in the hospital and how she became someone different and respected my boundaries
+* Grateful for how rivers flow
+* Grateful for cousins and people I met in DC and in Norfolk who love art
+* Grateful for true artwork
+* Grateful for the music in Memphis, mentioning Memphis
+* Grateful for what goes on in the shopping mall
+* Grateful for movies that relate to children's lives
+* Grateful for smart choices and smart technology design principles that children can contribute in an age where everything is on social media
+* Grateful for innovative and musical children 
+* Grateful for other artists and painters
+* Grateful for the democratization of ideas and art
 * Grateful for a good education
 * Grateful for nature
 * Grateful to love organizing things
