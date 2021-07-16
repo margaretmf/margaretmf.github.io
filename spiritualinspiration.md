@@ -100,6 +100,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the work of data management
 * Grateful for TV shows for teaching lessons and native names
 * Grateful for the expressive art therapy
+* Grateful for the leaders at the DSI
+* Grateful for the leaders on the Compass projects
+* Grateful for people healing
+* Grateful for worldviews
 * Grateful for no social media
 * Grateful for the people in Nashville
 * Grateful for the people in Memphis
