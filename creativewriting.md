@@ -126,6 +126,8 @@ I believe in the older generation's ability to learn something new even if they 
 I believe in giving credit to people who inspire other people, or who inspire us to change and grow.
 I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people.
 I believe in not killing people, and I have learned this the hardway.
+I believe everyone can learn a lesson from someone else, and everyone in the world.
+I believe that everyone has something to express.
 
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better
@@ -3952,6 +3954,19 @@ the emeting and greeting of
 
 <br>
 
+## This Holy Book ##
+This holy book, it's everywhere I go.
+Hotel rooms, psych wards, libraries, and churches.
+
+<br>
+
+## Wild Foxes ##
+Wild foxes scurriying in, chasing in, bringing down, creeping, sneaking.
+Open holdes behind closed doors.
+Like the devil on my back or a monkey on my shoulder.
+
+<br>
+
 ## Ode to an Insect ##
 Ode to an insect looking through the window, flying hrough the air, nibbling at my sandwich
 
@@ -3961,6 +3976,31 @@ Ode to a spider web next to sticky sprinkles of green grass on the windoe
 
 ## Ode to a Squirrel ##
 Ode to a squirrel
+
+<br>
+
+## Bottled Up in a Bottle, Not My Heart ##
+All these things I've done wrong, I toss it into a bottle and toss it out to sea.
+
+Bottled up in a Bottle, not my heart
+
+<br>
+
+## Changing Seasons ##
+
+<br>
+
+## He ##
+He's a working man
+There's dirt in his fingers from working so hard
+He's up before dawn every morning
+He's read to go
+He knows how to make people smile and laugh
+He tells great jokes
+He knows all the stores
+He knows everyone in this old town
+
+**Tennessee Entrepreneurship**
 
 <br>
 
@@ -4400,6 +4440,11 @@ The whistle blows in both.
 The rivers are flowing in both.
 
 Memphis, I hold you dear in my heart forever.
+
+my old hometown
+from Norfolk to Charlotte to Memphis to Montclaire to Memphis
+
+hear the train rollin in the summer time by the pool
 
 <br>
 
@@ -5397,6 +5442,9 @@ Dirt mud and muck in them
 Bootleggers left on the side of the road on a rocky dirt road
 
 A waterbottle left on the side of the road
+construction hats on rooftops
+leftover waterbottles
+dirt roads
 
 <br>
 
@@ -5590,6 +5638,13 @@ I love how you love
 Our hearts knotted together
 Tied tightly together
 Rings forever true thorughout the universe
+
+I'm a part of you
+you're a part of me
+
+you cross my heart and mind both day and night
+I want nothing but to love you
+I want to grow with you
 
 <br>
 
@@ -6333,6 +6388,9 @@ dirt on my boots
 gum I stepped on
 rocks stuck in the bottoms
 stepping on this rocky land
+shoots clicking
+
+litter on the ground
 
 <br>
 
@@ -6536,6 +6594,10 @@ for the South to live on
 for the people looking for change
 for a smile on my parents' faces
 
+coins for the jukebox
+coins for the coke machine
+coins for the laundry
+ 
 <br>
 
 ## Save Your Kisses ##
@@ -6610,6 +6672,11 @@ God is always bringing us closer to our family, first individually, and then col
 Love, the all-in-all
 The light bounces off
 The darkness cannot touch it because so much light is bouncing off of light, and so much gratitude is bouncing off of gratitude, and so much love is bouncing off of love
+
+<br>
+
+## The Fire ##
+Through the fire I saw it all burn, become nothing, become pure, refined, golden, and glowing with grace.
 
 <br>
 
@@ -7370,6 +7437,19 @@ There is a rose within everyone's heart.
 It must be watered, it must be nourished.
 The love is strong, and the light is bright, even at night. It is all one with all of humanity.
 Nothing is as beautiful as a red rose in the harsh, blasts of a winter storm.
+
+A rose in the valley in the desert of my heart looking for true love for hope for water
+It's coming up to bloom
+It's like the flower peeoping up out of the gravel road with grass all around it
+It's as perennial as the grey rock that covers the Earth
+It's here for life
+it's here for love
+It's lasts for eternity
+There's a golden light around this rose in the desert of my heart here to light up everything
+It loves in the dirt, the red dirt
+It touches every heart spreading roses through the valley
+There's a rose here for me and for you
+It grows in the mud
 
 <br>
 
