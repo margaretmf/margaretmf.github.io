@@ -3754,6 +3754,9 @@ Subjective means that people live relatively and understand different perspectiv
 
 <br>
 
+## Argument ##
+An argument, a perspective comes from the heart, an original point on something. There's tapestry in the words, there's structure, there's architecture. Everything connects.
+
 ----------
 
 
@@ -3948,6 +3951,11 @@ Checking on the clock.
 Ode to an insect looking through the window, flying hrough the air, nibbling at my sandwich
 
 Ode to a spider web next to sticky sprinkles of green grass on the windoe
+
+<br>
+
+## Ode to a Squirrel ##
+Ode to a squirrel
 
 <br>
 
@@ -4646,6 +4654,41 @@ Can you not get over it?
 Can I not be heard?
 It strikes a chord.
 
+I've said the same thing again and again
+I'm going over the hurt again and again
+I'm trying to make a point again and again
+I feel like I'm not being heard though
+
+I sound the same again and again
+I am loud and broken again and again
+I repeat the same challenge again and again
+I feel like I'm not being heard though
+
+I circle around again and again
+It's like a broken record circling around and around again and again
+Again and again I circle around this broken pain point
+Will I ever be heard?
+
+I start to heal
+The lighbulb goes on
+I see something new
+I start to hear and be heard
+
+The pain comes back
+It circles around and around once more
+I feel like a broken record again once more
+Will it ever stop?
+
+I heal some more
+There's an epiphany
+I hear something that rings a bell and strikes a chord
+I become something new with everyone around
+
+I heal more
+I learn to fix the record
+I do something new and create new patterns
+The record becomes new
+
 <br>
 
 ## Guitar ##
@@ -4691,6 +4734,18 @@ Making things worse.
 Playing the fool.
 Doing dumb things. 
 Being exposed, exposing oneself.
+
+If you 'play the fool' learn how to play the fool
+Play it really well
+Learn the lesson
+Learn it the hard way
+Give up the foolishness and foolery
+Let it go
+Let it mvoe through the drain
+Learn the lesson
+Learn it well
+Wisen up
+Become who you're born to be and move on
 
 <br>
 
@@ -4753,6 +4808,9 @@ Someone will be here with just the right words.
 Someone will be there who understands.
 Someone will be there to open the door.
 Someone will be there to let you in.
+
+It's ok
+It's really going to be ok
 
 ## Smile ##
 There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
@@ -5949,6 +6007,8 @@ Anyone can lead
 Anyone can do what's right after doing what's wrong
 
 I want to live each day like it's a new day to live
+
+There are a thousand, infinite, many new days for you and for me to live and love all the world
 
 <br>
 
