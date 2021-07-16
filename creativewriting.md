@@ -3945,6 +3945,10 @@ Checking on the clock.
 
 **Literary Allusion to Shakespeare**
 
+
+The waltz of the unvierse
+the emeting and greeting of
+
 <br>
 
 ## Ode to an Insect ##
@@ -4512,6 +4516,11 @@ It's ok to cry
 It's ok to let the tears flow
 It's ok to cry
 It's like the water droplets after a heavy rain
+
+You come waltzing in
+Feeling like you new what I needed
+You told me in the wrong way
+You woke me up to a side of me yearning, crying out loud to be free
 
 <br>
 
@@ -5273,6 +5282,18 @@ The storm will die down.
 
 <br>
 
+## Moment of Death ##
+At this moment of death, life is beginning.
+There's so much more to know.
+There's a whole world to know.
+There's so much more love to see.
+
+At this moment of falling, the chance to love more is beginning.
+There's so much to appreciate differently.
+There's a world of people to love.
+
+<br>
+
 ## Falling to Pieces ##
 Falling to pieces.
 A wrold surrounded by idols, people you are not supposed to know.
@@ -5344,6 +5365,14 @@ Dirt mud and muck in them
 Bootleggers left on the side of the road on a rocky dirt road
 
 A waterbottle left on the side of the road
+
+<br>
+
+## Cracked Roads ##
+These cracked roads.
+This red dirt.
+It reminds me of the end of the world, the beginning of time, when all returns to dust, and it all begins anew, fresh.
+With a breath through the universe, it all begins, saying or speaking "I love you".
 
 <br>
 
@@ -6994,6 +7023,24 @@ I love all the people teaching today and taking care of little ones.
 
 <br>
 
+## Sun ##
+Radiate
+the sun
+light rays
+two sun rays of million
+spreading smiles and hearts
+
+from sunrise to sunset
+
+<br>
+
+## Road to Heaven ##
+The road to heaven where we all become one.
+This infinite glory path.
+We're part of a map to a greater destiny with all the moving parts.
+
+<br>
+
 ## Movement ##
 Movement forward.
 Starting something.
@@ -7328,7 +7375,9 @@ The people are growing, takig on different, higher views in the same brown earth
 Seasons change, and there's a season for everything.
 
 Cycles round and around, year after year.
-<br>
+
+The waltz of the universe
+the meeting and greeting of
 
 <br>
 
