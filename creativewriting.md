@@ -3872,6 +3872,19 @@ It's all one.
 
 <br>
 
+## Worlds Apart ##
+Seeing eye-to-eye
+Meeting heart-to-heart
+Two worlds apart
+Exchanging views
+Hearing each other
+Greeting each other
+Loving the world as it is
+Shifts, changes, adaptations, dances
+In the same world, different languages
+
+<br>
+
 ## A Painting and A Flower ##
 A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
 
@@ -5903,6 +5916,8 @@ Anyone can get back up
 Anyone can lead
 Anyone can do what's right after doing what's wrong
 
+I want to live each day like it's a new day to live
+
 <br>
 
 ## Day In and Day Out ##
@@ -6275,6 +6290,14 @@ Then she threw the penny into the well and wished well the people on the earth.
 With a plop, the coin fell into the well with a plop and it touched the water, and the water rippled out.
 This love ripples on and on and on.
 The wishes ripple on and one and on.
+
+a penny for the ripple effect of something
+a penny for the stars to shine for eternity
+a penny for kindness in school
+a penny for the South to live on
+a penny for the people looking for change
+a penny for a smile on my parents' face
+a penny for my sister and brother
 
 <br>
 
@@ -7303,6 +7326,7 @@ Meeting heart-to-heart in the same world
 Two worlds apart on different sides of the same one
 Coming together to heal
 
+The world is a place
 <br>
 
 ## To the Core ##
@@ -7853,6 +7877,7 @@ It's the same story, but different voices.
 It's the same feelings, but different problems.
 It's the same music, but different tones.
 It's the same flowers, but different pieces of art.
+It's the same world, but different languages.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
