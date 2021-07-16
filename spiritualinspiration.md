@@ -30,6 +30,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people in the hospital
 * Grateful for the trees
 * Grateful for memories of UVA and DC
+* Grateful for the man in DC who gave me the fan
 * Grateful for self-assessment, honesty with myself about self-justification
 * Grateful for Black History month
 * Grateful for the man singing with the Consortium in Memphis
