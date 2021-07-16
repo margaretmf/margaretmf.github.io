@@ -3519,6 +3519,8 @@ Those old church bells
 Those old sweet hymns
 That old clock ticking 
 
+**Ring Them Bells *by Sarah Jarosz***
+
 <br>
 
 ## Trucks and Cargo Colors ##
@@ -3970,12 +3972,28 @@ the emeting and greeting of
 
 <br>
 
+## Favorite Time of Day ##
+Favorite time of day.
+Midday and afternoon.
+The hot sun.
+Laying out.
+Drinking tea.
+Eating.
+Reading books.
+
+<br>
+
 ## Flowers Bloomed on the Earth ##
 Flowers bloomed on the earth.
 Three took photos of it.
 One sketched it.
 Another took a video of it.
 Another painted it, and another saw the harmony of looking at all three, saying 'wow, collectively this is God's handiwork art!'"
+
+<br>
+
+## Art on the same Object, Multiple Expressions ##
+Art that shows where the same object or idom or phrase comes from - the unity, the harmony.
 
 <br>
 
@@ -4048,6 +4066,32 @@ He knows all the stores
 He knows everyone in this old town
 
 **Tennessee Entrepreneurship**
+
+<br>
+
+## He ##
+His voice is beautiful.
+It amkes me happy to hear his voice.
+He's got that smile.
+That rock'n roll style.
+He knows how to light up the whole town with a laugh and some charm.
+He lighten the mood.
+He'll calm your smile.
+He'll say 'thank you' and mean it
+He'll say it with a 'thank you very much'
+
+<br>
+
+## She ##
+A small town girl.
+A reputation that's loud.
+Everyone knows.
+I already know.
+The writing is on the wall/
+The word spreads.
+The gossip stings.
+The cutoff hurts.
+Now an outcasted girl.
 
 <br>
 
@@ -4910,9 +4954,16 @@ The music always resounds.
 
 <br>
 
-## Love Triangles ##
+## Love Triangles and Enemies ##
 Love Triangles
 Enemies to Lovers
+
+Those enemies
+Those people who pierce the heart the strongest
+They are most similar to you
+They are your best friends on the other side of the world
+They teach you what you need to know but don't want to know about yourself
+They push you to grow the most
 
 <br>
 
@@ -4975,6 +5026,10 @@ It's good to laugh.
 Everything is going to be ok.
 Everything is going to be alright.
 Everything is moving forward still.
+
+**Cry, Cry, Cry *by Johnny Cash***
+
+<br>
 
 ## Smile ##
 There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
@@ -5083,8 +5138,8 @@ One home in a row of homes.
 
 <br>
 
-## Voiceless ##
-Alll I want to do is keep my mouth shut.
+## Voiceless, A Stolen Voice ##
+All I want to do is keep my mouth shut.
 Songs sing through my heart.
 Words play through my ears.
 All I want to do is keep my mouth sealed.
@@ -5099,6 +5154,23 @@ I'm voiceless though.
 I am speechless.
 Voicing my heart is what I don't want to do.
 All I want to do is yell out or be quiet.
+
+They shut you down.
+They keep you silented.
+They ask you why you don't talk but they don't want you to talk.
+
+<br>
+
+## Rebel ##
+The rebel flag, cowgirl boots, gun images
+swirling in my head
+These lies, they are dizzying
+They cause such pain and anguish
+
+Let's raise the banner
+The time for the red white and blue and gold is here
+It's might and strong
+It give me hope
 
 <br>
 
@@ -5177,7 +5249,9 @@ You can hear them through the universe.
 In this kissing of the hearts I hear the bells echoing out from you to me and through to the churhc.
 In this oneness with a lvoe so deep I feel this sacredness within.
 
-Churches everywhere, trees reflecting through windows
+Churches everywhere, trees relecting through windows
+
+**Ring Them Bells *by Sarah Jarosz***
 
 <br>
 
@@ -5442,6 +5516,12 @@ The ocean is always moving.
 The water is always stirring.
 The storm will die down.
 
+All these dumb things I've done
+All these dumb things I've said
+I want to throw it in the dirt
+I want to rewind the clock
+Love is not a fool
+
 <br>
 
 ## Moment of Death ##
@@ -5453,6 +5533,24 @@ There's so much more love to see.
 At this moment of falling, the chance to love more is beginning.
 There's so much to appreciate differently.
 There's a world of people to love.
+
+The moment of death is the moment to start afresh.
+It's ok to feel sorry, confused, hurt, hopeful, and dancing all at once.
+Everything is going to be ok.
+Everything is going to be alright.
+Everything is moving forward.
+
+The moment of the biggest fall is the moment of the highest bounce.
+It's ok to feel angry, bitter, happy, and curious all at once.
+Everything will work out in the end.
+Everything is in order.
+Everything is going to be ok.
+
+<br>
+
+## Life is What You Make It ##
+Life is what you make it.
+All the voices echoing out at once, reflecting the same truth.
 
 <br>
 
@@ -7548,6 +7646,15 @@ It loves in the dirt, the red dirt
 It touches every heart spreading roses through the valley
 There's a rose here for me and for you
 It grows in the mud
+
+<br>
+
+## Rose Petals ##
+Rose petals dropped on the floor.
+A sweet surprise.
+A message from love.
+A symbol of love.
+A warm embrace from a stranger, a friend who let them drop.
 
 <br>
 
