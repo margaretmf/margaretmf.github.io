@@ -3929,6 +3929,21 @@ the sun shining through
 
 <br>
 
+## Farmer's Market ##
+Open red and white windows
+Fresh fruit smells
+Neighbors gathering from everywhere in the city
+It's a central place
+It's a hot Saturday
+There's communal living
+Everyone's come to town
+Fresh vegetables
+Weekday meals
+Flowers for your mother to keep in her kitchen
+Food for your father to cook
+
+<br>
+
 ## Time ##
 He was old Mr. Time.
 He had watched down from heaven on all the days.
@@ -3952,6 +3967,27 @@ Checking on the clock.
 
 The waltz of the unvierse
 the emeting and greeting of
+
+<br>
+
+## Flowers Bloomed on the Earth ##
+Flowers bloomed on the earth.
+Three took photos of it.
+One sketched it.
+Another took a video of it.
+Another painted it, and another saw the harmony of looking at all three, saying 'wow, collectively this is God's handiwork art!'"
+
+<br>
+
+## From the East to the West ##
+The sun rises in the East and sets in the west.
+From the rising to the setting.
+There's one day and one night.
+The stars dance and sing their songs, individually and collectively.
+The truth echoes.
+The earth rumbles.
+The place where it once began begins again.
+The setting sun that sets in the west was there at the birth and the moon shines its light on the east to show all things brand new.
 
 <br>
 
@@ -4357,12 +4393,29 @@ Ribbons
 
 <br>
 
+## The Evening Sun ##
+The evening sun reflecting off rooftops.
+The river running it's course down wide open spaces.
+The log river view.
+An aerial perspective over all the land.
+
+<br>
+
 ## Trash ##
 The used material that people do not want.
 The things to dispose of and throw away.
 The containers empties of the substance to digest.
 The leftover goods, the pouring over of used goods.
 The things that can be reused and recycled to create something new.
+
+A piece of litter blows with the air.
+I run after it.
+I chase after it.
+Trying to catch it.
+It's going too fast.
+I need to stop it.
+I finally reach it.
+I pick it up, and I throw it away.
 
 <br>
 
@@ -6716,6 +6769,12 @@ The darkness cannot touch it because so much light is bouncing off of light, and
 
 ## The Fire ##
 Through the fire I saw it all burn, become nothing, become pure, refined, golden, and glowing with grace.
+
+<br>
+
+## Smile #
+Smile like the noonday sun.
+The glow on your face.
 
 <br>
 
