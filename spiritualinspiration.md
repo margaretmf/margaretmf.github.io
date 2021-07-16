@@ -58,6 +58,14 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Christian Science
 * Grateful for history, accurate records of Native Americans' lives
 * Grateful for U.S. 23 Country Music Highway, the history, the towns, the artists
+* Grateful for the time in Charlotte
+* Grateful for the phone call with Tabor
+* Grateful for Dattee
+* Graetful for the prayers
+* Grateful for the Christian Science church in Charlotte
+* Grateful for freedom from codependency
+* Grateful for the nature and the camps in Tennessee and Virginia
+* Grateful for mothers and their children and nurturing
 * Grateful that it is human to make mistakes, everyone makes them, and what do I do with them
 * Grateful for a path that God has paved for me
 * Grateful that people are musical
