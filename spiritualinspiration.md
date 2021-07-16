@@ -62,6 +62,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for a path that God has paved for me
 * Grateful that people are musical
 * Grateful for each and every day that the Truth, the light shines on something new
+* Grateful for Sam Cooke seeing a changge coming
+* Grateful for the change for our country on the 4th of July, 2021
+* Grateful for Nelson Mandela
+* Grateful for rebirthing
+* Grateful for the seasons that change
+* Grateful for something that is sweeping through when seasons change - ole lives die, buds come to bloom, there's another cycle ahead
+* Grateful to bow, bend, adapt, sway, move, and grow
 * Grateful for each new day to wake up with a different perspective or perception
 * Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
 * Grateful for the construction sites
