@@ -132,6 +132,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the transportation signals
 * Grateful for how people in cars and cars themselves communicate between each other
 * Grateful for the man who drove me today
+* Grateful for Dolly Parton's song "two sides to every story"
+* Grateful for Dolly Parton's song on "rainbows, colors, and God's painting"
+* Grateful to be like a rose, or flower and the freedom to grow
 * Grateful for a healthy conversation with the man who drove me
 * Grateful for my sister who is really strong and capable
 * Grateful for the innocence of a couple playing music
