@@ -3869,7 +3869,8 @@ When I set down to ask a question about a word, other people have asked the same
 When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
 When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
 When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
-When feeling love in a hospital here, I think of the love for people in a hospital across the sea.
+When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
+When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
 
 It's all one.
 
@@ -4372,6 +4373,11 @@ The sounds of the neighborhood working together in harmony for good.
 
 ## Transportation ##
 From port to port across this large, moving world, everyone is on a journey, carrying freight, goods, and objects through ships trains, and trucks. The freedom to share cultures across the world, through traveling drivers, expressing freedom, loving those roots, and paying these tools. Life is a journey, America is the land free to shift its foundation from one that appreicates the colonized version of the world to one that appreciates the de-colonized version fo the world.
+
+<br>
+
+## International Train ##
+These train cars and freight and cargo have been and come from everywhere.
 
 <br>
 
