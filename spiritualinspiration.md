@@ -98,7 +98,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my car
 * Grateful for innovative ways to use trash and love the people
 * Grateful for the power of the people
-* Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book
+* Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book *"For we are strangers before thee, and sojourners, as were all our fathers." -1 Chronicles 29:15*
 * Grateful for sketches
 * Grateful for ribbons and engineering
 * Grateful for golen thread
