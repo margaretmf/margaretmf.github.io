@@ -83,6 +83,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the construction workers
 * Grateful for my cousins in Suffolk, Whaleyville
 * Grateful to learn about Kentucky, Indiana, and the Rust Belt
+* Grateful for literature from a college English class with Professor Levenson
 * Grateful for the Spanish language on the Screen in the CVS - **Cambiar El Idioma**
 * Grateful for the man working at CVS and his love for the work
 * Grateful for the African American engineer
