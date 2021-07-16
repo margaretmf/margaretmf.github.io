@@ -128,6 +128,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for memories of playing cards with cousins
 * Grateful for people who respond on social media
 * Grateful for all the people in the airport, there are so many people
+* Grateful for billboards
 * Grateful for the ring bought today
 * Grateful for the transportation signals
 * Grateful for how people in cars and cars themselves communicate between each other
