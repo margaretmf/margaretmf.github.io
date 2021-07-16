@@ -4393,6 +4393,8 @@ These are the cities my family loves.
 The whistle blows in both.
 The rivers are flowing in both.
 
+Memphis, I hold you dear in my heart forever.
+
 <br>
 
 ## Poem on Maps ##
@@ -4707,6 +4709,20 @@ Sticking with it.
 Letting it hurt.
 Bearing the pain.
 
+This sweet guitar
+why?
+why?
+I'm in pain over you
+It's in everyone's hands
+It's in everyone's arms
+
+Walking into that country store
+I see those badass boots
+A sign with a gun and some cowboy boots
+I see the history of the gun
+Why oh why is everything centered around guns?
+Why should I feel threatened at the gas station?
+
 ## A Chord Struck ##
 It was a hit.
 It really struck a chord.
@@ -4820,6 +4836,15 @@ Someone will be there to let you in.
 
 It's ok
 It's really going to be ok
+
+There's nothing like a good laugh that helps to lighten the mood.
+Laugh it off. Cry it off.
+It's ok to cry.
+It's good to laugh.
+
+Everything is going to be ok.
+Everything is going to be alright.
+Everything is moving forward still.
 
 ## Smile ##
 There's a reason to smile today. Appreciate the smiles you see from people. There's a reason to hope today. There's hope for everyone and what everyone is overcoming.
@@ -5533,6 +5558,25 @@ An eternal day and night, day after day, night after night, year after year, fro
 
 My heart knows yours, yours knows mine
 
+Your heart and mine
+United by love
+Entwined by love
+Beating together
+It's the love that makes you that lights me up
+It's the heart that sees me for who I am that brings me to the truth
+I wake up to your heart warming each day over the things you love
+
+From the early morning to the end of the day
+I want you to know that you will be just fine
+I know you're the one to hold me tight and carry me through
+I know i can count on you to know the best in you me and everyone
+
+From the day through to the night
+I care about you
+I think about you
+I want you to grow
+I know I can trust that it will work out
+
 <br>
 
 ## Stepping on Stones ##
@@ -6153,6 +6197,9 @@ It takes faith to trust people.
 It takes faith to open onself up.
 It takes faith to love fully.
 It takes faith to keep going an extra mile.
+It takes faith to rise up again after falling.
+It takes faith to apologize and say sorry.
+It takes faith to be kind to strangers.
 
 Everyone has faith.
 Everyone with a heart has faith.
@@ -6267,6 +6314,12 @@ They've hit the mall.
 They've been down grassland.
 
 **"dust the dirt off my boots**
+
+dirt on my boots
+gum I stepped on
+rocks stuck in the bottoms
+stepping on this rocky land
+
 <br>
 
 ## Clothes Outdoors ##
@@ -6341,6 +6394,18 @@ It's a tale of two sides both fighting for freedom.
 Nothing like that good old flag waving on old porches and construction sites
 
 It's a union where there's two sides to the same story, the same whole.
+
+I put my hand on my heart and sing I love this land.
+I love these beautiful people.
+I care to be strong and true.
+I love this land until I die.
+I love the red white and blue.
+I love the golden thread.
+I love this land for eternity.
+It's roots are strong.
+It's rivers run deep.
+It's mountains run wide.
+It's hills run wide.
 
 <br>
 
@@ -8037,6 +8102,7 @@ It's the same feelings, but different problems.
 It's the same music, but different tones.
 It's the same flowers, but different pieces of art.
 It's the same world, but different languages.
+It's the same art, but different expression.
 
 --We are all weaving in and out and learning the same lessons.
 We are all running to the same goal.
