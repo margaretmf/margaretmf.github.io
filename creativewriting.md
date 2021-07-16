@@ -4447,6 +4447,7 @@ She looked him straight in the eye and said 'I love you'
 
 ## A City of Angels, Strangers ##
 A city of angels, strangers, friends
+There will always be someone to be right beside you to help you know that there's endless life and love ahead
 
 <br>
 
@@ -5577,6 +5578,13 @@ I think about you
 I want you to grow
 I know I can trust that it will work out
 
+This heart of yours I love
+I love how you love
+
+Our hearts knotted together
+Tied tightly together
+Rings forever true thorughout the universe
+
 <br>
 
 ## Stepping on Stones ##
@@ -6513,6 +6521,14 @@ for a song to sing in a mother's heart
 for a laugh to come out of a father's mouth
 for a tale by a grandmother to be remember
 for a joke of a grandfather to be thankful for
+
+for the ripple effect of something
+for the stars to shine
+for eternity
+for kindness in schools
+for the South to live on
+for the people looking for change
+for a smile on my parents' faces
 
 <br>
 
@@ -7481,6 +7497,26 @@ the meeting and greeting of
 Another spin, dance, trip around the sun (a year)
 
 A world not centered around me but centered around my neighbor's eyes: filter, perspective, viewpoint
+The world evolves, the sun still shines like love still shines through after a great fall
+
+The sun is the center
+The rays of light radiate out
+The hearts filled with love radiate out from the central heart of hearts
+
+<br>
+
+## A World ##
+A world
+constantly changing
+Beliefs shifting
+A palce revisited with the eyes of a child
+People occupy places, attitudes, positions
+Contributing their perception, interpretation, perspective
+
+A world
+constantly shifting
+Based on perception, interpretation, perspective, and movement
+We all live on this same earth that is circling around and around year after year, day after day, growing, flourishing
 
 <br>
 
@@ -8515,6 +8551,12 @@ A connection to the land.
 A love of home and family.
 Freedom from racial, gender, and cultural politics.
 The place the country began and started.
+
+I remember feeling some culture shock in Nashville.
+I remember feeling uncomfortable with male practitioners and mostly comfortable with female practitioners in the past.
+I remember I used to experience nervous laughter attacks.
+I remember the signing up for class instruction.
+I remember feeling intimidated by masculine imagery.
 
 <br>
 
