@@ -6497,6 +6497,29 @@ The leaves turn gold
 I wish for a better day
 I wish for the love in a girl's heart to shine true
 
+wishing well-
+for the love that fills the earth
+for the love that moves mountains
+for the love that hugs a friend
+for the that is truly sorry
+for the love that smiles at a stranger
+for the love that forgives at first sight
+for the love that keeps people young
+for the love that heals an illness
+for the love that builds bridges
+for the life that frees
+for the life that shares joy and happiness
+for a song to sing in a mother's heart
+for a laugh to come out of a father's mouth
+for a tale by a grandmother to be remember
+for a joke of a grandfather to be thankful for
+
+<br>
+
+## Save Your Kisses ##
+They say to "save your kisses"
+I gave myself away
+
 <br>
 
 ## Tearing Leaves ##
@@ -6888,6 +6911,8 @@ Your job is an attitude towards life, and an outlook towards the world and human
 Your job is not confined by your job title, your social status, your place.
 Your place is in the land of the divine, where ideas in your heart continuously unfold, and are not limited by the job or opinion of others.
 
+A world not centered around me but centered around my neighbor's eyes: filter, perspective, viewpoint
+
 <br>
 
 ## Present, Past ##
@@ -7130,6 +7155,8 @@ Continuing to do it.
 Going beneath the surface.
 Movement wider.
 Appreciating more people.
+
+A world not centered around me but centered around my neighbor's eyes: filter, perspective, viewpoint
 
 ## The Coins ##
 The four coins sitting on the grounds.
@@ -7450,6 +7477,10 @@ Cycles round and around, year after year.
 
 The waltz of the universe
 the meeting and greeting of
+
+Another spin, dance, trip around the sun (a year)
+
+A world not centered around me but centered around my neighbor's eyes: filter, perspective, viewpoint
 
 <br>
 
