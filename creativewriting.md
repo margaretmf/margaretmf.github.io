@@ -1817,6 +1817,8 @@ In all its brilliance, all the colors are there, reflecting all the many hues di
 Many pigments and shades captured within the inner and outer expression of all that can be experienced in life inwardly and outwardly.
 From vermillion to cobalt to scarlet, so much is there, waiting to unfold in the light like an inner prism, part of an outer prism.
 
+**Dolly Parton's song** 
+
 <br>
 
 **Word Associations:** pigment, shade, tincture, complexion, scarlet, cobalt, brilliance, vermillion
@@ -1828,7 +1830,7 @@ The clash of perspectives and ways of seeing the world that are unaligned with t
 A break of trust between people.
 A fray of ideas unraveling in agitation.
 
-<br>
+<br>q
 
 **Word Associations:** fray, breach, clash, rival, contest, embroil, protagonist, strife
 
@@ -3520,6 +3522,8 @@ That old clock ticking
 ## Trucks and Cargo Colors ##
 Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green. A chain of colors. A chain of nationalities being represented. A whole globe expressed through a chain of colors.
 
+**Dolly Parton's song** 
+
 <br>
 
 ## The Trucks and the Industry ##
@@ -3905,6 +3909,13 @@ He knew how to synch us up.
 Clock watching
 Father Time
 Counting down the time, the hours, the minutes
+
+Watching the lcock eternity is for everyone.
+Tic toc.
+Has it been a minute?
+When will an hour pass?
+Waiting for time to pass?
+Checking on the clock.
 
 **Literary Allusion to Shakespeare**
 
@@ -4942,6 +4953,12 @@ two singing, swinging stars, "you're amazing", "you're wonderful"
 in concert, in synch with the universe
 
 outside those prison walls, there's a universe of stars and flowers
+
+there's an entire world inside you
+that you think about and love
+that you want to know engage with, understand, and believe in prayer for 
+there's an entire world you live in
+Imagine what is in the world
 
 <br>
 
@@ -6113,6 +6130,7 @@ They've walked through forests.
 They've hit the mall.
 They've been down grassland.
 
+**"dust the dirt off my boots**
 <br>
 
 ## Clothes Outdoors ##
@@ -7178,6 +7196,13 @@ The world shifts like the earth rotates
 The sun was always there
 
 Year by year
+
+The wind knows my name.
+The people are growing, takig on different, higher views in the same brown earth.
+Seasons change, and there's a season for everything.
+
+Cycles round and around, year after year.
+<br>
 
 <br>
 
