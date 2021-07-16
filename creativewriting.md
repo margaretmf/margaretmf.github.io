@@ -3887,6 +3887,12 @@ He had lived through this all bfore.
 He saved us all from things we could not foresee.
 He knew how to synch us up.
 
+Clock watching
+Father Time
+Counting down the time, the hours, the minutes
+
+**Literary Allusion to Shakespeare**
+
 <br>
 
 ## Where You are From, Where You are From From ##
@@ -5784,6 +5790,11 @@ It's a lifetime of days with you in my heart
 It's a day to try something new
 It's a beautiful and amazing day to be alive
 
+Each and every day, the Truth, the light shines on something new
+Every new day to wake up to the Truth, and see what's there
+
+The smile through the earth as one
+
 <br>
 
 ## Day In and Day Out ##
@@ -5841,6 +5852,8 @@ She was dancing and twirling around.
 She was smiling a mysterious smile.
 SHe was creating a life.
 She was making crafts.
+
+The smile through the earth as one 
 
 <br>
 
@@ -7125,6 +7138,8 @@ The face of the earth, all the faces
 
 Year after year
 widening, broadening, deepening, growing, learning, understanding, relearning, fading
+
+Imagine all 7.2 billion people saying "I cross my heart and hope to die" with a vision of all the voices echoing out the truth and smiling through the earth as one with forgiveness, redeeming grace, love
 
 <br>
 
