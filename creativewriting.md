@@ -3872,6 +3872,16 @@ It's all one.
 
 <br>
 
+## Seasons Changing ##
+Something is sweeping thorugh as the seasons change
+Old leaves die,
+buds come to bloom,
+there's another cycle ahead
+
+Bow, bend, adapt, sway, flow, move, grow
+
+<br>
+
 ## Worlds Apart ##
 Seeing eye-to-eye
 Meeting heart-to-heart
