@@ -87,6 +87,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the Spanish language on the Screen in the CVS - **Cambiar El Idioma**
 * Grateful for the man working at CVS and his love for the work
 * Grateful for the African American engineer
+* Grateful for the people eating lunch
+* Grateful for the nursing and psychological research 
+* Grateful for psychology and psychologists
+* Grateful for the little kids of others
+* Grateufl for the sound of the air conditioning
 * Grateful for the architecture at The Mother Church
 * Grateful for the man in Memphis who loves Math and Music
 * Grateful for musicians from Indiana, Illinois, Maryland coming to Nashville
