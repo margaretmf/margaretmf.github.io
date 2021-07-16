@@ -4072,6 +4072,14 @@ The animator behind the expression.
 
 <br>
 
+## Long Road ##
+There's a long life to live with you
+Many roads to see
+Many paths to find
+Many people to love with you
+
+<br>
+
 ## It's An Open Book ##
 It's an open book ahead.
 All the pages waiting to be written.
