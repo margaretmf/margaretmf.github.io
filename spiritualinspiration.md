@@ -51,6 +51,16 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the light in the Christian Science Mother Church
 * Grateful for the first responders
 * Grateful for the man working with the USPS in the postal service
+* Grateful for the music therapy
+* Grateful to braid a friend's hair
+* Grateful for Christian Science
+* Grateful for history, accurate records of Native Americans' lives
+* Grateful for U.S. 23 Country Music Highway, the history, the towns, the artists
+* Grateful that it is human to make mistakes, everyone makes them, and what do I do with them
+* Grateful for a path that God has paved for me
+* Grateful that people are musical
+* Grateful for each and every day that the Truth, the light shines on something new
+* Grateful for each new day to wake up with a different perspective or perception
 * Grateful for the spontaneous interaction with people outside playing with light lasers, light swords
 * Grateful for the construction sites
 * Grateful for the men working on the street
