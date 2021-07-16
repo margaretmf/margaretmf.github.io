@@ -45,7 +45,9 @@ layout: default
 * [Symmetry Comes of Age: The Role of Pattern in Culture](https://www.amazon.com/Symmetry-Comes-Age-Pattern-Culture/dp/0295983663) by Dorothy K. Washburn and Donald W. Crowe
 * [Dolly Parton, Songteller: My Life in Lyrics](https://www.amazon.com/Dolly-Parton-Songteller-Life-Lyrics/dp/1797205099/ref=sr_1_3?dchild=1&keywords=Dolly+Parton%2C+Songteller%3A+My+Life+in+Lyrics&qid=1626385032&s=books&sr=1-3) by Dolly Parton
 * [Dreams of My Father](https://www.amazon.com/Dreams-My-Father-Story-Inheritance/dp/1400082773/ref=sr_1_3?crid=101Z9MJH2X7GT&dchild=1&keywords=dreams+of+my+father+barack+obama&qid=1626432821&sprefix=dreams+of+my%2Caps%2C183&sr=8-3) by Barack Obama
+* [The Audacity of Hope: Thoughts on Reclaiming the American Dream](https://www.amazon.com/Audacity-Hope-Thoughts-Reclaiming-American/dp/0307237702/ref=sr_1_4?dchild=1&keywords=hope+Barack+obama&qid=1626433410&sr=8-4) by Barack Obama
 * [A Promised Land](https://www.amazon.com/Promised-Land-Barack-Obama/dp/1524763160/ref=sr_1_2?dchild=1&keywords=the+promised+land+Barack+obama&qid=1626432868&sr=8-2) by Barack Obama
+* [Symmetry Comes of Age: The Role of Pattern in Culture](https://www.amazon.com/Symmetry-Comes-Age-Pattern-Culture/dp/0295983663/ref=sr_1_2?dchild=1&keywords=symmetry+patterns+culture&qid=1626433517&sr=8-2) by Dorothy K. Washburn (Editor) & Donald W. Crowe (Editor)
 
 
 #### Interested
