@@ -96,6 +96,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the nurses
 * Grateful for the noise of voices
 * Grateful for my car
+* Grateful for Johnny Cash's work in prisons helping people on the margines
+* Grateful for Dolly Parton's work to help those in the shadows
 * Grateful for innovative ways to use trash and love the people
 * Grateful for the power of the people
 * Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book *"For we are strangers before thee, and sojourners, as were all our fathers." -1 Chronicles 29:15*
