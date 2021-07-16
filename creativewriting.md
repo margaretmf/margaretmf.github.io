@@ -3818,6 +3818,9 @@ There's someone, there are people behind the homes.
 There's someone, there are people behind the data.
 There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
 There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
+There's someone there, there are people there behind the construction of the building.
+There's someone there, there are people there behind the washed clothes.
+There's someone there, there are people there behind the cleaned towels.
 
 <br>
 
@@ -3892,6 +3895,13 @@ Father Time
 Counting down the time, the hours, the minutes
 
 **Literary Allusion to Shakespeare**
+
+<br>
+
+## Ode to an Insect ##
+Ode to an insect looking through the window, flying hrough the air, nibbling at my sandwich
+
+Ode to a spider web next to sticky sprinkles of green grass on the windoe
 
 <br>
 
@@ -4772,6 +4782,25 @@ I let the others sing, and I play second fiddle, and I let them crowd me out.
 I let my voice be quiet, subdued, so they can be someone, something.
 
 One home in a row of homes.
+
+<br>
+
+## Voiceless ##
+Alll I want to do is keep my mouth shut.
+Songs sing through my heart.
+Words play through my ears.
+All I want to do is keep my mouth sealed.
+
+Shared so much with you.
+You could not respond.
+You could not share a word.
+And all I want to do is keep my mouth closed.
+
+I have a voice.
+I'm voiceless though.
+I am speechless.
+Voicing my heart is what I don't want to do.
+All I want to do is yell out or be quiet.
 
 <br>
 
@@ -5900,6 +5929,16 @@ It takes faith to walk out the door.
 It takes faith to take a step forward.
 It takes faith to forgive and heal a relationship.
 It takes faith to move on and trust people.
+It takes faith to fill a void.
+It takes faith to walk through the fire.
+It takes faith to stop doing what's wrong.
+It takes faith to keep going with joy.
+It takes faith to heal fully.
+It takes faith to trust people.
+It takes faith to open onself up.
+It takes faith to love fully.
+It takes faith to keep going an extra mile.
+
 Everyone has faith.
 Everyone with a heart has faith.
 
