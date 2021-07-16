@@ -70,6 +70,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the lessons learned in the shower
 * Grateful for the cooks at camp
 * Grateful for the signs on the road
+* Grateful for a school like Renaissance School
 * Grateful for the construction workers
 * Grateful for my cousins in Suffolk, Whaleyville
 * Grateful to learn about Kentucky, Indiana, and the Rust Belt
