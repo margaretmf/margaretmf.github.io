@@ -89,6 +89,47 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the little kids in the airport
 * Grateful for spiritual purging
 * Grateful for the man working at CVS and his love for the work
+* Grateful for the love people have for their parents' work, and singer-songwriting
+* Gratteful for bridges
+* Grateful for reflections in water
+* Grateful for sayings on "Honky tonk"
+* Grateful for the allusion to "Gone with the wind" in Dolly Parton
+* Grateful for the entrepreneurs in Tennessee's state history
+* Grateful for Cas Walker, a grocery selling door-to-door entrepreneur
+* Grateful for the "wife material" shirt
+* Grateful for architecture and interior design
+* Grateful for people playing music on porches
+* Grateful for God, the first and the last
+* Grateful that everywhere I go there's a holy book around
+* Grateful for the people at Milestones
+* Grateful for people working in the shopping mall
+* Grateful for the youth and the life of youth
+* Grateful for memories in the airport
+* Grateful for sleep while in a room
+* Grateful for a full life to live
+* Grateful for the time in Charlotte
+* Grateful for the phone calls with my sister and brother
+* Grateful for Dattee's mom attending the Christian Science church
+* Grateful for prayers
+* Grateful for freedom from codependency
+* Grateful for a perception shift in Tennessee and the country
+* Grateful for healing that children can practice
+* Grateful that the train cars are from everywhere
+* Grateful for Glasgow, Scotland and the industry there
+* Grateful for the time in the psych ward
+* Grateful for more of humanity waking up to the Truth's clear day
+* Grateful that it's about us
+* Grateful for yellow paint splatter
+* Grateful for th epeople who motivate people to become better
+* Grateful for the leaves, the trees, the branches, the sticks, the river flowing
+* Grateful for the dirt
+* Grateful for the dirt, the branches in the water
+* Grateful for the growth that comes from experience
+* Grateful for ongoing transformation and an all-transforming spirit
+* Grateful that growth is the only constant
+* Grateful for the music therapists
+* Grateful for understanding
+* Grateful for independent women who demosntrate goodness
 * Grateful for the African American engineer
 * Grateful for the people eating lunch
 * Grateful for the nursing and psychological research 
