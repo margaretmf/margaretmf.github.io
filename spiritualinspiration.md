@@ -84,6 +84,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for shifts in perception
 * Grateful for the experiences at Roling HIlls
 * Grateful for the people I met
+* Grateful for the light in the young children with Big House and DTS
 * Grateful for the snacks 
 * Grateful for books read
 * Grateful for the work of data management
