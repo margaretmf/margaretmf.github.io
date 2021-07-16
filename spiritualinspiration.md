@@ -71,6 +71,15 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful that people are musical
 * Grateful for each and every day that the Truth, the light shines on something new
 * Grateful for Sam Cooke seeing a changge coming
+* Grateful for a secure sense of self, less affected by people
+* Grateful for boundaries with myself
+* Grateful for all the people in the Cumberland
+* Grateful for an ode to ants crawling
+* Grateful for surprises in book stores
+* Grateful for the book page sitting on the window
+* Grateful for memories, nostalgia, and childlike hearts
+* Grateful to eat my lunch
+* Grateful for the musicians in Memphis democratizing "dare to suck"
 * Grateful for the change for our country on the 4th of July, 2021
 * Grateful for Nelson Mandela
 * Grateful for rebirthing
@@ -1375,6 +1384,25 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Sesame Street
 * Grateufl for people from chruch and their moms
 
+
+<br>
+
+### Healing is Messy 
+"healing yourself can be messy
+
+seeing yourself through honesty 
+can be jarring and tough, it can even
+tmeporarily cause imbalance in your life
+
+it is hard work to open yourself
+up to release your burdens
+
+like removing thorns from your body,
+it may hurt at first, but it is
+ultimately for your highest good
+
+the dark clouds of rainfall are
+necessary for new growth" -Yung Pueblo
 
 <br>
 
