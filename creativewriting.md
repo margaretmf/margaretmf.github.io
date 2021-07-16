@@ -3759,6 +3759,7 @@ Subjective means that people live relatively and understand different perspectiv
 ## Argument ##
 An argument, a perspective comes from the heart, an original point on something. There's tapestry in the words, there's structure, there's architecture. Everything connects.
 
+
 ----------
 
 
@@ -4413,6 +4414,20 @@ this day is done.
 The home is at peace.
 The lights are dimmed.
 The time is there for rest, and the darkness draws near.
+
+
+----------
+
+
+2 * 2, 2 at a time
+picking up bricks
+stacking them well
+
+knock knock knock
+knocking at the wall
+each of the bricks in their place
+the motor on, zooming in the background
+the car screeching as it turns right to the house
 
 <br>
 
@@ -5182,6 +5197,12 @@ The future running toward you with a plan like a mountain
 
 ## Leaves ##
 Everything you thought you knew falls off like the dead leaves on trees.
+
+<br>
+
+## Trees ##
+The branches lift up, and reach for the sky.
+The many branches lift up.
 
 <br>
 
