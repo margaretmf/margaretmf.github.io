@@ -4962,6 +4962,7 @@ This experience is helping you learn to be alone and be alone with confidence an
 This experience is encouraging you to be yourself more.
 This experience is pushing you to put thoughts on other things, other deeper things.
 This is good for you. This is not bad.
+This experience is good for you. It's drawing you closer to who you are down deep. You're here for a reason. 
 
 <br>
 
@@ -6152,6 +6153,8 @@ I want to live each day like it's a new day to live
 
 There are a thousand, infinite, many new days for you and for me to live and love all the world
 
+There are new friends to meet every day.
+
 <br>
 
 ## Day In and Day Out ##
@@ -6597,6 +6600,8 @@ for a smile on my parents' faces
 coins for the jukebox
 coins for the coke machine
 coins for the laundry
+
+penny for the woman doing laundry for her son
  
 <br>
 
