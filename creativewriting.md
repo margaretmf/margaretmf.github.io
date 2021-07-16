@@ -5298,6 +5298,35 @@ Your light makes me lighter.
 
 <br>
 
+## Stepping on Stones ##
+Step on stones to old adge
+Milestones
+Measure a lifetime through
+Seize the true world and what it has to offer
+
+<br>
+
+## Hand Holding ##
+I want to feel the warmth of your hands
+I want to feel the blood running through your veins to your finger tips
+I want to feel you alive and well
+I want to feel the love running through our hands and bod
+I want to feel your heart light up with what you love
+I want my brain to spark when I hear you speak about interesting things
+From your feet to your head I want to feel us alive and well
+
+<br>
+
+## Over It ##
+Over it
+It has nothing to do with me or them anymore
+It's done
+I've moved on
+I am different
+They have their place
+
+<br>
+
 ## One in the Family ##
 You are one of the family
 People come along to teach us lessons and show us more about families
