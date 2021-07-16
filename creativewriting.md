@@ -125,12 +125,14 @@ I believe in every individual as individual.
 I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
 I believe in giving credit to people who inspire other people, or who inspire us to change and grow.
 I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people.
+I believe in not killing people, and I have learned this the hardway.
 
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better
 * Healed racism and started to realize that everyone is individual and distinct
 * Appreciated authenticity in my first job for 3 years with an entrepreneur, and it was really a powerful experience
 * Rocky relationship to technology and social media and email that I need to improve
+* Learned not to threaten to kill people out of madness
 
 <br>
 
@@ -3711,6 +3713,12 @@ Believe in the power of love
 Believe in sunlight
 Believe that one can do it
 
+Freedom fighters, trail blazers, horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny
+
+Everyone looks to the same Sun, moon, stars
+
+A melting pot is the manifest destiny
+
 <br>
 
 ## Democracy ##
@@ -3821,6 +3829,9 @@ There are people behind the word "Queen" on the advertisement. All of humanity, 
 There's someone there, there are people there behind the construction of the building.
 There's someone there, there are people there behind the washed clothes.
 There's someone there, there are people there behind the cleaned towels.
+There's someone behind, there are people behind the painting.
+There's someone behind, there are people behind the laundry.
+There's someone behind, there are people behind the songs.
 
 <br>
 
@@ -3851,6 +3862,7 @@ When I set down to ask a question about a word, other people have asked the same
 When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
 When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
 When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
+When feeling love in a hospital here, I think of the love for people in a hospital across the sea.
 
 It's all one.
 
@@ -4580,6 +4592,10 @@ It strikes a chord.
 
 <br>
 
+## Guitar ##
+The pain of playing guitar.
+The heartbreaking guitar playing.
+
 ## A Chord Struck ##
 It was a hit.
 It really struck a chord.
@@ -4918,6 +4934,29 @@ There's an entire world out there waiting to be known
 I love you like a star in the darkness of the night
 I love you like a morning star ready to start the day
 I hope to be with you both day and night
+
+two singing, swinging stars, "you're amazing", "you're wonderful"
+in concert, in synch with the universe
+
+outside those prison walls, there's a universe of stars and flowers
+
+<br>
+
+## Green Earth ##
+Green earth, brown seeds, brown dirt
+Blue, white, turquoise sea
+
+<br>
+
+## Storm ##
+The silence just before the storm
+The howl of the wind
+
+<br>
+
+## Past and Future ##
+The past fading away like a river
+The future running toward you with a plan like a mountain 
 
 <br>
 
@@ -5331,6 +5370,17 @@ Your truth makes me bolder.
 Your love makes me stronger.
 Your light makes me lighter.
 
+He knows how to make me laugh
+He knows how to help me heal
+He knows just what I needed to hear
+
+My heart and yorus are in synch with each other in the universe for ever
+We were destined to become one and be greater than the two of us alone
+Our hearts reach love
+An eternal day and night, day after day, night after night, year after year, from sunrise to sunset
+
+My heart knows yours, yours knows mine
+
 <br>
 
 ## Stepping on Stones ##
@@ -5421,6 +5471,10 @@ Circling around this place called home again.
 All the memories from the past come alive.
 They unearth themselves and revive a sense of childlike wonder so deep.
 So much good has happened, and so much good is waiting to be born again.
+
+This is old sweet home.
+You hold a space for me and welcome me with a hug.
+The place where I can always be welcomed and always return.
 
 <br>
 
@@ -5823,6 +5877,11 @@ Each and every day, the Truth, the light shines on something new
 Every new day to wake up to the Truth, and see what's there
 
 The smile through the earth as one
+
+Anyone can rise up
+Anyone can get back up
+Anyone can lead
+Anyone can do what's right after doing what's wrong
 
 <br>
 
@@ -6254,6 +6313,13 @@ God is always bringing us closer to our family, first individually, and then col
 
 <br>
 
+## Love, the All-in-All ##
+Love, the all-in-all
+The light bounces off
+The darkness cannot touch it because so much light is bouncing off of light, and so much gratitude is bouncing off of gratitude, and so much love is bouncing off of love
+
+<br>
+
 ## Insight ##
 Healing is different from coping. 
 Healing is God restoring every cell in your brain and body.
@@ -6387,6 +6453,10 @@ It's the perfect 'I will commit' to an innocent yearning for a bond so great.
 ## Weddedness to the Earth ##
 I am wedded to the earth
 In all it's glory and all its inhabitants
+
+In the light of eternity, I walk with you
+Weeded to the whole wide earth with all the colors, the folowers, the trees, and all of the people
+Walking equally withe veryone with a purpose
 
 <br>
 
@@ -7102,6 +7172,8 @@ Every day, the perspective the perception shifts of the world
 The world shifts like the earth rotates
 The sun was always there
 
+Year by year
+
 <br>
 
 
@@ -7179,6 +7251,10 @@ Year after year
 widening, broadening, deepening, growing, learning, understanding, relearning, fading
 
 Imagine all 7.2 billion people saying "I cross my heart and hope to die" with a vision of all the voices echoing out the truth and smiling through the earth as one with forgiveness, redeeming grace, love
+Imagine eternity and haven for all 7.2 billion people. Think of all 7.2 billion people as eternal ideas.
+
+Imagine all 7.2 billion people echoing out the truth in their own ways but resounding in harmony.
+Imagine reaching the mountain heights.
 
 <br>
 
@@ -7189,6 +7265,15 @@ Since the beginnig of time.
 It never stops.
 It's always going.
 The planets are always cycling and circling.
+
+<br>
+
+Two people in the same world
+Meeting heart-to-heart in the same world
+Two worlds apart on different sides of the same one
+Coming together to heal
+
+<br>
 
 ## To the Core ##
 Connected, at one with the core of the Earth, the center of the Earth, the heart of the Earth.
