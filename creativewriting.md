@@ -3860,6 +3860,8 @@ There's someone there, there are people there behind the cleaned towels.
 There's someone behind, there are people behind the painting.
 There's someone behind, there are people behind the laundry.
 There's someone behind, there are people behind the songs.
+There's someone behind, there are people behind the food.
+There's someone behind, there are people behind the clothes.
 
 <br>
 
@@ -4244,6 +4246,16 @@ The road is good, it leads back home, high heaven
 Life is a journey that started at home, and ends at home
 Life is a journey that leads closer to oneself
 Life is a journey that leads to an expanded self
+Life is a journey with interests, hope, stories, progress
+Step by step
+Destination by destination
+The path, the trail is marked
+Leaving behind love, lessons, hurt, pain
+
+The next step, the next destination has already been paved, it has already been through
+People cross paths
+Some meant to stay
+Others meant for a lesson
 
 <br>
 
@@ -5735,6 +5747,15 @@ The road is good, it leads back home, high heaven
 Life is a journey that started at home, and ends at home
 Life is a journey that leads closer to oneself
 Life is a journey that leads to an expanded self
+Life is a journey with interests, hope, stories, progress
+Step by step
+Destination by destination
+The path, the trail is marked
+Leaving behind love, lessons, hurt, pain
+The next step, the next destination has already been paved, it has already been through
+People cross paths
+Some meant to stay
+Others meant for a lesson
 
 <br>
 
@@ -5942,7 +5963,7 @@ Seize the true world and what it has to offer
 I want to feel the warmth of your hands
 I want to feel the blood running through your veins to your finger tips
 I want to feel you alive and well
-I want to feel the love running through our hands and bod
+I want to feel the love running through your hands and body
 I want to feel your heart light up with what you love
 I want my brain to spark when I hear you speak about interesting things
 From your feet to your head I want to feel us alive and well
@@ -6104,6 +6125,15 @@ Everything grows richer, deeper, fuller, and more alive. I see the beauty, not t
 
 The road is good, it leads back home, high heaven
 Life is a journey that started at home, and ends at home
+Life is a journey with interests, hope, stories, progress
+Step by step
+Destination by destination
+The path, the trail is marked
+Leaving behind love, lessons, hurt, pain
+The next step, the next destination has already been paved, it has already been through
+People cross paths
+Some meant to stay
+Others meant for a lesson
 
 <br>
 
@@ -6581,6 +6611,11 @@ Through the orange gates, across the white fence.
 
 The road is good, it leads back home, high heaven
 Life is a journey that started at home, and ends at home
+Life is a journey with interests, hope, stories, progress
+Step by step
+Destination by destination
+The path, the trail is marked
+Leaving behind love, lessons, hurt, pain
 
 <br>
 
@@ -7029,6 +7064,11 @@ Returning
 
 The road is good, it leads back home, high heaven
 Life is a journey that started at home, and ends at home
+Life is a journey with interests, hope, stories, progress
+Step by step
+Destination by destination
+The path, the trail is marked
+Leaving behind love, lessons, hurt, pain
 
 <br>
 
