@@ -78,9 +78,15 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the STEAM profession
 * Grateful for front/back porch swining, music playing, sun shining
 * Grateful for what people overcome through faith
+* Grateful for all the singer songwriting about **two birds of a feather**
+* Grateful for the right people at the right time
+* Grateful for the people behind te books
+* Grateful for President Barack Obama's books
 * Grateful for the light of day
 * Grateful for the light in people
 * Grateful for what people are overcoming
+* Grateful for the highs and lows and transitions and transformations in classical music
+* Grateful to learn to self-advocate
 * Grateful that **it's ok not to be ok**
 * Grateful for the music therapist
 * Grateful for the staff
