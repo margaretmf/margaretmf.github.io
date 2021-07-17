@@ -27,6 +27,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for the dancers and the musicians
 * Grateful for the people behnd middle school dances and high school
+* Grateful for children's television shows and the way kids are taught through them
 * Grateful for people in the hospital
 * Grateful for the trees
 * Grateful for memories of UVA and DC
