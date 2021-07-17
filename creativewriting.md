@@ -5154,6 +5154,14 @@ A crush
 A secret admirer
 "sweet nothings"
 
+Playing the fool
+Playing it well
+Being a tool of the snakey serpent
+
+Playing the fool
+Making a scene
+Letting myself fall for the trick
+
 <br>
 
 ## Rough Night ##
