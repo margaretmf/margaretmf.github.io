@@ -4025,6 +4025,9 @@ Singing songs from the heart.
 
 My heart calling and beating for you is like two birds calling out high in the sky.
 
+Two birds flying around in synch with the rhythm of the universe.
+Telling each other they love each other and all the other birds.
+
 <br>
 
 ## The Stars that Shine, the Trees that Glisten, the Sky that is Blue, and the Birds that Sing #
@@ -4088,8 +4091,8 @@ Walking around, going out the door, seeing the blinds and the bench from another
 
 <br>
 
-## Flowers Bloomed on the Earth ##
-Flowers bloomed on the earth.
+## Flowers Blossomed on the Earth ##
+Flowers blossomed on the earth.
 Three took photos of it.
 One sketched it.
 Another took a video of it.
@@ -4192,6 +4195,7 @@ the American flag flying everywhere
 Highway noises
 
 Love on the internet highway
+
 <br>
 
 ## Bottled Up in a Bottle, Not My Heart ##
@@ -4207,6 +4211,23 @@ Bottled up in a Bottle, not my heart
 
 ## Another's Lens ##
 Looking at life and everything around through the lens of someone else.
+
+<br>
+
+## Secret Admirer ##
+He had a secret admirer but he didn't know her name.
+Every day, she came home and peeled off petals from flowers.
+'He likes me, he likes me not'
+'He likes me, he likes me not'
+'He likes me, he likes me not'
+All the petals fell to the grass as she repeated this sentence.
+She smiled and said, 'I hope he likes me' as she let the petals fall to the ground.
+She took the flower petals to school and said, 'I like you a lot, and here are some flower petals for you.'
+He responded, 'I like you too' and took the petals in his hand.
+He made a necklace out of the petals, and he went up to her and said, 'this necklace is for you, and let's be friends.'
+She wore the necklace every day to school, and he would smile at her across the room.
+They held hands, and they became best friends forever.
+What a wonderful type of love that starts with a flower and its petals.
 
 <br>
 
@@ -5855,6 +5876,14 @@ running on rocks
 stepping on stones
 running through dirt, the clay
 getting clay stuck on the bottom of these shoes
+
+giving the dirty heel
+hitting rock bottom
+hitting the ground
+pulling the trigger
+bouncing back up higher
+a criminal, not a bride
+I learned too 'not to play with guns' and seriously put them down
 
 <br>
 
