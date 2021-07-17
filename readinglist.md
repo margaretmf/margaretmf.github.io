@@ -137,6 +137,7 @@ layout: default
 * Taylor Swift: The Platinum Edition by Liv Spencer
 * Girl Behind the Smile
 * Made for Hope: Discovering Unexpected Gifts in Brokenness
+* How the Wild West Was Won: A Celebration of Cowboys, Gunfighters, Buffalo Soldiers, Sodbusters, Moonshiners, and the American Frontier 
 * A Recipe for Bad Lemons: Ingredients for Success from Life's Sour Moments
 * Failing Up: A Professor's Odyssey of Flunking, Determination, and Hope
 * He's a Porn Addict...Now What?: An Expert and a Former Addict Answer Your Questions
