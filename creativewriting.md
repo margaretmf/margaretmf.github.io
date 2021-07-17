@@ -3974,6 +3974,24 @@ Food for your father to cook
 
 <br>
 
+## Sunday Vibes ##
+Dancing on a Sunday
+Eating chips and a sandwich
+Sipping on water with friends and family
+Ice cream floats and soda bubbles fizzing to the top
+A day for rest, for community, and homework
+
+<br>
+
+## Medieval Alt-Country ##
+Traveling back into the past
+Traveling forward into the future
+Going to long, lost worlds in the past or future that exist all right now
+This is alt-country
+Seeing all the people who used to live or who live in the future
+
+<br>
+
 ## Time ##
 He was old Mr. Time.
 He had watched down from heaven on all the days.
@@ -5049,6 +5067,17 @@ There were people all aroud
 I prayed in a car
 From hotel to hotel this heart of mine so fragile and broken
 
+It was a heartbreak hotel
+It was no real relationship
+It was all fantasy
+Baby he med my needs
+He knew what I needed to know
+He knew how to reach me
+He was never my baby
+but baby it was a heartbreak hotel
+
+<br>
+
 **Heartbreak Hotel *by Elivs Presley***
 
 <br>
@@ -5746,11 +5775,19 @@ The wind has my back.
 The wind touches my face.
 The wind moves the water.
 
+Run with the wind.
+The answer is in the wind
+The mystery of it all
+I don't know why things happen, but the wind does
+I don't know how things connect, but the wind does
+
 <br>
 
 ## The Wind ##
 The wind moving my hair and blowing my face.
 The wind sweeping across the land with the leaves.
+
+Run with the wind.
 
 <br>
 
