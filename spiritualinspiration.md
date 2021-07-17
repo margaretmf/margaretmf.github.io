@@ -58,6 +58,15 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my complete return
 * Grateful for the construction work
 * Grateful for cool things to photograph
+* Grateful for the musicians and cheer in the DSI
+* Grateful for music in the city of Memphis
+* Grateful for popcorn stands and ice cream stands
+* Grateful for birthday parties, balloons floating in the air
+* Grateful for balls in the play area
+* Grateful for envisioning the globe whole
+* Grateful for sound and science at VUA
+* Grateful that there's much more to life than what meets the eye
+* Grateful that while locked up in a corner with white walls all around people are here to help but people everywhere are outside still moving
 * Grateful for God's infinite care
 * Grateful for the football players
 * Grateful for backstage work, second fiddling, watching the symphony, helping the people, following the lead
