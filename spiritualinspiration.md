@@ -53,6 +53,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for swinging on a swingset and hearing children outside of windows
 * Grateful for each and every day that a baby is born, someone dies, people litter, people pick it up, a door shuts, a door opens, an airplane takes off, an airplane lands
 * Grateful to grow by singing
+* Grateful for memories in DC with Tabor, and friends at the Irish restaurant
+* Grateful for the meetups in Washington, DC
+* Grateful for my complete return
+* Grateful for the construction work
+* Grateful for cool things to photograph
+* Grateful for God's infinite care
+* Grateful for the football players
 * Grateful for backstage work, second fiddling, watching the symphony, helping the people, following the lead
 * Grateful for the country in every state, and Nashville, country, north, east, west, south
 * Grateful for the country in other states 
