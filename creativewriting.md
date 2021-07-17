@@ -5644,6 +5644,19 @@ Blue, white, turquoise sea
 The silence just before the storm
 The howl of the wind
 
+After the storm when the leaves are wet
+the branches have fallen
+the power went out
+It's ok to dream again about a life filled with color
+the beauty is everywhere
+there's always a gift, a blessing in disguise after the storm
+
+the droplets after the storm
+earth's teardrops saying it's ok, "I'm here"
+
+There's beauty everywhere
+There's sun shining through the puddles, the droplets rippling over everywhere
+
 <br>
 
 ## Past and Future ##
