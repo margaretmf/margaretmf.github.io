@@ -77,6 +77,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for an upside down view that shifts the perspective and shows a different picture
 * Grateful for the system of ideas, including engineering, electrification, and water
 * Grateful for the ideas one expresses interest in
+* Grateful for carpenters and carpatners' sons
+* Grateful for the nurses
+* Grateful for the belief I had that the dream is coming true, **the final arc that someone shared is the *I Dream A Dream***
 * Grateful that retrograde steps are false and unreal in Science
 * Grateful for the relationship to music of everyone in the room
 * Grateful for other people who have gone through Hopeway
