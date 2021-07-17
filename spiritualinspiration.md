@@ -58,6 +58,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful that the human mind can psh boundaries and express limitlessness
 * Grateful for the trail of tears and to learn more about Native tribes
 * Grateful for the mountains in the Middle East, Russia, China
+* Grateful for eternity in the Middle East
+* Grateful for the stars that shine
+* Grateful for the experiences with the post office
+* Grateful for the postal history and the connection between the men and the train
+* Grateful for the connection between Norfolk, and Memphis, and Charlotte
+* Grateful for all the people in the airport
 * Grateful for global manhood
 * Grateful for people and nature
 * Grateful for the view down the hall of green leaves through windows
