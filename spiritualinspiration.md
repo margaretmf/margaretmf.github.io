@@ -59,6 +59,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for gratitude and spiritual, creative expression
 * Grateful for empathy
 * Grateful for clear reading in psych ward
+* Grateful for the nurse who helped me gain my balance
+* Grateful that I am thoughtful, harmonizer, life-long learner, creative, working on seeing the best in people, appreciative, team member, disciplined
+* Grateful that I know that I can be reactive and impulsive and retaliatory when hurt, a slower communicator, afraid of using my voice, soemtimes gossip, strong conscience or inner compass, not always confident enough
 * Grateful for the transformation of my neighbor back to her original self
 * Grateful for mutuality in the psych ward
 * Grateful to feel inspired by black inkstains on countertops
