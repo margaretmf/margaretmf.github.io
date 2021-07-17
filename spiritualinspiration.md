@@ -42,6 +42,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for positive memories of my grandmother
 * Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
 * Grateful for Medieval organ music
+* Grateful for God's plan for me and everyone
+* Grateful that God is operating outside of this
+* Grateful for friends from **Sigma Delta Tau**
+* Grateful for children playing on the playground nearby
+* Grateful for swinging on a swingset and hearing children outside of windows
 * Grateful for global cultures
 * Grateful for the growth that comes from experiences
 * Grateful for ongoing communication
