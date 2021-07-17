@@ -5334,6 +5334,15 @@ You don't know what's on the other side, but something is there to greet you wit
 The crickets, the creeking of the railroad in the dark evening night.
 A window into the light.
 
+City lights.
+A hard day at work is done.
+The lights at night are on.
+The day is done.
+The night is on.
+The people have left work.
+The light supports their action.
+It's loud and silent at the same time.
+
 <br>
 
 ## Stars ##
@@ -7701,6 +7710,16 @@ A society run by electric lines, power grids, and lightbulbs.
 The flickering light reflected thorugh the water.
 The flickering light in the middle of sea.
 A window into the light
+
+City lights.
+A hard day at work is done.
+The lights at night are on.
+The day is done.
+The night is on.
+The people have left work.
+The light supports their action.
+It's loud and silent at the same time.
+All the rooms twinkle like the stars in the night sky.
 
 **1950s- rural electrification, paved roads**
 Currents, water, electric
