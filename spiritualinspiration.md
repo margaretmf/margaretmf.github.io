@@ -54,6 +54,21 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the country in other states 
 * Grateful for the woman who wrote **Broken Record** and cited **Amena Brown** and **India Arie**
 * Grateful for global cultures
+* Grateful that the human mind can psh boundaries and express limitlessness
+* Grateful for the trail of tears and to learn more about Native tribes
+* Grateful for the system of ideas, including engineering, electrification, and water
+* Grateful for the ideas one expresses interest in
+* Grateful that retrograde steps are false and unreal in Science
+* Grateful for the relationship to music of everyone in the room
+* Grateful for other people who have gone through Hopeway
+* Grateful for the diversity of people in the sorority I was in
+* Grateful for all the members of the sorority my mom was in
+* Grateful for the people here who have attempted suicide, and they are good people
+* Grateful for art and design in businesses and homes that share culture
+* Grateful for artists in my life
+* Grateful for a healing of my voice
+* Grateful to practice growing spiritually
+* Grateful for how artists inspire one another
 * Grateful for the growth that comes from experiences
 * Grateful for ongoing communication
 * Grateful for sketches
