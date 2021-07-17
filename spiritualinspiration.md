@@ -47,6 +47,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for friends from **Sigma Delta Tau**
 * Grateful for children playing on the playground nearby
 * Grateful for swinging on a swingset and hearing children outside of windows
+* Grateful for each and every day that a baby is born, someone dies, people litter, people pick it up, a door shuts, a door opens, an airplane takes off, an airplane lands
+* Grateful to grow by singing
+* Grateful for backstage work, second fiddling, watching the symphony, helping the people, following the lead
+* Grateful for the country in every state, and Nashville, country, north, east, west, south
+* Grateful for the country in other states 
+* Grateful for the woman who wrote **Broken Record** and cited **Amena Brown** and **India Arie**
 * Grateful for global cultures
 * Grateful for the growth that comes from experiences
 * Grateful for ongoing communication
