@@ -38,6 +38,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Gratitude for Muslim prayers 
 * Gratitude for the world history teacher at Norfolk Academy
 * Grateful for the sound of the dishwasher
+* Grateful for growth in understanding of topics from school
+* Grateful for the men, the women in the residency
+* Grateful for flipping the light on
 * Grateful for a smile shared with someone in the car next to me
 * Grateful for American flags reflecting through glass doors
 * Grateful for positive memories of my grandmother
