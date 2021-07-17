@@ -379,6 +379,7 @@ The sunshine wants to evaporate the water after it falls.
 The rain falling, little circles, droplets on the earth
 The rain fall, the rainbow smiles
 A bouquet of flowers parralel to all the colors of the things in the world
+The rainbow today and all the colors smiling through the earth
 
 **Dolly Parton's music on colors and rainbows**
 
@@ -4059,6 +4060,41 @@ Ode to a squirrel
 
 <br>
 
+## Reflections ##
+Reflections of trees, stop signs, leaves, power lines after the storm through puddles
+Reflections of a brick wall through a window
+
+<br>
+
+## Memories ##
+Hammock swinging
+Music playing
+Sun shining
+
+<br>
+
+## De ja Vu ##
+The feeling you feel when you feel like you've been here before and ears ring
+
+<br>
+
+## Imagery and Sounds ##
+Children playing all over the world
+love of the sound of their voices
+
+Interconnectedness
+
+Church domes in the midst of green trees
+
+One room schoolhouses
+
+the American flag flying everywhere
+
+Highway noises
+
+Love on the internet highway
+<br>
+
 ## Bottled Up in a Bottle, Not My Heart ##
 All these things I've done wrong, I toss it into a bottle and toss it out to sea.
 
@@ -5039,6 +5075,12 @@ Learn it well
 Wisen up
 Become who you're born to be and move on
 
+The fool it makes us all
+Playing it cool or playing the fool
+A crush
+A secret admirer
+"sweet nothings"
+
 <br>
 
 ## Rough Night ##
@@ -5592,6 +5634,13 @@ See the sun rise.
 
 Falling under all of the regrets.
 You can't go back in time.
+
+digging these heels into the ground
+digging a hole ddeper and fruther
+running on rocks
+stepping on stones
+running through dirt, the clay
+getting clay stuck on the bottom of these shoes
 
 <br>
 
@@ -6734,6 +6783,13 @@ stepping on this rocky land
 shoots clicking
 
 litter on the ground
+
+digging these heels into the ground
+digging a hole ddeper and fruther
+running on rocks
+stepping on stones
+running through dirt, the clay
+getting clay stuck on the bottom of these shoes
 
 <br>
 
@@ -8022,7 +8078,30 @@ Day in, day out, the earth continues to move
 
 Worldview
 
+Another year lighter, humbler, stronger, more conscious, aware, knowledgeable, and filled with love
+How the sunlight shines in and grows brighter and then dims
+
 <br>
+
+
+----------
+
+All the languages of the earth
+The number of people on the earth
+The number of continents
+The number of countries
+The number of languages
+The daily actions, small actions
+Another year lighter, humbler, stronger, more conscious, aware, knowledgeable, and filled with love
+How the sunlight shines in and grows brighter and then dims
+
+**Interested in refining this.**
+
+<br>
+
+
+----------
+
 
 ## A World ##
 A world
@@ -8037,17 +8116,11 @@ constantly shifting
 Based on perception, interpretation, perspective, and movement
 We all live on this same earth that is circling around and around year after year, day after day, growing, flourishing
 
+Another year lighter, humbler, stronger, more conscious, aware, knowledgeable, and filled with love
+How the sunlight shines in and grows brighter and then dims
+
 <br>
 
-
-----------
-
-All the languages of the earth
-The number of people on the earth
-The number of continents
-The number of countries
-The number of languages
-The daily actions, small actions
 
 ----------
 
@@ -8056,14 +8129,10 @@ You, across the street, and me are looking at the same sun right now
 Us, We, three on the street are looking up to the same sky right now
 You, in another country, and me are looking to the same sun right now
 
-<br>
-
-
-----------
-
 **Interested in refining this.**
 
 <br>
+
 
 ----------
 
@@ -8320,6 +8389,8 @@ Every encounter with someone is a stepping stone to a lesson in life
 It's all a stepping stone to progress, to greater consciousness, to truth, to depth, to love, to understanding, to grace
 
 It's all been done before
+
+stepping on stones with you through life
 
 <br>
 
