@@ -70,8 +70,8 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 * Daily, I work to know how I can better work with people.
 **Todos de los días, trabajo para conocer como puedo mejorar trabajar con la gente.**
 
-* Daily, I work to know how I can respect the boundaries of others.
-**Todos de los días, trabajo para...**
+* Daily, I work to know how I can set healthy boundaries with people.
+**Todos de los días, trabajo para conocer como establecer límites con la gente.
 
 * Daily, I work to forgive people who have hurt me.
 **Todos de los días, trabajo para...**
@@ -124,7 +124,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
 
-**I have done some of these things myself, but I have summarized what I appreciate and don't appreciate about supervisors.**
+**I have summarized what I LOVE about supervisors and what I have learned from them.
 
 **What I LOVE about supervisors:**
 * Their ability to give candid feedback, and specific requirements, rather than make me guess about what is needed
@@ -142,8 +142,9 @@ In previous work, I have worked with various types of supervisors.
 * To be more clear in providing guidance and respecting space with people through team meetings
 * To respect people doing work
 * To express appreciation and gratitude for other teams and colleagues
-* To respect boundaries on email and social media (learned this the hard way)
+* To respect boundaries on email and social media 
 * To provide clear communciation
+* To give generic advice rather than unsolicited, specific advice 
 
 ## Longer Work Biography ##
 As a continuous, lifelong learner, I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, **languages - Español, English, and interested in Native and Chinese characters and symbols, and Sanskrit**. and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
