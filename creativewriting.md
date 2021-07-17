@@ -3519,7 +3519,7 @@ Those old church bells
 Those old sweet hymns
 That old clock ticking 
 
-**Ring Them Bells *by Sarah Jarosz***
+***Ring Them Bells* Sarah Jarosz**
 
 <br>
 
@@ -5096,7 +5096,7 @@ Everything is going to be ok.
 Everything is going to be alright.
 Everything is moving forward still.
 
-**Cry, Cry, Cry *by Johnny Cash*** 
+***Cry, Cry, Cry* by Johnny Cash** 
 (not exactly the meaning looking for)
 
 <br>
@@ -9415,6 +9415,27 @@ We all dwell in the Shadow of the Almighty at all times whether we know it or no
 My mom worked as a teacher like my grandmother did. As a mom, she exuded so much motherly love when she helped us with our homework. I used to feel like I wanted to teach and educate with that much love and joy of learning that she and my grandmother expressed. I remember my mom discouraging me from teaching because in their experience there weren't enough men working in the profession, and I remember feeling a constant mortal sense that I was dependent on men or desperate to be in a relationship with someone who would provide something.
 
 ...
+
+## Destination, Journey ##
+The journey is great, it leads to better, and higher views.
+The journey is great, it shows us more of who we are, and how I can change.
+The journey is great, it leads to the destination.
+Life is a series of destinations.
+Life is a series of stepping stones.
+Running across stones.
+Learning a lesson at each one.
+Meeting someone at each one.
+Reaching the destination or the series of stones and destinations.
+Destination by destination, life expands.
+There's no final destination, there's a series of destinations.
+
+***On the Road Again* by Willie Nelson***
+
+<br>
+
+## Positive Memories ##
+
+<br>
 
 
 ----------
