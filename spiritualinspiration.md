@@ -56,6 +56,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the woman who wrote **Broken Record** and cited **Amena Brown** and **India Arie**
 * Grateful for global cultures
 * Grateful that the human mind can psh boundaries and express limitlessness
+* Grateful to hear my supervisor, manager describe me as someone who can carve out a career path independently
+* Grateful that I am capable of doing the work
+* Grateful for the doctors and the investors of Hopeway
+* Grateful to learn about the different Muslims
+* Grateful to validate the feelings of others
+* Grateful to have my feelings be validated
+* Grateful to be free from internalized misogyny
 * Grateful for the trail of tears and to learn more about Native tribes
 * Grateful for the mountains in the Middle East, Russia, China
 * Grateful for eternity in the Middle East
