@@ -3526,7 +3526,7 @@ That old clock ticking
 ## Trucks and Cargo Colors ##
 Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green. A chain of colors. A chain of nationalities being represented. A whole globe expressed through a chain of colors.
 
-**Dolly Parton's song** 
+**Dolly Parton's song on colors and God's rainbow painted through the world, the Earth** 
 
 <br>
 
@@ -4026,6 +4026,8 @@ It goes back to King James, before King James.
 It lightens up the room. It lightens up the hotels and hospitals.
 It's a torch for people.
 It helps people heal.
+
+**Willie Nelson wrote a song on the Holy Bible**
 
 <br>
 
@@ -4747,6 +4749,16 @@ New dreams can still be born and awakened.
 There's still a rainbow shining, smiling through while all alone, in the psych ward, the ambulance car, the cell with white walls.
 The rainbow is the smile of a stranger, the colors in the hospital building, the stars in everyone's hearts outside of these gray walls.
 All around me the sun will always peek through at the end.
+
+<br>
+
+## Dream ##
+It was all a dream.
+It was a loud dream.
+All my dreams I heard.
+Better dreams on their way.
+More conscious dreams.
+Dreams that last a lifetime.
 
 <br>
 
@@ -6908,13 +6920,15 @@ The brown pieces floating
 <br>
 
 ## Marks and Trails ##
-Bloodstains
-Paint stains
+Red bloodstains
+Yellow, blue, purple paint stains
 Chalk powder
 Powder trails
 Dirt tracks
 Leaf prints
 Shoe prints
+Paw prints
+Black inkstains
 
 <br>
 
