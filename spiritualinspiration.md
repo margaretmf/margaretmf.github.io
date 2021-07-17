@@ -52,6 +52,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for backstage work, second fiddling, watching the symphony, helping the people, following the lead
 * Grateful for the country in every state, and Nashville, country, north, east, west, south
 * Grateful for the country in other states 
+* Grateful that in the psych ward, I see people reacting in similar ways to how I have reacted at home, and I appreciate the common struggles bringing us together to heal and how I help them and they help me, and grateful that I can see the light in them as well
 * Grateful for the woman who wrote **Broken Record** and cited **Amena Brown** and **India Arie**
 * Grateful for global cultures
 * Grateful that the human mind can psh boundaries and express limitlessness
