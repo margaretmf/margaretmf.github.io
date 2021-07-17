@@ -3895,6 +3895,7 @@ When hearing someone talk of fire, I think of the Red Cross Fire project in DC a
 When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
 When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
 When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
+When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
 
 It's all one.
 
@@ -4002,6 +4003,18 @@ Reading books.
 
 <br>
 
+## Manic Mondays, Magic Mondays ##
+Monday, my favorite days.
+Monday mornings.
+It's fresh.
+Back to work.
+Everyone's smiling.
+Everyone's up.
+Everyone's glad.
+[Everyone, some people]
+
+<br>
+
 ## Flowers Bloomed on the Earth ##
 Flowers bloomed on the earth.
 Three took photos of it.
@@ -4053,6 +4066,8 @@ Ode to an insect looking through the window, flying hrough the air, nibbling at 
 
 Ode to a spider web next to sticky sprinkles of green grass on the windoe
 
+Insects, caterpillar crawling on the ground, a new friend
+
 <br>
 
 ## Ode to a Squirrel ##
@@ -4070,6 +4085,10 @@ Reflections of a brick wall through a window
 Hammock swinging
 Music playing
 Sun shining
+the smell of the lunch at the pool
+the railroad near by
+the fireworks
+family's homes
 
 <br>
 
@@ -4292,6 +4311,20 @@ The next step, the next destination has already been paved, it has already been 
 People cross paths
 Some meant to stay
 Others meant for a lesson
+
+Many many miles with you down these roads
+
+Entwined, loved, knotted in union
+Crossing paths, lessons learned
+
+Not the landig, but the passing by, the journey to a greater destiny, destination
+
+Moments measured by love, grace, surprises, awe, joy
+Everlasting moments
+
+Journey to understanding
+
+Living with you until you die 
 
 <br>
 
@@ -5729,6 +5762,23 @@ Sunken leaves.
 
 <br>
 
+## Droplets After Rain ##
+After the rain is over and through,
+the raindrops are on the window
+
+Water droplets, water dropelts everywhere
+
+on the window the shape of them
+earth's tears on the window
+
+the sky just found relief
+it let out its feelings
+I hug the sky and say thank you for the cloud's relief
+thank you for your feelings
+and thank you for the sunlight drying out the water droplets
+
+<br>
+
 ## It Was All A Dream ##
 It was all a dream.
 It was all a dream in a little girl's heart wanting to be someone.
@@ -6877,6 +6927,11 @@ It's roots are strong.
 It's rivers run deep.
 It's mountains run wide.
 It's hills run wide.
+This land is for many.
+I am one voice in many.
+There's a country of people who love this land too.
+The red white and blue is for me and for you.
+The stars.
 
 <br>
 
@@ -7052,6 +7107,14 @@ Leaf prints
 Shoe prints
 Paw prints
 Black inkstains
+
+Broken penciles
+Shattered glass
+Crumbled leaves
+Knotted yarn balls
+Scratched lines on mirrors
+Crinkled up peices of notebook paper
+Alcohol bottles hanging on ceilings
 
 <br>
 
