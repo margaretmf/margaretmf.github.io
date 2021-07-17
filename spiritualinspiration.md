@@ -90,6 +90,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful that people are musical
 * Grateful for each and every day that the Truth, the light shines on something new
 * Grateful for Sam Cooke seeing a changge coming
+* Grateful that impressions are of sense, and expressions are of Soul
+* Grateful for friends from the German Club who have a shining attitude
+* Grateful that everyone are eternal ideas
+* Grateful for my great aunt who loves music and children's books
+* Grateful for the life lessons of children and how they can articulate themselves clearly
 * Grateful for a secure sense of self, less affected by people
 * Grateful for the accents, the boldness, the freedom, the health, the growth, the life, the grace, the goodness
 * Grateful for all the musicians on the 4th of July singing for the nation
