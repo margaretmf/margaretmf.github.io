@@ -128,6 +128,7 @@ I believe it's important to live from a place of authenticity and remember what 
 I believe in not killing people, and I have learned this the hardway.
 I believe everyone can learn a lesson from someone else, and everyone in the world.
 I believe that everyone has something to express.
+* I believe that President Barack Obama succeeded as president, and I appreciated his books.
 
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better
@@ -374,6 +375,12 @@ It's a deluge of water.
 Precipitation, changing form from the sky to the earth.
 The sprinkles, the droplets.
 The sunshine wants to evaporate the water after it falls.
+
+The rain falling, little circles, droplets on the earth
+The rain fall, the rainbow smiles
+A bouquet of flowers parralel to all the colors of the things in the world
+
+**Dolly Parton's music on colors and rainbows**
 
 <br>
 
@@ -4233,6 +4240,11 @@ Many roads to see
 Many paths to find
 Many people to love with you
 
+The road is good, it leads back home, high heaven
+Life is a journey that started at home, and ends at home
+Life is a journey that leads closer to oneself
+Life is a journey that leads to an expanded self
+
 <br>
 
 ## It's An Open Book ##
@@ -5719,6 +5731,11 @@ This red dirt.
 It reminds me of the end of the world, the beginning of time, when all returns to dust, and it all begins anew, fresh.
 With a breath through the universe, it all begins, saying or speaking "I love you".
 
+The road is good, it leads back home, high heaven
+Life is a journey that started at home, and ends at home
+Life is a journey that leads closer to oneself
+Life is a journey that leads to an expanded self
+
 <br>
 
 ## Summer Rain ##
@@ -6084,6 +6101,9 @@ It reminded me of my grandmother's heart, my grandfather's music playing, my gre
 ## Same Roads, New View ##
 These roads I have driven down before, but I see everything - the people, the homes - everything in a new light.
 Everything grows richer, deeper, fuller, and more alive. I see the beauty, not the poverty.
+
+The road is good, it leads back home, high heaven
+Life is a journey that started at home, and ends at home
 
 <br>
 
@@ -6559,6 +6579,9 @@ They ask you to explore and walk down an unknown path.
 They call you to see something different and go on a detour.
 Through the orange gates, across the white fence.
 
+The road is good, it leads back home, high heaven
+Life is a journey that started at home, and ends at home
+
 <br>
 
 ## If I Had Not Done This...Reasoning ##
@@ -7003,6 +7026,9 @@ Coming back home
 Coming back to where I always belonged
 Circling back
 Returning
+
+The road is good, it leads back home, high heaven
+Life is a journey that started at home, and ends at home
 
 <br>
 
