@@ -57,6 +57,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for global cultures
 * Grateful that the human mind can psh boundaries and express limitlessness
 * Grateful for the trail of tears and to learn more about Native tribes
+* Grateful for the mountains in the Middle East, Russia, China
+* Grateful for global manhood
+* Grateful for people and nature
+* Grateful for the view down the hall of green leaves through windows
+* Grateful for windows reflected through windows, and a series of windows
+* Grateful for the light in the darkness in the ceiling
+* Grateful for an upside down view that shifts the perspective and shows a different picture
 * Grateful for the system of ideas, including engineering, electrification, and water
 * Grateful for the ideas one expresses interest in
 * Grateful that retrograde steps are false and unreal in Science
