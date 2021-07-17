@@ -81,6 +81,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the man working with the USPS in the postal service
 * Grateful for the music therapy
 * Grateful to braid a friend's hair
+* Grateful for the people behind the food
+* Grateful for the people behind the medication
+* Grateful for the people behind the clothes
 * Grateful for the music therapist
 * Grateful for the light in the darkness
 * Grateful for the empathetic therapist
