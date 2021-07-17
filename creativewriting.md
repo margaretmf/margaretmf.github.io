@@ -3992,6 +3992,27 @@ the emeting and greeting of
 
 <br>
 
+## Mirror, Mirror ##
+Mirrior, mirror on the wall
+Stop girl, don't be jealous
+You've got it all too
+Take a hard look in the mirror
+That other girl is so loved
+ANd so are you
+She's your sister in spirit
+Maybe she's not your friend
+It's ok to feel jealous
+But girl stop comparing because you have much more than you think
+She might be freerer, but girl, stop, the same light comes out of both of you
+You all spring from the same source
+
+Mirror, mirror on the wall
+Girl, stop, take a hard look in the mirror and see what all you have and you got
+Count your blessings
+You got it all going too
+
+<br>
+
 ## Favorite Time of Day ##
 Favorite time of day.
 Midday and afternoon.
@@ -4012,6 +4033,18 @@ Everyone's smiling.
 Everyone's up.
 Everyone's glad.
 [Everyone, some people]
+Monday morning sounds
+
+<br>
+
+## Water and Electricity ##
+Water flowing, electric currents
+
+<br>
+
+## Peeking Through, Peering Through ##
+Peeking through the hole in the blinds, peering through the window to see the lines on the bench
+Walking around, going out the door, seeing the blinds and the bench from another angle, the full picture outside
 
 <br>
 
@@ -4078,6 +4111,7 @@ Ode to a squirrel
 ## Reflections ##
 Reflections of trees, stop signs, leaves, power lines after the storm through puddles
 Reflections of a brick wall through a window
+Reflections of windows through windows
 
 <br>
 
@@ -4089,11 +4123,17 @@ the smell of the lunch at the pool
 the railroad near by
 the fireworks
 family's homes
+a towel on a driveway
 
 <br>
 
 ## De ja Vu ##
 The feeling you feel when you feel like you've been here before and ears ring
+
+<br>
+
+## Upside Down View ##
+Grateful for an upside down view that shifts the perspective and shows a different picture
 
 <br>
 
@@ -5504,6 +5544,12 @@ The future running toward you with a plan like a mountain
 ## Leaves ##
 Everything you thought you knew falls off like the dead leaves on trees.
 
+
+The leaves, the borwna nd yellow with branches
+The green moss on benches
+The water droplets on grass and the table like islands and continents
+A map formed on a table by water droplets
+
 <br>
 
 ## Trees ##
@@ -5524,6 +5570,9 @@ She lets go of the weakness.
 
 She lets the true strength and true light-heartedness reign within.
 With each new day under the Sun, she opens her heart to more independence, love, and innocence that can shine through the land that belongs to everyone.
+
+Everyone needs a reminder sometimes
+I am born to love, born to be free, born to love and be loved in return
 
 <br>
 
@@ -6274,6 +6323,11 @@ Thank you for knowing my need.
 Thank you for knowing who to place me with.
 Thank you for being there through the fall.
 It's a city of strangers, it's a city of angels. The strangers become friends, the strangers welcome each other with friendly eyes.
+
+<br>
+
+## New, Higher Views ##
+There are new, higher views every day
 
 <br>
 
