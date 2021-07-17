@@ -64,6 +64,24 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the diversity of people in the sorority I was in
 * Grateful for all the members of the sorority my mom was in
 * Grateful for the people here who have attempted suicide, and they are good people
+* Grateful for the recycle sign
+* Grateful for clearer understanding of the securities market
+* Grateful for the distribtion on the bar code
+* Grateful for the "sell by" date
+* Grateful for STEAM and math teachers picture
+* Grateful for what people overcome through faith
+* Grateful for the light of day
+* Grateful for the light in people
+* Grateful for what people are overcoming
+* Grateful that **it's ok not to be ok**
+* Grateful for the music therapist
+* Grateful for the staff
+* Grateful for the doctor
+* Grateful that God knows what I need to be
+* Grateful that God is the all-in-all
+* Grateful for the guy's favorite book in Mississippi
+* Grateful for another year lighter, humbler, stronger, more conscious, aware, knowledgeable, and filled with love
+* Grateful for how the sunlight shines in and grows brighter and then dims
 * Grateful for art and design in businesses and homes that share culture
 * Grateful for artists in my life
 * Grateful for a healing of my voice
