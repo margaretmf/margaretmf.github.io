@@ -3461,7 +3461,7 @@ Stair climbing
 Dot connecting 
 
 The past, the present, and future exiting all right now
-The golden threat tying a knot through the universe 
+The golden thread tying a knot through the universe 
 The principle in everything
 
 <br>
@@ -3516,7 +3516,7 @@ My favorite imagery are a flower with water droplets, green weeds, and a flower 
 <br>
 
 ## Heart to Heart - Bells ##
-Through the hart to heart I can hear the bells ringing
+Through the heart to heart I can hear the bells ringing
 The harmony echoing out
 The rainbow colors broadening through the sky and the earth
 The crystal clear color making the path clear
@@ -3603,6 +3603,14 @@ wax, wane
 A new cycle
 a closing
 the south was the beginning, the first colony
+
+<br>
+
+## The Hidden Meaning ##
+The hidden meaning beneath it all.
+The connections are there.
+The lines must be drawn.
+Everything already exists, is whole, but the lines must be discovered.
 
 <br>
 
@@ -3992,6 +4000,20 @@ the emeting and greeting of
 
 <br>
 
+## Two Birds ##
+Two birds enjoying the day.
+Pecking at each other.
+Singing songs from the heart.
+
+My heart calling and beating for you is like two birds calling out high in the sky.
+
+<br>
+
+## The Stars that Shine, the Trees that Glisten, the Sky that is Blue, and the Birds that Sing #
+My heart beating for you is one with the stars that shine, the trees that glisten, the sky that is blue, and the birds that sing.
+
+<br>
+
 ## Mirror, Mirror ##
 Mirrior, mirror on the wall
 Stop girl, don't be jealous
@@ -4332,6 +4354,7 @@ The animator behind the expression.
 <br>
 
 ## Long Road ##
+I am with you for the long road ahead and the changing seasons
 There's a long life to live with you
 Many roads to see
 Many paths to find
@@ -4365,6 +4388,40 @@ Everlasting moments
 Journey to understanding
 
 Living with you until you die 
+
+<br>
+
+## Two Seeds ##
+Two seeds in a pod
+Just the two of us have
+The two of us together are greater and stronger and better and bigger than each one of us alone
+You help me be me
+I help you be you 
+The two of us toggether are bigger and better than me without you and you without me
+There's more to love you show me
+There's more to life I show you
+
+With you I bury these seeds in the ground and say "I love you"
+The whole earth, the sun, the sky, the birds, the trees, the home rise up into love and grow with the two of us
+
+<br>
+
+## Kissing Game ##
+Kissing game like kids
+You'll find the right one
+But save your kisses until the one
+Don't give your kisses away
+The right one will come
+Your kisses are your to keep
+
+<br>
+
+## Two Sides of the Same World ##
+I'll love you until you die
+The two of us come from two sides of the same world
+There's a whole world inside you and a whole world inside me
+I learn from you
+You learn from me
 
 <br>
 
@@ -4724,6 +4781,8 @@ My home sweet home in the sweet old south, the land of the free
 <br>
 
 ## Poem on Maps ##
+Mercuatorial projection
+Map unfolded, laid out flat
 
 <br>
 
@@ -9696,6 +9755,13 @@ There's no final destination, there's a series of destinations.
 <br>
 
 ## Positive Memories ##
+All the memories from the past still exist in thought
+They can be made new
+They can be brought to life again
+I put them in a bottle
+I send them out to see
+Someone can discover all the memories from the past
+"Good times and bad", "happy and sad"
 
 <br>
 
