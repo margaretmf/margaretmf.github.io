@@ -51,6 +51,11 @@ layout: default
 
 
 #### Interested
+* HowExpert Guide to Becoming a Country Singer-Songwriter: 101 Lessons to Become a Country Singer-Songwriter by HowExpert
+* Songwriting: Essential Guide to Lyric Form and Structure: Tools and Techniques for Writing Better Lyrics (Songwriting Guides) by Pat Pattison
+* The Art of the Stonemason by Ian Cramb (1992-04-04)
+* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
+* Demystifying Global Macroeconomics by John E. Marthinsen
 * Cervantes
 * Jorge Louis Borges
 * Shakespeare
@@ -117,6 +122,15 @@ layout: default
 * A Treasury of Southern Folklore: Stories, Ballads, Traditions, & Folkways of the People of the South 
 * A Treasury of American Folklore: Stories, Ballads, and Traditions of the People
 * Covered Bridges of Kentucky and Tennessee (B&W)
+* The Vanishing American Dream: A Frank Look at the Economic Realities Facing Middle- and Lower-Income Americans by Gene Ludwig
+* The Power of Creative Destruction: Economic Upheaval and the Wealth of Nations by Philippe Aghion
+* Nursing as Ministry by Kristen L. Mauk and Mary E. Hobus, Editors
+* Called to Care: A Christian Worldview for Nursing by Judith Allen Shelley and Arlene Miller
+* Spiritual Caregiving: HealthCare as a Ministry by Verna Benner Carson and Harold G. Koenig
+* Florence Nightingale: A Very Brief History by 
+* How Neighborhoods Make Us Sick: Restoring Health and Wellness to Our Communities by Veronica Squires and Breanna Lathrop Lynn McDonald 
+* Health, Healing, and the Church's Mission: Biblical Perspectives and Moral Priorities by Willard M. Swartley
+* Midwife of Borneo: The True Story of a Geordie Pioneer by Wendy Grey Rogerson and Barbara Fox
 * Songs from Shakespeare's Plays and Popular Songs of Shakespeare's Time
 * Shakespeare's Songbook 
 * Express, Mail & Merchandise Service
