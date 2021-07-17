@@ -66,6 +66,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people in the airport
 * Grateful for global manhood
 * Grateful for people and nature
+* Grateful for Christian Science
+* Grateful for the people from Big House
+* Grateful for the prayers, the seers of light
+* Grateful for the nurturers, the reconcilers, the candlelight holders
+* Grateful for the musicians, and all the people
 * Grateful for the view down the hall of green leaves through windows
 * Grateful for windows reflected through windows, and a series of windows
 * Grateful for the light in the darkness in the ceiling
@@ -81,10 +86,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the recycle sign
 * Grateful for clearer understanding of the securities market
 * Grateful for the distribtion on the bar code
-* Grateful for the "sell by" date
+* Grateful for the 'sell by' date
 * Grateful to acknoweldge what makes me feel uncomfortable in both ways
 * Grateful to know what I've done wrong
 * Grateful to be open to prayer
+* Grateful for how Gund unfolds everything as it is meant to be
+* Grateful for individuality and individual stories
 * Grateful for baseball games, and football games
 * Grateful for STEAM and math teachers picture
 * Grateful for the teamwork in the DSI
