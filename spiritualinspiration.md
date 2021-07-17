@@ -74,6 +74,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to be open to prayer
 * Grateful for baseball games, and football games
 * Grateful for STEAM and math teachers picture
+* Grateful for the teamwork in the DSI
+* Grateful for the STEAM profession
+* Grateful for front/back porch swining, music playing, sun shining
 * Grateful for what people overcome through faith
 * Grateful for the light of day
 * Grateful for the light in people
