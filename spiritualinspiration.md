@@ -68,6 +68,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for clearer understanding of the securities market
 * Grateful for the distribtion on the bar code
 * Grateful for the "sell by" date
+* Grateful to acknoweldge what makes me feel uncomfortable in both ways
+* Grateful to know what I've done wrong
+* Grateful to be open to prayer
+* Grateful for baseball games, and football games
 * Grateful for STEAM and math teachers picture
 * Grateful for what people overcome through faith
 * Grateful for the light of day
