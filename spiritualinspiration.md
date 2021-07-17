@@ -51,6 +51,17 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for two women on the street
 * Grateful for a phone call with someone from high school and meeting new friends
 * Grateful to play music on the piano intuitively - I have 3 drafts of songs
+* Grateful for cross necklaces in psych wards
+* Grateful for other Christians and Bible Lessons in psych wards
+* Grateful for the spirit of Johnny Cash and other country musicians in prison cells
+* Grateful for all the people overcoming and turning to the good going on
+* Grateful for Christian nursing books
+* Grateful for gratitude and spiritual, creative expression
+* Grateful for empathy
+* Grateful for clear reading in psych ward
+* Grateful for the transformation of my neighbor back to her original self
+* Grateful for mutuality in the psych ward
+* Grateful to feel inspired by black inkstains on countertops
 * Grateful for the light in the Christian Science Mother Church
 * Grateful for the first responders
 * Grateful for the man working with the USPS in the postal service
