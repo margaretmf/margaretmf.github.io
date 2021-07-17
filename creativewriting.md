@@ -4483,6 +4483,8 @@ Driving down these highways like driving old school wagons.
 <br>
 
 ## Traffic Signals ##
+Cars talking to each other through signals and signs
+
 Walking to the streetlight
 I see a woman in the car sitting poised
 with the right blinker on, signaling a turn.
@@ -4490,6 +4492,8 @@ with the right blinker on, signaling a turn.
 Walking across the bridge
 I see the line of peopels' cars in afternoon rush hour
 with lights shining on the back of them all.
+
+The car with the right red blinker on talking to the car behind it with no blinker on going straight
 
 <br>
 
@@ -4576,6 +4580,11 @@ my old hometown
 from Norfolk to Charlotte to Memphis to Montclaire to Memphis
 
 hear the train rollin in the summer time by the pool
+
+<br>
+
+## Home ##
+My home sweet home in the sweet old south, the land of the free
 
 <br>
 
@@ -5601,6 +5610,8 @@ Everything is going to be ok.
 ## Life is What You Make It ##
 Life is what you make it.
 All the voices echoing out at once, reflecting the same truth.
+A symphony of voices around me all relying on the same Truth but speaking different words
+An echo of voices in heaven sounds like heaven
 
 <br>
 
@@ -6855,7 +6866,28 @@ coins for the coke machine
 coins for the laundry
 
 penny for the woman doing laundry for her son
- 
+
+the penny started in someone's back pocket
+it fell out and off to the ground
+a little boy or girl found it
+he bought some gum and soda
+the cashier took the penny and some extra $
+the cashier put the money up
+"change with pennies" bucket
+someone was given the money
+
+the penny went full circle 
+the original he received
+
+<br>
+
+## Climbing Trees, Up to the Top ##
+
+<br>
+
+## Ancestors ##
+The spirit of ancestors, generations, and family stories are valuable to everyone, not just one individual's family.
+
 <br>
 
 ## Save Your Kisses ##
@@ -7804,6 +7836,16 @@ the letters in the mail,
 the greetings of postal workers and mailman,
 the riverview loft views
 
+## Summer ##
+Splashes
+Sandcastles
+Messages in the sky
+Hammocks
+Porch swings
+Ice cream
+Peanuts
+Gas stations
+
 <br>
 
 ----------
@@ -8046,6 +8088,9 @@ through spiritualization of thought, and letting go of falsehood.
 
 <br>
 
+## Benevolent Sexism ##
+Women idolized in certain spaces
+Masculinity - guitar, suits
 
 ----------
 
@@ -8798,6 +8843,25 @@ It came back up through another's song of the enigmatic smile, the victim and th
 
 # Creative Writing - Independent Writing #
 # Extraneous Writing #
+
+## 2021 ##
+This year, a dizzying year.
+Everything this year felt like a blur at one point.
+I have purged, and let go.
+I have cleaned up.
+I have continued to react.
+I have helped Nate and people at the Salvation Army.
+I have experienced shock. The shock came in September, August.
+I went to the Discipleship Training.
+It's a great catch to realize that the great state we call home used to be the West.
+The internet is called the internet highway.
+Peeping through windows into others lives.
+Drove through Georgia, Tennessee, Alabama, saw boots that look like cowboy boots but they are Southern, eastern versions of them
+Harmonious action
+Family reunion
+Drove through Virginia, bad day, anger, reactions
+
+<br>
 
 ## A Hairbrush on the Ground ##
 Where has it been? Whose was it? Why is it on the ground? Imagine.
