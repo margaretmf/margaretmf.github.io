@@ -4422,6 +4422,21 @@ There's more to life I show you
 With you I bury these seeds in the ground and say "I love you"
 The whole earth, the sun, the sky, the birds, the trees, the home rise up into love and grow with the two of us
 
+Write a love note
+Bury it in the guround
+Build a house and live with it underground
+When we're old, I hope to unbury this note, and see how our seeds grew and changed
+
+We are the best of friends
+Two seeds of love
+Buried in the good soil of the earth
+That nurtures us and helps us live full lives
+
+Growing underground
+Wedded to the earth
+Dying to the earth
+The message of love spreads through the ground, the earth and resonates with everyone on earth
+
 <br>
 
 ## Kissing Game ##
@@ -6771,6 +6786,7 @@ It's a fresh start, it's time to begin again
 It's time to arise, it's time to go tow ork
 
 It's a Saturday, it's a day for laying around, reading a book, laying on the couch, taking a nap
+It's a day for looking out the window and seeing a spiderweb
 
 It's a Sunday
 It's a day for peace, for life, for activities and fun
@@ -6779,6 +6795,17 @@ It's a day for dancing in the streets
 It's a day for neighborhood parties
 It's a day for the sun to shine down
 It's a day for a hike
+
+<br>
+
+## Two Sides ##
+There's two or more sides to the same story
+No one knows it all
+No one has the full picture
+Being brought together to be part of the story unfolding
+Sometimes two people mean the same thing while saying different things
+
+<br>
 
 <br>
 
