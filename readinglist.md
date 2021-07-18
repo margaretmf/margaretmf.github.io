@@ -42,7 +42,6 @@ layout: default
 * [Taylor Swift: In Her Own Words (In Their Own Words)](https://www.amazon.com/Taylor-Swift-Her-Words-Their/dp/1572842784/ref=sr_1_1?dchild=1&keywords=Taylor+swift+in+her+own+words&qid=1624397654&sr=8-1) by Helena Hunt
 * [Taylor Swift: The Whole Story](https://www.amazon.com/Taylor-Swift-Whole-Chas-Newkey-Burden/dp/0007544219/ref=asc_df_0007544219/?tag=hyprod-20&linkCode=df0&hvadid=312111908051&hvpos=&hvnetw=g&hvrand=2397980912033550855&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9008590&hvtargid=pla-554841479888&psc=1) by Chas Newkey-Burden
 * [The United Symbolism of America: Deciphering Hidden Meanings in America's Most Famous Art, Architecture, and Logos](https://www.amazon.com/United-Symbolism-America-Deciphering-Architecture/dp/1601630018/ref=sr_1_2?dchild=1&keywords=the+united+symbolism+of+america&qid=1624542188&sr=8-2) by Robert Hieronimus, PhD with Laura Cortner
-* [Symmetry Comes of Age: The Role of Pattern in Culture](https://www.amazon.com/Symmetry-Comes-Age-Pattern-Culture/dp/0295983663) by Dorothy K. Washburn and Donald W. Crowe
 * [Dolly Parton, Songteller: My Life in Lyrics](https://www.amazon.com/Dolly-Parton-Songteller-Life-Lyrics/dp/1797205099/ref=sr_1_3?dchild=1&keywords=Dolly+Parton%2C+Songteller%3A+My+Life+in+Lyrics&qid=1626385032&s=books&sr=1-3) by Dolly Parton
 * [Dreams of My Father](https://www.amazon.com/Dreams-My-Father-Story-Inheritance/dp/1400082773/ref=sr_1_3?crid=101Z9MJH2X7GT&dchild=1&keywords=dreams+of+my+father+barack+obama&qid=1626432821&sprefix=dreams+of+my%2Caps%2C183&sr=8-3) by Barack Obama
 * [The Audacity of Hope: Thoughts on Reclaiming the American Dream](https://www.amazon.com/Audacity-Hope-Thoughts-Reclaiming-American/dp/0307237702/ref=sr_1_4?dchild=1&keywords=hope+Barack+obama&qid=1626433410&sr=8-4) by Barack Obama
@@ -153,6 +152,7 @@ layout: default
 * The Age of Gold: The California
 * America's First Highways
 * Birth Order by Linda Blair
+* The Earth Is Weeping: The Epic Story of the Indian Wars for the American West by Peter Cozzens
 * The Artist's Way by Julia Cameron
 * Taylor Swift: The Rise of the Nashville Teen by Chloe Govan
 * Taylor Swift by Louisa Jepson
