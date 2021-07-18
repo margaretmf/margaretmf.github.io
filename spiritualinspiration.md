@@ -84,6 +84,50 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the work of peers and their attitudes towards life
 * Grateful for the embrace of people in the shadows
 * Grateful for the perspective of people from another identity or culture
+* Grateful for the cutting of flowers this morning
+* Grateful for the thorn analogy of Thomas Jefferson
+* Grateful for church this morning
+* Grateful for balance and democracy in church
+* Grateful for balance and democracy reflected through church architecture and symmetry
+* Grateful for cultural symmetry and asymmetry
+* Grateful for color palettes in nature and in homes
+* Grateful for people in Texas and a true education of the country
+* Grateful for purity in church
+* Grateful that everyone in church are eternal ideas and eternal begins
+* Grateful for memories of fishing with Camp Tabor
+* Grateful for the channels of Truth and Love unfolding properly
+* Grateful for the royalty of church
+* Grateful for the church organist
+* Grateful for practicing discipline
+* Grateful for other cultures
+* Grateful for cheerful church members
+* Grateful for the expert on James Baldwin who loves him
+* Grateful for greater love for the LGBTQ+ community
+* Grateful for my family
+* Grateful for the "waiting on Love" idea shared by two people
+* Grateful for all the kids who went to the Currie/Tabor camp
+* Grateful to give credit where credit is due
+* Grateful to remember that I wanted intially to respect Christians who felt like LGBTQ+ is wrong; it's not wrong, and I turned reactive
+* Grateful that people are free to choose and think how ever they want to think and feel
+* Grateful for religious liberty
+* Grateful that people are free to go to any church they want to go to and Christian Science will be there
+* Grateful for people from the DSI
+* Grateful for people from UVA in the LGBTQ+ community
+* Grateful for the cheerfulness at home
+* Grateful for interracial couples
+* Grateful for medieval alt-country
+* Grateful for vision of the Celtic church
+* Grateful for the air blowing in the room
+* Grateful for the grocery store neighborhood in Washington, DC
+* Grateful for humanity singing
+* Grateful for a new start
+* Grateful for people from church in the business world
+* Grateful for people from work
+* Grateful for all the people in church
+* Grateful for the bike riders
+* Grateful for camp friends and their boyfriends
+* Grateful for all the people at camp
+* Grateful for country music from Kentucky
 * Grateful for other people on social media
 * Grateful for thoughts of love I've had towards little children and older children
 * Grateful for my new friends from Norfolk
