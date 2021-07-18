@@ -61,6 +61,68 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the construction work
 * Grateful for cool things to photograph
 * Grateful for the musicians and cheer in the DSI
+* Grateful for the farmer's market
+* Grateful for the summer heat
+* Grateful for the people down the street
+* Grateful for people driving the leaves and the greenery
+* Grateful for the women at home
+* Grateful for memories of the cultural experience at UVa in college
+* Grateful for the professors at UVa
+* Grateful for the ancestry and family stories in other families
+* Grateful for the angel music at Big House
+* Grateful for the guitar playing outside of Starbucks before Big House
+* Grateful to feel more like my authentic self
+* Grateful to feel aspects unlike me fall off
+* Grateful for ethics in engineering
+* Grateful for memories of going to the restaurant in Virginia Beach
+* Grateful for the way cars communicate
+* Grateful to move away from aspects of data science that feel uncomfortable
+* Grateful for the sensemaking process
+* Grateful for all the people at Hopeway who can help me identify what needs healing and how to forgive others and myself
+* Grateful for Christian investment
+* Grateful to express patience and joy and love and humility
+* Grateful for the work of peers and their attitudes towards life
+* Grateful for the embrace of people in the shadows
+* Grateful for the perspective of people from another identity or culture
+* Grateful for other people on social media
+* Grateful for thoughts of love I've had towards little children and older children
+* Grateful for my new friends from Norfolk
+* Grateful for the single women in Tennessee
+* Grateful that human opinions can't reach
+* Grateful to love all the interests and faith of people around
+* Grateful for the conversation with the woman in the grocery store
+* Grateful for memories of reading about mindfulness-driven social impact
+* Grateful for memories of meditation group
+* Grateful for the people in the psych ward
+* Grateful for the people visiting Aunt Mary
+* Grateful for new music and new musicians that express joy
+* Grateful for memories with the multicultural club
+* Grateful that **therapy is also 'sexy'**
+* Grateful for good food and recipes
+* Grateful for intellection
+* Grateful for healthy conversations
+* Grateful for the flowers
+* Grateful for musicians' books
+* Grateful for all the people in the airport 
+* Grateful for the travel industry
+* Grateful for my uncle's love of Dolly Parton
+* Grateful to connect with Mary over country music
+* Grateful for Mary's friends
+* Grateful for the joy of people online
+* Grateful for people at EVERFI
+* Grateful for my brother's love of Spotify
+* Grateful for a musical heart
+* Grateful to love folding laundry
+* Grateful to love folding towels
+* Grateful to love cleanin dishes
+* Grateful for Christian history
+* Grateful for medieval history
+* Grateful for Spanish-speaking countries
+* Grateful for the woman from Big House Church
+* Grateful for friends from church
+* Grateful for the people out running
+* Grateful for the book by Barack Obama
+* Grateful for a mental photo of a leaf at the hospital
 * Grateful for music in the city of Memphis
 * Grateful for popcorn stands and ice cream stands
 * Grateful for birthday parties, balloons floating in the air
@@ -84,6 +146,40 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to learn about the different Muslims
 * Grateful to validate the feelings of others
 * Grateful to have my feelings be validated
+* Grateful for the history profession
+* Grateful for all the people around knowing the goodness of God, God's presence for people to bless and uplift
+* Grateful for Dolly Parton's music
+* Grateful for all the people from camp
+* Grateful for my musical heart
+* Grateful for people's stunning wedding pictures
+* Grateful for other Christian Scientists on Instagram enjoying life and love
+* Grateful for peopel's duos
+* Grateful for other musicians
+* Grateful for teachers discovering the books people throw away in their trash cans
+* Grateful for the nurses at Rolling Hill
+* Grateful for Gospel music
+* Grateful for members of Sigma Delta Tau
+* Grateful for mentors with faith
+* Grateful for memories of hamsters that children like
+* Grateful for wings that can fly
+* Grateful for an interesting conversation
+* Grateful for the artwork and the green ceiling
+* Grateful for country music
+* Grateful for the woman's cowboy boots
+* Grateful for people having a good time
+* Grateful for the goodness going on on social media
+* Gratefulf or the first reader at church
+* Grateful for all the women at the restaurant
+* Grateful for a healthy attitude towards social media
+* Grateful for the sound of eternity
+* Grateful for the good going on in family
+* Grateful for photos of family members
+* Grateful that my life is already in order
+* Grateful for Willie Nelson who grew old with his wife
+* Grateful for Willie Nelson and how his upbringing resembles Faf's
+* Grateful for the sisters on social media
+* Grateful for the people helping people during the pandemic to keep them healthy
+* Grateful for friends from Camp Nakanawa
 * Grateful to be free from internalized misogyny
 * Grateful for the trail of tears and to learn more about Native tribes
 * Grateful for the mountains in the Middle East, Russia, China
