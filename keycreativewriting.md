@@ -148,6 +148,10 @@ What a wonderful type of love that starts with a flower and its petals.
 
 (17) Holy Book and Church Domes
 
+(18) World of Strangers that become Friends
+
+(19) Rose and Greenery - Eternity
+
 
 
 
