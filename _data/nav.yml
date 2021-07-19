@@ -10,6 +10,9 @@
 - name: "Portfolio"
   link: "portfolio"
 
+- name: "Creative Writing"
+  link: "creativewriting"
+  
 - name: "Education"
   link: "education"
   
