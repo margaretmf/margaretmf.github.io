@@ -46,6 +46,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for a smile shared with someone in the car next to me
 * Grateful for American flags reflecting through glass doors
 * Grateful for positive memories of my grandmother
+* Grateful for memory of people at UVA
+* Grateful for memories of working in DC
+* Grateful for people where Obama's family members are from
+* Gratefulf or the connection to the man in Memphis
+* Grateful for people from camp in Aalabama
+* Grateful for memories in Boston, London, DC beging gentle with myself and all the people
 * Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
 * Grateful for Medieval organ music
 * Grateful for God's plan for me and everyone
