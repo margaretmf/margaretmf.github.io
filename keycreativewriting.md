@@ -92,5 +92,18 @@ What a wonderful type of love that starts with a flower and its petals.
 
 <br>
 
+## Dream Soundtrack Song Titles (if I were to create independent music) ##
+(1) A New Day
+(2) Wishing Well
+(3) Tossing It Out to Sea
+(4) My Hand on My Heart - America
+(5) A Childlike Heart
+(6) I Want to Hold Your Hand
+(7) The Long Road Ahead
+(8) Side Roads
+(9) It's Ok, This Experience is Good
+(10) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me)
+(11) The Lone Bird
+
 
 
