@@ -3908,6 +3908,7 @@ When reading about a man who was a scientist in DC, I think of all the wonderful
 When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
 When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
 When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
+When walking by the medical center I think of medical center in another city, and I love all the people in the center.
 
 It's all one.
 
@@ -4159,6 +4160,7 @@ Ode to a squirrel
 Reflections of trees, stop signs, leaves, power lines after the storm through puddles
 Reflections of a brick wall through a window
 Reflections of windows through windows
+Reflections of light through mirrors
 
 <br>
 
@@ -4215,23 +4217,6 @@ Bottled up in a Bottle, not my heart
 
 ## Another's Lens ##
 Looking at life and everything around through the lens of someone else.
-
-<br>
-
-## Secret Admirer ##
-He had a secret admirer but he didn't know her name.
-Every day, she came home and peeled off petals from flowers.
-'He likes me, he likes me not'
-'He likes me, he likes me not'
-'He likes me, he likes me not'
-All the petals fell to the grass as she repeated this sentence.
-She smiled and said, 'I hope he likes me' as she let the petals fall to the ground.
-She took the flower petals to school and said, 'I like you a lot, and here are some flower petals for you.'
-He responded, 'I like you too' and took the petals in his hand.
-He made a necklace out of the petals, and he went up to her and said, 'this necklace is for you, and let's be friends.'
-She wore the necklace every day to school, and he would smile at her across the room.
-They held hands, and they became best friends forever.
-What a wonderful type of love that starts with a flower and its petals.
 
 <br>
 
@@ -4461,6 +4446,32 @@ Growing underground
 Wedded to the earth
 Dying to the earth
 The message of love spreads through the ground, the earth and resonates with everyone on earth
+
+<br>
+
+## You Plus Me ##
+You plus me add up to one
+Together as one we're stronger and steadier
+Like 2 birds on an electric wire
+Like 2 pages in a book
+Or 2 leaves in a tree
+
+This love between our hearts
+Lasts throughout all time
+It lasts until the end
+It lasts through the storm
+
+Me pls you equal one
+Without each other we're better and bolder
+Like 2 birds on a rooftop
+Lke 2 seeds in a pod
+Or 2 notes on a music sheet
+
+You plus me go on and on
+Like lines on a page that continue forever across
+Like 2 ducks paddling
+Like 2 flowers in a garden
+Or 2 rays of sun
 
 <br>
 
@@ -6790,6 +6801,8 @@ There are new friends to meet every day.
 Every day I'm humbled by a new view to take, a new lesson to learn, a new wrong I've done, a new mistake I've made
 Seeing from a new angle
 
+There's a brand new view to take of you and me and all humanity
+
 <br>
 
 ## Musical Chairs ##
@@ -6931,6 +6944,22 @@ Everyone with a heart has faith.
 
 <br>
 
+## A Long Road ##
+There's a long road ahead.
+The road goes on and on into the horizon with yellow lines down the middle.
+It's uncertain where it's heading.
+I set my head straight with a vision.
+I hope to move through with love and hope.
+
+There's a long road ahead.
+I hope to move through committed.
+There are new views and new jobs.
+There are old buildings to resurrect and re-appreciate.
+There are old songs to sing.
+There are new colors to paint with.
+
+<br>
+
 ## The Side Roads ##
 The side roads that lead to new surprises and destinations I love.
 You don't know where they are going.
@@ -6962,22 +6991,6 @@ Where I have failed, you know me.
 Where I am broken, you are full.
 Where I have said something wrong, you speak the truth.
 Where I am hurt, you provide love.
-
-<br>
-
-## A Long Road ##
-There's a long road ahead.
-The road goes on and on into the horizon with yellow lines down the middle.
-It's uncertain where it's heading.
-I set my head straight with a vision.
-I hope to move through with love and hope.
-
-There's a long road ahead.
-I hope to move through committed.
-There are new views and new jobs.
-There are old buildings to resurrect and re-appreciate.
-There are old songs to sing.
-There are new colors to paint with.
 
 <br>
 
@@ -7103,7 +7116,7 @@ Daily fightiing for another to live.
 <br>
 
 ## Gone With the Wind ##
-Gone with the wind to the urts of the past.
+Gone with the wind to the hurts of the past.
 The past moves behind me as the wind blows.
 
 Into the future with the wind that knows my name.
@@ -7113,14 +7126,14 @@ The wind sings it's song and knows how to still my heart.
 The wind returns me to where I always once was.
 
 The wind is the breath that has been there forever the same.
-It sweeps through to show how the seasons are change.
+It sweeps through to show how the seasons change.
 
 With the wind, I feel the breeze and I feel it bring me home.
 It rushes through the whole earth at once and makes me one with all.
 
-The wind, it's always showing me what I need to know.
+The wind is always showing me what I need to know.
 
-With the wind and the breeze, the leaves sprinkle and dance and spin around in the air, around the tree and fall off.
+With the wind and the breeze, the leaves fall off the tree, and sprinkle and dance and spin around in the air.
 
 The wind blowing my hair. The breeze hitting my neck.
 
@@ -7222,7 +7235,7 @@ Idea of a wisdom tree
 <br>
 
 ## The Penny ##
-He found a penny on the ground and gave it to af riend.
+He found a penny on the ground and gave it to a friend.
 'Penny for your thoughts,' he said.
 He was interested in her thoughts.
 He handed over the coin, and she said with a smile 'sometimes love awakens and love moves mountains and love reunites.'
