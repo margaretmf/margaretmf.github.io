@@ -65,6 +65,27 @@ I am one in a million. There are a million ways to say and do the same thing.
 
 <br>
 
+## Flowers Blossomed on the Earth ##
+Flowers blossomed on the earth.
+
+Three people took photos of it.
+
+One person sketched it.
+
+Another took a video of it.
+
+Two people painted it, and another saw the harmony of looking at all seven, saying 'wow, collectively this is God's handiwork art!'"
+
+<br>
+
+A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
+
+Someone else is looking to this same flower.
+
+3-7 people appreciating it in different ways.
+
+<br>
+
 ## Secret Admirer ##
 He had a secret admirer but he didn't know her name.
 
