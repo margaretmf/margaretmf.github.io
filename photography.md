@@ -59,6 +59,82 @@ With strong inner vision, and with a love for color and perspective, an open eye
 
 
 
+<br>
+
+
+
+<img class="profile-picture" src="photography/christmas-flowers-against-wall.jpg">
+
+
+
+<img class="profile-picture" src="photography/christmas-fallfoliage.jpg">
+
+
+
+<img class="profile-picture" src="photography/rose-flower-house.jpg">
+
+
+
+<img class="profile-picture" src="photography/rose.jpg">
+
+
+
+<img class="profile-picture" src="photography/christmas-dark-pink-flower.jpg">
+
+
+
+<img class="profile-picture" src="photography/christmas-darkyellow-flowers1.jpg">
+
+
+
+<img class="profile-picture" src="photography/christmas-darkyellow-flowers2.jpg">
+
+
+
+<img class="profile-picture" src="photography/flower-house.jpg">
+
+
+
+<img class="profile-picture" src="photography/pink-flower1.jpg">
+
+
+
+<img class="profile-picture" src="photography/pink-flower2.jpg">
+
+
+
+<img class="profile-picture" src="photography/red-flower.jpg">
+
+
+
+<img class="profile-picture" src="photography/yellow-flowers1.jpg">
+
+
+
+<img class="profile-picture" src="photography/yellow-flowers2.jpg">
+
+
+
+<img class="profile-picture" src="photography/spring-freedom.jpg">
+
+
+
+<img class="profile-picture" src="photography/white-flower1.jpg">
+
+
+
+<img class="profile-picture" src="photography/white-flower2.jpg">
+
+
+
+<img class="profile-picture" src="photography/white-flower3.jpg">
+
+
+
+<img class="profile-picture" src="photography/white-flower4.jpg">
+
+
+
 <b>
 
 <b>
