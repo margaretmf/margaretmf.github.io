@@ -88,6 +88,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Christian investment
 * Grateful to express patience and joy and love and humility
 * Grateful for the work of peers and their attitudes towards life
+* Grateful for the women, the people, who understand me where I am
+* Grateful for freedom of single women
+* Grateful for freedom of black men
+* Grateful for double meanings
+* Grateful for Indian folklore, land
+* Grateful for mankind's love of Christian Science
 * Grateful for the embrace of people in the shadows
 * Grateful for the perspective of people from another identity or culture
 * Grateful for the cutting of flowers this morning
