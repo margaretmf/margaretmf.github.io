@@ -138,6 +138,14 @@ What a wonderful type of love that starts with a flower and its petals.
 
 (12) The Lone Bird
 
+(13) Boots
+
+(14) Bells
+
+(15) Holy Book and Church Domes
+
+
+
 
 
 
