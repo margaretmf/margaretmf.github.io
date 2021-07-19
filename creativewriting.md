@@ -3937,15 +3937,6 @@ In the same world, different languages
 
 <br>
 
-## A Painting and A Flower ##
-A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
-
-Someone else is looking to this same flower.
-
-3-5 people appreciating it in different ways.
-
-<br>
-
 ## Time Distance ##
 It's amazing that someone is six hours behind me somewhere doing the same activities.
 
@@ -4093,15 +4084,6 @@ Water flowing, electric currents
 ## Peeking Through, Peering Through ##
 Peeking through the hole in the blinds, peering through the window to see the lines on the bench
 Walking around, going out the door, seeing the blinds and the bench from another angle, the full picture outside
-
-<br>
-
-## Flowers Blossomed on the Earth ##
-Flowers blossomed on the earth.
-Three took photos of it.
-One sketched it.
-Another took a video of it.
-Another painted it, and another saw the harmony of looking at all three, saying 'wow, collectively this is God's handiwork art!'"
 
 <br>
 
