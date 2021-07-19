@@ -79,15 +79,15 @@ With strong inner vision, and with a love for color and perspective, an open eye
 
 
 
-<img class="profile-picture" src="photography/christmas-dark-pink-flower.jpg">
+<img class="profile-picture" src="photography/dark-pink-flower.jpg">
 
 
 
-<img class="profile-picture" src="photography/christmas-darkyellow-flowers1.jpg">
+<img class="profile-picture" src="photography/darkyellow-flowers1.jpg">
 
 
 
-<img class="profile-picture" src="photography/christmas-darkyellow-flowers2.jpg">
+<img class="profile-picture" src="photography/darkyellow-flowers2.jpg">
 
 
 
@@ -111,27 +111,11 @@ With strong inner vision, and with a love for color and perspective, an open eye
 
 
 
-<img class="profile-picture" src="photography/yellow-flowers2.jpg">
-
-
-
 <img class="profile-picture" src="photography/spring-freedom.jpg">
 
 
 
 <img class="profile-picture" src="photography/white-flower1.jpg">
-
-
-
-<img class="profile-picture" src="photography/white-flower2.jpg">
-
-
-
-<img class="profile-picture" src="photography/white-flower3.jpg">
-
-
-
-<img class="profile-picture" src="photography/white-flower4.jpg">
 
 
 
