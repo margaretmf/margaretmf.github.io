@@ -45,3 +45,16 @@ She discovers a joy and a light in the sound that reminds her of little children
 The sound alone tells a colorful story of the youthfulness that bounces with joy.
 
 <br>
+
+## E Pluribus Unum ##
+I am a voice in a sea of voices yearning to be say the right thing.
+I am a conscience in a sea of consciences desiring to do the right thing.
+I am a body in a sea of bodies wanting to be free.
+I am a heart in a sea of hearts crying out to love more.
+I am a set of eyes in a set of eyes looking to see the good going on.
+I am one of a kind in the sea of humanity.
+Like a drop of water ripples outwardly, I am one of many leading to ripples outwardly in a sea of ripples.
+I am one in a million. There are a million ways to say and do the same thing.
+
+<br>
+
