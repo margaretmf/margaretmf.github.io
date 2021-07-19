@@ -74,7 +74,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Todos de los días, trabajo para conocer como establecer límites con la gente.
 
 * Daily, I work to forgive people who have hurt me.
-**Todos de los días, trabajo para...**
+**Todos de los días, trabajo para perdonar la gene que me has lastimado.
 
 * Daily, I work to move outside of my comfort zone in some way.
 **Todos de los días, trabajo para...**
@@ -94,8 +94,8 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 * Daily, I work to love someone who I haven't fully loved better.
 **Todos de los días, trabajo para...**
 
-* Daily, I work to give up any vain or personal ambition.
-**Todos de los días, trabajo para...**
+* Daily, I work to give up personal ambition.
+**Todos de los días, trabajo para renunciar a la ambición personal.
 
 * Daily, I work to listen to the needs of others.
 **Todos de los días, trabajo para...**
