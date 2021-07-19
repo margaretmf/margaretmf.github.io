@@ -101,6 +101,10 @@ layout: default
 * Memphis Rent Party: The Blues, Rock & Soul in Music's Hometown
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
+* Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
+* Spiritual Care in Everyday Nursing Practice: A New Approach by Janice Clarke
+* Songs from Shakespeare's Plays and Popular Songs of Shakespeare's Time by Tom Kines
+* Shakespeare and Popular Music by Adam Hansen
 * Defund Fear
 * Front Row at the Trump Show
 * The Book of Circles: Visualizing Spheres of Knowledge: (with over 300 beautiful circular artworks, infographics and illustrations from across history) by Manuel Lima
