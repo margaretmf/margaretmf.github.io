@@ -9,9 +9,6 @@
   
 - name: "Portfolio"
   link: "portfolio"
-
-- name: "Creative Writing"
-  link: "keycreativewriting"
   
 - name: "Education"
   link: "education"
@@ -21,6 +18,9 @@
   
 - name: "Book and News Reviews"
   link: "readingreviews"
+  
+- name: "Creative Writing"
+  link: "keycreativewriting"
   
 - name: "Reading List"
   link: "readinglist"
