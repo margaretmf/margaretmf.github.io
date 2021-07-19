@@ -40,6 +40,17 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Gratitude for Muslim prayers 
 * Gratitude for the world history teacher at Norfolk Academy
 * Grateful for the sound of the dishwasher
+* Grateful that I am gritty, grindy like a pearl, oyster
+* Grateful for the light in the Christian Science Churches
+* Grateful that everyone lives out their lives differently
+* Grateful for all the people overcoming things with smiles on their faces
+* Grateful that my oriignal goal was to learn about all the people living, moving on the Earth, all 7.2 billion people and more
+* Grateful that there's a reason for everything
+* Grateful that enemies become friends and the light bulb goes on
+* Grateful that what's meant for someone is meant for them
+* Grateful that you make me smile, you make me happy, you make me want to grow
+* Grateful for the red wood tree and the magnolia trees
+* Grateful for a spark of the world that makes them them
 * Grateful for growth in understanding of topics from school
 * Grateful for the men, the women in the residency
 * Grateful for flipping the light on
