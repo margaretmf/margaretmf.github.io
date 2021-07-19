@@ -7,11 +7,15 @@ With strong inner vision, and with a love for color and perspective, an open eye
 <br>
 
 
-<img class="profile-picture" src="dark-pink-flower.jpg">
+<img class="profile-picture" src="america-truck.jpg">
 
 
 
-<img class="profile-picture" src="turtles1.jpg">
+<img class="profile-picture" src="america-gas-station.jpg">
+
+
+
+<img class="profile-picture" src="american-flag.jpg">
 
 
 
