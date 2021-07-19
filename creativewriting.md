@@ -4440,6 +4440,13 @@ The message of love spreads through the ground, the earth and resonates with eve
 
 seeds of hope, love, joy
 
+I give you a seed of love, and you give to me a seed
+we grow and gorw like the earth
+
+I love everyone that I meet
+
+just you and me together better than you and me alone
+
 <br>
 
 ## You Plus Me ##
@@ -5005,6 +5012,9 @@ The rainbow is the smile of a stranger, the colors in the hospital building, the
 All around me the sun will always peek through at the end.
 
 Dream a different dream
+Colors of the rainbow
+Reflecting all the people, all the generations
+Everlasting, forever, happily ever after
 
 <br>
 
