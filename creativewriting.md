@@ -87,7 +87,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (41 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (50 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
@@ -3434,10 +3434,10 @@ A sense of America reborn actually came a live in 2021, but this great American 
 
 ## E Pluribus Unum ##
 I am a voice in a sea of voices yearning to be say the right thing.
-I am a conscience in a sea of consciences yearning to do the right thing.
-I am a body in a sea of bodies yearning to be free.
-I am a heart in a sea of hearts yearning to love more.
-I am a set of eyes in a set of eyes yearning to see the good going on.
+I am a conscience in a sea of consciences desiring to do the right thing.
+I am a body in a sea of bodies wanting to be free.
+I am a heart in a sea of hearts crying out to love more.
+I am a set of eyes in a set of eyes looking to see the good going on.
 I am one of a kind in the sea of humanity.
 Like a drop of water ripples outwardly, I am one of many leading to ripples outwardly in a sea of ripples.
 I am one in a million. There are a million ways to say and do the same thing.
@@ -3576,7 +3576,7 @@ Being an everyday common citizen on the road, part of the E Pluribus Unum.
 <br>
 
 ## Blue and Green Mountains - Virginia ##
-These blue and green mountains I am destined for.
+Sweet Virginia, these blue and green mountains I am destined for.
 It's heavenly to look to.
 
 <br>
@@ -3663,6 +3663,7 @@ America is a story of community and communal work.
 America is a story of liberty and liberation.
 Ammerica is a story of redemption.
 America is a story of singing.
+America is a story of music.
 America is a story of sacrifice.
 America is a story of culture.
 America is a story of the fight for independence.
@@ -3688,6 +3689,7 @@ America is a story of wholeness.
 "America is a story of individual and indivisible."
 America is a story of ancestors.
 America is a story of the Spirit.
+America is a story of nature.
 
 America is a country of beliefs.
 America is a country of music.
@@ -3703,6 +3705,7 @@ America is a country of trailblazers.
 America is a country of freedom fighters.
 America is a country of stories.
 America is a country of the new birth that was always here.
+America is a country of landmarks.
 
 America is a land of many.
 
@@ -3745,6 +3748,7 @@ Believe in what is right
 Believe in the power of love
 Believe in sunlight
 Believe that one can do it
+Believe in never quitting.
 
 Freedom fighters, trail blazers, horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny
 
@@ -3910,7 +3914,7 @@ It's all one.
 <br>
 
 ## Seasons Changing ##
-Something is sweeping thorugh as the seasons change
+Something is sweeping through as the seasons change
 Old leaves die,
 buds come to bloom,
 there's another cycle ahead
