@@ -3909,6 +3909,7 @@ When feeling love in a hospital here, I think of the love for people in a hospit
 When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
 When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
 When walking by the medical center I think of medical center in another city, and I love all the people in the center.
+When sipping on coffee I think of sipping on coffee with people in Argentina.
 
 It's all one.
 
@@ -4005,6 +4006,13 @@ Has it been a minute?
 When will an hour pass?
 Waiting for time to pass?
 Checking on the clock.
+
+He coordinates the dance of life
+He knows all from up above
+He saves me from being late
+He synchs me up with just who I need to be with
+Mr. Time, heaven, coming down to earth
+Stopping a delay
 
 **Literary Allusion to Shakespeare**
 
@@ -4143,6 +4151,7 @@ Reflections of trees, stop signs, leaves, power lines after the storm through pu
 Reflections of a brick wall through a window
 Reflections of windows through windows
 Reflections of light through mirrors
+Reflections of leaves' shadows on fences
 
 <br>
 
@@ -4428,6 +4437,8 @@ Growing underground
 Wedded to the earth
 Dying to the earth
 The message of love spreads through the ground, the earth and resonates with everyone on earth
+
+seeds of hope, love, joy
 
 <br>
 
@@ -4993,6 +5004,8 @@ There's still a rainbow shining, smiling through while all alone, in the psych w
 The rainbow is the smile of a stranger, the colors in the hospital building, the stars in everyone's hearts outside of these gray walls.
 All around me the sun will always peek through at the end.
 
+Dream a different dream
+
 <br>
 
 ## Dream ##
@@ -5002,6 +5015,8 @@ All my dreams I heard.
 Better dreams on their way.
 More conscious dreams.
 Dreams that last a lifetime.
+
+Dream a different dream
 
 <br>
 
@@ -5882,6 +5897,12 @@ bouncing back up higher
 a criminal, not a bride
 I learned too 'not to play with guns' and seriously put them down
 
+Falling hard to the ground
+Turn my sin to dus
+Bury this shame
+Take me to where the air is clearer
+Digging in my heels and making it worse
+
 <br>
 
 ## Old Dream Dying, New Dream Awakening ##
@@ -6255,6 +6276,8 @@ you cross my heart and mind both day and night
 I want nothing but to love you
 I want to grow with you
 
+I'll be with you through good times and bad
+
 <br>
 
 ## Stepping on Stones ##
@@ -6262,6 +6285,22 @@ Step on stones to old adge
 Milestones
 Measure a lifetime through
 Seize the true world and what it has to offer
+
+<br>
+
+## I Want to Live Life With You ##
+I want to live life with you
+a good lifetime with you
+a lifetime of days
+a lifetime of smiles
+a lifetime of seasons
+a lifetime of adventures
+
+<br>
+
+## A Messenger Bird ##
+A messenger bird came my way to show how TN was the west, TN was my home
+The land, the eagle, the golden halo 
 
 <br>
 
@@ -6349,6 +6388,11 @@ So much good has happened, and so much good is waiting to be born again.
 This is old sweet home.
 You hold a space for me and welcome me with a hug.
 The place where I can always be welcomed and always return.
+
+This home where I'm from.
+It's all made new.
+Im made new.
+People are new.
 
 <br>
 
@@ -6785,6 +6829,8 @@ Seeing from a new angle
 
 There's a brand new view to take of you and me and all humanity
 
+It's another day to wake up
+
 <br>
 
 ## Musical Chairs ##
@@ -7158,6 +7204,14 @@ I am one voice in many.
 There's a country of people who love this land too.
 The red white and blue is for me and for you.
 The stars.
+
+My dad always shared stories of how the country would not be what it is until the old rebel flag is put down
+
+## Harmony in the Universe ##
+There's harmony in the universe that reaches to the sky filled with stars and back
+It reaches the church with its bells ringing and back to the heart, the home within
+United by love
+I love you with this echoing truth that reaches the depths of the earth and the universe
 
 <br>
 
@@ -8290,6 +8344,10 @@ Ice cream
 Peanuts
 Gas stations
 
+an old town summer night
+the air hot and sticky
+the crickets
+the hot dogs and hamburgers
 <br>
 
 ----------
@@ -8690,6 +8748,8 @@ She's the dream, the vision of hope and love and life for the next generation.
 Visions and dreams and images in the mind that come.
 A little boy hugging me in my sleep.
 An old woman from the other side of the earth smiling and weaving.
+
+Seeds of hope and love
 
 <br>
 
