@@ -120,7 +120,7 @@ What a wonderful type of love that starts with a flower and its petals.
 
 (3) Tossing It Out to Sea
 
-(4) My Hand on My Heart - America
+(4) My Hand on My Heart
 
 (5) A Childlike Heart
 
