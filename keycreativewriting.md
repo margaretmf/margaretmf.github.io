@@ -65,6 +65,32 @@ I am one in a million. There are a million ways to say and do the same thing.
 
 <br>
 
+## Secret Admirer ##
+He had a secret admirer but he didn't know her name.
+
+Every day, she came home and peeled off petals from flowers.
+
+'He likes me, he likes me not'
+'He likes me, he likes me not'
+'He likes me, he likes me not'
+
+All the petals fell to the grass as she repeated this sentence.
+
+She smiled and said, 'I hope he likes me' as she let the petals fall to the ground.
+
+She took the flower petals to school and said, 'I like you a lot, and here are some flower petals for you.'
+
+He responded, 'I like you too' and took the petals in his hand.
+
+He made a necklace out of the petals, and he went up to her and said, 'this necklace is for you, and let's be friends.'
+
+She wore the necklace every day to school, and he would smile at her across the room.
+
+They held hands, and they became best friends forever.
+
+What a wonderful type of love that starts with a flower and its petals.
+
+<br>
 
 
 
