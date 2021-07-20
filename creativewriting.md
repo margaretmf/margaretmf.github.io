@@ -4447,6 +4447,14 @@ I love everyone that I meet
 
 just you and me together better than you and me alone
 
+I want to live forever with you and love how you love and watch you grow old with me
+I want to create life with you
+
+Run to you back again and again
+with you I share this home
+It's lasting, it's founded, it's grand
+A hug I welcome from you day after day, night after night
+ 
 <br>
 
 ## You Plus Me ##
@@ -4473,6 +4481,15 @@ Like 2 ducks paddling
 Like 2 flowers in a garden
 Or 2 rays of sun
 
+It's about the two of us
+You and me coming together to become something greater than we are apart
+
+Our two hearts meet
+Your heart hears mine, mine yours
+Forever the truth echoes out and ripples out from our two hearts meeting
+Fusion
+the whole world knows with two lovers love and meet
+
 <br>
 
 ## Kissing Game ##
@@ -4491,6 +4508,8 @@ The two of us come from two sides of the same world
 There's a whole world inside you and a whole world inside me
 I learn from you
 You learn from me
+
+A spark of the world that makes you you
 
 <br>
 
@@ -4841,6 +4860,10 @@ my old hometown
 from Norfolk to Charlotte to Memphis to Montclaire to Memphis
 
 hear the train rollin in the summer time by the pool
+
+travelling thorugh Memphis
+it's my home sweet home
+there's a love that shines through darkness here
 
 <br>
 
@@ -5584,6 +5607,9 @@ The big lone bird standing on the grass nea rhte farm holding her poise.
 The lone bird skating on ice.
 The shadow of the lone bird in/on the grass.
 The bird alone on the city map, she knows her city and she loves the water.
+The brave lone bird
+
+Fly high in the sky above the clouds
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing, Curious, Observant
 Hidden, Nested
@@ -6014,6 +6040,8 @@ it let out its feelings
 I hug the sky and say thank you for the cloud's relief
 thank you for your feelings
 and thank you for the sunlight drying out the water droplets
+
+as the rain lifts and the storms stops, the colors shine through to smile through the Earth
 
 <br>
 
@@ -7123,8 +7151,24 @@ stepping on stones
 running through dirt, the clay
 getting clay stuck on the bottom of these shoes
 
+red, yellow, brown clay on my boots
+playing outside
+running outside
+
 <br>
 
+## Night ##
+Saying a prayer before going to bed for you
+
+<br>
+
+## Devil ##
+Bringing you down
+Holding you back
+Sabotaging
+
+<Br>
+ 
 ## Clothes Outdoors ##
 A hat on a fence.
 A shirt on the ground.
@@ -8270,6 +8314,11 @@ It touches every heart spreading roses through the valley
 There's a rose here for me and for you
 It grows in the mud
 
+the plants, the rose, the green leaves
+they have been here for eternity, since the beginning of time
+they know the earth's, the world's language is love
+the rocks, the dirt
+
 <br>
 
 ## Rose Petals ##
@@ -8544,6 +8593,11 @@ Imagine eternity and haven for all 7.2 billion people. Think of all 7.2 billion 
 
 Imagine all 7.2 billion people echoing out the truth in their own ways but resounding in harmony.
 Imagine reaching the mountain heights.
+ 
+ live through the changing seasons
+ explore the earth
+ synch, rhythm, sail, soar
+ from the great heat, sandy seashells and sandcastles to the falling leaves and orange, gold, yellow, and green to glistening brown trees with snow falling down to the pink flowers blossoming with an occasional rainfall back around again to heat with green leaves everywhere
 
 <br>
 
@@ -8563,6 +8617,7 @@ Two worlds apart on different sides of the same one
 Coming together to heal
 
 The world is a place
+ 
 <br>
 
 ## To the Core ##
@@ -8581,8 +8636,17 @@ I see the depth, the light, the ancient soul.
 All across the earth, people walking.
 
 <br>
-
-
+ 
+## What's a World without Love? Born to Love ##
+What's a world without love?
+Central sun
+Seeing through someone else's eyes
+Born to love
+Born to love someone today
+ 
+ <br>
+ 
+ 
 ----------
 
 
@@ -8628,6 +8692,7 @@ Today I filled a bottle with water and bubbles.
 I tossed it into the sea.
 I tossed the bottle with bubbles coming up and water spewing out and message for someone in the sea to receive.
 
+ All these things I've bottled up I toss it out to sea like a message in a bottle
 <br>
 
 ## Wishing Well ##
