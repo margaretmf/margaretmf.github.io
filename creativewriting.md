@@ -87,7 +87,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (50 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (51 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
@@ -4458,7 +4458,7 @@ A hug I welcome from you day after day, night after night
 <br>
 
 ## Lifetime ##
-There's a liftiem of love
+There's a liftime of love
 There's a lifetime of joy
 There's a lifetime measured by moments shared by you and me
 There's a lifetime of seasons changing while some things stay the same
@@ -4697,13 +4697,6 @@ the American dream felt out of reach to people. The American dream is not lost. 
 
 <br>
 
-## The Democratic Republic and the Debate Inside My Head ##
-Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with order, and a set of ways to handle collective challenges. No party has absolute control. The party in control has representative power over a set of people and over the collective whole. The party not in control also represents another set of people. The governmental structure builds in a space for dialogue, or a debate that gives room for disagreement that can yield to agreement. Not everyone has to agree, but everyone should point their thought to the greater good that supports the life, love, and soul that exists within people's hearts and minds. New ideas can evolve out of conflict and disagreement, leading to something better than before. A new nation is built everytime conflict erupts so destructively. A republic (government is a "public matter"): "a state in which supreme power is held by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the "inalieanble rights" of the people. A democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through elected representatives". The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and voices make the laws through their votes. Everyone has 'inalieanable rights'. The debate over which set of ideas, or system of government runs in my head. I feel like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion.
-The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy.
-[Citing Republic vs. Democracy](https://www.thoughtco.com/republic-vs-democracy-4169936)
-
-<br>
-
 ## Thinking Above Political Lines ##
 Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the *consciousness of good*, not any false beliefs about mankind.
 
@@ -4799,7 +4792,9 @@ Walking across the bridge
 I see the line of peopels' cars in afternoon rush hour
 with lights shining on the back of them all.
 
-The car with the right red blinker on talking to the car behind it with no blinker on going straight
+The car with the right red blinker on 
+talking to the car behind it 
+with no blinker on going straight
 
 <br>
 
@@ -6761,12 +6756,19 @@ The sun is shining on the Earth from a new angle, shedding new perspectives on t
 <br>
 
 ## It's a New Day ##
-Oh, it's a glorious new day to wake up to the dawn and let the life within make the heart beat with love.
+Oh, it's a new day to wake up to the sun and let the life within make my heart beat with love.
+The beating heart within gives me reasons to smile.
+The pulsing heart within makes want to love.
+
+Every day's a new day to watch all humanity wake up with a smile.
+There are people to meet, there are things to be born.
+
+Oh, it's a glorious new day to wake up to the sun and let the life within make the heart beat with love.
 The beating heart within gives me reason to live.
 The pulsing heart within makes me want to sing out loud.
 There's a new song to sing to light up everything.
 
-Oh, it's a new bright morning for the sun to rise from the east to the west.
+Oh, it's a new day for the sun to rise from the east to the west.
 I love how the rays shine through the trees and then warm my face with the heat.
 There are new people to meet, there are new things to be born.
 It's a new day for the sun to shine down and light up everything.
