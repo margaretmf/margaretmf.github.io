@@ -58,8 +58,149 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the red wood tree and the magnolia trees
 * Grateful for a spark of the world that makes them them
 * Grateful for growth in understanding of topics from school
+* Grateful for freedom from racism
+* Grateful for intuition about Thomas Jefferson's agricultural America
+* Grateful for remembrances of Black lives and **I am not your negro** in the country and in Paris
+* Grateful for farming throughout the country
+* Grateful that Thomas Jefferson had intuition of the limitlessness of the human mid
+* Grateful for family members who engage with family farming
+* Grateful for laundry washed and the music in the laundry
+* Grateful for home universally for church
+* Grateful for good people's hearts
+* Grateful for people becoming their full selves
+* Grateful for who people are born to be
+* Grateful for people from school who I remember
+* Grateful for families in Norfolk
+* Grateful for people walking
+* Grateful for the sound of touching the grass
+* Grateful for acceleration and de-acceleration
+* Grateful for the sand in the ocean
+* Grateful for the singers singing their songs
+* Grateful for the good heart of a friend outside
+* Grateful for the dance teacher at school
+* Grateful for the compassion business 
+* Grateful to work on a sketch this morning of the flowers
+* Grateful for a cheerful 'good morning'
+* Grateful for people who are nice
+* Grateful for my dad
+* Grateful for the people in Washington, DC outside
+* Grateful for memories of loving the people I babysat
+* Grateful for people from my classes at UVa
+* Grateful to heal from people
+* Grateful for skin care
+* Grateful for other people from church
+* Grateful for indigenous people from other countries
+* Grateful for people from Afghanistan
+* Grateful for black history
+* Grateful for Furr Family
+* Grateful for nature's colors
+* Grateful for color allusions in literature
+* Grateful for the sound of silence
+* Grateful for the everyday sounds
+* Grateful for the people in the hardware store
+* Grateful for the people working outside
+* Grateful for all the people on the Underground Railroad
+* Grateful for family stories
+* Grateful for memories with Beckett
+* Grateful for a childlike heart
+* Grateful for the business offices and design in offices in DC
+* Grateful for sisters, sisters everywhere
+* Grateful for a moment to think of eternity for people
+* Grateful for fairy tales from other cultures
+* Grateful for the leaders of the Underground Railroad
+* Gratefulf or peace at home
+* Grateful to say sorry and really mean it
+* Grateful for lifelong learning
+* Grateful to learn something everyday
+* Grateful for sustainability
+* Grateful for my cousins' friends
+* Grateful for the new administration
+* Grateful for my cousins in Memphis
+* Grateful for the art exhibit
+* Grateful for people surviving COVD-19
+* Grateufl for all the people here at the exhibit
+* Gratefulf or cousins and family members alive
+* Grateful for people in villages and people coming together
+* Grateful for people in Italy
+* Grateful for little kids who can appreciate art
+* Grateful for the cashier and the lover for her and her interests and love and passion
+* Grateful for the women I saw at the art exhibit
+* Grateful for the music coordinating with the paintings
+* Grateful for the light in the darkness both in the Bible and Henry VI
+* Grateful for the work of the algebraic number system
+* Grateful for the bluegrass musicians
+* Grateful for the Spanish and French versions of CHristian Science
+* Grateful for Nancy and her life and dogs and friends
+* Grateful for people who love the rural south
+* Grateful for healthy neighborhoods and homes
+* Grateful for artists and their expressions
+* Grateful for the time spent doing art
+* Grateful for everyone from camp
+* Grateful for the Scottish Irish music
+* Grateful for all the churches worldwide
+* Grateful for all these musicians
+* Grateful for open windows
+* Grateful for the flowers
 * Grateful for the men, the women in the residency
 * Grateful for flipping the light on
+* Grateful for Nam and Faf
+* Grateful for memories in DC
+* Grateful for people working in the lumber industry
+* Grateful that everyone of us has the capacity to include all mankind in one affection in our hearts
+* Grateful for the bird outside today
+* Grateful for all the love in our hearts
+* Grateful for a city moving
+* Grateful for all the people outside
+* Grateful for all the people you love
+* Grateful for the girls in tech in DC
+* Grateufl for people on the playground
+* Grateful for lessons at Norfolk Academy about music and history
+* Grateful for Hut Two
+* Grateful for business schools
+* Grateful for interesting people
+* Grateful for swing sets
+* Grateful for healthy homes
+* Grateful for the cheerfulness of Aunt Mary
+* Grateeful for peace this morning
+* Grateful for roommates also going on trips
+* Grateful for the people at Homeless Chidlren's Playtime Project with full agency
+* Grateful for ancestors of African Americans
+* Grateful for spiritual entrepreneurship
+* Grateful for all the people going into the hospital
+* Grateful for a house built upon love
+* Grateful for the art with Van Gogh
+* Grateful that other people are waking up feeling overwhelmingly thankful
+* Grateful for the life of people and their children
+* Grateful for the ripple effect
+* Grateful for the hymns I used to listen to
+* Grateful for people in classes in DC on data and ethics and product management
+* Grateufl for all the youthful energy and thinking
+* Grateful for the groups in DC doing their work
+* Grateful for the lunch of Nam and Faf
+* Grateful to hear the prayer of a church somewhere different than here
+* Grateful for beautiful churches everywhere
+* Grateful for dandelions
+* Grateful for the 1920s
+* Grateful that all fifty states have their own local feel
+* Grateful for Christian friends from Scotland
+* Grateful for the history of the Underground Railroad
+* Grateful for the opportunity to learn more about Van Gogh in the future
+* Grateful for musical people
+* Grateful for pool dayds and people from the neighborhood
+* Grateful for memories from 6th grade
+* Grateful for the teaching experience
+* Grateful for Paige swimming laps
+* Grateful for the smell of pools
+* Grateful for all the sports and activities known to mankind
+* Grateful for everyone from Glasgow
+* Grateful for the light shining through the library
+* Grateful for my prayers a few years ago
+* Grateful for folk music from all 50 states
+* Grateful for people in Pakistan
+* Grateful for memories of the churches and neighborhoods in Washington, DC
+* Grateufl for memories walking in Ireland
+* Grateufl for my brother
+* Grateful for currents, water, electricity
 * Grateful for a smile shared with someone in the car next to me
 * Grateful for American flags reflecting through glass doors
 * Grateful for positive memories of my grandmother
