@@ -36,22 +36,24 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 ### VIBRANT WORLD
 Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Present
-* Engage with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
-* Analyze and write about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
-* Manage over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
-* Research trends and organize design and systems research meetup groups to understand patterns, problems, and solutions
+* Engaged with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
+* Analyzed and wrote about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
+* Managed over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
+* Researched trends and organized design and systems research meetup groups to understand patterns, problems, and solutions
 
 * Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
 
 * Participated in 100 Days of Peace
 * Participated in 21-day Race Equity Challenge
+* Participated in 50-day Trash Pickup Challenge
 
-* Teach myself to sketch in a notebook and see beauty in the world
-* Record scraps from books in field notebooks for art ideas
-* Compose music on the piano
-* Research the automobile and trucking industry 
-* Pick up trash in the neighborhood
-* Learn about urban design
+* Taught myself to sketch in a notebook and see beauty in the world
+* Recorded scraps from books in field notebooks for art ideas
+* Researched the automobile, trucking, and music industries
+* Composed music on the piano
+* Wrote song lyrics
+* Picked up trash in the neighborhood
+* Learned about urban design
 
 <br>
 
@@ -59,34 +61,34 @@ American Credo Project
 * Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
 * Picked up trash as a citizen across neighborhoods in Norfolk, Charlottesville, and Richmond
 * Drove through 12 states in the United States of America and learned about the highway system, gas stations, the hotel industry, nature, music, and American citizens
-* Compose 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo and flying freely"
-* Develop a dream album or list of songs to compose if anything were possible
-* Work on four series of photos - "Light in the Darkness", "American Flags", "Leaves", and "Engineering Scenery"
-* Research themes in books and document them on Github
-* Write poetry to explore observations, thoughts, and feelings
+* Composed 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and other African American musicians, the other, "Being Like the Lone Birds" and the beauty of "flying solo and flying freely"
+* Developed a dream album or list of songs to compose if anything were possible
+* Worked on four series of photos - "Light in the Darkness", "American Flags", "Leaves", and "Engineering Scenery"
+* Researched themes in books and document them on Github
+* Wrote poetry to explore observations, thoughts, and feelings
 
 Children's Book Analyst
 * [Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career.](https://margaretmf.github.io/teaching) 
 * Developed an interest in how filmmakers turn children's books into films
 
 Innovator
-* Write down 5 images and 5 sounds that inspire new channels of thinking every day
+* Wrote down 5 images and 5 sounds that inspire new channels of thinking every day
 
 <br>
 
 ### EVERFI
 Data Analyst | April 2016 - January 2019
-* Own data-driven white paper writing, educational impact evaluation management framework development, exploratory data analysis, initial product requirements discussion, project tracking, and cross-functional teamwork
-* Write two-three white papers per year covering trends in digital education and insights from survey analysis to support partner education and company-wide thought leadership ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
-* Develop a technical framework to streamline the process of reporting 2,000 survey and assessment data points
-* Develop and present eight product KPIs to develop standards around measuring the success of product initiatives
-* Cluster survey and assessment data, and perform principal component analysis on assessments to support efficacy research
-* Gather and synthesize information from sales and support teams to develop research services solutions proposals
-* Partner with product stakeholders and software engineers to support generating initial platform vision and requirements
-* Deliver knowledge management documents to support teamwork and deliver epics, user stories, feature specification documents, and acceptance criteria to articulate platform and dashboard requirements
-* Track tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
-* Participate in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
-* Collaborate with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
+* Owned data-driven white paper writing, educational impact evaluation management framework development, exploratory data analysis, initial product requirements discussion, project tracking, and cross-functional teamwork
+* Wrote two-three white papers per year covering trends in digital education and insights from survey analysis to support partner education and company-wide thought leadership ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
+* Developed a technical framework to streamline the process of reporting 2,000 survey and assessment data points
+* Developed and presented eight product KPIs to develop standards around measuring the success of product initiatives
+* Clustered survey and assessment data, and perform principal component analysis on assessments to support efficacy research
+* Gathered and synthesized information from sales and support teams to develop research services solutions proposals
+* Partnered with product stakeholders and software engineers to support generating initial platform vision and requirements
+* Delivered knowledge management documents to support teamwork and deliver epics, user stories, feature specification documents, and acceptance criteria to articulate platform and dashboard requirements
+* Tracked tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
+* Participated in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
+* Collaborated with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
  
 ### Breastfeeding Center for Greater Washington
 Systems Researcher | January 2019 - May 2019
