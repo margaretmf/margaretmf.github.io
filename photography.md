@@ -139,6 +139,38 @@ With strong inner vision, and with a love for color and perspective, an open eye
 
 
 
+<br>
+
+
+
+<img class="profile-picture" src="photography/shore.jpg">
+
+
+
+<img class="profile-picture" src="photography/turtles1.jpg">
+
+
+
+<img class="profile-picture" src="photography/water-norfolk1.jpg">
+
+
+
+<img class="profile-picture" src="photography/water-norfolk2.jpg">
+
+
+
+<img class="profile-picture" src="photography/snow-water-branches.jpg">
+
+
+
+<img class="profile-picture" src="photography/sunlight.jpg">
+
+
+
+<img class="profile-picture" src="photography/sky-sun-clouds.jpg">
+
+
+
 <b>
 
 <b>
