@@ -86,6 +86,14 @@ Someone else is looking to this same flower.
 
 <br>
 
+# America Reborn #
+I once had a vision, or a dream of American reborn.
+I love that women are behind the rebirth of the American dream and that black men can lead the country well.
+Women are behind the rebirth of the American dream through the work in the postal office and the elections.
+A sense of America reborn actually came a live in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
+
+<br>
+
 ## Flickering Lights ##
 The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth.
 The flickering lights glow in the homes and office buildings united that windows provide and entrance to.
