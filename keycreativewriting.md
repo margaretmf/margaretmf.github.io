@@ -155,6 +155,23 @@ What a wonderful type of love that starts with a flower and its petals.
 <br>
 
 ## It's A New Day Lyrics ##
+It's a new day for the sun to shine
+for the birds to chirp
+for me to meet a new friend.
+
+I love to sing out loud
+and let go all of the doubt
+and feel love in my heart
+for everyone.
+
+It's a new day for the flowers to bloom
+for the rain to fall
+for the neighbors to wave.
+
+I love to skip out side
+and run to the park
+and feel joy in my heart
+with everyone.
 
 <br>
 
