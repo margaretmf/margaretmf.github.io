@@ -168,6 +168,10 @@ With strong inner vision, and with a love for color and perspective, an open eye
 
 
 
+<img class="profile-picture" src="photography/water-sunlight.jpg">
+
+
+
 <b>
 
 <b>
