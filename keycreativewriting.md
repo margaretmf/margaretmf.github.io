@@ -181,18 +181,6 @@ What a wonderful type of love that starts with a flower and its petals.
 
 <br>
 
-## It's A New Day Lyrics ##
-
-<br>
-
-## Wishing Well Lyrics ##
-
-<br>
-
-## The Lone Bird Lyrics ##
-
-<br>
-
 ## It's A New Day #
 It's a new day for the sun to shine
 for the birds to chirp
@@ -214,6 +202,26 @@ with everyone.
 
 <br>
 
+## The Democratic Republic and the Debate Inside My Head ##
+Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with
+order, and a set of ways to handle collective challenges. No party has absolute control. The party in control has representative power over a set of people and
+over the collective whole. The party not in control also represents another set of people. The governmental structure builds in a space for dialogue, or a debate
+that gives room for disagreement that can yield to agreement. Not everyone has to agree, but everyone should point their thought to the greater good that supports
+the life, love, and soul that exists within people's hearts and minds. New ideas can evolve out of conflict and disagreement, leading to something better than
+before. A new nation is built everytime conflict erupts so destructively. A republic (government is a **public matter**): **a state in which supreme power is held
+by the people and their elected representatives, and which has an elected or nominated president rather than a monarch**. The republic constitutes the entire
+region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives
+decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the
+representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the "inalieanble rights" of the people. A
+democracy (government is ruled **by the people**): **a system of government by the whole population or all the eligible members of a state, typically through
+elected representatives**. The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and
+voices make the laws through their votes. Everyone has 'inalieanable rights'. The debate over which set of ideas, or system of government runs in my head. I feel
+like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice
+a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's
+voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy
+(https://www.thoughtco.com/republic-vs-democracy-4169936)
+
+<br>
 
 
 
