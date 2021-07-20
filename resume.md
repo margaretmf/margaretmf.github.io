@@ -66,9 +66,13 @@ American Credo Project
 * Researched themes in books and document them on Github
 * Wrote poetry to explore observations, thoughts, and feelings
 
+<br>
+
 Children's Book Analyst
 * [Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career.](https://margaretmf.github.io/teaching) 
 * Developed an interest in how filmmakers turn children's books into films
+
+<br>
 
 Innovator
 * Wrote down 5 images and 5 sounds that inspire new channels of thinking every day
