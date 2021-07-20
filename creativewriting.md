@@ -4457,6 +4457,32 @@ A hug I welcome from you day after day, night after night
  
 <br>
 
+## Lifetime ##
+There's a liftiem of love
+There's a lifetime of joy
+There's a lifetime measured by moments shared by you and me
+There's a lifetime of seasons changing while some things stay the same
+There's a lifetime journey
+There's a lifetime of learning
+There's a lifetime in this world
+There's a mini world within everyone that's a reflection of the universe in someone
+There's a lifetime of ideas
+There's a lifetime to be happy
+There's a lifetime to grow
+There's a lifetime to love both day and night
+There's a lifetime to grow older in age and younger at heart
+THere's a lifetime to see the beauty all around
+There's a lifetime to engage with all the world
+There's a lifetime to stretch the limits
+There's a liftime to engage with all the world
+There's a lifetime of seasons changing one to another
+There's a lifetime for the earth to spin us around our central su
+
+Through old age we shall live and remain strong the two of us
+There's a lifetime of friends
+
+<br>
+
 ## You Plus Me ##
 You plus me add up to one
 Together as one we're stronger and steadier
@@ -5607,7 +5633,7 @@ The big lone bird standing on the grass nea rhte farm holding her poise.
 The lone bird skating on ice.
 The shadow of the lone bird in/on the grass.
 The bird alone on the city map, she knows her city and she loves the water.
-The brave lone bird
+The brave lone bird knows her place on the wire.
 
 Fly high in the sky above the clouds
 
@@ -6867,7 +6893,14 @@ Seeing from a new angle
 
 There's a brand new view to take of you and me and all humanity
 
-It's another day to wake up
+It's another day to wake up to the truth within
+
+It's a new day to appreciate something old, and something from the past
+It's a new day to share a smile with a friend
+It's a new day to be born again
+It's a new day to see something never seen before
+
+Everyday's a new day to be someone new, to see something new
 
 <br>
 
@@ -6946,6 +6979,20 @@ SHe was creating a life.
 She was making crafts.
 
 The smile through the earth as one 
+
+<br>
+
+## A Space Without WOrds ##
+A space without words
+The beauty in the silence
+The grace in disguise
+The time to sit and be still
+The time to reflect
+The space to appreciate a smile, a heart-to-heart, a hand
+The time to hear your heart
+The love that is quiet
+The peace within
+The calm
 
 <br>
 
@@ -7197,28 +7244,24 @@ Daily fightiing for another to live.
 
 <br>
 
-## Gone With the Wind ##
+## Gone With the Wind, She Universally and the Wind ##
 Gone with the wind to the hurts of the past.
-The past moves behind me as the wind blows.
+The past moves behind her as the wind blows.
 
-Into the future with the wind that knows my name.
-The wind calls me home and points me to where I always belonged.
+Into the future with the wind that knows her name.
+The wind calls her home and points her to where she always belonged.
 
-The wind sings it's song and knows how to still my heart.
-The wind returns me to where I always once was.
+The wind sings it's song and knows how to still her heart.
+The wind returns her to where she always once was.
 
 The wind is the breath that has been there forever the same.
-It sweeps through to show how the seasons change.
+It sweeps through to show her how the seasons change.
 
-With the wind, I feel the breeze and I feel it bring me home.
-It rushes through the whole earth at once and makes me one with all.
-
-The wind is always showing me what I need to know.
-
+She runs fast with the wind as it shows her what she needs to know.
+With the wind that rushes through the whole earth at once, she feels it bring her home.
+ 
 With the wind and the breeze, the leaves fall off the tree, and sprinkle and dance and spin around in the air.
-
 The wind blowing my hair. The breeze hitting my neck.
-
 The wind, the breeze blowing the leaves
 
 <br>
@@ -7321,87 +7364,6 @@ His eyes are so deep they see to the heart.
 
 ## Wisdom Tree ##
 Idea of a wisdom tree
-
-<br>
-
-## The Penny ##
-He found a penny on the ground and gave it to a friend.
-'Penny for your thoughts,' he said.
-He was interested in her thoughts.
-He handed over the coin, and she said with a smile 'sometimes love awakens and love moves mountains and love reunites.'
-Then she threw the penny into the well and wished well the people on the earth.
-'I hope they feel loved,' she says.
-'I hope that boy all alone on the bus finds a friend.'
-'I hope that girl smiles to a stranger.'
-'I hope that mom finds the strength within to be herself.'
-'I hope that man is ok with crying.'
-'I hope that dad hugs his child.'
-'I hope that woman finds her dreams met.'
-'It's a beautiful world,' he said, 'thanks for your thoguths, and thanks for your wishes.'
-With a plop, the coin fell into the well with a plop and it touched the water, and the water rippled out.
-This love ripples on and on and on.
-The wishes ripple on and one and on.
-
-a penny for the ripple effect of something
-a penny for the stars to shine for eternity
-a penny for kindness in school
-a penny for the South to live on
-a penny for the people looking for change
-a penny for a smile on my parents' face
-a penny for my sister and brother
-a penny for the people's freedom
-a penny for the couple's harmony
-a penny for a love for a neighbor
-
-There's a penny on the ground
-I toss it up and throw it into the green trees and the bushes
-The leaves turn gold
-
-I wish for a better day
-I wish for the love in a girl's heart to shine true
-
-wishing well-
-for the love that fills the earth
-for the love that moves mountains
-for the love that hugs a friend
-for the that is truly sorry
-for the love that smiles at a stranger
-for the love that forgives at first sight
-for the love that keeps people young
-for the love that heals an illness
-for the love that builds bridges
-for the life that frees
-for the life that shares joy and happiness
-for a song to sing in a mother's heart
-for a laugh to come out of a father's mouth
-for a tale by a grandmother to be remember
-for a joke of a grandfather to be thankful for
-
-for the ripple effect of something
-for the stars to shine
-for eternity
-for kindness in schools
-for the South to live on
-for the people looking for change
-for a smile on my parents' faces
-
-coins for the jukebox
-coins for the coke machine
-coins for the laundry
-
-penny for the woman doing laundry for her son
-
-the penny started in someone's back pocket
-it fell out and off to the ground
-a little boy or girl found it
-he bought some gum and soda
-the cashier took the penny and some extra $
-the cashier put the money up
-"change with pennies" bucket
-someone was given the money
-
-the penny went full circle 
-the original he received
 
 <br>
 
@@ -8487,6 +8449,9 @@ Worldview
 Another year lighter, humbler, stronger, more conscious, aware, knowledgeable, and filled with love
 How the sunlight shines in and grows brighter and then dims
 
+1 degree closer to the sun, the love you're seeking everyday
+Around and around and around this earth goes
+ 
 <br>
 
 
@@ -8743,9 +8708,91 @@ The world is open for me to spend my money and bless the world.
 I wish well that girl who that guy goes out with and I hurt
 I wish well that guy who tried to get under my skin
 I wish well that guy looking for help on the side of the road
-
+I wish well my partner for life
+ 
 Family harmony
 Rainbow in the sky
+
+<br>
+
+ ## The Penny ##
+He found a penny on the ground and gave it to a friend.
+'Penny for your thoughts,' he said.
+He was interested in her thoughts.
+He handed over the coin, and she said with a smile 'sometimes love awakens and love moves mountains and love reunites.'
+Then she threw the penny into the well and wished well the people on the earth.
+'I hope they feel loved,' she says.
+'I hope that boy all alone on the bus finds a friend.'
+'I hope that girl smiles to a stranger.'
+'I hope that mom finds the strength within to be herself.'
+'I hope that man is ok with crying.'
+'I hope that dad hugs his child.'
+'I hope that woman finds her dreams met.'
+'It's a beautiful world,' he said, 'thanks for your thoguths, and thanks for your wishes.'
+With a plop, the coin fell into the well with a plop and it touched the water, and the water rippled out.
+This love ripples on and on and on.
+The wishes ripple on and one and on.
+
+a penny for the ripple effect of something
+a penny for the stars to shine for eternity
+a penny for kindness in school
+a penny for the South to live on
+a penny for the people looking for change
+a penny for a smile on my parents' face
+a penny for my sister and brother
+a penny for the people's freedom
+a penny for the couple's harmony
+a penny for a love for a neighbor
+
+There's a penny on the ground
+I toss it up and throw it into the green trees and the bushes
+The leaves turn gold
+
+I wish for a better day
+I wish for the love in a girl's heart to shine true
+
+wishing well-
+for the love that fills the earth
+for the love that moves mountains
+for the love that hugs a friend
+for the that is truly sorry
+for the love that smiles at a stranger
+for the love that forgives at first sight
+for the love that keeps people young
+for the love that heals an illness
+for the love that builds bridges
+for the life that frees
+for the life that shares joy and happiness
+for a song to sing in a mother's heart
+for a laugh to come out of a father's mouth
+for a tale by a grandmother to be remember
+for a joke of a grandfather to be thankful for
+
+for the ripple effect of something
+for the stars to shine
+for eternity
+for kindness in schools
+for the South to live on
+for the people looking for change
+for a smile on my parents' faces
+
+coins for the jukebox
+coins for the coke machine
+coins for the laundry
+
+penny for the woman doing laundry for her son
+
+the penny started in someone's back pocket
+it fell out and off to the ground
+a little boy or girl found it
+he bought some gum and soda
+the cashier took the penny and some extra $
+the cashier put the money up
+"change with pennies" bucket
+someone was given the money
+
+the penny went full circle 
+the original he received
 
 <br>
 
@@ -9430,6 +9477,11 @@ More recently I analyzed music lyrics on "boys will be boys" and kind, and sweet
 It came back up through another's song of the enigmatic smile, the victim and the truth-or-darer, the catcalls, the mesmeric teasing, the silence, the silent treatment, and the noise, the encouragement of men to love, the satire to point out vices, flaws, and the hidden things to be understood.
 
 <br>
+ 
+ ## Writing ##
+People write literature and poems and essays about experiences in shopping malls and stores. Good literature and poems, and essays, can also inspire how businesses design themselves. It's an economy driven by English literature.
+ 
+Everything starts at home. At home, people write their stories. Outside of home, in the community, people can publish their stories. At home, life starts, and this life spreads out in the community. Everything in the community can lead back to home life, and everything in home life can spread out. It's a community, an economy driven by home.
 
 
 ----------
