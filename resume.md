@@ -52,7 +52,6 @@ Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Pr
 * Researched the automobile, trucking, and music industries
 * Composed music on the piano
 * Wrote song lyrics
-* Picked up trash in the neighborhood
 * Learned about urban design
 
 <br>
