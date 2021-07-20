@@ -4962,20 +4962,6 @@ The rivers are flowing in both.
 
 <br>
 
-## Smile Like You Mean It ##
-Smile like you mean it.
-In the pain, and the tears, and the fight within, smile like you mean it.
-In the loss for words, and the heartbreak, smile that winning smile.
-You smile like a ray of light.
-It lights up the whole room.
-It brightens up someone's day.
-It makes someone feel at ease.
-It cheers someone's heart.
-So smile like you mean it.
-Let the glow shine.
-It is yours to share.
-It is yours to wear.
-
 ## It is Ok ##
 It's ok to cry.
 It's ok to let the heart tear inside.
