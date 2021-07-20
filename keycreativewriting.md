@@ -86,6 +86,38 @@ Someone else is looking to this same flower.
 
 <br>
 
+## Flickering Lights ##
+The flickering lights in the hearts of all the people throughout the nation and the earth.
+The flickering lights in the homes and office buildings united that windows provide and entrance to.
+The flickering lights in the night sky that reach other galaxies.
+The flickering lights in the middle of sea.
+The flickering lights reflected through the water.
+
+You and I can imagine them, the flickering lights like little gold balls, while falling asleep, and saying our prayers.
+You and I can see them from up above in the plane looking down through the seat window.
+You and I can see them while walking around through the city.
+You and I a society run by electric lines, power grids, and lightbulbs.
+
+<br>
+
+## City Lights ##
+City lights.
+
+A hard day at work is done.
+The lights at night are on.
+
+The day is done.
+The night is on.
+
+The people have left work.
+The light supports their action.
+
+It's loud and silent at the same time.
+
+All the rooms twinkle like the stars in the night sky.
+
+<br>
+
 ## Secret Admirer ##
 He had a secret admirer but he didn't know her name.
 
@@ -155,6 +187,18 @@ What a wonderful type of love that starts with a flower and its petals.
 <br>
 
 ## It's A New Day Lyrics ##
+
+<br>
+
+## Wishing Well Lyrics ##
+
+<br>
+
+## The Lone Bird Lyrics ##
+
+<br>
+
+## It's A New Day #
 It's a new day for the sun to shine
 for the birds to chirp
 for me to meet a new friend.
@@ -175,13 +219,6 @@ with everyone.
 
 <br>
 
-## The Lone Bird Lyrics ##
-
-<br>
-
-## Wishing Well Lyrics ##
-
-<br>
 
 
 
