@@ -4952,14 +4952,11 @@ She looked him straight in the eye and said 'I love you'
 
 <br>
 
-## A City of Angels, Strangers ##
-A city of angels, strangers, friends
-There will always be someone to be right beside you to help you know that there's endless life and love ahead
+## Love the People ##
+I love the people she, he, they love throughout the day
 
 <br>
 
-## Love the People ##
-I love the people she, he, they love thorughout the day
 ## Norfolk to Memphis ##
 From Norfolk to Memphis and back a million times.
 These are the cities I love.
