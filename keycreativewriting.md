@@ -152,7 +152,17 @@ What a wonderful type of love that starts with a flower and its petals.
 
 (19) Rose and Greenery - Eternity
 
+## It's A New Day Lyrics ##
 
+<br>
+
+## The Lone Bird Lyrics ##
+
+<br>
+
+## Wishing Well Lyrics ##
+
+<br>
 
 
 
