@@ -67,10 +67,6 @@ With strong inner vision, and with a love for color and perspective, an open eye
 
 
 
-<img class="profile-picture" src="photography/christmas-fallfoliage.jpg">
-
-
-
 <img class="profile-picture" src="photography/rose-flower-house.jpg">
 
 
