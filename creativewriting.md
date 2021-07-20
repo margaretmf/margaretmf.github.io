@@ -3361,6 +3361,31 @@ I've said these words, I struggle with feeling like I'm copying other more estab
 
 <br>
 
+## Song Lyrics ##
+Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
+
+<br>
+
+## Popular Culture ##
+Popular culture speaks subtly. One must think to understand different perspectives on popular culture. One must be alert to subtle, silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
+
+<br>
+
+## Music ##
+Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
+
+<br>
+
+## Influences on Music ##
+How does African, Chinese, and European fairytales from medieval period influence country music?
+How does Shakespeare influence country music?
+What is the connection between V, MT, Kentucky, TN, NC, and WV?
+Old Hymns - "He is leading me" vs. "She is leading me"
+"She" in country music
+How is folk music created in America in comparison to other countries?
+
+<br>
+
 ## Top Songs ##
 * "Be Thou My Vision"
 * "Lo, How a Rose Ere Blooming"
@@ -3394,44 +3419,10 @@ I've said these words, I struggle with feeling like I'm copying other more estab
 
 <br>
 
-## Song Lyrics ##
-Songs share stories, human stories. Songs share stories of relationships. Songs express the heart of someone and speak to the heart of another. Songs capture words through feelings in catchy, punchy, witty, and clever ways. People can learn lessons from songs, sing along to songs, dance to songs, and learn to create their own songs. People can use music to heal.
-
-<br>
-
-## Popular Culture ##
-Popular culture speaks subtly. One must think to understand different perspectives on popular culture. One must be alert to subtle, silent arguments telling what one is. Some of popular culture has depth. Some of popular culture expresses Soul. Some of popular culture seems shallow, and watered down.
-
-<br>
-
-## Music ##
-Music is one form of cultural expression. Intuitively, music shares with people stories - stories of the past, stories of families, and stories of the present; stories of relationships, stories of politics, and stories of nature.
-
-<br>
-
-## Influences on Music ##
-How does African, Chinese, and European fairytales from medieval period influence country music?
-How does Shakespeare influence country music?
-What is the connection between V, MT, Kentucky, TN, NC, and WV?
-Old Hymns - "He is leading me" vs. "She is leading me"
-"She" in country music
-How is folk music created in America in comparison to other countries?
-
-<br>
-
-
 ----------
 
 # Creative Writing - Independent Writing #
 # Maps, History, Tennessee, Imagery, Stories, Professionalization, Bridges, A Spanish Lense, Culture, The Country, and Democracy #
-# America Reborn #
-I once had a vision, or a dream of American reborn.
-I love that women are behind the rebirth of the American dream and that black men can lead the country well.
-Women are behind the rebirth of the American dream through the work in the postal office and the elections.
-A sense of America reborn actually came a live in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
-
-<br>
-
 ## E Pluribus Unum ##
 I am a voice in a sea of voices yearning to be say the right thing.
 I am a conscience in a sea of consciences desiring to do the right thing.
