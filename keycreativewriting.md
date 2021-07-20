@@ -87,24 +87,19 @@ Someone else is looking to this same flower.
 <br>
 
 ## Flickering Lights ##
-The flickering lights in the hearts of all the people throughout the nation and the earth.
-The flickering lights in the homes and office buildings united that windows provide and entrance to.
-The flickering lights in the night sky that reach other galaxies.
-The flickering lights in the middle of sea.
-The flickering lights reflected through the water.
-
-You and I can imagine them, the flickering lights like little gold balls, while falling asleep, and saying our prayers.
-You and I can see them from up above in the plane looking down through the seat window.
-You and I can see them while walking around through the city.
-You and I a society run by electric lines, power grids, and lightbulbs.
+The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth.
+The flickering lights glow in the homes and office buildings united that windows provide and entrance to.
+The flickering lights twinkle in the night sky that reach other galaxies.
+The flickering lights mark the course in the middle of sea.
+The flickering lights reflect through the water.
 
 <br>
 
 ## City Lights ##
 City lights.
 
-A hard day at work is done.
 The lights at night are on.
+A hard day at work is done.
 
 The day is done.
 The night is on.
