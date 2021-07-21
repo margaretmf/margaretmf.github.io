@@ -3621,23 +3621,6 @@ With EVERFI, to commit to the team, I remember appreciating the opportunity to w
 
 <br>
 
-## Miseducated ##
-Miseducated. Lifelong learning.
-You are what you know.
-You are what you don't know.
-
-<br>
-
-## A Spanish Lense ##
-It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
-
-<br>
-
-## Daily Conversations ##
-Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles. Learning and reading supports healthier communication and conversation. How a conversation starts expresses democracy, and I am grateful for daily conversations in the neighborhood.
-
-<br>
-
 ## A Life in Snippets ##
 Hashtags, instagrams, tweets, dashboards, github repos, poems, and paragraphs represent a life in snippets.
 
@@ -3963,7 +3946,7 @@ Clock watching
 Father Time
 Counting down the time, the hours, the minutes
 
-Watching the lcock eternity is for everyone.
+Watching the clock eternity is for everyone.
 Tic toc.
 Has it been a minute?
 When will an hour pass?
@@ -4096,7 +4079,7 @@ Like the devil on my back or a monkey on my shoulder.
 <br>
 
 ## Ode to an Insect ##
-Ode to an insect looking through the window, flying hrough the air, nibbling at my sandwich
+Ode to an insect looking through the window, flying through the air, nibbling at my sandwich
 
 Ode to a spider web next to sticky sprinkles of green grass on the windoe
 
