@@ -1833,7 +1833,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Mary and Tyelr in Va
 * Grateful for beauty every day
 * Grateful for memories back at home of partying
-* Grateufl for the lvoe that lights up the home
+* Grateufl for the love that lights up the home
 * Grateful for lights flickering on and off
 * Grateful for the Cumberland Gap
 * Grateful for Christians creating music
@@ -1845,8 +1845,92 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for country and hroses in England and Africa and Spain
 * Grateful for people doing interior design work
 * Grateful for Sesame Street
-* Grateufl for people from chruch and their moms
-
+* Grateful for people from church and their moms
+* Grateful for all the people I babysat
+* Grateful to feel pure in heart
+* Grateful for the books I'm reading
+* Grateful to truly repent
+* Grateful for the books I'm reading
+* Grateful for the authors
+* for Sig Delt sorority
+* Grateful for Kappa sorority that Virginia is in
+* Grateful for all the people in therapy in Nashville and CHarlotte
+* Grateful for people in schools
+* Grateful for David's Tent and people experiencing reformation
+* Grateful for the time with Aunt Ann
+* Grateful for all the people from Scotland
+* Grateful for the brick laying business
+* Grateful for all the people in Charlotte
+* Grateful for the people who make the drinks
+* Grateful for all the people in the coffee shop
+* Grateful for the colors of the bricks
+* Grateful for friends in Disney world enjoying theselves
+* Grateful that love conquers all
+* Grateful to bookmark the town
+* Grateful for God's unfoldment
+* Grateful for a rose for Mary and Tyler
+* Grateful for memories with Grandmama
+* Grateful for memories of the Christian Science practitioner on Facebook
+* Grateful for the churches in DC
+* Grateful for the reading rooms
+* Grateful for girls who do dumb things and fight back and how they recover
+* Grateful for the expectation of good
+* Grateful for people doing simple work
+* Grateful for beauty and art in the simple work
+* Grateful for the lawnmower sound
+* Grateful for the grass mowed
+* Grateful for biblical truths
+* Grateful for the good for the hotel workers at association
+* Grateful for my roommate's family and home
+* Grateful for God's supply of ideas
+* Grateful for the goodness withine veryone at work
+* Grateful for God's care for the next generation
+* Grateful for alternative music
+* Grateful for leaves falling
+* Grateful for people who love trees and yoga
+* Grateful for everyone doing yoga
+* Grateful for the people at the summer camps
+* Grateful for preschool education
+* Grateful for the ticking of the tock
+* Grateful for home smells and sounds
+* Grateful for the homes of other people
+* Grateful for the Shakespeare collection
+* Grateful for the people working in the medical world
+* Grateful for shifting and changing
+* Grateful for growth every day
+* Grateful for a continuous life
+* Grateful for all the people teaching today
+* Grateful for integrity in professional experiences
+* Grateful for my friend and her work around self-validation
+* Grateful for the economy
+* Grateful for people laughing
+* Grateful for women worldwide
+* Grateful for the branding in the store around Love
+* Grateful for Christian moms
+* Grateful for the people working and the help and exchange
+* Grateful for the voices
+* Grateful for the space for people
+* Grateful for the time spent creating art
+* Grateful for people claiming words that belong to them
+* Grateful for everyone being supplied today
+* Grateful for people investing in Black lives
+* Grateful for "la ciudad", the word "city" in Spanish
+* Grateful for the river running
+* Grateful for railroads in Scotland
+* Grateful for memories of friends from camp in Memphis
+* Grateful for people at truck stops and gas stations with the sun shining
+* Grateful for memories in the library in Memphis
+* Grateful for all the people from Kappa at UVa
+* Grateful for distant family members
+* Grateful for all the people enjoying the summer activities
+* Grateful for the new work on Norfolk
+* Grateful for people working on the culture of Instagram
+* Grateful for the washer machine running
+* Grateful for the people in rural Arkansas I met
+* Grateful for a gratitude wall well
+* Grateful for growth and flwoers in the desert
+* Grateful for water flowing over
+* Grateful for the India center in Washington, DC
 
 <br>
 
