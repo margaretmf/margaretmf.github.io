@@ -60,6 +60,27 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for growth in understanding of topics from school
 * Grateful for freedom from racism
 * Grateful for intuition about Thomas Jefferson's agricultural America
+* Grateful for tree branches on an electric wrie
+* Grateful for red dirt truck marks
+* Grateful to see towels on the driveway
+* Grateful for memories of screen porches
+* Grateful for all the musicians on social media
+* Grateful for the supplies being met each day
+* Grateful for the infinite humanity that continues forever and that echoes out for ever
+* Grateful for the infinite humanity that is broad and whole
+* Grateful for the river of our collective soul embracing all cultures
+* Grateful for people that have let me stay with them
+* Grateful for all the yesterdays that make today as bright as it is
+* Grateful for the city that has been here for years and the days of storms
+* Grateful for a world with love and life moving it always
+* Grateful for the love in hospitals
+* Grateufl for a shoe left in a driveay
+* Grateful to love all the people people love
+* Grateful for the sun rays lifting up into heaven above feeling peace at home
+* Grateful that everything needed is within
+* Grateful for allusions to Shakespeare in popular music and popular culture
+* Grateful to learn something from everyone every day
+* Grateful for the people with my car
 * Grateful for remembrances of Black lives and **I am not your negro** in the country and in Paris
 * Grateful for farming throughout the country
 * Grateful that Thomas Jefferson had intuition of the limitlessness of the human mid
