@@ -106,7 +106,6 @@ layout: default
 * Looking to Get Lost: Adventures in Music and Writing 
 * I Walked the Line: My Life with Johnny by Vivian Cash
 * What Were We Thinking
-* The Audacity of Hope
 * Dare to Speak
 * Memphis Rent Party: The Blues, Rock & Soul in Music's Hometown
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
@@ -269,7 +268,6 @@ layout: default
 * That Old Country Music
 * [John Brown: A Biography](https://www.amazon.com/John-Brown-Biography-B-Bois/dp/B08LNG9YHV/ref=sr_1_1_sspa?dchild=1&keywords=John+brown+abolitionist&qid=1621383644&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExM0NZWU40NlQ4RERUJmVuY3J5cHRlZElkPUEwNjcwMDY3TzdVVFpDRzFHUFFSJmVuY3J5cHRlZEFkSWQ9QTA1NjE4NzMyOFZZVzQzMUJMREI3JndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by W. E. B Du Bois
 * [Harriet Tubman](https://www.amazon.com/Harriet-Tubman-Moses-Her-People-ebook/dp/B089GH46DH/ref=sr_1_1_sspa?dchild=1&keywords=harriet+tubman&qid=1621384329&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMU1KQkwxVkVSTE1NJmVuY3J5cHRlZElkPUEwNDMzMTE5MVVJM0NEUklXUExOUSZlbmNyeXB0ZWRBZElkPUEwNTYzODUxRUdPNzg2NUoxSU0yJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==) by Sarah H. Bradford
-* [Dreams of My Father]()
 * Melody in Songwriting: Tools and Techniques for Writing Hit Songs
 * How To Make It in the New Music Business: Practical Tips on Building a Loyal Following and Making a Living as a Musician
 * Smart on Crime: A Career Prosecutor's Plan to Make Us Safer (2009)
