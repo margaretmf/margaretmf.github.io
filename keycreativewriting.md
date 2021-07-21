@@ -86,7 +86,7 @@ Someone else is looking to this same flower.
 
 <br>
 
-# America Reborn #
+## America Reborn ##
 I once had a vision, or a dream of American reborn.
 I love that women are behind the rebirth of the American dream and that black men can lead the country well.
 Women are behind the rebirth of the American dream through the work in the postal office and the elections.
