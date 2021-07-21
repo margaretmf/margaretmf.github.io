@@ -15,7 +15,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Gratitude List - Creative Writing
-* Grateful for the woman working at McDonald's. Grateful for the human connection. Grateful to pray for the whole world, and the whole country and wait patiently in the car
+* Grateful for the woman working at McDonald's
+* Grateful for the human connection
+* Grateful to pray for the whole world, and the whole country and wait patiently in the car
 * Grateful for the song by the Black Eyed Peas, asking **Where is the Love?**
 * Grateful for the sound of the laundry machine
 * Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
