@@ -3872,6 +3872,10 @@ Telling each other they love each other and all the other birds.
 Two leaves on a tree that change with the seasons
 If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other
 If all the world were a song we'd be two notes swinging and singing as parts of a harmony
+Like two puzzle pieces fitting together, joining together, perfectly fit for each other and showing the world what it's born to become
+
+<br>
+
 ## The Stars that Shine, the Trees that Glisten, the Sky that is Blue, and the Birds that Sing #
 My heart beating for you is one with the stars that shine, the trees that glisten, the sky that is blue, and the birds that sing.
 
@@ -3976,6 +3980,17 @@ Ode to an insect looking through the window, flying through the air, nibbling at
 Ode to a spider web next to sticky sprinkles of green grass on the windoe
 
 Insects, caterpillar crawling on the ground, a new friend
+
+The ant knows what he's doing
+He's enjoying a good lunch
+He's curious about the leaves
+The dirt is his home
+
+Creepy crawlers, critters, crickets
+They know what they're doing
+We have a friend in them
+
+The ants are busy with what they know they need to do to live
 
 <br>
 
@@ -6158,10 +6173,25 @@ I want to grow with you
 
 I'll be with you through good times and bad
 
+you are a gem inside
+like a ruby or a diamond
+you are a heart that's true
+I hold you dear to my heart forever you live in here
+I open the window to see you smile like a morning star, morning story
+I hand out flowers for you
+morning star, night star
+
+this love goes back to before you were born
+in my heart of hearts you're the one that i love
+you got my solemn word and you swear it till we die
+through all time and space this love between our true hearts speak
+
+make the best of life
+
 <br>
 
 ## Stepping on Stones ##
-Step on stones to old adge
+Step on stones to old age
 Milestones
 Measure a lifetime through
 Seize the true world and what it has to offer
