@@ -3626,119 +3626,6 @@ Hashtags, instagrams, tweets, dashboards, github repos, poems, and paragraphs re
 
 <br>
 
-## America, The Country ##
-America is a story of belief.
-America is a story of overcoming.
-America is a story of team spirit.
-America is a story of family.
-America is a story of repentance and reformation.
-America is a story of change.
-America is a story of freedom.
-America is a story of freedom of expression.
-America is a story of Truth.
-America is a story of learning.
-America is a story of spiritual transformation.
-America is a story of perspiration.
-America is a story of courage.
-America is a story of community and communal work.
-America is a story of liberty and liberation.
-Ammerica is a story of redemption.
-America is a story of singing.
-America is a story of music.
-America is a story of sacrifice.
-America is a story of culture.
-America is a story of the fight for independence.
-America is a story of home.
-America is a story of breath and breathing.
-America is a story of religion and a higher spirituality.
-America is a story of progress.
-America is a story of thanksgiving.
-America is a story of exploring.
-America is a story of discovery.
-America is a story of light in the darkness.
-America is a story of pilgrimage.
-America is a story of hard work, perspiration, new ideas, and inspiration.
-America is a story of protest.
-America is a story of marching onward, upward and forward.
-America is a story of neighborhood.
-America is a story of country.
-America is a story of struggles.
-America is a story of education.
-America is a story of adventure.
-America is a story of danger.
-America is a story of wholeness.
-"America is a story of individual and indivisible."
-America is a story of ancestors.
-America is a story of the Spirit.
-America is a story of nature.
-
-America is a country of beliefs.
-America is a country of music.
-America is a country of government.
-America is a country of churches.
-America is a country of schools.
-America is a country of internationalities.
-America is a system of expression, the reverse of oppression.
-America is a country of healthy conversations.
-America is a country of people who love nature.
-America is a country of neighborhoods.
-America is a country of trailblazers.
-America is a country of freedom fighters.
-America is a country of stories.
-America is a country of the new birth that was always here.
-America is a country of landmarks.
-
-America is a land of many.
-
-Some believe history is objective. Some believe history is subjective.
-There exist different viewpoints on the same thing.
-
-Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
-
-History is an expression of experiences, individual and collective.
-
-The study of history is the study of what has always and already been there, the stories unmasked.
-The study of history is the art of telling stories, and the art of communication.
-
-Believe in silver linings
-Believe in family
-Believe in beauty
-Believe in grace
-Believe in laughter
-Believe in color
-Believe in rainbows
-Believe in relating
-Believe in sincerity
-Believe in the power of kindness
-Believe in music
-Believe in peace
-Believe in the voice
-Believe in opportunity
-Believe that anything can be achieved
-Believe in a liberal, broad education
-Believe in a team
-Believe in the power of people
-Believe in the South
-Believe in unity
-Believe in a better tomorrow
-Believe in the ability of someone else
-Believe in a new America
-Believe in the entrepreneurship
-Believe in youth
-Believe in what is right
-Believe in the power of love
-Believe in sunlight
-Believe that one can do it
-Believe in never quitting.
-
-Freedom fighters, trail blazers, horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny
-
-Everyone looks to the same Sun, moon, stars
-
-A melting pot is the manifest destiny
-
-<br>
-
 ## Democracy ##
 Democracy is a story of trust.
 Democracy is a story of discussing to understand.
@@ -3754,8 +3641,6 @@ It goes deep.
 The seed is buried deep within the ground.
 The roots spread out.
 It covers the whole ground.
-
-Dirt on the sidewalk
 
 <br>
 
