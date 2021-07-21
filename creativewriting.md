@@ -3845,11 +3845,14 @@ He synchs me up with just who I need to be with
 Mr. Time, heaven, coming down to earth
 Stopping a delay
 
+He knows just where you are.
+He steps over stones to get you to where you need to be.
+
 **Literary Allusion to Shakespeare**
 
 
 The waltz of the unvierse
-the emeting and greeting of
+the meeting and greeting of
 
 <br>
 
@@ -3865,6 +3868,10 @@ Telling each other they love each other and all the other birds.
 
 <br>
 
+## Pairs ##
+Two leaves on a tree that change with the seasons
+If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other
+If all the world were a song we'd be two notes swinging and singing as parts of a harmony
 ## The Stars that Shine, the Trees that Glisten, the Sky that is Blue, and the Birds that Sing #
 My heart beating for you is one with the stars that shine, the trees that glisten, the sky that is blue, and the birds that sing.
 
@@ -6159,6 +6166,11 @@ Milestones
 Measure a lifetime through
 Seize the true world and what it has to offer
 
+I want to run through life with you
+I want to step on stones
+I want every step along the way to lead us closer to our destiny
+I want to reach God's glory of heaven with you
+
 <br>
 
 ## I Want to Live Life With You ##
@@ -6573,6 +6585,9 @@ The sun is shining on the Earth from a new angle, shedding new perspectives on t
 <br>
 
 ## It's a New Day ##
+It's a new day for the sun to come out
+It's a new day for movement everywhere
+
 Oh, it's a new day to wake up to the sun and let the life within make my heart beat with love.
 The beating heart within gives me reasons to smile.
 The pulsing heart within makes want to love.
@@ -7162,13 +7177,42 @@ His eyes are so deep they see to the heart.
 
 ## Wisdom Tree ##
 Idea of a wisdom tree
+All the stories of people on the wisdom tree
+Stories they've learned 
+The stories of old people
+I want to be on the wisdom tree with you like two leaves that transform over and over
+Year after year
+Season after season
+All the colors
+ 
+All the notes left by people on the wisdom tree
+Words of wisdom from people around the world around the school
 
+Everything in your life my life waiting to die is like the dead leaves falling off the tree
+The foliage is the change
+There is love everywhere
+It's fall
+Leaves everywhere
+It's like dancing in the rain but better
+There's a nw school year ahead
+Orange leaves amidst the green ones
+ 
 <br>
 
 ## Climbing Trees, Up to the Top ##
 
 <br>
 
+## His Eyes ##
+His eyes can see through the whole wide world and see so much to love.
+His arms stretch out to those who need it.
+He's got the big picture in his heart.
+
+He knows just where you are.
+He steps over stones to get you to where you need to be.
+
+ <br>
+ 
 ## Ancestors ##
 The spirit of ancestors, generations, and family stories are valuable to everyone, not just one individual's family.
 
@@ -8470,6 +8514,23 @@ A rainbow in the sky
 
 <br>
 
+## White Flowers, Dandelions, Sprinkling out Through the Field, The Earth's Birthday ##
+The flowers you blow and wish with on another birthday
+Another year older
+Another year lighter
+Another year lovelier 
+Another year connected
+Another year more youthful
+Another year singing
+Another year dancing
+Another year connected to the earth
+Another year holier
+Another year more graceful
+Another year more filled with love
+It was a wild year
+ 
+<br>
+ 
 ## Coins ##
 Today I found a handful of coins.
 A handful of coins I found in the side of the car.
@@ -8625,7 +8686,7 @@ Bubbles in the sink.
 <br>
 
 ## The Sea ##
-A million miles of open sea
+A million miles of open sea.
 It goes on and on.
 Boats out.
 Seagulls flying.
@@ -8635,7 +8696,7 @@ People are on the other side.
 Blue land on the other side.
 It gets dark and there's light shining in the darkness.
 
-The pier
+The pier.
 
 <br>
 
@@ -8935,6 +8996,34 @@ Truth is...I used to dream of writing a book, and write a song, or incorporate h
 
 I am Racist, I am Entitled, I Can't Write, I am Unethical, I can't Sing, I am Reactive, I am Dull, I have Messed Up, I owe people something, or People will speak for me "She is ...."
 
+Daring to suck
+Willing to share the truth and nothing but the truth
+ 
+Playing the fool and playing it well
+Falling for someone who doesn't care
+ 
+Confessing my heart and sharing my heart
+Receiving nothing in return
+ 
+Daring to suck and rising high after a fall
+I am becoming who I am born to be
+ 
+Daring to suck
+I am not afraid of failing
+I am willing to fail big
+ 
+Falling hard for the trick but letting it be
+Letting it be is all I can do
+ 
+Going along with the tease and feeling the yank
+My cup of love spills over and it spills out well
+ 
+Daring to suck
+It's ok to fail
+I have failed big and I dare to succeed
+ 
+ <br>
+ 
 ## These Feelings, The World ##
 What do I do with these feelings?
 These feelings, the rage, the spitefulness, the pain, the hurt, the betrayal, the desparity, the want, the lack, the displacement.
