@@ -3621,6 +3621,13 @@ With EVERFI, to commit to the team, I remember appreciating the opportunity to w
 
 <br>
 
+## Miseducated ##
+Miseducated. Lifelong learning.
+You are what you know.
+You are what you don't know.
+
+<br>
+
 ## A Spanish Lense ##
 It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lens of the Spanish language, and the Spanish culture while listening to Spanish music.
 
@@ -3831,41 +3838,6 @@ Struggling - fighting the good fight, persisting in the face of adversity, commi
 Suffering - pain in silence with no ability while feeling like one can't speak up, one can't be heard, one can't be understood, always on the outside looking in, and like someone is being a mouthpiece for one's thoughts, feeling guilt and shame and guilt and shame, and endless ties to people who do not care.
 
 Pain - empathizing with the needs with someone else, feeling the inflicted harm of someone, feeling the negative energy from another's heart, feeling the lack within, the lack of ability, the blockage.
-
-<br>
-
-## The People Behind the Work ##
-There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the telemarketing, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the nursing, and they have thoughts and a story, and a culture.
-There's someone, there are people in front of the chalkboard or the dry erase board, and they have thoughts and a story, and a culture.
-There's someone, there are people on the other side of the computer screen, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture.
-There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
-There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
-There's someone, there are people behind the books in the bookstore.
-There's someone, there are people behind the airplanes flying.
-There's someone, there are people behind the music.
-There's someone, there are people behind the trash cans.
-There's someone, there are people behind the post office.
-There's someone, there are people behind the work in churches.
-There's someone, there are people behind the artwork.
-There's someone, there are people behind the psych ward.
-There's someone, there are people behind the bank accounts.
-There's someone, there are people behind the homes.
-There's someone, there are people behind the data.
-There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
-There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people walking on Earth are behind the word "Queen" on the advertisement.
-There's someone there, there are people there behind the construction of the building.
-There's someone there, there are people there behind the washed clothes.
-There's someone there, there are people there behind the cleaned towels.
-There's someone behind, there are people behind the painting.
-There's someone behind, there are people behind the laundry.
-There's someone behind, there are people behind the songs.
-There's someone behind, there are people behind the food.
-There's someone behind, there are people behind the clothes.
 
 <br>
 
