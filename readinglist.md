@@ -56,6 +56,9 @@ layout: default
 #### Reading
 * [How to Do Nothing: Resisting the Attention Economy]() by Jenny Odell
 * [Appalachian Reckoning: A Region Responds to *Hillbilly Elegy*]() by Anthony Harkins and Meredith McCarroll
+* [Saved by a Song: The Art and Healing Power of Songwriting]() by Mary Gauthier
+* [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
+* [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature]() by Peter Wohlleben
 
 
 #### Interested
