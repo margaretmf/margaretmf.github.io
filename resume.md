@@ -15,6 +15,7 @@ I am a versatile creative and content writer, sketcher, interviewer, programmer,
 ### UNIVERSITY OF VIRGINIA
 BA in [History](http://as.virginia.edu) | August 2010 - May 2014
 * Advisors: Sophia Rosenfeld, Raf Alvarado
+* Navigated a university founded in 1819 with 17,011 students enrolled and connected the dots between liberal arts and science classes
 * Major Papers: History of Children's Play in the Victorian Era, History of Musicology during the Scientific Revolution
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
@@ -26,6 +27,8 @@ BA in [History](http://as.virginia.edu) | August 2010 - May 2014
 MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Capstone Advisor: Laura Barnes  
 * GPA: 3.91
+* Trailblazed through the first year of the Data Science Institute and brought a liberal arts lens to engineering
+* Relevant Classwork: Systems Engineering 101
 * Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
 * Studied and worked in Ireland
 
