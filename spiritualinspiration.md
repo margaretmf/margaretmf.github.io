@@ -76,7 +76,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the city that has been here for years and the days of storms
 * Grateful for a world with love and life moving it always
 * Grateful for the love in hospitals
-* Grateufl for a shoe left in a driveay
+* Grateufl for a shoe left in a driveway
 * Grateful to love all the people people love
 * Grateful for the sun rays lifting up into heaven above feeling peace at home
 * Grateful that everything needed is within
