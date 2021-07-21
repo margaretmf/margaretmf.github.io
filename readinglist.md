@@ -51,6 +51,8 @@ layout: default
 * [Willie Nelson's Letters to America]() by Willie Nelson and Turk Pipkin
 * [The Underground Railroad](https://www.amazon.com/Underground-Railroad-Novel-Colson-Whitehead/dp/0345804325/ref=sr_1_1?dchild=1&keywords=the+Underground+Railroad+by+colson+whitehead&qid=1626727026&sr=8-1) by Colson Whitehead 
 * [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron
+* [How to Do Nothing: Resisting the Attention Economy]() by Jenny Odell
+* [Appalachian Reckoning: A Region Responds to *Hillbilly Elegy*]() by Anthony Harkins and Meredith McCarroll
 
 
 #### Interested
