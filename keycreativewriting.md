@@ -47,11 +47,11 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 <br>
 
 ## E Pluribus Unum ##
-I am a voice in a sea of voices yearning to be say the right thing.
+I am a voice in a sea of voices yearning to say the right thing.
 
 I am a conscience in a sea of consciences desiring to do the right thing.
 
-I am a body in a sea of bodies wanting to be free.
+I am a body in a sea of bodies learning to be free.
 
 I am a heart in a sea of hearts crying out to love more.
 
@@ -65,6 +65,17 @@ I am one in a million. There are a million ways to say and do the same thing.
 
 <br>
 
+## In My Own Words ##
+I am Margaret Furr, it rhymes with concur.
+I am a writer, and I aspire to write a book over a lifetime.
+I am musical, and I love looking at different angles to articulate a balance between the feminine and masculine perspectives in songs.
+I am an engineer, who loves methods to the madness.
+I am a dancer, like my grandmother, who smiled, glistened, and glow.
+I am an educator, who loves STEAM.
+I dare to believe again, dream again, and smile that winning smile after the storm.
+
+<br>
+
 ## Flowers Blossomed on the Earth ##
 Flowers blossomed on the earth.
 
@@ -74,9 +85,7 @@ One person sketched it.
 
 Another took a video of it.
 
-Two people painted it, and another saw the harmony of looking at all seven, saying 'wow, collectively this is God's handiwork art!'"
-
-<br>
+Two people painted it, and another saw the harmony of looking at all seven, saying **wow, collectively this is God's handiwork art!**"
 
 A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
 
@@ -360,6 +369,119 @@ The light in the darkness, it's so strong.
 
 You come waltzing in, feeling like you knew just what I needed.
 You woke me up to a side of me yearning, crying out loud to be free.
+
+<br>
+
+## America, The Country ##
+America is a story of belief.
+America is a story of overcoming.
+America is a story of team spirit.
+America is a story of family.
+America is a story of repentance and reformation.
+America is a story of change.
+America is a story of freedom.
+America is a story of freedom of expression.
+America is a story of Truth.
+America is a story of learning.
+America is a story of spiritual transformation.
+America is a story of perspiration.
+America is a story of courage.
+America is a story of community and communal work.
+America is a story of liberty and liberation.
+Ammerica is a story of redemption.
+America is a story of singing.
+America is a story of music.
+America is a story of sacrifice.
+America is a story of culture.
+America is a story of the fight for independence.
+America is a story of home.
+America is a story of breath and breathing.
+America is a story of religion and a higher spirituality.
+America is a story of progress.
+America is a story of thanksgiving.
+America is a story of exploring.
+America is a story of discovery.
+America is a story of light in the darkness.
+America is a story of pilgrimage.
+America is a story of hard work, perspiration, new ideas, and inspiration.
+America is a story of protest.
+America is a story of marching onward, upward and forward.
+America is a story of neighborhood.
+America is a story of country.
+America is a story of struggles.
+America is a story of education.
+America is a story of adventure.
+America is a story of danger.
+America is a story of wholeness.
+"America is a story of individual and indivisible."
+America is a story of ancestors.
+America is a story of the Spirit.
+America is a story of nature.
+
+America is a country of beliefs.
+America is a country of music.
+America is a country of government.
+America is a country of churches.
+America is a country of schools.
+America is a country of internationalities.
+America is a system of expression, the reverse of oppression.
+America is a country of healthy conversations.
+America is a country of people who love nature.
+America is a country of neighborhoods.
+America is a country of trailblazers.
+America is a country of freedom fighters.
+America is a country of stories.
+America is a country of the new birth that was always here.
+America is a country of landmarks.
+
+America is a land of many.
+
+Some believe history is objective. Some believe history is subjective.
+There exist different viewpoints on the same thing.
+
+Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
+
+History is an expression of experiences, individual and collective.
+
+The study of history is the study of what has always and already been there, the stories unmasked.
+The study of history is the art of telling stories, and the art of communication.
+
+Believe in silver linings
+Believe in family
+Believe in beauty
+Believe in grace
+Believe in laughter
+Believe in color
+Believe in rainbows
+Believe in relating
+Believe in sincerity
+Believe in the power of kindness
+Believe in music
+Believe in peace
+Believe in the voice
+Believe in opportunity
+Believe that anything can be achieved
+Believe in a liberal, broad education
+Believe in a team
+Believe in the power of people
+Believe in the South
+Believe in unity
+Believe in a better tomorrow
+Believe in the ability of someone else
+Believe in a new America
+Believe in the entrepreneurship
+Believe in youth
+Believe in what is right
+Believe in the power of love
+Believe in sunlight
+Believe that one can do it
+Believe in never quitting.
+
+Freedom fighters, trail blazers, horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny
+
+Everyone looks to the same Sun, moon, stars
+
+A melting pot is the manifest destiny
 
 <br>
 
