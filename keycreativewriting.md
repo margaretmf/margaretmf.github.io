@@ -231,6 +231,16 @@ voice, and expresses the needs of the majority. The United States of America is 
 
 <br>
 
+## Daily Conversations ##
+Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles. Learning and reading supports healthier communication and conversation. How a conversation starts expresses democracy, and I am grateful for daily conversations in the neighborhood.
+
+<br>
+
+## Miseducated ##
+Miseducated. Lifelong learning. You are what you know. You are what you don't know.
+
+<br>
+
 ## The People Behind the Work ##
 There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
 
@@ -312,6 +322,14 @@ It is yours to share.
 It is yours to wear.
 
 <br>
+
+## A Spanish Lense ##
+It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lenses of the Spanish language and culture while listening to Spanish music.
+
+<br>
+
+
+
 
 
 
