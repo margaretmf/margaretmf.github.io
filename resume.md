@@ -3,12 +3,14 @@ layout: default
 ---
 
 ## PROFILE 
+At the University of Virginia, a public university founded by the author of the Declaration of Independence, I received a dual degrees in the liberal arts. I am most passionate about communications in the field of technology and the liberal arts perspective in the real world. I believe in the core values of lifelong learning and a renaissance education that the founder of the University of Virginia taught and shared not only with students but also the country.
+
 I am a versatile creative and content writer, sketcher, interviewer, programmer, and data analyst, with an interest in writing, teaching, the business world, STEAM education, liberal arts education, and current events. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
 
 [Resume](https://github.com/margaretmf/margaretmf.github.io/blob/master/MargaretFurr_Resume.pdf)
 
- <br>
- 
+<br>
+
 ## EDUCATION
 ### UNIVERSITY OF VIRGINIA
 BA in [History](http://as.virginia.edu) | August 2010 - May 2014
@@ -17,7 +19,8 @@ BA in [History](http://as.virginia.edu) | August 2010 - May 2014
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
 * Studied and worked in Argentina, Scotland, and the Dominican Republic
- 
+* Completed final undergraduate work with straight As
+
 ## CONTINUING EDUCATION
 ### UNIVERSITY OF VIRGINIA
 MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
@@ -28,6 +31,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 ### INDEPENDENT EDUCATION
 * Human-Centered Design & Systems Practice - Acumen Plus, September - May 2019
+* Ongoing Student of the Liberal Arts, January 2019 - Present
 * Religious Studies - Islam, Christianity, Sustained Dialogue Facilitation, & 21-Day Race Equity - Religious Freedom Center, Soliya, & Myers Park Presbyterian Church, January 2019
 
 <br>
