@@ -286,8 +286,8 @@ There's someone, there are people behind the data.
 
 There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
 
-There are people behind the word "Queen" on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
-walking on Earth are behind the word "Queen" on the advertisement.
+There are people behind the word **Queen** on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
+walking on Earth are behind the word **Queen** on the advertisement.
 
 There's someone there, there are people there behind the construction of the building.
 
@@ -328,7 +328,40 @@ It brings an interesting feeling, a new perception, a beautiful insight to look 
 
 <br>
 
+## It is Ok ##
+It's ok to cry.
+It's ok to let the heart tear inside.
+It's ok to let the tears flow.
+It's ok to let it break inside.
+It's ok to let the heart ache.
+It's ok to feel.
+Let it out.
+It's ok to express emotions and thoughts.
+Sometimes the anger and other emotions mask the need to cry and to feel.
+It is ok.
 
+It's ok to cry.
+It's ok to feel.
+It should feel good to sing.
+
+It's ok to cry.
+It's ok to let the tears flow.
+It's ok to cry.
+It's like the water droplets after a heavy rain.
+
+<br>
+
+## An Enemy is a Friend ## 
+You thought you had an enemy
+You really found a friend in disguise.
+You thought you were being laughed at.
+You really were being taught a powerful lesson.
+The light in the darkness, it's so strong.
+
+You come waltzing in, feeling like you knew just what I needed.
+You woke me up to a side of me yearning, crying out loud to be free.
+
+<br>
 
 
 
