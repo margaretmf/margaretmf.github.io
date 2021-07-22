@@ -1,5 +1,5 @@
 # Spanish Vocabulary #
-This is a page to share words that speak to me intuitively throughout the day and week. Check out the [English Vocabulary](https://margaretmf.github.io/Vocabulary).
+This is a page to share words that speak to me intuitively throughout the day and week. Check out the [English Vocabulary](https://margaretmf.github.io/Vocabulary). Meanings of words come form [Cambridge Dictionary Spanish translation](https://dictionary.cambridge.org/us/dictionary/spanish-english/).
 
 ## La Paciencia (f) (noun, sustantivo): ##
 * Patience
@@ -110,6 +110,9 @@ This is a page to share words that speak to me intuitively throughout the day an
 
 ## Milagrosa, Milagroso (f, m) (adjective, adjetivo): ##
 * Miraculous
+
+## Divertir (verb, verbo): ##
+* To amuse, to entertain
 
 ## Regular: ##
 
