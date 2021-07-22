@@ -216,8 +216,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 * A closed plane (see PLANE entry 6 sense 2b) curve every point of which is equidistant (see EQUIDISTANT sense 1) from a fixed point within the curve
 
 ## Believe: 
-* Accept (something) as true; feel sure of the truth of
-* Used to emphasize the truth of a statement
+* To accept (something) as true; feel sure of the truth of
+* To used to emphasize the truth of a statement
+* To hold something as an opinion; think or suppose
 
 ## Universe: ##
 * Everything that exists, especially all physical matter, including all the stars, planets, galaxies, etc. in space
