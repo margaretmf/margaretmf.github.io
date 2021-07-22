@@ -6553,6 +6553,12 @@ The sun is shining on the Earth from a new angle, shedding new perspectives on t
 It's a new day for the sun to come out
 It's a new day for movement everywhere
 
+Every days a new day
+We/I/You and me am/are lucky to live another day
+It's a grand day every day to...
+It's a beautiful day every day to...
+We/I/You and me am/are are lucky to be alive another day
+
 Oh, it's a new day to wake up to the sun and let the life within make my heart beat with love.
 The beating heart within gives me reasons to smile.
 The pulsing heart within makes want to love.
@@ -6592,7 +6598,6 @@ There's something new every day.
 There are good people everywhere to light up the path.
 There are new ways to see things and new views to hold.
 There's something ot learn every day with joy.
-
 
 Oh its a beautiful day to rise up with the sun
 And watch the rays shine through and light out the way
@@ -8480,6 +8485,12 @@ A rainbow in the sky
 <br>
 
 ## White Flowers, Dandelions, Sprinkling out Through the Field, The Earth's Birthday ##
+The world spins round and round
+The earth is another year older
+These flowers spread out
+"The white floaties originate from a densely packed seed head that resembles a fuzzy ball. If you look closely, each seed head has dozens of umbrella-like extensions. Located at the seed head's center are the seeds -- each seed has this umbrella structure attached to them."
+ "As you saw in the timelapse, once the flower head has matured, it closes up and the withered flowers contract into a bud-like shape and fall away, leaving just the tufty white parts called pappi, which will help wind disperse the dandelion fruits or cypsela."
+The leaves spin around in a whirl
 The flowers you blow and wish with on another birthday
 Another year older
 Another year lighter
@@ -8557,6 +8568,11 @@ With a plop, the coin fell into the well with a plop and it touched the water, a
 This love ripples on and on and on.
 The wishes ripple on and one and on.
 
+'I want to spend every day with you'
+'I want to spend every day in new ways with you'
+'I want to learn all of life's lessons with you'
+'I want to live to put our notes on the wisdom tree with all of the other notes from old couples'
+ 
 a penny for the ripple effect of something
 a penny for the stars to shine for eternity
 a penny for kindness in school
@@ -9019,42 +9035,7 @@ Before the quarantine, I became a prisoner in my own home.
 I felt like I was quarantined before the quarantine.
 I felt like I was imprisoned before being imprisoned.
 I felt like I was ostracized, yet connected before feeling close to losing it all.
-I am compassionate, but I became something that I am not.
-I became something that does not represent my true self.
-I am genuine and real, but I became fake, a fraud, and spiteful.
-I was afraid, I felt hurt from opening up.
-I hated my sexuality.
-God was there, but I was not paying full attention.
-He was right, goodness was running after me, and angels proved that "goodness was running after me",
-but willfulness, heaviness, and pain took over and used me.
-Knowing what's right, but doing what's wrong will lead to prison.
-Complaining when I could pause, and being grateful will lead to prison.
-Hitting back when I can forgive will lead to prison.
-
-<br>
-
-## A Whole World Outside ##
-Outside of these prison walls, there's a whole universe of stars
-Outside of these walls, there are all these other people outside of you and me
-A whole mankind
-A whole younger generation
-A whole worled filled with love, life, color, movement, grace, beauty, evolution, family
-
-<br>
-
-## The People Come From Everywhere ##
-The people come from everywhere
-They come from all these states
-They come from the country in all these states
-
-<br>
-
-## The Dream ##
-The dream is a way, a concept
-The dream is life
-It's already been manifested
-The dream is an idea
-
+I am compassionate, but I became something that I am not.f
 <br>
 
 ## Bullying ##
@@ -9286,35 +9267,6 @@ Every experience can help people to learn to think in new ways, explain the worl
 
 
 # Creative Writing - Independent Writing #
-## Children's Play and Hallucinations ##
-Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
-Once in my twenties, people felt like I was tripping. Actually, I was tripping. I had been so depressed and stressed and felt so overweight that I starved myself for a whole semester. I was imagining things like a little kid does. None of it was real; it was twisted - the images and sounds were distorted, and they were not the full, big picture that God has.
-
-I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry; it's embarassing and awkward to look back on.
-
-After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room. I even felt like I saw a high school teacher riding his bike outside. Everything felt "stranger than fiction", as they say, but I could still feel God. My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong - but I was not fully sound mentally. It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack. I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
-
-After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter. I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
-
-I wrote emails madly to a professor, sounding like a lunatic or a mad woman. I met with him face-to-face, in person. I remember sharing how I felt like I could understand the primitive nature of the Alphabet purely through intuition.
-
-Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks.. and then I remember going to the church nearby to see people dancing like children.
-
-I then heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
-I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, like Mary Poppins, who taught children to "find the fun in every job that must be done", and Queen Elizabeth, who represents the ability for women too to govern and understand politics, and he called the police on me so I could be taken care of in the hospital.
-
-It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
-
-My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year, but when coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
-
-There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. I had opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
-
-At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
-
-I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too; but translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
-
-<br>
-
 # Music Healing #
 When in a healing, yet blurred relationship with someone, I remember listening to the song "When You Say Nothing At All". The song delved to the heart of it. Even though on the surface, there's a villain and a victim, a mouse and a cat, asking if "the cat's got your tongue?", the glow of the smile - the engimatic smile, the generity of the laugh, and the charm of the care speaks to the heart. 
 
