@@ -1,5 +1,5 @@
 # Vocabulary #
-This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com), [Cambridge Dictionary](http://dictionary.cambridge.org), [Reddit](https://forum.cosmoquest.org/archive/index.php/t-8345.html), and [Cosmoquest](https://cosmoquest.org/x/).
+This is a page to share words that speak to me intuitively throughout the day and week. Check out the [Spanish Vocabulario](https://margaretmf.github.io/vocabulario). Definitions come from [Merriam Webster](https://www.merriam-webster.com), [Dictionary.com](https://www.dictionary.com), [Cambridge Dictionary](http://dictionary.cambridge.org), [Lexico](https://www.lexico.com), [Reddit](https://forum.cosmoquest.org/archive/index.php/t-8345.html), and [Cosmoquest](https://cosmoquest.org/x/).
 
 
 ## Remember: ##
@@ -215,13 +215,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 * Move all the way around (someone or something), especially more than once
 * A closed plane (see PLANE entry 6 sense 2b) curve every point of which is equidistant (see EQUIDISTANT sense 1) from a fixed point within the curve
 
-## Grade: ##
-
-## Arrest: ##
-
-## Recollect: ##
-
-## Spin : ##
+## Believe: 
+* Accept (something) as true; feel sure of the truth of
+* Used to emphasize the truth of a statement
 
 ## Universe: ##
 * Everything that exists, especially all physical matter, including all the stars, planets, galaxies, etc. in space
