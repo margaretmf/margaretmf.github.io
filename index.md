@@ -59,7 +59,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
-**Diaria, trabajo para expresar gratitude por la gente y agradeco los talentos latentos que veo en la gente.**
+**Diaria, trabajo para expresar gratitud por la gente y agradezco los talentos latentos que veo en la gente.**
 
 * Daily, I work to explore beliefs and believing.
 **Diaria, trabajo para explorar las creencias y creyendo.**
@@ -104,7 +104,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para...**
 
 * Daily, I work to appreciate my family.
-**Diaria, trabajo para apprecio mi familia.
+**Diaria, trabajo para agredezco mi familia.
 
 * Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
 **Diaria, trabajo para...
