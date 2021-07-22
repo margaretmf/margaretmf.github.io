@@ -104,13 +104,13 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Todos de los días, trabajo para...**
 
 * Daily, I work to appreciate my family.
-**Todos de los días, trabajo para...**
+**Todos de los días, trabajo para apprecio mi familia.
 
 * Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
-**Todos de los días, trabajo para...**
+**Todos de los días, trabajo para...
 
 * Daily, I work to appreciate the names of people I meet.
-**Todos de los días, trabajo para...**
+**Todos de los días, trabajo para agradezco los nombres de la gente que me reúno.
 
 * Daily, I learn not to retaliate when hurt.
 **Todos de los días, trabajo para...**
