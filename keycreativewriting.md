@@ -245,11 +245,6 @@ Daily conversations are democratic. Daily conversations support democracy. Daily
 
 <br>
 
-## Miseducated ##
-Miseducated. Lifelong learning. You are what you know. You are what you don't know.
-
-<br>
-
 ## The People Behind the Work ##
 There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
 
@@ -423,6 +418,7 @@ America is a story of perspiration.
 America is a story of courage.
 America is a story of community and communal work.
 America is a story of liberty and liberation.
+America is a story of government.
 Ammerica is a story of redemption.
 America is a story of singing.
 America is a story of music.
@@ -452,27 +448,23 @@ America is a story of wholeness.
 America is a story of ancestors.
 America is a story of the Spirit.
 America is a story of nature.
-
-America is a country of beliefs.
-America is a country of music.
-America is a country of government.
-America is a country of churches.
-America is a country of schools.
-America is a country of internationalities.
-America is a system of expression, the reverse of oppression.
-America is a country of healthy conversations.
-America is a country of people who love nature.
-America is a country of neighborhoods.
-America is a country of trailblazers.
-America is a country of freedom fighters.
-America is a country of stories.
-America is a country of the new birth that was always here.
-America is a country of landmarks.
-
-America is a land of many.
+America is a story of churches.
+America is a story of schools.
+America is a story of expression, the reverse of oppression.
+America is a story of healthy conversations.
+America is a story of people who love nature.
+America is a story of neighborhoods.
+America is a story of trailblazers.
+America is a story of stories.
+America is a story of the new birth that was always here.
+America is a story of landmarks.
+America is a story of many and oneness.
 
 Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
 
+<br>
+
+## Beliefs in America ##
 Americans believe in silver linings.
 Americans believe in family.
 Americans believe in beauty.
@@ -528,6 +520,19 @@ In the Newseum, "journalism is the first draft of history".
 
 <br>
 
+## Thinking Above Political Lines ##
+Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the *consciousness of good*, not any false beliefs about mankind.
 
+<br>
+
+## It All Started in Virginia ##
+It all started in Virginia, the home of the virgin, native land. Some people chose liberty, traveled across the seas, and landed in Virginia. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail they had set launched the way for some pioneering people.
+
+<br>
+
+## Miseducated ##
+Miseducated. Lifelong learning. You are what you know. You are what you don't know. What you don't know is who you can become.
+
+<br>
 
 
