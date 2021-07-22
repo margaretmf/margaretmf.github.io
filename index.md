@@ -92,7 +92,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para...**
 
 * Daily, I work to love someone who I haven't fully loved better.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to give up personal ambition.
 **Diaria, trabajo para renunciar a la ambición personal.
