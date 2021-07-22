@@ -436,55 +436,62 @@ America is a country of landmarks.
 
 America is a land of many.
 
-Some believe history is objective. Some believe history is subjective.
-There exist different viewpoints on the same thing.
-
 Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
+
+Believe in silver linings.
+Believe in family.
+Believe in beauty.
+Believe in grace.
+Believe in laughter.
+Believe in color.
+Believe in rainbows.
+Believe in relating.
+Believe in sincerity.
+Believe in the power of kindness.
+Believe in music.
+Believe in peace.
+Believe in the voice.
+Believe in opportunity.
+Believe that anything can be achieved.
+Believe in a liberal, broad education.
+Believe in a team.
+Believe in the power of people.
+Believe in the South.
+Believe in unity.
+Believe in a better tomorrow.
+Believe in the ability of someone else.
+Believe in a new America.
+Believe in the entrepreneurship.
+Believe in youth.
+Believe in what is right.
+Believe in the power of love.
+Believe in sunlight.
+Believe that one can do it.
+Believe in never quitting.
+Belief in freedom fighters.
+Belief in trail blazers.
+Belief in horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny.
+Belief in everyone who looks to the same Sun, moon, stars from different perspectives.
+Belief in a melting pot is the manifest destiny.
+
+<br>
+
+## The Purpose of Studying History ##
+The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
+
+No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day.
 
 History is an expression of experiences, individual and collective.
 
 The study of history is the study of what has always and already been there, the stories unmasked.
+
 The study of history is the art of telling stories, and the art of communication.
 
-Believe in silver linings
-Believe in family
-Believe in beauty
-Believe in grace
-Believe in laughter
-Believe in color
-Believe in rainbows
-Believe in relating
-Believe in sincerity
-Believe in the power of kindness
-Believe in music
-Believe in peace
-Believe in the voice
-Believe in opportunity
-Believe that anything can be achieved
-Believe in a liberal, broad education
-Believe in a team
-Believe in the power of people
-Believe in the South
-Believe in unity
-Believe in a better tomorrow
-Believe in the ability of someone else
-Believe in a new America
-Believe in the entrepreneurship
-Believe in youth
-Believe in what is right
-Believe in the power of love
-Believe in sunlight
-Believe that one can do it
-Believe in never quitting.
+Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing.
 
-Freedom fighters, trail blazers, horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny
-
-Everyone looks to the same Sun, moon, stars
-
-A melting pot is the manifest destiny
+In the Newseum, "journalism is the first draft of history".
 
 <br>
-
 
 
 
