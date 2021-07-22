@@ -59,67 +59,67 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
-**Todos de los días, trabajo para expresar gratitude por la gente y agradeco los talentos latentos que veo en la gente.**
+**Diaria, trabajo para expresar gratitude por la gente y agradeco los talentos latentos que veo en la gente.**
 
 * Daily, I work to explore beliefs and believing.
-**Todos de los días, trabajo para explorar las creencias y creyendo.**
+**Diaria, trabajo para explorar las creencias y creyendo.**
 
 * Daily, I work to listen to the feedback I receive from people.
-**Todos de los días, trabajo para escuchar a realimentación que recibo de le gente.**
+**Diaria, trabajo para escuchar a realimentación que recibo de le gente.**
 
 * Daily, I work to know how I can better work with people.
-**Todos de los días, trabajo para conocer como puedo mejorar trabajar con la gente.**
+**Diaria, trabajo para conocer como puedo mejorar trabajar con la gente.**
 
 * Daily, I work to know how I can set healthy boundaries with people.
-**Todos de los días, trabajo para conocer como establecer límites con la gente.
+**Diaria, trabajo para conocer como establecer límites con la gente.
 
 * Daily, I work to forgive people who have hurt me.
-**Todos de los días, trabajo para perdonar la gene que me has lastimado.
+**Diaria, trabajo para perdonar la gene que me has lastimado.
 
 * Daily, I work to move outside of my comfort zone in some way.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to commit to people who I already know.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to appreciate and expand upon the work already done in the past.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to give credit to people where credit is already due.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to let go of the past.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to love someone who I haven't fully loved better.
 **Todos de los días, trabajo para...**
 
 * Daily, I work to give up personal ambition.
-**Todos de los días, trabajo para renunciar a la ambición personal.
+**Diaria, trabajo para renunciar a la ambición personal.
 
 * Daily, I work to listen to the needs of others.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I work to appreciate my family.
-**Todos de los días, trabajo para apprecio mi familia.
+**Diaria, trabajo para apprecio mi familia.
 
 * Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
-**Todos de los días, trabajo para...
+**Diaria, trabajo para...
 
 * Daily, I work to appreciate the names of people I meet.
-**Todos de los días, trabajo para agradezco los nombres de la gente que me reúno.
+**Diaria, trabajo para agradezco los nombres de la gente que me reúno.
 
 * Daily, I learn not to retaliate when hurt.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 * Daily, I am grateful for democracy and democratization.
-**Todos de los días, trabajo para...**
+**Diaria, trabajo para...**
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
