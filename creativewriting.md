@@ -3386,39 +3386,6 @@ How is folk music created in America in comparison to other countries?
 
 <br>
 
-## Top Songs ##
-* "Be Thou My Vision"
-* "Lo, How a Rose Ere Blooming"
-* Southern Gospel Norton Hall Band
-* "My Life Goes On In Endless Song Above Earth's Lamentations"
-* "'Tis a Gift to Be Simple'" --- **interested in writing and composing a rendition of this**
-
-* "One Voice" by The Wailin' Jennys + The Devil's Paintbrush Road by The Wailin' Jennys
-* Music by Ruth Moody
-* Music by The Riverside Group
-* "When You Say Nothing at All" --- **interested in this**
-
-* "I'm So Tired of Being Alone" --- **interested in this**
-* "What a Wonderful World" --- **interested in writing and composing a song called 'A New Day' inspired by this**
-
-* "Love Story" --- **interested in writing and composing a song on the Symmetry in relationships and lessons learned inspired by T. Swift**
-* "He" - Tammy Wynette, interested in these lyrics
-
-* "Jailhouse Rock" --- **interested in female version of this song**
-* "Folsom Prison Blues" --- **interested in female version of this song**
-* "The Highwaymen" --- **interested in writing and composing a song called 'A Highwaygirl' inspired by this tune, but different narrative**
-* [Scottish Traditional Music](https://www.youtube.com/watch?v=XPcnZLeextk&t=234s) 
-* "Man in Black" --**interested in this song**
-
-* "Boy with a Coin" --- **interested in writing and composing a song on coins inspired by this** **interested in writing and composing a song on the blue and the brown, the roots of the ground, the water flowing through the earth inspired by this**
-
-
-* "Playing for Change"
-* "One Tribe"
-* "I Believe"
-
-<br>
-
 ----------
 
 # Creative Writing - Independent Writing #
@@ -3454,17 +3421,6 @@ Dot connecting
 The past, the present, and future exiting all right now
 The golden thread tying a knot through the universe 
 The principle in everything
-
-<br>
-
-## The Purpose of Studying History ##
-The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
-
-No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day.
-
-The study of history is the study of what has always and already been there, the stories unmasked.
-The study of history is the art of telling stories, and the art of communication.
-In the Newseum, "journalism is the first draft of history".
 
 <br>
 
