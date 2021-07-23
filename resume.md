@@ -43,7 +43,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 ### VIBRANT WORLD
 Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Present
-* Engaged with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights ont rends, and create art to reveal trends in the news
+* Engaged with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights on trends, and create art to reveal trends in the news
 * Analyzed and wrote about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
 * Managed over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
 * Researched trends and organized design and systems research meetup groups to understand patterns, problems, and solutions
@@ -52,7 +52,7 @@ Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Pr
 
 * Participated in 100 Days of Peace
 * Participated in 21-day Race Equity Challenge
-* Participated in 50-day Trash Pickup Challenge
+* Participated in 100-day Trash Pickup Challenge
 
 * Taught myself to sketch in a notebook and see beauty in the world
 * Recorded scraps from books in field notebooks for art ideas
