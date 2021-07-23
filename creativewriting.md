@@ -87,7 +87,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (53 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (54 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
@@ -3786,7 +3786,7 @@ He saves me from being late
 He synchs me up with just who I need to be with
 Mr. Time, heaven, coming down to earth
 Stopping a delay
-
+He plans my days for them to go my way.
 He knows just where you are.
 He steps over stones to get you to where you need to be.
 
@@ -4583,6 +4583,9 @@ with lights shining on the back of them all.
 The car with the right red blinker on 
 talking to the car behind it 
 with no blinker on going straight
+
+Two cars in line in the left lane with left blinkers on waiting to turn
+A car in line in the middle lane with a motor on
 
 <br>
 
@@ -6125,6 +6128,26 @@ make the best of life
 
 <br>
 
+## Someone Out There ##
+There is someone out there for everyone
+What a beauty is in the match made in heaven
+The dream pair
+Destined for each other
+
+<br>
+
+## Rain ##
+Dancing in the rain
+Water droplets fallling
+Hitting the cement
+Morning glories falling also
+Hitting my head
+Without this rainfall we wouldn't have this 
+luscious green earth
+nurturing the land
+
+<br>
+
 ## Stepping on Stones ##
 Step on stones to old age
 Milestones
@@ -6550,6 +6573,13 @@ The sun is shining on the Earth from a new angle, shedding new perspectives on t
 <br>
 
 ## It's a New Day ##
+It's a new day to wake up and sing with the birds
+The sun is rising form the east to the west
+And oh how I want to live for another day 
+
+It's a beautiful day ahead for you and for me
+Seize all that life has to offer
+
 It's a new day for the sun to come out
 It's a new day for movement everywhere
 
@@ -6724,7 +6754,7 @@ It continues forever.
 ## Days of the Week ##
 Monday mornings, it's a fresh start
 It's a fresh start, it's time to begin again
-It's time to arise, it's time to go tow ork
+It's time to arise, it's time to go to work
 
 It's a Saturday, it's a day for laying around, reading a book, laying on the couch, taking a nap
 It's a day for looking out the window and seeing a spiderweb
@@ -6751,7 +6781,7 @@ Sometimes two people mean the same thing while saying different things
 <br>
 
 ## A Face in My Dreams ##
-I remember this face on the other side of the world speaking to me in my sleep, smiling to me in a dram, waking me up to life.
+I remember this face on the other side of the world speaking to me in my sleep, smiling to me in a dream, and waking me up to life.
 It came to me in a vision, a vision swirling in my head.
 It was so vivid, it was so real.
 I could see the bright eyes, the mysterious gaze to the other side of the universe, and the whole face.
@@ -6997,15 +7027,6 @@ Bringing you down
 Holding you back
 Sabotaging
 
-<Br>
- 
-## Clothes Outdoors ##
-A hat on a fence.
-A shirt on the ground.
-A sweatshirt on the tree with a leaf on it.
-A mask on the ground.
-A shoelace on the sidwalk.
-
 <br>
 
 ## Highway ##
@@ -7223,11 +7244,6 @@ Knotted yarn balls
 Scratched lines on mirrors
 Crinkled up peices of notebook paper
 Alcohol bottles hanging on ceilings
-
-<br>
-
-## Shoes on a Wire ##
-Shoes on a wire
 
 <br>
 
