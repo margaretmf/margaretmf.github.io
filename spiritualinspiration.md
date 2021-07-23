@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Steward of the Earth
-**53** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+**54** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
 
 
 <br>
@@ -31,6 +31,97 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people behnd middle school dances and high school
 * Grateful for children's television shows and the way kids are taught through them
 * Grateful for people in the hospital
+* Grateful for everyone I met from Rolling Hills
+* Grateful for the career services at UVA
+* Grateful for all the people at Hopeway
+* Grateful for the love in Boston
+* Grateful for friends from church
+* Grateful for the hymn at church
+* Grateful for people from Norfolk Academy
+* Grateful for the power of prayer
+* Grateful for the unerring direction
+* Grateful for testimonies
+* Grateful for architecture and spiritual reflections
+* Grateful to be proofs
+* Grateful for the Hippocratic oath
+* Grateful for all the love of church members
+* Grateful for their relationship to Mary Baker Eddy and the hymns
+* Grateful for doctors
+* Grateful for Nam and Faf and their trips to Scotland
+* Grateful for the fields in Ireland
+* Grateful for the baseball players
+* Grateful to trust God when playing
+* Grateful for the interracial couple at church
+* Grateful for all the people at the Summit
+* Grateful for all the people in Appalachia and their unique stories and ways of expressing
+* Grateful for all the people from Scotland and Mr. Macky
+* Grateful for all the ways people spread life like a ripple effect today
+* Grateful for the school leads at EVERFI
+* Grateful for all the people in Key West
+* Grateful for the sound of Tabor's eating and the clinking of the plates
+* Grateful for the sound of the insects in the summer
+* Grateful for the same ideas in multiple country songs
+* Grateful for all the peole in Memphis
+* Grateful for the sound of people working on houses
+* Grateful for friends from Washington, DC and PA and Tn
+* Grateful for the birds calling
+* Grateful for the wind and the breeze
+* Grateful for good cheer at the Daniels house
+* Grateful for people who love math
+* Grateful for people form Korea I know
+* Grateful for a hand wave
+* Grateful for friends from Michigan
+* Grateful for people I worked with in Washington, DC who are musical
+* Grateful for teachers from Norfolk Academy
+* Grateful for peers from Norfolk Academy
+* Grateful for Hutner's work on the book box
+* Grateful for the practitioner's family
+* Grateufl for the women behind the election
+* Grateful for the perspective of the other side of the country
+* Grateful for the colors weaving through the country in all we do every day
+* Grateful for strength and balance expressed through womanhood
+* Grateful for the enw life coming to the earth
+* Grateful for family members doing art
+* Grateful for a path opening up
+* Grateful for inner vision
+* Grateful for eternity, all time, space, place
+* Grateful for all the entrepreneurs in education
+* Grateful for people with new jobs
+* Grateful for people awakening
+* Grateful for the benevolent world
+* Grateful for women professors at UVA in computer science
+* Grateful for people from other churches
+* Grateful for musicians
+* Grateful that the rule with everything is to appreciate the full human
+* Grateful for the painting session
+* Grateful for people from Norfolk Academy
+* Grateful for the signs and signals on the street
+* Grateful for people that articles touch
+* Grateful for friends and family
+* Grateful for the good going on in others' lives
+* Grateful for people learning new things
+* Grateful for the infinite good for everyone
+* Grateful for sketching and something creative every day
+* Grateful for both sides of the Cumberland Gap in Tennessee and Kentucky
+* Grateufl for the best parts of everyone alive
+* Grateful for singers and musicians from UVA
+* Grateful for all the people working in hotels and airports
+* Grateful for people transformed through grace
+* Grateful for all the teachers from school
+* Grateful for the works of Shakespeare
+* Grateful for friends
+* Grateful to play piano
+* Grateful for princesses and princes of God
+* Grateful for how I've changed
+* Grateful for Black art
+* Grateful for a healed and healing voice through God
+* Grateful for music playing
+* Grateful for good artwork
+* Grateful for Nam's and Faf's friendships
+* Grateful for all the people where the Engels are going on vacation
+* Grateful for rhythm expressed through the baseball game
+* Grateful for community circle builders
+* Grateful for showers
 * Grateful for the trees
 * Grateful for the people outside while on a walk
 * Grateful for design of homes
