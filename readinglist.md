@@ -50,7 +50,7 @@ layout: default
 * [Roll Me Up and Smoke Me When I Die: Musings from the Road](https://www.amazon.com/Roll-Me-Smoke-When-Die/dp/0062293311/ref=sr_1_6?dchild=1&keywords=Willie+Nelson+books&qid=1626571878&sr=8-6) by Willie Nelson and Kinky Friedman
 * [Willie Nelson's Letters to America]() by Willie Nelson and Turk Pipkin
 * [The Underground Railroad](https://www.amazon.com/Underground-Railroad-Novel-Colson-Whitehead/dp/0345804325/ref=sr_1_1?dchild=1&keywords=the+Underground+Railroad+by+colson+whitehead&qid=1626727026&sr=8-1) by Colson Whitehead 
-* [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron
+* [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron 
 
 
 #### Reading
@@ -166,7 +166,6 @@ layout: default
 * America's First Highways
 * Birth Order by Linda Blair
 * The Earth Is Weeping: The Epic Story of the Indian Wars for the American West by Peter Cozzens
-* The Artist's Way by Julia Cameron
 * Taylor Swift: The Rise of the Nashville Teen by Chloe Govan
 * Taylor Swift by Louisa Jepson
 * Adele: The Biography by Chas Newkey-Burden
