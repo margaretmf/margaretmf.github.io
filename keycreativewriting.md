@@ -564,4 +564,14 @@ Miseducated. Lifelong learning. You are what you know. You are what you don't kn
 
 <br>
 
+## Clothes Laying Around ##
+A hat on a fence.
+A shirt on the ground.
+A sweatshirt on the tree with a leaf on it.
+A mask on the ground.
+A shoelace on the sidwalk.
+Shoes on an electric wire.
+
+<br>
+
 
