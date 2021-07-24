@@ -48,6 +48,27 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for their relationship to Mary Baker Eddy and the hymns
 * Grateful for doctors
 * Grateful for Nam and Faf and their trips to Scotland
+* Grateful for all the hotels
+* Grateful for open air aboce the clouds
+* Grateful for the aerial view
+* Grateful to fly high like a bird
+* Grateful for th epeople in the coffee shop
+* Grateful for the harmony of the universe
+* Grateful for the oila nd gas and electric industry
+* Grateful for businesses operating
+* Grateful for the stars dancing
+* Grateful for the little kids
+* Grateful for the people playing
+* Grateful for countires where country music comes from
+* Grateful for Memphis
+* Grateful for all the people who wrote the book
+* Grateful for all the light and joy in the people
+* Grateful fo rthe spiritual approach
+* Grateful for the creative arts-based expressive therapy
+* Grateful for the nurses
+* Grateful for the Starbucks in Boston
+* Grateful for endless possibilities
+* Grateful for the memroies at Camp Tabor
 * Grateful for the fields in Ireland
 * Grateful for the baseball players
 * Grateful to trust God when playing
