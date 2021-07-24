@@ -3842,6 +3842,11 @@ Girl, stop, take a hard look in the mirror and see what all you have and you got
 Count your blessings
 You got it all going too
 
+Jealousy
+The poison to my soul
+The eating of my helath
+She's so perfect, I'm not
+
 <br>
 
 ## Favorite Time of Day ##
@@ -4310,6 +4315,9 @@ Your heart hears mine, mine yours
 Forever the truth echoes out and ripples out from our two hearts meeting
 Fusion
 the whole world knows with two lovers love and meet
+
+Forever with you eternal day and night
+eternal road
 
 <br>
 
@@ -6766,6 +6774,8 @@ It's a day for dancing in the streets
 It's a day for neighborhood parties
 It's a day for the sun to shine down
 It's a day for a hike
+It's the day before the week starts, begins again
+The day for rest, peace, community, family, lunch
 
 <br>
 
@@ -7312,6 +7322,8 @@ Step by step
 Destination by destination
 The path, the trail is marked
 Leaving behind love, lessons, hurt, pain
+
+Back where I began
 
 <br>
 
