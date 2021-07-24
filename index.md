@@ -98,16 +98,16 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para renunciar a la ambición personal.
 
 * Daily, I work to listen to the needs of others.
-**Diaria, trabajo para...**
+**Diaria, trabajo para eschuchar a las necesidades de las demás.
 
 * Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-**Diaria, trabajo para...**
+**Diaria, trabajo para agradezco que la Sciencia Cristiana inspira mi trabajo, todas las religiones, y el trabajo hecho en el mundo medico.
 
 * Daily, I work to appreciate my family.
 **Diaria, trabajo para agredezco mi familia.
 
 * Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
-**Diaria, trabajo para...
+**Diaria, trabajo para aprender una palabra en inglés y una palabra en expañol.
 
 * Daily, I work to appreciate the names of people I meet.
 **Diaria, trabajo para agradezco los nombres de la gente que me reúno.
