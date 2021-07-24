@@ -103,6 +103,27 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the infinite good for everyone
 * Grateful for sketching and something creative every day
 * Grateful for both sides of the Cumberland Gap in Tennessee and Kentucky
+* Grateful for a sweet voice
+* Grateful for experiences in the airport at camp
+* Grateful for the people here
+* Grateful for nursing history
+* Grateful for credibility
+* Grateful for home
+* Grateful for how musicians are inspired
+* Grateful for how artists inspire other artists
+* Grateful for all the people i hvae met
+* Grateful for the historyof the 4th of July, America, and all the people
+* Grateful for the friends here and the qualities of the friendships
+* Grateful for memories in DC
+* Grateufl for God's work
+* Grateufl for people doing new activities
+* Grateful for memories with coins doing laundry
+* Grateful for interior design and architecture
+* Grateful for the doctor here
+* Grateful for someone's story
+* Grateful for news in Scotland
+* Grateful for friends from UVA
+* Grateful for hearts united
 * Grateufl for the best parts of everyone alive
 * Grateful for singers and musicians from UVA
 * Grateful for all the people working in hotels and airports
