@@ -3580,6 +3580,8 @@ With EVERFI, to commit to the team, I remember appreciating the opportunity to w
 ## A Life in Snippets ##
 Hashtags, instagrams, tweets, dashboards, github repos, poems, and paragraphs represent a life in snippets.
 
+Everything online is a mediated, curated, snippeted, filtered view of the world that is a reflection of what is offline.
+
 <br>
 
 ## Democracy ##
@@ -3789,6 +3791,10 @@ Stopping a delay
 He plans my days for them to go my way.
 He knows just where you are.
 He steps over stones to get you to where you need to be.
+The hands of the clock ticking through the universe
+You can't turn back time
+He only moves forward
+He never stops
 
 **Literary Allusion to Shakespeare**
 
@@ -3875,6 +3881,17 @@ Monday morning sounds
 
 ## Water and Electricity ##
 Water flowing, electric currents
+
+<br>
+
+## Seven Seas ##
+
+<br>
+
+## Eternity ##
+Eternity belongs to everyone
+Worlds apart
+Chained train cars
 
 <br>
 
@@ -4319,6 +4336,13 @@ the whole world knows with two lovers love and meet
 Forever with you eternal day and night
 eternal road
 
+Infinite day and night for you and me
+The long road ahead
+The highway system
+Music hihgway
+Interconnections
+Synching up
+
 <br>
 
 ## Kissing Game ##
@@ -4339,6 +4363,8 @@ I learn from you
 You learn from me
 
 A spark of the world that makes you you
+
+It's a world full of people, a word full of love, look all around, see what you see
 
 <br>
 
@@ -5504,6 +5530,8 @@ that you want to know engage with, understand, and believe in prayer for
 there's an entire world you live in
 Imagine what is in the world
 
+Wonderful people, stars wonder
+
 <br>
 
 ## Green Earth ##
@@ -5688,6 +5716,8 @@ The wind moving my hair and blowing my face.
 The wind sweeping across the land with the leaves.
 
 Run with the wind.
+
+The wind swept me up by my feet
 
 <br>
 
