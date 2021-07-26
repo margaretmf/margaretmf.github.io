@@ -3744,6 +3744,23 @@ Weekday meals
 Flowers for your mother to keep in her kitchen
 Food for your father to cook
 
+Bright || summer day
+Red farmer's market
+Colored || vegetables
+Interesting || people
+heart-filled || visitors
+black || baskets
+filled with goods
+people coming from near and far
+clean || insects
+
+key: ...
+
+nouns, verbs, adjectives, metaphor || "as fresh as"
+fresh || morning
+
+garden, nourish, kitchen, fill, healthy, grow, planted
+
 <br>
 
 ## Sunday Vibes ##
@@ -3795,6 +3812,15 @@ The hands of the clock ticking through the universe
 You can't turn back time
 He only moves forward
 He never stops
+He lives outside of everything
+He has his two hands in the earth ticking
+He knows where you are
+He knows how to pause to save
+He creates the dance of the universe
+He holds you tight
+He leads to people meeting by coincidence
+He leads to being on point
+He leads to the right place at the right time
 
 **Literary Allusion to Shakespeare**
 
@@ -4600,6 +4626,8 @@ The tall grass sprouting up
 
 ## The Highway System ##
 Driving down these highways like driving old school wagons.
+
+History of wagons
 
 <br>
 
@@ -5895,6 +5923,10 @@ Striking back.
 Hitting back.
 The trigger within.
 
+Stomp on the devil.
+Bury it in the ground.
+The devil on your shoulder
+
 <br>
 
 ## Lugging The Weight ##
@@ -6304,6 +6336,17 @@ This home where I'm from.
 It's all made new.
 Im made new.
 People are new.
+
+This old sweet home here down in the south
+where everyone knows each other
+and everyone's connected
+the deep south
+the summer sounds
+the family meals
+the back porch
+the cheerful parties
+th laughing
+the screens
 
 <br>
 
@@ -7148,6 +7191,13 @@ The stars.
 
 My dad always shared stories of how the country would not be what it is until the old rebel flag is put down
 
+My hand on my heart
+American flag
+ideas and notes in the book
+250 years
+
+<br>
+
 ## Harmony in the Universe ##
 There's harmony in the universe that reaches to the sky filled with stars and back
 It reaches the church with its bells ringing and back to the heart, the home within
@@ -7203,6 +7253,11 @@ You can find the world there.
 He was one of those guys that knows how to make you smile. He walks a mile in another's shoes. He sees thorugh someone else's eyes. He will hear your needs before they ask. He will know just how to reach someone.
 
 His eyes are so deep they see to the heart.
+
+He lights up the whole town
+He shares a good laugh
+He tells good stories
+He tells good jokes
 
 <br>
 
