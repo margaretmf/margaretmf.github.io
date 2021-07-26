@@ -77,13 +77,13 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para perdonar la gene que me has lastimado.
 
 * Daily, I work to move outside of my comfort zone in some way.
-**Diaria, trabajo para...**
+**Diaria, trabajo para mover fuera de mi zona de confort
 
 * Daily, I work to commit to people who I already know.
 **Diaria, trabajo para...**
 
-* Daily, I work to appreciate and expand upon the work already done in the past.
-**Diaria, trabajo para...**
+* Daily, I work to appreciate and expand upon the work already completed.
+**Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.
 
 * Daily, I work to give credit to people where credit is already due.
 **Diaria, trabajo para...**
