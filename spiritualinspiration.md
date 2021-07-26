@@ -46,6 +46,130 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the Hippocratic oath
 * Grateful for all the love of church members
 * Grateful for their relationship to Mary Baker Eddy and the hymns
+* Grateful for women behind the election
+* Grateful for women now holding executive power
+* Grateful for other women in politics
+* Grateful for memories at the Botanical Gradens
+* Grateful for memories of traveling through Mississippi and learning about Faulkner
+* Grateful for the people in Fishersville
+* Grateful for music playing
+* Grateful for people from middle school
+* Grateful to think thoughts of love
+* Grateful for colors
+* Grateful for the life that keeps going
+* Grateful for the artists
+* Grateful for mandolin players
+* Grateful for musicians
+* Grateful for people in Switzerland and other countries
+* Grateful for people learning new things
+* Grateful for all the singer songwriters
+* Grateful for all the people at Hutchison
+* Grateful for people outside
+* Grateful for people at Hopeway
+* Grateful for the order on the road
+* Grateful for all the people around my family
+* Grateful for the people who started Hopeway
+* Grateful for other friends from school
+* Grateful for order on the road
+* Grateful for how people can love all mankind in one affection
+* Grateful for all the people at Hopeway
+* Grateufl for life expressed through business
+* Grateful for life expressed through balance sheets and what everything in business represents
+* Grateful for people at the hair salon
+* Grateful for ethics online and in the medical world
+* Grateful for people from all the sororities and fraternities
+* Grateful for pretty flowers
+* Grateful for people from other faiths like the Catholic faith
+* Grateful for the relationship between Nashville and Ireland
+* Grateful for true manhood in the world
+* Grateful for other Christians
+* Grateful for people in extended family
+* Grateful for the police force
+* Grateful for Christian singer songwriters
+* Grateful for deeper eyes than to behold evil
+* Grateful to be strong and hold fast
+* Grateufl for all God's son and daughters
+* Grateful for people from other churches
+* Grateful for God in the courts and the divine pattern
+* Grateful for the Holy Spirit in people
+* Grateful for the church architecture
+* Grateful for missionary, mission-driven work
+* Grateful for the saints
+* Grateful for churches and faith
+* Grateful for spiritual qualities of respect, judiciousness, expressiveness, honor, kindness, and love
+* Grateful for the prayer for leaders
+* Grateful for prayers for all religions in the world
+* Grateful for red clay
+* Grateful for abundance mentality so that when one person gets something there is enough for everyone
+* Grateful for friends from camp in the south
+* Grateful for people from Georgia
+* Grateful for people in Pakistan, Argentina, UK
+* Grateful for other people in the Christian Science movement
+* Grateful for all the people in Boston
+* Grateful for youth taking music lessons and their performances
+* Grateful for heaven's plan for everyone
+* Grateful for people from EVERFI
+* Grateful for people in the salon
+* Grateful for the people doing the jouranlism work
+* Grateful for playgrounds
+* Grateful for churches throughout the world
+* Grateful for people who have outcome challenges
+* Grateful for city architecture
+* Grateful for business leaders
+* Grateful for healthy conversations at home
+* Grateufl for the reds and blues and the interior design
+* Grateful for the growth in grace for everyone
+* Grateful for friends from Rolling Hills
+* Grateful for all the people with full agency
+* Grateful for makers of films
+* Grateful for people on social media
+* Grateful for masons
+* Grateufl for values taught at Norfolk Academy
+* Grateful for old friends from Norfolk Academy
+* Grateful for books read
+* Grateful for abstract art
+* Grateful for color schemes
+* Grateful for the professor
+* Grateful for the Engels
+* Grateufl for the people at the beach
+* Grateful for friends from Memphis
+* Grateful for memories of football games
+* Grateful for family members
+* Grateful for people from Big House
+* Grateful for people from all around the world
+* Grateful for art in people's homes
+* Grateful for all the guys in NOLA
+* Grateful for all the people in Georgia
+* Grateful for people from Norfolk Academy
+* Grateful for the people in the hospital
+* Grateful for people in family
+* Grateful for mom and dad
+* Grateful for people from church
+* Grateful for the harmony at graduation events
+* Grateful for the good going on right now
+* Grateful for all the people I saw tonight
+* Grateufl for memories supporting CSOs
+* Grateful for people yelling outside in the summer
+* Grateful for all the people in classes at UVA
+* Grateufl for people in Memphis
+* Grateufl for all the people singing today
+* Grateful for moms and dads trip to the beach
+* Grateful for the intelligence of little kids
+* Grateful for the smiles of little kids
+* Grateful for the people in the mall
+* Grateful for people from hometown
+* Grateful for people from camp
+* Grateful for people I worked with
+* Grateufl for all the people in the entrepreneurship class
+* Grateful for Al Green and the people in Memphis
+* Grateful for the people in the store
+* Grateful for all the people working
+* Grateful for all the missions
+* Grateful to see the full human
+* Grateful for God's unfoldment
+* Grateful for singer songwriters from Big House
+* Grateful for the blue and brown interior design
+* Grateful for youthfulness and little kids
 * Grateful for doctors
 * Grateful for Nam and Faf and their trips to Scotland
 * Grateful for all the hotels
