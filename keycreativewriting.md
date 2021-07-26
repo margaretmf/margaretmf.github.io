@@ -46,6 +46,54 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 <br>
 
+## Love's Debut, Love's Marriage ##
+She's gentle,
+She's humble,
+She's light-hearted, and smiling.
+
+She's musical,
+She's forgiving,
+She's dancing, and modest.
+
+She's inclusive,
+She's articulate,
+She's thoughtful, and wise.
+
+She's all-embracing,
+She's resilient,
+She's grateful, and at home.
+
+She's merciful,
+She's modest,
+She's open-mind, and mindful.
+
+She's a searcher for humanity in the darkest areas of the world.
+She's a lover of Jesus and Mary Baker Eddy.
+She knows that Love has the throne and that Love is Life's true crown and glory.
+
+He's thankful,
+He's gracious,
+He's joyful, and kind.
+
+He's trustworthy,
+He's satisfied,
+He's helpful, and strong.
+
+He's embracive,
+He's courageous,
+He's free, and aware.
+
+He's adventurous,
+He's ordered,
+He's hard-working, and secure.
+
+He's a lover of mankind, and inclusive of all.
+With a passion for Church, He's a searcher for Truth in all areas of the world.
+He knows that Divine Mind has the throne and that reflecting Principle and Joy is the Way.
+God is the source of her peace, and speaks to her with the still, small voice.
+
+<br>
+
 ## E Pluribus Unum ##
 I am a voice in a sea of voices yearning to say the right thing.
 
