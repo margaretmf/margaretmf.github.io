@@ -4350,6 +4350,14 @@ Like 2 ducks paddling
 Like 2 flowers in a garden
 Or 2 rays of sun
 
+Yo plus me. It's an equation that starts and ends in love
+Two hearts better than one
+
+You plus me equal an equation to a bigger and better life
+You plus me
+
+2 love birds with hearts that are true
+
 It's about the two of us
 You and me coming together to become something greater than we are apart
 
@@ -5559,6 +5567,7 @@ there's an entire world you live in
 Imagine what is in the world
 
 Wonderful people, stars wonder
+you are all kinds of wonderufl
 
 <br>
 
@@ -6196,8 +6205,32 @@ through all time and space this love between our true hearts speak
 
 make the best of life
 
+Moment by moment with you
+seize the day with you
+
+day star, night star
+
 <br>
 
+## Kiss on the Heart ##
+A kiss on the heart, a heart to heart kiss
+It ties our hearts in a knot and entwines the two of us into one
+The heart knows all
+Our hearts become one
+I love all that you love, you love all that I love
+
+When our two hearts meet, there's a fusion of love that reaches all the world
+When we hug, everyone can feel it
+
+There's a golden thread that let me to you and you to me
+There's a golden thread tying a knot between our hearts weaving your life together with mine
+Bringing us together
+Connecting us together
+This golden thread has been everywhere
+and you are the man for me
+Leading all the steps towards you I took make you better and all the steps you took towards me make me better
+The golden thread linking all my stepping stones
+Running on stones with you
 ## Someone Out There ##
 There is someone out there for everyone
 What a beauty is in the match made in heaven
@@ -6255,6 +6288,8 @@ I want to feel the love running through your hands and body
 I want to feel your heart light up with what you love
 I want my brain to spark when I hear you speak about interesting things
 From your feet to your head I want to feel us alive and well
+
+He grabbed and held her hand
 
 <br>
 
@@ -7196,6 +7231,15 @@ American flag
 ideas and notes in the book
 250 years
 
+My hand on my heart and think of all the people in the land
+what a beautiful world
+it's been here fore 250 years
+I think of all that this country and these people can become
+There are ideas that have always existed
+
+Home of the free, home of the brave
+The women behind the election
+
 <br>
 
 ## Harmony in the Universe ##
@@ -7283,6 +7327,11 @@ It's like dancing in the rain but better
 There's a nw school year ahead
 Orange leaves amidst the green ones
  
+Everything is being born new.
+Those dead leaves have fallen off and moved on.
+They are giving way for something to grow.
+It's a new season.
+
 <br>
 
 ## Climbing Trees, Up to the Top ##
@@ -8594,6 +8643,12 @@ I threw it in the pool and wished my friends well.
 
 A happy family life
 A rainbow in the sky
+Be at peace with the universef
+
+<br>
+
+## Crushed like Grapes ##
+"Crushed like grapes"
 
 <br>
 
@@ -8720,6 +8775,7 @@ for a song to sing in a mother's heart
 for a laugh to come out of a father's mouth
 for a tale by a grandmother to be remember
 for a joke of a grandfather to be thankful for
+for the peace with the universe
 
 for the ripple effect of something
 for the stars to shine
@@ -8769,6 +8825,14 @@ Your innocence is there.
 He can't destory it.
 He's free to hold the door for you.
 He's free to make you feel great.
+
+<br>
+
+## Treasures in His Heart ##
+He's got treasures in his heart
+He lights up the whole room with a smile
+He's always working to do what's best
+He's quick to share a laugh
 
 <br>
 
@@ -8869,6 +8933,11 @@ A knot on the floor, where has it been?
 
 ## Apple Cider. Cider ##
 Apple Cider. Cider
+
+<br>
+
+## "Hello" ##
+All the ways to say "hello"
 
 <br>
 
