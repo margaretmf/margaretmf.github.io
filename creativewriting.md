@@ -6113,6 +6113,30 @@ seize the day with you
 
 day star, night star
 
+Through night and day
+good times and bad
+I love you true
+from the moment I wake up to the moment I sleep
+I see your light 
+like a morning star by day and a night star by night
+Moment by moment with you by my side
+I learn and love and grow with you
+
+From season to seaon
+I love you through and through
+Winter and spring
+Summer and fall
+Like a red red rose and green grass poppuing up in the harshness of the rocky earth
+I love you with all my heart
+I cross my heart and hope to die
+
+the green popping up through the dirt, the rocks
+it's the test of all time
+the good soil
+it's the test of all time
+like changing seasons
+it's the test of all time
+
 <br>
 
 ## Kiss on the Heart ##
@@ -7142,6 +7166,29 @@ There are ideas that have always existed
 
 Home of the free, home of the brave
 The women behind the election
+
+I put my hand on my heart and love the land that I am in, the home of the free, the home of the brave
+It's a brilliant land
+It's a hopeful land
+It's a faithful land
+It's an abundant land
+It's a beautiful land
+It's a prosperous land
+It's a courageous land
+It's a native land
+It's an inclusive land
+
+I put my had on my heart and love the dear old American flag
+How I love the shining stars and the stripes
+The red white and blue
+
+all 50 states
+the nation's leaders
+thesurrounding blue seas
+the red and white stripes
+the father of light 
+the land of good soil
+the good going on
 
 <br>
 
@@ -8835,6 +8882,7 @@ All the ways to say "hello"
 ## I AM ##
 I am a graduate of UVA. 
 I am a breakthrough thinker.
+I am a creative thinker.
 I am a community member. 
 I am a musician. 
 I am a church member.
@@ -9523,6 +9571,8 @@ This is the place where the east meets the west, and the south meets the north.
 This is the place where we all call home.
 This is the place where we all appreciate the red, white, and blue.
 
+From state to state I find the place to call home
+
 <br>
 
 ## The South ##
@@ -9540,6 +9590,16 @@ I remember feeling uncomfortable with male practitioners and mostly comfortable 
 I remember I used to experience nervous laughter attacks.
 I remember the signing up for class instruction.
 I remember feeling intimidated by masculine imagery.
+
+<br>
+
+## Nashville ##
+Shaken by the wind,
+I discover the reality that is there
+This is the state 
+where the east meets the west
+the north meets the south
+and the south stays the best
 
 <br>
 
@@ -9639,10 +9699,6 @@ I saw why people want to #MakeAmericaGreatAgain, but it has always been great an
 
 <br>
 
-## Rivers ##
-Rivers, forward coarse, rivers in the United States
-
-<br>
 
 ## Georgia ##
 Traditionally, there's racism in Georgia.
