@@ -4255,6 +4255,10 @@ There's a lifetime for the earth to spin us around our central su
 Through old age we shall live and remain strong the two of us
 There's a lifetime of friends
 
+What is a lifetime filled with?
+Love between true hearts
+Adventure
+
 <br>
 
 ## You Plus Me ##
@@ -4492,7 +4496,7 @@ More broadly, I love home on earth with all of humanity.
 
 ## Another Year Lighter ##
 It's another year lighter.
-Everything I once kenw is amde known more clearly and deeply.
+Everything I once knew is made known more clearly and deeply.
 These lessons I've learned.
 These people I've grown closer to.
 
@@ -4918,7 +4922,7 @@ It's a road trip to calm the raging heart
 It's a round trip back home to heal the breaking heart
 
 It tore my heart, my heart is breaking, my heart spinning
-I'm spending nighta fter night praying and dancing in hotels
+I'm spending night after night praying and dancing in hotels
 
 Look at these people
 Cheerful people everywhere
@@ -5777,7 +5781,7 @@ An echo of voices in heaven sounds like heaven
 
 ## Falling to Pieces ##
 Falling to pieces.
-A wrold surrounded by idols, people you are not supposed to know.
+A world surrounded by idols, people you are not supposed to know.
 Kicking and screaming in a world surrounded by people you're not supposed to know.
 They've got it all going.
 I'm going crazy.
@@ -6229,7 +6233,7 @@ It has extended since the beginning of time.
 
 ## To You I Will Always Return ##
 To you I will always return.
-To me you wil always return as the reason to live.
+To me you will always return as the reason to live.
 There's a world to explore.
 There's a home to build.
 
@@ -8296,6 +8300,8 @@ The rays of light radiate out
 The hearts filled with love radiate out from the central heart of hearts
 
 Day in, day out, the earth continues to move
+
+The day meets the night, the night the day
 
 Worldview
 
