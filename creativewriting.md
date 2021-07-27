@@ -3560,6 +3560,7 @@ Democracy is a story of Truth.
 Dirt hole.
 Burying a hole.
 It goes deep.
+Hitting rock bottom.
 The seed is buried deep within the ground.
 The roots spread out.
 It covers the whole ground.
@@ -3620,6 +3621,7 @@ See all the beauty in this world. It's all around.
 
 ## Yesterday, Today, Tomorrow ##
 Yesterday was so far away, but everything that existed yesterday exists today.
+What happened yesterday is closer than to today when remembering.
 What will happen tomorrow? I don't know.
 An expansion of today. New ideas. Prosperity.
 
@@ -3820,7 +3822,7 @@ My heart beating for you is one with the stars that shine, the trees that gliste
 <br>
 
 ## Mirror, Mirror ##
-Mirrior, mirror on the wall
+Mirror, mirror on the wall
 Stop girl, don't be jealous
 You've got it all too
 Take a hard look in the mirror
@@ -4034,7 +4036,7 @@ He knows everyone in this old town
 
 ## He ##
 His voice is beautiful.
-It amkes me happy to hear his voice.
+It makes me happy to hear his voice.
 He's got that smile.
 That rock'n roll style.
 He knows how to light up the whole town with a laugh and some charm.
@@ -4206,7 +4208,7 @@ Many many miles with you down these roads
 Entwined, loved, knotted in union
 Crossing paths, lessons learned
 
-Not the landig, but the passing by, the journey to a greater destiny, destination
+Not the landing, but the passing by, the journey to a greater destiny, destination
 
 Moments measured by love, grace, surprises, awe, joy
 Everlasting moments
@@ -4416,16 +4418,6 @@ I didn't know everything there is to know about African American History, but I 
 I was grateful to defend true womanhood, the "Princesses of Peace" who are able to lead, and appreciate true manhood.
 
 People may come from different perspectives, different sides, different points of view, but unite in the divine interest, expressing their talents in original, heart-felt ways.
-
-<br>
-
-## Exploring The Controversy ##
-A flag is a sign, and a symbol. I can understand how people feel like the Confederate flag represents good things about Southern culture, Southern heritage, and the birth of the American Country. The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve. The Civil War, however, was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression. The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations. Land and economy are part of the South, but land and economy expand to the North and the West.
-
-<br>
-
-## The Virginia Flag ##
-Such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
 
 <br>
 
