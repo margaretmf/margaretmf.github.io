@@ -718,3 +718,14 @@ Rivers, forward coarse, rivers in the United States
 
 <br>
 
+## Leaves ##
+Everything you thought you knew falls off like the dead leaves on trees.
+
+<br>
+
+## Trees ##
+The branches lift up, and reach for the sky.
+The many branches lift up.
+
+<br>
+
