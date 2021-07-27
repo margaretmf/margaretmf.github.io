@@ -3,7 +3,7 @@
 
 <img class="profile-picture" src=".jpg">
 
-<img src = "sketches/sketch1.jpg">
+<img src = "sketches/sketches1">
 
 <img src = "sketches/sketch2.jpg">
 
