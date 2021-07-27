@@ -5403,38 +5403,32 @@ Trains of white trailing
 ## The Lone Bird ##
 The bird flies in solitude across the land.
 It lifts its wings alone so gracefully.
-I'd like to be like that lone bird, unafraid to show dignity on the fence, possessed by quiet strength.
-Freely able to sail through the clouds and onto the wire alone.
-Fully loved when my heart is aching.
-At peace when my words are ignored.
-Loving when I see someone new.
-Relieved that I can fly freely with love and peace in my heart, and still sing my song too.
-No song is too simple. No song is too advanced. All of humanity is singing a song with this lone bird on the fence.
-My heart soars higher, my eyes look deeper, my vision grows further when he lets go.
+I'd like to be like that lone bird, strong when alone, and freely able to sail through the clouds.
+I'd like to be like that lone bird, confident on the eletric wire, fully loved and at peace.
 
 The lone bird flies high through the spring trees.
 The lone bird sits still on the ground.
 The lone bird sails gracefully on the yellow driving sign.
 The lone bird rests on a walking sign.
 The lone bird launches and lands onto a brown tree branch. 
-The lone bird flutters in wind amongst the green leaves.
+The lone bird flutters with the wind amongst the green leaves.
 The lone bird rises high in the sky.
 The lone bird perches on the electric wire.
 The lone bird mounts on the street sign.
 The lone bird glides with the wind.
-The lone bird pecking at the lead.
-The lone bird flapping his wings just above the ground.
-The lone red bird who found her spot on a machine outside.
-The lone blue jay standing on a fence.
-The lone bird exploring her freedom.
-The lone bird finding her support on the power line.
-The lone bird scurrying through the grass.
-The lone grey bird expanding her wings.
+The lone bird pecks at the lead. 
+The lone bird flaps his wings just above the ground.
+The lone red bird finds her spot on a machine outside.
+The lone blue jay stands on a fence.
+The lone bird explores her freedom.
+The lone bird finds her support on the power line.
+The lone bird scurries through the grass.
+The lone grey bird expands her wings.
 The lone bird swoops down to hover the river.
-The lone bird feathering her wings above the water.
-The big lone bird standing on the grass nea rhte farm holding her poise.
-The lone bird skating on ice.
-The shadow of the lone bird in/on the grass.
+The lone bird feathers her wings above the water.
+The big lone bird stands on the grass near the farm holding her poise.
+The lone bird skates on the ice.
+The shadow of the lone bird is beautiful in the grass.
 The bird alone on the city map, she knows her city and she loves the water.
 The brave lone bird knows her place on the wire.
 
@@ -5442,22 +5436,6 @@ Fly high in the sky above the clouds
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing, Curious, Observant
 Hidden, Nested
-
-<br>
-
-## Married to the Earth ##
-Married to the Earth.
-This green and blue and brown earth that supplies all our needs
-with the rivers and the sea
-and the grass and the dirt
-It circles round and round
-With all these wonderful people
-Married to the earth
-A place for adventure and beauty
-There's always more wonders to see
-This union with all the people
-The wonder in everyone's eyes 
-I meet someone new every day
 
 <br>
 
