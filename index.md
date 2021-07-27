@@ -113,13 +113,13 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para agradezco los nombres de la gente que me reúno.
 
 * Daily, I learn not to retaliate when hurt.
-**Diaria, trabajo para...**
+**Diaria, trabajo para no tomar represalias cuando está herida.
 
 * Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
 **Diaria, trabajo para...**
 
 * Daily, I am grateful for democracy and democratization.
-**Diaria, trabajo para...**
+**Diaria, trabajo para democracia y la democratización.
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
