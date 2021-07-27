@@ -5506,19 +5506,10 @@ The future running toward you with a plan like a mountain
 <br>
 
 ## Leaves ##
-Everything you thought you knew falls off like the dead leaves on trees.
-
-
-The leaves, the borwna nd yellow with branches
+The leaves, the brown and yellow with branches
 The green moss on benches
 The water droplets on grass and the table like islands and continents
 A map formed on a table by water droplets
-
-<br>
-
-## Trees ##
-The branches lift up, and reach for the sky.
-The many branches lift up.
 
 <br>
 
