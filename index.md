@@ -71,19 +71,19 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para conocer como puedo mejorar trabajar con la gente.**
 
 * Daily, I work to know how I can set healthy boundaries with people.
-**Diaria, trabajo para conocer como establecer límites con la gente.
+**Diaria, trabajo para conocer como establecer límites con la gente.**
 
 * Daily, I work to forgive people who have hurt me.
-**Diaria, trabajo para perdonar la gene que me has lastimado.
+**Diaria, trabajo para perdonar la gene que me has lastimado.**
 
 * Daily, I work to move outside of my comfort zone in some way.
-**Diaria, trabajo para mover fuera de mi zona de confort
+**Diaria, trabajo para mover fuera de mi zona de confort.**
 
 * Daily, I work to commit to people who I already know.
 **Diaria, trabajo para...**
 
 * Daily, I work to appreciate and expand upon the work already completed.
-**Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.
+**Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.**
 
 * Daily, I work to give credit to people where credit is already due.
 **Diaria, trabajo para...**
@@ -95,10 +95,10 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para...**
 
 * Daily, I work to give up personal ambition.
-**Diaria, trabajo para renunciar a la ambición personal.
+**Diaria, trabajo para renunciar a la ambición personal.**
 
 * Daily, I work to listen to the needs of others.
-**Diaria, trabajo para eschuchar a las necesidades de las demás.
+**Diaria, trabajo para eschuchar a las necesidades de las demás.**
 
 * Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
 **Diaria, trabajo para agradezco que la Sciencia Cristiana inspira mi trabajo, todas las religiones, y el trabajo hecho en el mundo medico.
@@ -107,19 +107,19 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para agredezco mi familia.
 
 * Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
-**Diaria, trabajo para aprender una palabra en inglés y una palabra en expañol.
+**Diaria, trabajo para aprender una palabra en inglés y una palabra en expañol.**
 
 * Daily, I work to appreciate the names of people I meet.
-**Diaria, trabajo para agradezco los nombres de la gente que me reúno.
+**Diaria, trabajo para agradezco los nombres de la gente que me reúno.**
 
 * Daily, I learn not to retaliate when hurt.
-**Diaria, trabajo para no tomar represalias cuando está herida.
+**Diaria, trabajo para no tomar represalias cuando está herida.**
 
 * Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
 **Diaria, trabajo para...**
 
 * Daily, I am grateful for democracy and democratization.
-**Diaria, trabajo para democracia y la democratización.
+**Diaria, trabajo para democracia y la democratización.**
 
 ## Work Environment ##
 In previous work, I have worked with various types of supervisors.
