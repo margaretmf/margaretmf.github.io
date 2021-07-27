@@ -8058,27 +8058,7 @@ The roll of the tide, where the sea meets the land.
 
 <br>
 
-## Truth ##
-The truth can be ugly.
-The truth is hard to hide.
-The truth cannot be lied about.
-The truth can be uncovered.
-The truth is real.
-The truth is just.
-The truth is beautiful.
-The truth is within.
-The truth is there.
-The truth is free.
-The truth is light.
-The truth lifts her wings in a world full of colors.
-The truth lives on.
-The truth is at the center.
-The truth is within every's hearts.
-The truth raises her voice.
-The truth shares her wisdom.
-The truth can be tough to bear.
-The truth is there.
-
+## We All
 We all look to the same Truth.
 We all radiate out from the center.
 Beliefs, opinions are like colors on the spectrum.
