@@ -3,32 +3,4 @@
 
 <img class="profile-picture" src=".jpg">
 
-<img src = "sketches/sketches1">
-
-<img src = "sketches/sketch2.jpg">
-
-<img src = "sketches/sketch3.jpg">
-
-<img src = "sketches/sketch4.jpg">
-
-<img src = "sketches/sketch5.jpg">
-
-<img src = "sketches/sketch6.jpg">
-
-<img src = "sketches/sketch7.jpg">
-
-<img src = "sketches/sketch8.jpg">
-
-<img src = "sketches/sketch9.jpg">
-
-<img src = "sketches/sketch10.jpg">
-
-<img src = "sketches/sketch11.jpg">
-
-<img src = "sketches/sketch12.jpg">
-
-<img src = "sketches/sketch13.jpg">
-
-<img src = "sketches/sketch14.jpg">
-
-<img src = "sketches/sketch15.jpg">
+<img src = "sketches/.jpg">
