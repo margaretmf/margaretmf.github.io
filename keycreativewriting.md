@@ -94,6 +94,26 @@ God is the source of her peace, and speaks to her with the still, small voice.
 
 <br>
 
+## Married to the Earth ##
+Married to the Earth, I am.
+
+This green and blue and brown earth that supplies all our needs,
+with the rivers and the sea
+and the grass and the dirt, is what I love.
+
+It circles round and round
+with all these wonderful people.
+
+Married to the earth, I am.
+
+This place for adventure and beauty
+with wonders to see is what I love.
+
+A union with all the people
+and a love for the wonder in everyone's eyes is what I seek.
+
+<br>
+
 ## E Pluribus Unum ##
 I am a voice in a sea of voices yearning to say the right thing.
 
