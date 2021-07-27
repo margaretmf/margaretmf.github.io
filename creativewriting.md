@@ -3254,41 +3254,6 @@ Hope.
 
 <br>
 
-## The Friend ##
-Sitting in a dark room, she sits alone
-With a heart yearning to express itself.
-
-In another dark room nearby, a piano sits alone
-With ivory yearning to be tickled.
-
-'Why cannot the piano be my friend?' she thinks.
-With stiff legs she introduces herself to Steinway,
-and in return she receives a great gift.
-
-Her body is no longer stiff, no longer limited.
-Her eyes no longer shed tears.
-Her fingers dance across the black and white keys.
-Her ears open up and hear the sound of music.
-Her soul spreads its wings and flies.
-Her heart has found freedom.
-And her mind has found relief.
-
-She is now content
-With the company of a friend.
-
-<br>
-
-## Children's Play ##
-Playing on the keys without words,
-She discovers a joy and a light in the sound that reminds her of little children on a playground.
-The sound alone tells a colorful story of the youthfulness that bounces with joy.
-
-<br>
-
-## Vocabulary Usage ##
-There was once a beautiful, *roan* horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the *purling* river, the horses enjoyed racing each other. The *cohesive* pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given *farina*. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an *incoherent* group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's *renown* for his *inherent* speed, they *denominated* him as their leader. Upon being chosen, Rapido *hesitated*. He did not believe he would serve as a good leader and claimed that it had to be a *misnomer*. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses *adhered* to each other. Their *adhesion* made them stronger. After a very close battle, the roan horses won.
-
-<br>
 
 ## Letter to Oneself ##
 Sweet Margaret,
