@@ -3553,14 +3553,6 @@ Leaves turn Gold
 
 <br>
 
-## Sweet Nothings ##
-Sweet nothings you put in my ear.
-Telling me things I've never heard before.
-
-Where do these words come from?
-You are airing them out I hear.
-
-<br>
 
 ## Childlike Heart ##
 He woke me up to a childlike heart.
@@ -3610,9 +3602,12 @@ Pain - empathizing with the needs with someone else, feeling the inflicted harm 
 Something is sweeping through as the seasons change
 Old leaves die,
 buds come to bloom,
-there's another cycle ahead
-
-Bow, bend, adapt, sway, flow, move, grow
+there's another cycle ahead.
+Bowing and bending with the universe I am.
+Flowing through time.
+Growing with the seasons.
+Adapting to the change.
+Swaying with the earth.
 
 <br>
 
@@ -3743,18 +3738,6 @@ He leads to the right place at the right time
 
 The waltz of the unvierse
 the meeting and greeting of
-
-<br>
-
-## Two Birds ##
-Two birds enjoying the day.
-Pecking at each other.
-Singing songs from the heart.
-
-My heart calling and beating for you is like two birds calling out high in the sky.
-
-Two birds flying around in synch with the rhythm of the universe.
-Telling each other they love each other and all the other birds.
 
 <br>
 
