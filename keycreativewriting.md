@@ -729,3 +729,43 @@ The many branches lift up.
 
 <br>
 
+## Wishing Well - Rough Draft ##
+Today I found a handful of coins.
+I threw them in the wishing well, 
+and I made some wishes.
+
+First, I made a wish for you.
+I wished you well and that you feel the love.
+
+Then I made more wishes.
+
+a penny for kindness in school
+a penny for the South to live on
+a penny for the people looking for change
+a penny for a smile on my parents' face
+a penny for my sister and brother
+a penny for the people's freedom
+a penny for the couple's harmony
+a penny for a love for a neighbor
+
+wishing well-
+for the love that fills the earth
+for the love that moves mountains
+for the love that hugs a friend
+for the that is truly sorry
+for the love that smiles at a stranger
+for the love that forgives at first sight
+for the love that keeps people young
+for the love that heals an illness
+for the love that builds bridges
+for the life that frees
+for the life that shares joy and happiness
+for a song to sing in a mother's heart
+for a laugh to come out of a father's mouth
+for a tale by a grandmother to be remembered
+for a joke of a grandfather to be thankful for
+for the peace with the universe
+
+wishing people well I did with these coins
+
+<br>
