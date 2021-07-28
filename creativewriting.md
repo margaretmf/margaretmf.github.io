@@ -2230,21 +2230,6 @@ and modernity created.
 
 **Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
 
-## Voice ##
-Use your voice,
-cherish the silence,
-speak your truth,
-express your heart,
-articulate your opinion,
-narrate stories - your story and others' stories,
-echo another's,
-find the strength within,
-get things off your chest.
-
-<br>
-
-**Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
-
 ## Water ##
 The deep, clear water that runneth through the earth and separates the country.
 It flows through the earth from the ocean to the land and cycles around, giving life and purity.
