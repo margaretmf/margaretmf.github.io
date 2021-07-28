@@ -7,7 +7,7 @@ At the University of Virginia, a public university founded by the author of the 
 
 I am a versatile creative and content writer, sketcher, interviewer, programmer, and data analyst, with an interest in writing, teaching, the business world, STEAM education, liberal arts education, and current events. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
 
-[Resume](Bain_SeniorResearcher_Resume.pages)
+[Resume](Bain_SeniorResearcher_Resume.pdf)
 
 <br>
 
