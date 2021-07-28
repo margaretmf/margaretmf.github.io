@@ -46,6 +46,21 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 <br>
 
+## Voice ##
+Use your voice,
+cherish the silence,
+speak your truth,
+express your heart,
+articulate your opinion,
+narrate stories - your story and others' stories,
+echo another's,
+find the strength within,
+get things off your chest.
+
+<br>
+
+**Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
+
 ## Love's Debut, Love's Marriage ##
 She's gentle,
 She's humble,
