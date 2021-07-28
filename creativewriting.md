@@ -6128,6 +6128,14 @@ it's the test of all time
 like changing seasons
 it's the test of all time
 
+You're the first and last I run to for the rest of my life
+Both day and night I hold you fast
+You're hte one who I want every day of my life
+we have a liftime ahead of us
+a lifetime of...
+
+I want to marry you
+
 <br>
 
 ## Kiss on the Heart ##
@@ -6437,6 +6445,16 @@ It's a city of strangers, it's a city of angels. The strangers become friends, t
 
 ## New, Higher Views ##
 There are new, higher views every day
+
+<br>
+
+## God, Breath ##
+He breathed through the universe 
+
+<br>
+
+## God's Plan
+God's plan is bigger and higher
 
 <br>
 
