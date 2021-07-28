@@ -8600,13 +8600,23 @@ It was a wild year
  
 ## Coins ##
 Today I found a handful of coins.
-A handful of coins I found in the side of the car.
-
 I threw them in the wishing well.
 I made a wish for you.
 I made a wish that you feel the love.
 I made a wish that I can speak and sing.
+*"In ancient times, coins and the copper ensured infenctious-clear water."
+a penny for the ripple effect of something
+a penny for the stars to shine for eternity
+a penny for kindness in school
+a penny for the South to live on
+a penny for the people looking for change
+a penny for a smile on my parents' face
+a penny for my sister and brother
+a penny for the people's freedom
+a penny for the couple's harmony
+a penny for a love for a neighbor
 
+A handful of coins I found in the side of the car.
 I picked them up and held them in my hand for you and me.
 You and me.
 We can go out and dance and run with them.
@@ -8628,8 +8638,6 @@ The world is open for me to spend my money and bless the world.
 6 dimes.
 2 buckles.
 4 pennies.
-
-*"In ancient times, coins and the copper ensured infenctious-clear water."
 
 I wish well that girl who that guy goes out with and I hurt
 I wish well that guy who tried to get under my skin
@@ -8654,7 +8662,7 @@ Then she threw the penny into the well and wished well the people on the earth.
 'I hope that man is ok with crying.'
 'I hope that dad hugs his child.'
 'I hope that woman finds her dreams met.'
-'It's a beautiful world,' he said, 'thanks for your thoguths, and thanks for your wishes.'
+'It's a beautiful world,' he said, 'thanks for your thougths, and thanks for your wishes.'
 With a plop, the coin fell into the well with a plop and it touched the water, and the water rippled out.
 This love ripples on and on and on.
 The wishes ripple on and one and on.
@@ -8664,17 +8672,6 @@ The wishes ripple on and one and on.
 'I want to learn all of life's lessons with you'
 'I want to live to put our notes on the wisdom tree with all of the other notes from old couples'
  
-a penny for the ripple effect of something
-a penny for the stars to shine for eternity
-a penny for kindness in school
-a penny for the South to live on
-a penny for the people looking for change
-a penny for a smile on my parents' face
-a penny for my sister and brother
-a penny for the people's freedom
-a penny for the couple's harmony
-a penny for a love for a neighbor
-
 There's a penny on the ground
 I toss it up and throw it into the green trees and the bushes
 The leaves turn gold
