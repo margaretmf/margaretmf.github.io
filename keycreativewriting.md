@@ -729,6 +729,58 @@ The many branches lift up.
 
 <br>
 
+## New Day - Rough Draft ##
+Oh it's a new day for the sun to shine
+From the east to the west the sun's rays light up the day
+
+Every day's a new day for me and for you
+I love to feel the warmth of the sun both on you and on me
+
+It's a new day for the birds to chirb
+Flying high through the trees these birds really sing
+
+I love to sing new songs with the birds and see the blue sky up above
+Every day's a new day for me and for you
+
+Oh it's a new day for the people to move
+All around the world people move around
+
+Every days a new day for the green grass to grow
+The grass is so green, the soil so fresh
+
+Every day's a new day to love this green earth
+I love to feel this green grass and run and skip outside
+
+oh how every day's a new day
+I want to live each day like it's the first
+
+It's a new day for the flowers to bloom
+I love to grow like them and smell them too
+Every day's a new day to be born brand new
+
+It's a new day for the trees to talk
+I love to talk to them to and grow my roots
+Every day's a new day for the roots to grow strong
+Every day's a new day
+
+Oh it's a new day for our hearts to beat with love
+I love to feel the hearts all over beating everywhere with love
+
+Every day's a new for me and for you
+I love when smiles shine through all the people everywhere
+
+Oh it's a new day to seize the day
+I love hearing little children play and seeing neighbors wave
+
+Every day's a new day to do something new
+Every day's a new day to see something new
+
+Every day's a new day
+Every day's a new day
+All the days in life are made new
+
+<br>
+
 ## Wishing Well - Rough Draft ##
 Today I found a handful of coins.
 I threw them in the wishing well, 
