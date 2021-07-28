@@ -638,29 +638,6 @@ The water flows through rapids.
 
 **Word Associations:** flow, course, unstoppable, rushing, waterway, wade, bridge, rapids
 
-## Mountains ##
-Through the mountains, the Earth is singing.
-The peaks of green, blue in summer - orange, red, yellow in fall -
-White in winter, pink in spring, touching the horizion.
-It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird.
-The ascent is freeing, and walking down the slope is humbling.
-Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one.
-
-<br>
-
-**Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
-
-## Stranger ##
-Someone new on the street who I have never met.
-A visitor on Earth, who looks familiar, yet so different, like a stranger.
-A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity.
-Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation.
-There's no stranger to God.
-
-<br>
-
-**Word Associations:** friend or foe, sojourner, mysterious, guest, newcomer, migrant, visitor, acquaintance
-
 ## War ##
 A war fights within.
 I feel I want, and desire something, but I know it's not what I really want.
@@ -676,7 +653,7 @@ Say no to the enemy, and say yes to Love.
 ## Cowardice ##
 Not being able to own up to mistakes.
 Too weak to own up to iniquity.
-A fraud, not wanting accept rebukes, admonishment.
+A fraud, not wanting accept to rebukes, admonishment.
 Too wimpy, pathetic to accept the penalty, the repercussion.
 Spineless morally, unable to speak up, or accept what's going on.
 A deserter of what's right, leaving others in harm's way, and unable to accept the criminal recount.
@@ -704,28 +681,6 @@ Thank you for this beautiful craft that all of humanity can cherish and love.
 <br>
 
 **Word Associations:** portrait, brushstrokes, texture, color, craft, landscape, shade, light
-
-## The Night Sky ##
-The night sky sings with holiness and peace.
-The stars shine infinitely.
-The blackness is so dark and the pitch of the night silences everyone to sleep.
-THe glimmer of the stars give hope and point people to inncocence, hope, and home.
-The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
-
-<br>
-
-**Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
-
-## The Moon ##
-The moon is shining in the darkness.
-In the darkness, there is still light.
-It stands in the sphere, the orb of the Earth.
-Good tidings fall, wane, wax, upon it.
-The lunar eclipse shines also. 
-
-<br>
-
-**Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
 
 ## The Sun ##
 The Sun is always there.
