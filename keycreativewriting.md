@@ -51,6 +51,7 @@ Use your voice,
 cherish the silence,
 speak your truth,
 express your heart,
+accent your strengths,
 articulate your opinion,
 narrate stories - your story and others' stories,
 echo another's,
@@ -112,12 +113,13 @@ God is the source of her peace, and speaks to her with the still, small voice.
 ## Married to the Earth ##
 Married to the Earth, I am.
 
-This green and blue and brown earth that supplies all our needs,
-with the rivers and the sea
-and the grass and the dirt, is what I love.
+What I love is this green and blue and brown earth 
+that supplies all our needs,
+with the rivers and the sea,
+and the grass and the dirt.
 
-It circles round and round
-with all these wonderful people.
+It circles, round and round and round the earth goes,
+with all these wondrous people.
 
 Married to the earth, I am.
 
@@ -751,7 +753,7 @@ From the east to the west the sun's rays light up the day
 Every day's a new day for me and for you
 I love to feel the warmth of the sun both on you and on me
 
-It's a new day for the birds to chirb
+It's a new day for the birds to chirp
 Flying high through the trees these birds really sing
 
 I love to sing new songs with the birds and see the blue sky up above
@@ -801,39 +803,34 @@ Today I found a handful of coins.
 I threw them in the wishing well, 
 and I made some wishes.
 
-First, I made a wish for you.
-I wished you well and that you feel the love.
-
-Then I made more wishes.
-
-a penny for...
-wishing well...
-
-for kindness in school
-for the South to live on
-for the people looking for change
-for a smile on my parents' face
-for my sister and brother
-for the people's freedom
-for the couple's harmony
-for a love for a neighbor
-for the love that fills the earth
-for the love that moves mountains
-for the love that hugs a friend
-for the that is truly sorry
-for the love that smiles at a stranger
-for the love that forgives at first sight
-for the love that keeps people young
-for the love that heals an illness
-for the love that builds bridges
-for the life that frees
-for the life that shares joy and happiness
-for a song to sing in a mother's heart
-for a laugh to come out of a father's mouth
-for a tale by a grandmother to be remembered
-for a joke of a grandfather to be thankful for
-for the peace with the universe
+a penny for kindness in school 
+a nickel for the South to live 
+a quarter to wish well the people looking for change
+a penny for a smile on my parents' faces
+a nickel for my sister and brother
+a penny for the people's freedom
+a nickel for the couple's harmony
+a quarter for the love for a neighbor
+a penny for the love that fills the earth
+a nickel for the love that moves mountains
+a quarter for the hugging of two friends
+a penny for the love that smiles at a strangers
+a quarter for the love that forgives at first sight
+a nickel for the love that keeps people young
+a penny for the love that 
+a quarter for the love that heals an illness
+a penny for the love that builds bridges
+a nickel for the life that frees
+a quarter for the life that shares joy and happiness
+a penny for a song to sing in a mother's heart
+a quarter for a laugh to come out of a father's mouth
+a penny for a story of a grandmother to be remembered
+a penny for a joke of a grandfather to be thankful for
+a penny for the peace with the universe
 
 wishing people well I did with these coins
+wanting the best for people I did with these coins
+caring for people I did with these cools
+sending a heart filled with love to these people
 
 <br>
