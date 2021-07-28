@@ -17,6 +17,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 ### Gratitude List - Creative Writing
 * Grateful for someone's big smile
 * Grateful for people in a city in Virginia
+* Grateful for the morning sounds
 * Grateful for the flickering lights across the land
 * Grateful for good books
 * Grateful to learn more about what a friend shared
