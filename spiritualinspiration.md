@@ -76,6 +76,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people where I am 
 * Grateful for nurturing people
 * Grateful for harmony on grounds at UVA
+* Grateful for what people shared
 * Grateful for pure sounds coming out of UVA and the departments
 * Grateful for the hotel with the Bible in it
 * Grateful for people who look to the Bible
