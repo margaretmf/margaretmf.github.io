@@ -107,6 +107,25 @@ The lunar eclipse shines also.
 
 **Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
 
+## History ##
+Across time and space, 
+records stored, 
+mistakes made,
+lessons learned,
+empires built,
+folklore shared,
+records stored,
+maps used,
+globes loved,
+humanity moved,
+life repeated,
+truth expressed,
+and modernity created.
+
+<br>
+
+**Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
+
 ## Love's Debut, Love's Marriage ##
 She's gentle,
 She's humble,
