@@ -59,6 +59,8 @@ layout: default
 * [Saved by a Song: The Art and Healing Power of Songwriting]() by Mary Gauthier
 * [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
 * [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature]() by Peter Wohlleben
+* [Sunnis and Shi'A: A Political History]() by Laurence Louer
+* [Savd by a Song: The Art and Healing Power of Songwriting]()
 
 
 #### Interested
@@ -97,16 +99,28 @@ layout: default
 * All You Need to Know About the Music Business: 10th Edition by Donald S. Passman
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
+* Cherokee Mythology: Gods, Myths, Legends and Spiritual Beliefs of the Cherokee Tribe (Easy History)
+* Inside the Rainbow: of Love, Appreciation, Gratitude, Mindfulness Meditation, Spirituality and the Awakening Self
+* The Book of Signs (Dover Pictorial Archive)
 * Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
 * Cash: The Autobiography by Johnny Cash
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
 * It's a Long Story: My Life by Willie Nelson
+* Power Density: A Key to Understanding Energy Sources and Uses
 * Sweethearts of Montana: Mail Order Bride Western Romance 7 Book Box Set
 * Looking to Get Lost: Adventures in Music and Writing 
+* Signs and Symbols: An Illustrated Guide to Their Origins and Meanings
+* Signs: The Secret Language of the Universe
+* The Book of Circles: Visualizing Spheres of Knowledge: (with over 300 beautiful circular artworks, infographics and illustrations from across history)
 * I Walked the Line: My Life with Johnny by Vivian Cash
 * What Were We Thinking
 * Dare to Speak
+* Growth: From Microorganisms to Megacities
+* Energy Transitions: History, Requirements, Prospects
+* The Power of Creative Destruction: Economic Upheaval and the Wealth of Nations
+* Natural Gas: Fuel for the 21st Century
+* Creating the Twentieth Century: Technical Innovations of 1867-1914 and Their Lasting Impact
 * Memphis Rent Party: The Blues, Rock & Soul in Music's Hometown
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
@@ -285,6 +299,8 @@ layout: default
 * Stories Of Georgia by Joel Chandler Harris
 * The True Flag: Theodore Roosevelt, Mark Twain, and the Birth of American Empire by Stephen Kinzer
 * Our Time Is Now
+* Traffic Sign: Traffic Sign, Icon, Symbol coloring and activity books for kids ages 4-8
+* Mathematical Principles of Signal Processing: Fourier and Wavelet Analysis
 * Begin Again: James Baldwin's America and Its Urgent Lessons for Our Own
 * Into the Wild Paperback by Jon Krakauer  (Author)
 * Captivating by John and Stasi Eldridge
