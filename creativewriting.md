@@ -1080,21 +1080,6 @@ His story from antiquity is continuous, ever-renewing and cyclical.
 
 **Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
 
-## Humanity ##
-The smile on a face, 
-the good will a neighbor has towards another,
-the compassionate extra mile,
-the civility one shows in a conversation,
-the uprightness in handling mistakes,
-the forbearance,
-the fellowship expressed in church and sports.
-This is all humanity.
-Mankind, a group of people, is abundant in making life-decision, and life-giving moves that are humane.
-
-<br>
-
-**Word Associations:** people, mankind, good will, fellowship, civility, uprightness, forbearance, compassion
-
 ## Longing ##
 I crave, long for something out there that seems wrong to have.
 My heart throbs, I feel uncomfortable with this longing, sin, and error pining.
@@ -2166,24 +2151,6 @@ The two work harmoniously as one gives generously, and the other receives a rati
 <br>
 
 **Word Associations:** support, cooperation, ration, teamwork, collaboration, sacrifice, charity, generosity
-
-## History ##
-Across time and space, 
-records stored, 
-lessons learned,
-empires built,
-mistakes made,
-folklore shared,
-maps used,
-globes loved,
-movement of humanity,
-life repeated,
-truth expressed,
-and modernity created.
-
-<br>
-
-**Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
 
 ## Water ##
 The deep, clear water that runneth through the earth and separates the country.
