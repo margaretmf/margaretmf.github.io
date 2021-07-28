@@ -2377,7 +2377,7 @@ The place where one cannot go.
 The people that one cannot talk to.
 The place, the people are too good.
 The one forbidden is too sinful.
-The sin, dangerous, is in dnager zone.
+The sin, dangerous, is in danger zone.
 A ban on the sin keeps it constrained.
 A rule for how to go and how to live.
 It's shaky, that's why a rule through religion keeps the fruit contained and untouchable.
@@ -6042,6 +6042,8 @@ It's the love that makes you that lights me up
 It's the heart that sees me for who I am that brings me to the truth
 I wake up to your heart warming each day over the things you love
 
+Love is the glue that leads your heart to hold tight to mine
+
 From the early morning to the end of the day
 I want you to know that you will be just fine
 I know you're the one to hold me tight and carry me through
@@ -6152,7 +6154,7 @@ Destined for each other
 
 ## Rain ##
 Dancing in the rain
-Water droplets fallling
+Water droplets falling
 Hitting the cement
 Morning glories falling also
 Hitting my head
@@ -6163,8 +6165,9 @@ nurturing the land
 <br>
 
 ## Stepping on Stones ##
-Step on stones to old age
-Milestones
+I want to step on stones with you to old age
+reaching milestones
+measuring a lifetime
 Measure a lifetime through
 Seize the true world and what it has to offer
 
@@ -6186,7 +6189,7 @@ a lifetime of adventures
 <br>
 
 ## A Messenger Bird ##
-A messenger bird came my way to show how TN was the west, TN was my home
+A messenger bird came my way to show how TN was the west, TN is my home
 The land, the eagle, the golden halo 
 
 <br>
@@ -6205,12 +6208,12 @@ He grabbed and held her hand
 <br>
 
 ## Over It ##
-Over it
-It has nothing to do with me or them anymore
-It's done
-I've moved on
-I am different
-They have their place
+Over it.
+It has nothing to do with me or them anymore.
+It's done.
+I've moved on.
+I am different.
+They have their place.
 
 <br>
 
@@ -6940,6 +6943,8 @@ Step by step
 Destination by destination
 The path, the trail is marked
 Leaving behind love, lessons, hurt, pain
+
+Down these side roads, I discover something.
 
 <br>
 
