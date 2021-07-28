@@ -58,6 +58,31 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for colors
 * Grateful for the life that keeps going
 * Grateful for the artists
+* Grateful for the people I met in Norfolk
+* Grateful for friends from Norfolk
+* Grateful for people teaching
+* Grateful for the people working in consulting
+* Grateful for churches worldwide today
+* Grateful for summer sounds
+* Grateful to learn more about the Arab world
+* Grateful for people form India doing their work
+* Grateful for integrity in the workplace
+* Grateful for the people in the olympics and what their proving and demonstrating
+* Grateful for people in Norfolk
+* Grateful for people comfortable with spiritual work
+* Grateufl for the artwork in the medical world
+* Grateful for all the good going on here
+* Grateful for the good in West Virginia
+* Grateful for people where I am 
+* Grateful for nurturing people
+* Grateful for harmony on grounds at UVA
+* Grateful for pure sounds coming out of UVA and the departments
+* Grateful for the hotel with the Bible in it
+* Grateful for people who look to the Bible
+* Grateful for all the other people surrounding the beaches and water
+* Grateufl for all the musicians coming out of Memphis
+* Grateufl for people who looked up to the stars with me
+* Grateful for the stars
 * Grateful for mandolin players
 * Grateful for musicians
 * Grateful for people in Switzerland and other countries
@@ -441,6 +466,16 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for swing sets
 * Grateful for healthy homes
 * Grateful for the cheerfulness of Aunt Mary
+* Grateful for cleaning places
+* Grateful for people laying the bricks
+* Grateful for the history of masonry
+* Grateful for the people who wrote the books
+* Grateful for the people who created the painting
+* Grateful for Christians worldwide in the workplace
+* Grateful for the diversity in the Olympics
+* Grateful for cheerfulness in the community
+* Grateful for healthy perception
+* Grateful for help and support
 * Grateeful for peace this morning
 * Grateful for roommates also going on trips
 * Grateful for the people at Homeless Chidlren's Playtime Project with full agency
