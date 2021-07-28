@@ -62,6 +62,51 @@ get things off your chest.
 
 **Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
 
+## Mountains ##
+Through the mountains, the Earth is singing.
+The peaks of green, blue in summer - orange, red, yellow in fall -
+White in winter, pink in spring, touching the horizion.
+It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird.
+The ascent is freeing, and walking down the slope is humbling.
+Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one.
+
+<br>
+
+**Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
+
+## Stranger ##
+Someone new on the street who I have never met.
+A visitor on Earth, who looks familiar, yet so different, like a stranger.
+A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity.
+Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation.
+There's no stranger to God.
+
+<br>
+
+**Word Associations:** friend or foe, sojourner, mysterious, guest, newcomer, migrant, visitor, acquaintance
+
+## The Night Sky ##
+The night sky sings with holiness and peace.
+The stars shine infinitely.
+The blackness is so dark and the pitch of the night silences everyone to sleep.
+THe glimmer of the stars give hope and point people to inncocence, hope, and home.
+The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
+
+<br>
+
+**Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
+
+## The Moon ##
+The moon is shining in the darkness.
+In the darkness, there is still light.
+It stands in the sphere, the orb of the Earth.
+Good tidings fall, wane, wax, upon it.
+The lunar eclipse shines also. 
+
+<br>
+
+**Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
+
 ## Love's Debut, Love's Marriage ##
 She's gentle,
 She's humble,
