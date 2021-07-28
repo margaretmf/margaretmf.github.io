@@ -8683,7 +8683,7 @@ Then she threw the penny into the well and wished well the people on the earth.
 'It's a beautiful world,' he said, 'thanks for your thougths, and thanks for your wishes.'
 With a plop, the coin fell into the well with a plop and it touched the water, and the water rippled out.
 This love ripples on and on and on.
-The wishes ripple on and one and on.
+The wishes ripple on and on and on.
 
 'I want to spend every day with you'
 'I want to spend every day in new ways with you'
