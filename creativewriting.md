@@ -3168,7 +3168,7 @@ Do not feel self-conscious all the time; you look beautiful, you make good grade
 
 I know you often feel unhappy because of how some of your friends have treated you. Stop dwelling on this though; reach out and meet new friends. Have confidence that by expressing happiness, your right friends will come at the right time.
 
-I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with inesecurity, I find you being more joyful when you radiate friendliness. After receiving the award of *Silver Letter Girl* at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
+I know how much kindness and love you have in your heart, so quit hiding behind your shell. Although you still often struggle with insecurity, I find you being more joyful when you radiate friendliness. After receiving the award of *Silver Letter Girl* at camp this past summer, you have recognized the importance of spreading smiles, compliments, and hellos, and you have learned to feel more confident with yourself.
 
 I realize that you do not feel as if you are "good" at any of your activities. Who really cares about your grade on your history test, your one hundred freestyle time, or the number of scenes in which you are? In the end, these things have no importance; your happiness, will be forever necessary. Anyway, in reality, you do so much better than you think you do, and you give so much effort into everything. Your playing *100 years* on the piano in ninth grade at the recital despite not believing in your capability of learning the last two pages in time reflects this.
 
@@ -3983,7 +3983,7 @@ I have tried to emulate her and read the books she read and learn more about pol
 ## The Collective ##
 We are all one of the same.
 We are all made with the same blood.
-We all have faces with two eyes, a noise, a mouth, and a smile or a frown.
+We all have faces with two eyes, two ears, a noise, a mouth, and a smile or a frown.
 We all have two arms, two hands, two legs, and two feet.
 We all have hearts with interests, passions, a way of viewing and perceiving the world.
 There exist many of us humans like there exist many leaves on a tree, many trees in the forest, many flowers in the field, many berries in a patch, and many homes in a city.
@@ -4770,7 +4770,7 @@ They keep showing up.
 I try to explain myself.
 I try to understand.
 I repeat myself.
-The depest wounds.
+The deepest wounds.
 It's a broken record.
 Ignored. Rejected. Denied. Unheard.
 Do you hear me?
@@ -4779,7 +4779,7 @@ Switch the chord.
 Shift the tune.
 Take the time to pause and stop the broken record.
 
-We've already heart his a thousand times before.
+We've already heard this a thousand times before.
 He goes after the broken hearted.
 Her heart is broken.
 He...
@@ -5193,29 +5193,6 @@ I let the others sing, and I play second fiddle, and I let them crowd me out.
 I let my voice be quiet, subdued, so they can be someone, something.
 
 One home in a row of homes.
-
-<br>
-
-## Voiceless, A Stolen Voice ##
-All I want to do is keep my mouth shut.
-Songs sing through my heart.
-Words play through my ears.
-All I want to do is keep my mouth sealed.
-
-Shared so much with you.
-You could not respond.
-You could not share a word.
-And all I want to do is keep my mouth closed.
-
-I have a voice.
-I'm voiceless though.
-I am speechless.
-Voicing my heart is what I don't want to do.
-All I want to do is yell out or be quiet.
-
-They shut you down.
-They keep you silented.
-They ask you why you don't talk but they don't want you to talk.
 
 <br>
 
