@@ -551,7 +551,7 @@ It's like the water droplets after a heavy rain.
 You thought you had an enemy
 You really found a friend in disguise.
 You thought you were being laughed at.
-You really were being taught a powerful lesson.
+You really were being taught a lesson.
 The light in the darkness, it's so strong.
 
 You come waltzing in, feeling like you knew just what I needed.
@@ -746,9 +746,30 @@ The many branches lift up.
 
 <br>
 
+## Sweet Nothings ##
+Sweet nothings you put in my ear.
+Telling me things I've never heard before.
+Repeating the things that just aren't true.
+Empty words and angry statements shared in vain.
+You are airing them out I hear.
+
+<br>
+
+## Two Birds ##
+Two birds enjoying the day.
+Pecking at each other.
+Singing songs from the heart.
+
+My heart calling and beating for you is like two birds calling out high in the sky.
+
+Two birds flying around in synch with the rhythm of the universe.
+Telling each other they love each other and all the other birds.
+
+<br>
+
 ## New Day - Rough Draft ##
 Oh it's a new day for the sun to shine
-From the east to the west the sun's rays light up the day
+From the east to the west the rays light up the day
 
 Every day's a new day for me and for you
 I love to feel the warmth of the sun both on you and on me
@@ -760,7 +781,10 @@ I love to sing new songs with the birds and see the blue sky up above
 Every day's a new day for me and for you
 
 Oh it's a new day for the people to move
-All around the world people move around
+All around the world people are skipping and dancing
+
+Every day's a new day to feel the earth spin 
+Oh how I love feeling moved around the same sun every day
 
 Every days a new day for the green grass to grow
 The grass is so green, the soil so fresh
@@ -768,33 +792,31 @@ The grass is so green, the soil so fresh
 Every day's a new day to love this green earth
 I love to feel this green grass and run and skip outside
 
-oh how every day's a new day
-I want to live each day like it's the first
+Oh how every day's a new day
+I want to live each day like it's the first and the last
 
 It's a new day for the flowers to bloom
-I love to grow like them and smell them too
+They smell so good, and I love to grow like them
 Every day's a new day to be born brand new
 
 It's a new day for the trees to talk
-I love to talk to them to and grow my roots
+I love to talk to them too and grow my roots
 Every day's a new day for the roots to grow strong
-Every day's a new day
 
 Oh it's a new day for our hearts to beat with love
-I love to feel the hearts all over beating everywhere with love
+I love to feel all the hearts beating everywhere within
 
-Every day's a new for me and for you
+Every day's a new day for me and for you
 I love when smiles shine through all the people everywhere
 
 Oh it's a new day to seize the day
-I love hearing little children play and seeing neighbors wave
-
-Every day's a new day to do something new
-Every day's a new day to see something new
+I love hearing little children laugh and play
+and I love seeing the neighbors wave
+Every day's a new day to meet someone new
 
 Every day's a new day
 Every day's a new day
-All the days in life are made new
+All of life's days are brand new days
 
 <br>
 
