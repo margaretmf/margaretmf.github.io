@@ -739,16 +739,17 @@ I wished you well and that you feel the love.
 
 Then I made more wishes.
 
-a penny for kindness in school
-a penny for the South to live on
-a penny for the people looking for change
-a penny for a smile on my parents' face
-a penny for my sister and brother
-a penny for the people's freedom
-a penny for the couple's harmony
-a penny for a love for a neighbor
+a penny for...
+wishing well...
 
-wishing well-
+for kindness in school
+for the South to live on
+for the people looking for change
+for a smile on my parents' face
+for my sister and brother
+for the people's freedom
+for the couple's harmony
+for a love for a neighbor
 for the love that fills the earth
 for the love that moves mountains
 for the love that hugs a friend
