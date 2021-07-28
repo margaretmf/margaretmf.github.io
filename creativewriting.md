@@ -3696,14 +3696,6 @@ the meeting and greeting of
 
 <br>
 
-## Pairs ##
-Two leaves on a tree that change with the seasons
-If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other
-If all the world were a song we'd be two notes swinging and singing as parts of a harmony
-Like two puzzle pieces fitting together, joining together, perfectly fit for each other and showing the world what it's born to become
-
-<br>
-
 ## The Stars that Shine, the Trees that Glisten, the Sky that is Blue, and the Birds that Sing #
 My heart beating for you is one with the stars that shine, the trees that glisten, the sky that is blue, and the birds that sing.
 
