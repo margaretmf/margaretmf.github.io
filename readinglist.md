@@ -103,6 +103,12 @@ layout: default
 * Inside the Rainbow: of Love, Appreciation, Gratitude, Mindfulness Meditation, Spirituality and the Awakening Self
 * The Book of Signs (Dover Pictorial Archive)
 * Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
+* Perspective Drawing Handbook (Dover Art Instruction)
+* Perspective Made Easy (Dover Art Instruction)
+* Creative Perspective for Artists and Illustrators (Dover Art Instruction)
+* Perspective Sketching: Freehand and Digital Drawing Techniques for Artists & Designers
+* Sketching Techniques for Artists: In-Studio and Plein-Air Methods for Drawing and Painting Still Lifes, Landscapes, Architecture, Faces and Figures, and More 
+* Koala Tools | Room Grid (1-Point) Large Sketch Pad | 9" x 12", 40 pp. - Perspective Grid Graph Paper for Interior Room Design, Industrial, Architectural and 3D Design
 * Cash: The Autobiography by Johnny Cash
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
