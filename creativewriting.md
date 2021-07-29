@@ -8017,13 +8017,6 @@ A rose, a flower blossoming through the wintery blast, the darkness of the night
 
 <br>
 
-## The Ocean ##
-The ocean crashes every day upon the shore.
-The deep waters of God are where the sin is stirred out.
-The holiness of God can cleanse what is wrong away.
-
-<br>
-
 ## The Sound of Silence ##
 The sound of silence is so grand, so great, so beautiful.
 In the silence, I can hear the greatest music, the greatest song of all.
