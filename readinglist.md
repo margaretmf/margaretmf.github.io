@@ -48,7 +48,7 @@ layout: default
 * [A Promised Land](https://www.amazon.com/Promised-Land-Barack-Obama/dp/1524763160/ref=sr_1_2?dchild=1&keywords=the+promised+land+Barack+obama&qid=1626432868&sr=8-2) by Barack Obama
 * [Symmetry Comes of Age: The Role of Pattern in Culture](https://www.amazon.com/Symmetry-Comes-Age-Pattern-Culture/dp/0295983663/ref=sr_1_2?dchild=1&keywords=symmetry+patterns+culture&qid=1626433517&sr=8-2) by Dorothy K. Washburn (Editor) & Donald W. Crowe (Editor)
 * [Roll Me Up and Smoke Me When I Die: Musings from the Road](https://www.amazon.com/Roll-Me-Smoke-When-Die/dp/0062293311/ref=sr_1_6?dchild=1&keywords=Willie+Nelson+books&qid=1626571878&sr=8-6) by Willie Nelson and Kinky Friedman
-* [Willie Nelson's Letters to America]() by Willie Nelson and Turk Pipkin
+* [Willie Nelson's Letters to America](https://www.amazon.com/Willie-Nelsons-Letters-America-Nelson/dp/078524154X/ref=sr_1_1?dchild=1&keywords=Willie+Nelson%27s+Letters+to+America&qid=1627596051&sr=8-1) by Willie Nelson and Turk Pipkin
 * [The Underground Railroad](https://www.amazon.com/Underground-Railroad-Novel-Colson-Whitehead/dp/0345804325/ref=sr_1_1?dchild=1&keywords=the+Underground+Railroad+by+colson+whitehead&qid=1626727026&sr=8-1) by Colson Whitehead 
 * [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron 
 
@@ -82,6 +82,7 @@ layout: default
 * Robinson Cruesoe
 * The Arabia Nights
 * The Pilgrim's Progress
+* The Hidden Life of Trees
 * Bipolar Faith
 * The Skeletons in God's Closet
 * Writing Better Lyrics
