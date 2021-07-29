@@ -957,3 +957,40 @@ caring for people I did with these cools
 sending a heart filled with love to these people
 
 <br>
+
+## Flying Solo ##
+There's a bird sitting on the fence alone.
+She lifts her wings so gracefully.
+How I long to be like this lone bird.
+Peacefully knowing who she is.
+
+<br>
+
+## The Lone Bird ##
+The lone bird flies high through the spring trees.
+The lone bird sits still on the ground.
+The lone bird sails gracefully on the yellow driving sign.
+The lone bird rests on a walking sign.
+The lone bird launches and lands onto a brown tree branch. 
+The lone bird flutters with the wind amongst the green leaves.
+The lone bird rises high in the sky.
+The lone bird perches on the electric wire.
+The lone bird mounts on the street sign.
+The lone bird glides with the wind.
+The lone bird pecks at the lead. 
+The lone bird flaps his wings just above the ground.
+The lone red bird finds her spot on a machine outside.
+The lone blue jay stands on a fence.
+The lone bird explores her freedom.
+The lone bird finds her support on the power line.
+The lone bird scurries through the grass.
+The lone grey bird expands her wings.
+The lone bird swoops down to hover the river.
+The lone bird feathers her wings above the water.
+The big lone bird stands on the grass near the farm holding her poise.
+The lone bird skates on the ice.
+The shadow of the lone bird is beautiful in the grass.
+The bird alone on the city map, she knows her city and she loves the water.
+The lone bird knows her place on the wire.
+
+<br>
