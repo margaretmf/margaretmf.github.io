@@ -1013,3 +1013,11 @@ The bird alone on the city map, she knows her city and she loves the water.
 The lone bird knows her place on the wire.
 
 <br>
+
+## Tossing It Out to Sea, The Ocean ##
+The ocean crashes every day upon the shore.
+The deep waters of God are where the sin is stirred out.
+The holiness of God can cleanse what is wrong away.
+
+<br>
+
