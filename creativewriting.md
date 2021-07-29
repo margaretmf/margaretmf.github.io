@@ -9158,19 +9158,6 @@ Dwell in love where you're not hurt
 
 <br>
 
-# I Have a Life to Live #
-I have a life to live.
-A song to sing.
-A book to write.
-A heart filled with love and a laugh.
-Some youth to teach.
-Some people to meet.
-I have churches to go to.
-I have homes to architect.
-I have nature to appreciate.
-
-<br>
-
 ## Babe ##
 It's all about perception, motive, and intent.
 "Babe" can be an innocent, endearing way to address someone.
@@ -9266,7 +9253,7 @@ It came back up through another's song of the enigmatic smile, the victim and th
 
 <br>
  
- ## Writing ##
+## Literature and Business ##
 People write literature and poems and essays about experiences in shopping malls and stores. Good literature and poems, and essays, can also inspire how businesses design themselves. It's an economy driven by English literature.
  
 Everything starts at home. At home, people write their stories. Outside of home, in the community, people can publish their stories. At home, life starts, and this life spreads out in the community. Everything in the community can lead back to home life, and everything in home life can spread out. It's a community, an economy driven by home.
