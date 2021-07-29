@@ -46,6 +46,11 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 <br>
 
+## Open Windows ##
+Open windows, open to the air with the fresh paint on the wall drying and the sun shining through.
+
+<br>
+
 ## Voice ##
 Use your voice,
 cherish the silence,
@@ -1018,6 +1023,8 @@ The lone bird knows her place on the wire.
 The ocean crashes every day upon the shore.
 The deep waters of God are where the sin is stirred out.
 The holiness of God can cleanse what is wrong away.
+
+**[Biblical Reference](https://truthintheword.wordpress.com/2011/01/28/your-sins-are-at-the-bottom-of-the-ocean/)##
 
 <br>
 
