@@ -568,7 +568,7 @@ Deceit, it's like flirtation.
 It's trickery.
 The evil in our hearts and thoughts masquerading for what's real.
 It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lies.
-Evil sits with pretense wanting to be undiscovered, and not unmasked.
+Evil sits with pretense wanting to be uncovered, and not unmasked.
 Do you really believe in the duplicity and the lies?
 All of this goes into the dumpster, all pretense is let go of.
 
@@ -2363,7 +2363,7 @@ The dropping of old past, old baggage.
  
 ## Stranger ##
 Someone on the outside, living in the shadows of life's existence.
-It's a mysterty why she's so unknown to people, living in the dark, enraptured by the loneliness.
+It's a mystety why she's so unknown to people, living in the dark, enraptured by the loneliness.
 She's foreign, she's different, she's unfamiliar, yet she has something new to offer and a heart to light up the whole room.
 
 <br>
@@ -2440,25 +2440,6 @@ Out of the ripening of this earthgroud plant, this earthground rocks, comes a be
 <br>
 
 **Word Associations:** flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
-
-## Color ##
-All of the colors of the rainbow reflected through everything in our world.
-Many shades - red, green, pink, orange, yellow, purple.
-A vision that includes:
-red apples, trucks,
-pink gums,
-orange crayons,
-black window frames,
-purple TVs,
-yellow dentures.
-All the race, many nationalities, and countires
-colors and tones, all original.
-Such great contrast in everything we do with the light bouncing off of us in original ways.
-We are all part of this great photo.
-
-<br>
-
-**Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
 ## Details ##
 The devil is in the details.
