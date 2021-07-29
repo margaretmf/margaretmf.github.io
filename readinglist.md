@@ -59,9 +59,10 @@ layout: default
 * [Saved by a Song: The Art and Healing Power of Songwriting]() by Mary Gauthier
 * [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
 * [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature]() by Peter Wohlleben
-* [Sunnis and Shi'A: A Political History]() by Laurence Louer
-* [Savd by a Song: The Art and Healing Power of Songwriting]()
-
+* [Sunnis and Shi'a: A Political History]() by Laurence Louer
+* [Inventing the American Flag]() by Henry W. Moeller
+* [Brick: A Social History]() by Louer
+* [The Story of the Moors in Spain]() by Lane-Poole
 
 #### Interested
 * HowExpert Guide to Becoming a Country Singer-Songwriter: 101 Lessons to Become a Country Singer-Songwriter by HowExpert
