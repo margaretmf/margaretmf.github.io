@@ -126,6 +126,25 @@ and modernity created.
 
 **Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
 
+## Color ##
+All of the colors of the rainbow reflected through everything in our world.
+Many shades - red, green, pink, orange, yellow, purple.
+A vision that includes:
+red apples, trucks,
+pink gums,
+orange crayons,
+black window frames,
+purple TVs,
+yellow dentures.
+All the race, many nationalities, and countries.
+Colors and tones, all original.
+Such great contrast in everything we do with the light bouncing off of us in original ways.
+We are all part of this great photo.
+
+<br>
+
+**Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
+
 ## Love's Debut, Love's Marriage ##
 She's gentle,
 She's humble,
