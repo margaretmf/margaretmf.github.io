@@ -5584,11 +5584,11 @@ The ocean is always moving.
 The water is always stirring.
 The storm will die down.
 
-All these dumb things I've done
-All these dumb things I've said
-I want to throw it in the dirt
-I want to rewind the clock
-Love is not a fool
+All these dumb things I've done.
+All these dumb things I've said.
+I want to throw it in the dirt.
+I want to rewind the clock.
+Love is not a fool.
 
 <br>
 
@@ -5707,7 +5707,7 @@ The smell of fresh grass.
 <br>
 
 ## Bandwagon ##
-Jumping on the bandwagon to this glory road
+Jumping on the bandwagon to this glory road.
 
 <br>
 
@@ -5760,11 +5760,6 @@ The footprints have paved the way
 
 <br>
 
-## Old Farm Road ##
-An old farm road with a fence that goes up for miles, mailboxes, and rusted wire.
-
-<br>
-
 ## Cracks ##
 Cracks in the earth that go back to the beginning of time and show what we are made of.
 
@@ -5808,15 +5803,6 @@ Running around crazy
 Doing dumb things
 Doing what you know you shouldn't do
 Crashing down
-
-<br>
-
-## Let It Go ##
-Let it go.
-Let it shatter into pieces.
-Let it flee into the ocean.
-Let it fly across the sea.
-Let it fall to the floor.
 
 <br>
 
