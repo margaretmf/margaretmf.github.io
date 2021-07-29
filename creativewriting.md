@@ -2204,7 +2204,7 @@ Everything on display fits her and every sign supports her decoration.
 **Word Associations:** flair, grace, fashion, figure, display, ornament, sign, dress, royalty, decorate
 
 ## Face ##
-The face fo God reflected through all the face of humanity, smiling, and laughing, or sometimes crying.
+The face of God reflected through all the face of humanity, smiling, and laughing, or sometimes crying.
 The expression of joy, or sorrow on humanity's face.
 The image of beauty in the sky.
 The good comes back to the surface, the mirror.
@@ -3537,14 +3537,6 @@ Falling low, rising higher to the destiny
 
 <br>
 
-## Open Windows ##
-Open windows
-open to the air
-drying the fresh paint on the wall
-the sun shining through
-
-<br>
-
 ## Farmer's Market ##
 Open red and white windows
 Fresh fruit smells
@@ -3852,7 +3844,7 @@ Looking at life and everything around through the lens of someone else.
 He's a working man
 There's dirt in his fingers from working so hard
 He's up before dawn every morning
-He's read to go
+He's ready to go
 He knows how to make people smile and laugh
 He tells great jokes
 He knows all the stores
