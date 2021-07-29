@@ -7075,16 +7075,19 @@ A song can lead to a new song, and a new song can lead to a new question, and a 
 <br>
 
 ## Climb Back Up ##
-You can climb back up even after you fall.
-You can start over from the bottom and think big.
+You can climb back up.
+You can start over from the bottom.
 You can begin again afresh after ending miserably.
 When one ladder moves, there's another ladder to climb.
 
-You can find another route, even after falling off course.
-You can find side doors and detours after missing an exit.
+You can find another route.
+You can find side roads and detours.
 You can take a turn for the best after taking a turn for the worst.
 You can see the world with different eyes after being blindsided.
 
+You can take a step back.
+You can return to where you started.
+You 
 You can always take a step back after moving two steps too fast.
 There's a full picture to see and there's an aerial view.
 You can reutrn to where you started when you've gone too far out.
@@ -7098,7 +7101,7 @@ You can find the world there.
 <br>
 
 ## He Was One of Those Guys ##
-He was one of those guys that knows how to make you smile. He walks a mile in another's shoes. He sees thorugh someone else's eyes. He will hear your needs before they ask. He will know just how to reach someone.
+He was one of those guys that knows how to make you smile. He walks a mile in another's shoes. He sees through someone else's eyes. He will hear your needs before they ask. He will know just how to reach someone.
 
 His eyes are so deep they see to the heart.
 
@@ -7241,6 +7244,10 @@ The darkness cannot touch it because so much light is bouncing off of light, and
 Through the fire I saw it all burn, become nothing, become pure, refined, golden, and glowing with grace.
 
 <br>
+
+## The Story of the Puzzle ##
+Life as a puzzle piece
+Everyone has a place
 
 ## A Childlike Home ##
 A childlike heart rings true
@@ -8586,7 +8593,25 @@ He threw an apple down, and I caught it
 He told me he loved me, and I loved him right back
 He showed me the world of knowledge, and I became more aware of how beautiful this world is
 
-An apple, a cherry on the gorund
+An apple, a cherry on the ground
+
+<br>
+
+## Home ##
+This is a home with a strong foundation
+made with brick and glue
+
+<br>
+
+## Serpents ##
+The serpents got a hold on me.
+The devil's on my back.
+
+## Trucks ##
+Nothing beats the sound of a truck.
+Driving down the highway on Monday morning, Friday morning.
+
+<br>
 
 **Themes of apples in the Bible, the Reanissance, and fairy tales and myths
 
@@ -9448,8 +9473,8 @@ and the south stays the best
 <br>
 
 ## Southern Living ##
-Front porch swining
-Laughing and singing
+Front porch swinging.
+People Laughing and singing.
 Back doors slamming
 Greetings and hellos
 Neighbors everywhere
@@ -9682,21 +9707,6 @@ The American Flag and the expression "America" can mean different things to peop
 
 ----------
 
-
-## The American Chain [Written in 2010] ##
-As a child, I grew up singing 'I am proud to be an American' like many of my peers. I never knew what it meant to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for how we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are'. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the "tired", the "poor", and the "huddled masses yearning to breathe free" (11-12, 329).
-
-A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Obama began his speech the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason stood in a tight place, for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
-
-I had a similar experience in October 2008 when I went to another Barack Obama rally at the Tides' Stadium one week before the election. This event strengthened my love of being present in a community of Americans. Everyone had to behave and work together in the thirty degree weather to make the rally successful. Once again, each person I saw expressed friendliness and happiness. People stood in line patiently for hours before entering the stadium. Friends and neighbors helped each other when rushing through security. Volunteers gave their time to guide people to open seats.
-
-Finally, in January 2009, on the Inaugaration Day, although I was not there, I watched the big event on television. As I watched the millions of people there, I could feel the presence of a true society. That day was truly a day full of nonpartisanship and support for America from everyone. Everyone supported Barack Obama on this day, a day of uniting America together. I not only truly felt like an American on that special day, but I also loved being an American. I wanted to make a difference for my country.
-
-Throughout Obama's campaign and these three events, because I have grown love my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the "Homework Help" program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
-
-Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop" (577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
-
-<br>
 
 # Precis #
 In her internet journal entitled 'Teaching Mark Twain's Adventures of Huckleberry Finn published in July of 1995, Shelley Fisher Fishkin argues that students should study the novel because it can make a difference in addressing the issues of racism. By making opinions and providing examples for them, she develops her argument. Fishkin describes the difference the novel can make when taught correctly in order to make the novel have a bigger impact. She encourages educators to teach the irony and satire Tain uses through a serious and urging tone.
