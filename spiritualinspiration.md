@@ -25,6 +25,14 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the woman working at McDonald's
 * Grateful for the human connection
 * Grateful to pray for the whole world, and the whole country and wait patiently in the car
+* Grateful for deepening understanding of psychology and Christian Science
+* Grateful for Mary Baker Eddy's discovery
+* Grateful for the musicians in Georgia and West Virginia, Tennessee, and Kentucky
+* Grateful for people who understand core beliefs, belief systems, and mental health
+* Grateful for photography on social media
+* Grateful for the root of challenges in mental health
+* Grateful for all mankind and different ways people love
+* Grateful for someone who actually understand and heard where I was coming from
 * Grateful for the song by the Black Eyed Peas, asking **Where is the Love?**
 * Grateful for the sound of the laundry machine
 * Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
