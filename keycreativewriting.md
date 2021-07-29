@@ -51,6 +51,11 @@ Open windows, open to the air with the fresh paint on the wall drying and the su
 
 <br>
 
+## Old Farm Road ##
+An old farm road with a fence that goes up for miles, mailboxes, and rusted wire.
+
+<br>
+
 ## Voice ##
 Use your voice,
 cherish the silence,
@@ -1003,7 +1008,7 @@ sending a heart filled with love to these people
 
 <br>
 
-## Flying Solo ##
+## Flying Solo - Rough Draft ##
 There's a bird sitting on the fence alone.
 She lifts her wings so gracefully.
 How I long to be like this lone bird.
@@ -1011,7 +1016,7 @@ Peacefully knowing who she is.
 
 <br>
 
-## The Lone Bird ##
+## The Lone Bird - Rough Draft ##
 The lone bird flies high through the spring trees.
 The lone bird sits still on the ground.
 The lone bird sails gracefully on the yellow driving sign.
@@ -1040,12 +1045,20 @@ The lone bird knows her place on the wire.
 
 <br>
 
-## Tossing It Out to Sea, The Ocean ##
+## Tossing It Out to Sea, The Ocean - Rough Draft ##
 The ocean crashes every day upon the shore.
 The deep waters of God are where the sin is stirred out.
 The holiness of God can cleanse what is wrong away.
 
+Let it go.
+Let it shatter into pieces.
+Let it flee into the ocean.
+Let it fly across the sea.
+Let it fall to the floor.
+
 **[Biblical Reference](https://truthintheword.wordpress.com/2011/01/28/your-sins-are-at-the-bottom-of-the-ocean/)##
 
 <br>
+
+
 
