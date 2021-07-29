@@ -5220,11 +5220,32 @@ Trains of white trailing
 
 <br>
 
+## The Catch ##
+It was such a catch.
+He caught my eye.
+Our song was a glimpse of the truth.
+That he's not that bad after all.
+And that I need to use my voice.
+
+It was a catch.
+He caught my heart.
+Our song was a glimpse of the heart.
+That the truth echoes out forever and forever.
+And that I need to use my heart.
+
+It was a catch.
+He caught my soul.
+Our song was a glimpse of the real.
+That life is for everyone.
+And that I deserve reciprocation.
+
+<br>
+
 ## The Lone Bird ##
-The bird flies in solitude across the land.
-It lifts its wings alone so gracefully.
-I'd like to be like that lone bird, strong when alone, and freely able to sail through the clouds.
-I'd like to be like that lone bird, confident on the eletric wire, fully loved and at peace.
+There's a bird on the fence flying all alone.
+She lifts here wings so gracfully.
+How I'd like to be like this lone bird.
+She's strong when alone and sails freely through the sky.
 
 The lone bird flies high through the spring trees.
 The lone bird sits still on the ground.
@@ -5250,9 +5271,7 @@ The big lone bird stands on the grass near the farm holding her poise.
 The lone bird skates on the ice.
 The shadow of the lone bird is beautiful in the grass.
 The bird alone on the city map, she knows her city and she loves the water.
-The brave lone bird knows her place on the wire.
-
-Fly high in the sky above the clouds
+The lone bird knows her place on the wire.
 
 Stamina, Graceful, Strong, Loving, Sturdy, At peace, Confident, Aware, Poised, Balanced, Determined, Free, Landing, Curious, Observant
 Hidden, Nested
@@ -5547,6 +5566,9 @@ running on rocks
 stepping on stones
 running through dirt, the clay
 getting clay stuck on the bottom of these shoes
+falling to rock bottom and shoving it down
+shoving it down into the earth
+it's not mine
 
 giving the dirty heel
 hitting rock bottom
@@ -5760,7 +5782,7 @@ It's time to run
 <br>
 
 ## Footprints and Leaf Prints ##
-Footprints and leaf prints in the sidwalk
+Footprints and leaf prints in the sidewalk
 The footprints have paved the way
 
 <br>
