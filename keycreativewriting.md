@@ -254,6 +254,12 @@ I dare to believe again, dream again, and smile that winning smile after the sto
 
 <br>
 
+# I Have a Life to Live #
+I have a life to live, a song to sing, a book to write, a heart filled with love and a laugh.
+There are youth to teach, people to meet, churches to go to, homes to architect, nature to appreciate.
+
+<br>
+
 ## Flowers Blossomed on the Earth ##
 Flowers blossomed on the earth.
 
