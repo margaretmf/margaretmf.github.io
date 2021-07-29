@@ -234,13 +234,13 @@ One person sketched it.
 
 Another took a video of it.
 
-Two people painted it, and another saw the harmony of looking at all seven, saying **wow, collectively this is God's handiwork art!**"
+Three people painted it, one on a fence, and another saw the harmony of looking at all eight, saying **wow, collectively this is God's handiwork art!**"
 
 A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
 
 Someone else is looking to this same flower.
 
-3-7 people appreciating it in different ways.
+3-8 people appreciating it in different ways.
 
 <br>
 
