@@ -51,8 +51,8 @@ layout: default
 * [Willie Nelson's Letters to America](https://www.amazon.com/Willie-Nelsons-Letters-America-Nelson/dp/078524154X/ref=sr_1_1?dchild=1&keywords=Willie+Nelson%27s+Letters+to+America&qid=1627596051&sr=8-1) by Willie Nelson and Turk Pipkin
 * [The Underground Railroad](https://www.amazon.com/Underground-Railroad-Novel-Colson-Whitehead/dp/0345804325/ref=sr_1_1?dchild=1&keywords=the+Underground+Railroad+by+colson+whitehead&qid=1626727026&sr=8-1) by Colson Whitehead 
 * [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron 
-* [U.S. 23 Country Music Highway: The History, The Towns, and The Artists](https://www.amazon.com/s?k=U.S+23&i=stripbooks&ref=nb_sb_noss_2) by Tiffany Wilburn-Meek
-* [Pop Sonnets: Shakespearean Spins on Your Favorite Songs](https://www.amazon.com/Pop-Sonnets-Shakespearean-Spins-Favorite/dp/1594748284/ref=sr_1_1?dchild=1&keywords=Pop+Sonnets%3A+Shakespearean+Spins+on+Your+Favorite+Songs&qid=1627682926&sr=8-1) by Erik Didriksen
+* [Bicknell Young Notes of 1936 Primary Class Instruction](https://www.amazon.com/gp/product/1720286167/ref=pe_386300_442618370_pd_te_s_qpr_im/140-6685482-5509752?_encoding=UTF8&pd_rd_i=1720286167&pd_rd_r=0N7S4Q9TRT4D51CZD3EG&pd_rd_w=wE3Mh&pd_rd_wg=CS1T8&pf_rd_p=a0e811ca-eb5c-4fcb-bc34-c416999fbce1) by Bicknell Young
+
 
 #### Reading
 * [How to Do Nothing: Resisting the Attention Economy]() by Jenny Odell
@@ -74,7 +74,6 @@ layout: default
 * It's a Long Story: My Life
 * Me and Sister Bobbie: True Tales of the Family Band
 * Willie Nelson: An Epic Life
-* [Bicknell Young Notes of 1936 Primary Class Instruction](https://www.amazon.com/gp/product/1720286167/ref=pe_386300_442618370_pd_te_s_qpr_im/140-6685482-5509752?_encoding=UTF8&pd_rd_i=1720286167&pd_rd_r=0N7S4Q9TRT4D51CZD3EG&pd_rd_w=wE3Mh&pd_rd_wg=CS1T8&pf_rd_p=a0e811ca-eb5c-4fcb-bc34-c416999fbce1) by Bicknell Young
 * Willie: An Autobiography
 * Outlaw: Waylon, Willie, Kris, and the Renegades of Nashville
 * Chasing Fireflies: A Novel of Discovery
@@ -95,6 +94,7 @@ layout: default
 * Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
 * Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
 * Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
+* Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
 * The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
 * The Art of Songwriting by Ed Bell
 * Great Songwriting Techniques by Jack Perricone
@@ -112,6 +112,7 @@ layout: default
 * Perspective Sketching: Freehand and Digital Drawing Techniques for Artists & Designers
 * Sketching Techniques for Artists: In-Studio and Plein-Air Methods for Drawing and Painting Still Lifes, Landscapes, Architecture, Faces and Figures, and More 
 * Koala Tools | Room Grid (1-Point) Large Sketch Pad | 9" x 12", 40 pp. - Perspective Grid Graph Paper for Interior Room Design, Industrial, Architectural and 3D Design
+* The History of Banking: The History of Banking and How the World of Finance Became What it is Today
 * Cash: The Autobiography by Johnny Cash
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
@@ -125,9 +126,6 @@ layout: default
 * I Walked the Line: My Life with Johnny by Vivian Cash
 * What Were We Thinking
 * Dare to Speak
-* Turning Pointe: How a New Generation of Dancers Is Saving Ballet from Itself by Chloe Angya
-* Swan Dive: The Making of a Rogue Ballerina by Georgina Pazcoguin
-* Being a Ballerina: The Power and Perfection of a Dancing Lifeby Gavin Larsen
 * Growth: From Microorganisms to Megacities
 * Energy Transitions: History, Requirements, Prospects
 * The Power of Creative Destruction: Economic Upheaval and the Wealth of Nations
@@ -137,7 +135,6 @@ layout: default
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
 * Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
-* The Hidden Beauty of the Microscopic World: What the Tiniest Forms of Life Can Tells Us About Existence and Our Place in the Universe by James Weiss 
 * Spiritual Care in Everyday Nursing Practice: A New Approach by Janice Clarke
 * Songs from Shakespeare's Plays and Popular Songs of Shakespeare's Time by Tom Kines
 * Shakespeare and Popular Music by Adam Hansen
@@ -227,7 +224,7 @@ layout: default
 * Life As It Is Or Matters and Things in General, J. W. M. Breazeale
 * Tellico Archeology: 12,000 Years of Native American History, Jefferson Chapman
 * The Wilderness Road, The First Family and Other Stories That Need to be Told, Ken Coffey
-* The Tennesse, The Old River: Frontier to Secession, Donald Davidson
+* The Tennessee, The Old River: Frontier to Secession, Donald Davidson
 * Strangers in High Places: The Story of the Great Smoky Mountains, Michael Frome
 * Engineers on the Twin Rivers, Lelan R. Johnson
 * Footprints Across the South: Bartram's Trail Revisited, James Kautz
