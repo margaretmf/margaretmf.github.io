@@ -10236,6 +10236,28 @@ I think competitiveness is away to see whether you have improved. You can compet
 
 <br>
 
+## Voiceless, A Stolen Voice ##
+All I want to do is keep my mouth shut.
+Songs sing through my heart.
+Words play through my ears.
+All I want to do is keep my mouth sealed.
+
+Shared so much with you.
+You could not respond.
+You could not share a word.
+And all I want to do is keep my mouth closed.
+
+I have a voice.
+I'm voiceless though.
+I am speechless.
+Voicing my heart is what I don't want to do.
+All I want to do is yell out or be quiet.
+
+They shut you down.
+They keep you silented.
+They ask you why you don't talk but they don't want you to talk.
+
+<br>
 
 ----------
 
