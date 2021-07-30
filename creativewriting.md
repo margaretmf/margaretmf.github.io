@@ -4167,6 +4167,18 @@ Music hihgway
 Interconnections
 Synching up
 
+You're the reason I get up each morning
+I live for the light in you
+I love a heart that's true
+
+You're the one that I want
+I want to stand with you 
+through the test of time
+
+All of our dreams become real
+I want to live with you forever
+I want our lives to leave marks in the trails on earth
+
 <br>
 
 ## Kissing Game ##
@@ -4770,6 +4782,15 @@ The mean two different things depending on how you say it.
 <br>
 
 ## "Heartbreak Hotel" ##
+Day after Day
+On the road again
+
+Night after Night
+Spending time in a hotel
+
+It's a lifesaving drive
+It's a heartbreak hotel
+
 These nights in hotels
 These daystops in gas stations
 
@@ -5478,11 +5499,14 @@ It calls me to where I belong.
 
 The wind blows my hair.
 It touches my face.
-It fress me up.
+It pushes me along.
 
 The wind has my back.
 It runs with me.
-It sweeps with me through the land.
+It spreads my truth.
+
+The wind comes sweeping through
+I know its sound.
 
 The wind blowing through the Earth calling our names.
 The sounds of the universe speaking to our ears.
@@ -5571,10 +5595,6 @@ Digging in my heels and making it worse
 
 <br>
 
-## Old Dream Dying, New Dream Awakening ##
-The old dream dying is a new dream awakening.
-
-<br>
 
 ## Let It Crash ##
 Let it crash.
