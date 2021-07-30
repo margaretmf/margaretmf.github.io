@@ -5472,6 +5472,18 @@ The wind knows my name.
 <br>
 
 ## The Wind ##
+The wind knows my name.
+It carries me home.
+It calls me to where I belong.
+
+The wind blows my hair.
+It touches my face.
+It fress me up.
+
+The wind has my back.
+It runs with me.
+It sweeps with me through the land.
+
 The wind blowing through the Earth calling our names.
 The sounds of the universe speaking to our ears.
 Wind chimes.
@@ -5534,7 +5546,7 @@ Falling under all of the regrets.
 You can't go back in time.
 
 digging these heels into the ground
-digging a hole ddeper and fruther
+digging a hole deeper and fruther
 running on rocks
 stepping on stones
 running through dirt, the clay
@@ -5777,7 +5789,7 @@ overcoming
 
 ## Chasing ##
 Chasing for nothing.
-CHasing for the love within.
+Chasing for the love within.
 Chasing for the memories from the past.
 Chasing to live a good day today.
 Chasing for the best inside of you so we can get along, so you can get along.
