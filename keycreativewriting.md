@@ -14,6 +14,8 @@
 <br>
 
 
+---------------------------------------------------------------------------------------------------------------------
+
 ## The Friend ##
 Sitting in a dark room, she sits alone
 With a heart yearning to express itself.
@@ -46,6 +48,8 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 <br>
 
+---------------------------------------------------------------------------------------------------------------------
+
 ## Open Windows ##
 Open windows, open to the air with the fresh paint on the wall drying and the sun shining through.
 
@@ -55,6 +59,24 @@ Open windows, open to the air with the fresh paint on the wall drying and the su
 An old farm road with a fence that goes up for miles, mailboxes, and rusted wire.
 
 <br>
+
+## Rivers ##
+Rivers, forward coarse, rivers in the United States.
+
+<br>
+
+## Leaves ##
+Everything you thought you knew falls off like the dead leaves on trees.
+
+<br>
+
+## Trees ##
+The branches lift up, and reach for the sky.
+The many branches lift up.
+
+<br>
+
+---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
 Use your voice,
@@ -155,6 +177,8 @@ We are all part of this great photo.
 
 **Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
+---------------------------------------------------------------------------------------------------------------------
+
 ## Love's Debut, Love's Marriage ##
 She's gentle,
 She's humble,
@@ -224,24 +248,27 @@ and a love for the wonder in everyone's eyes is what I seek.
 
 <br>
 
-## E Pluribus Unum ##
-I am a voice in a sea of voices yearning to say the right thing.
-
-I am a conscience in a sea of consciences desiring to do the right thing.
-
-I am a body in a sea of bodies learning to be free.
-
-I am a heart in a sea of hearts crying out to love more.
-
-I am a set of eyes in a set of eyes looking to see the good going on.
-
-I am one of a kind in the sea of humanity.
-
-Like a drop of water ripples outwardly, I am one of many leading to ripples outwardly in a sea of ripples.
-
-I am one in a million. There are a million ways to say and do the same thing.
+## Pairs ##
+If all the world were a tree we'd be two leaves on a tree that change with the seasons.
+If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other.
+If all the world were a song we'd be two notes swinging and singing as parts of a harmony
+If all the world were a puzzle we'd be two pieces fitting together, joining together, perfectly fit for each other and showing the world the picture that it's born to become.
 
 <br>
+
+## Two Birds ##
+Two birds enjoying the day.
+Pecking at each other.
+Singing songs from the heart.
+
+My heart calling and beating for you is like two birds calling out high in the sky.
+
+Two birds flying around in synch with the rhythm of the universe.
+Telling each other they love each other and all the other birds.
+
+<br>
+
+---------------------------------------------------------------------------------------------------------------------
 
 ## In My Own Words ##
 I am Margaret Furr, it rhymes with concur.
@@ -260,6 +287,8 @@ There are youth to teach, people to meet, churches to go to, homes to architect,
 
 <br>
 
+---------------------------------------------------------------------------------------------------------------------
+
 ## Flowers Blossomed on the Earth ##
 Flowers blossomed on the earth.
 
@@ -276,6 +305,82 @@ A painting of everyone looking to the same flower with different tools and eyes 
 Someone else is looking to this same flower.
 
 3-8 people appreciating it in different ways.
+
+<br>
+
+## Parallels ##
+When running through the storm here someone is running through a rainstorm in another city.
+When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
+When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
+When walking by a hotel's front door here, I think of standing in front of hotel in another city.
+When walking by a bookstore here, I remember walking in a bookstore somewhere else.
+When writing notes on my phone, someone on the other side of the country is doing the same thing.
+When sitting alone in bed, someone on the other side of the world is feeling the same way.
+While I'm walking by a car today I love remembering a moment of walking by a running car in another city.
+While walking by apartments here I love thinking of apartments in another place.
+When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
+When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
+When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
+When running down a trail here I think of running down trails in other places in TN and DC.
+When writing poems and creatively writing, someone else is doing this somewhere else.
+When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
+When folding towels I appreciate those folding towels somewhere else.
+When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
+When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
+When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
+When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
+When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
+When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
+When I set down to ask a question about a word, other people have asked the same question.
+When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
+When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
+When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
+When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
+When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
+When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
+When walking by the medical center I think of medical center in another city, and I love all the people in the center.
+When sipping on coffee I think of sipping on coffee with people in Argentina.
+When in a gymn looking to the ceiling, I think of looking to gymn ceilings in two other places.
+
+<br>
+
+## Clothes Laying Around ##
+A hat on a fence.
+A shirt on the ground.
+A sweatshirt on the tree with a leaf on it.
+A mask on the ground.
+A shoelace on the sidwalk.
+Shoes on an electric wire.
+
+<br>
+
+
+## Sweet Nothings ##
+Sweet nothings you put in my ear.
+Telling me things I've never heard before.
+Repeating the things that just aren't true.
+Empty words and angry statements shared in vain.
+You are airing them out I hear.
+
+<br>
+---------------------------------------------------------------------------------------------------------------------
+
+## E Pluribus Unum ##
+I am a voice in a sea of voices yearning to say the right thing.
+
+I am a conscience in a sea of consciences desiring to do the right thing.
+
+I am a body in a sea of bodies learning to be free.
+
+I am a heart in a sea of hearts crying out to love more.
+
+I am a set of eyes in a set of eyes looking to see the good going on.
+
+I am one of a kind in the sea of humanity.
+
+Like a drop of water ripples outwardly, I am one of many leading to ripples outwardly in a sea of ripples.
+
+I am one in a million. There are a million ways to say and do the same thing.
 
 <br>
 
@@ -330,6 +435,11 @@ Such a beautiful blue symbol, representing freedom from tyranny and the reign of
 
 <br>
 
+## Old Dream Dying, New Dream Awakening ##
+The old dream dying is a new dream awakening.
+
+<br>
+
 ## Dwight David Eisenhower - Writing from Grade School ##
 There was once a boy who was visiting his relatives and was outside playing when he saw a bird missing. The bird was about to attack him. This boy was Dwight David Eisenhower. He didn't only like to attack as an adult in his career as a leader in the army but also as a child. Eisenhower was born in Kansas in 1890. He married Mamie Doud on July 1, 1960 in Denver, Colorado.
 
@@ -351,151 +461,6 @@ Eisenhower was a fantastic leader. He wouldn't have become this great leader wit
 
 <br>
 
-## Flickering Lights ##
-The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth.
-The flickering lights glow in the homes and office buildings united that windows provide and entrance to.
-The flickering lights twinkle in the night sky that reach other galaxies.
-The flickering lights mark the course in the middle of sea.
-The flickering lights reflect through the water.
-
-<br>
-
-## City Lights ##
-City lights.
-
-The lights at night are on.
-A hard day at work is done.
-
-The day is done.
-The night is on.
-
-The people have left work.
-The light supports their action.
-
-It's loud and silent at the same time.
-
-All the rooms twinkle like the stars in the night sky.
-
-<br>
-
-## Secret Admirer ##
-He had a secret admirer but he didn't know her name.
-
-Every day, she came home and peeled off petals from flowers.
-
-'He likes me, he likes me not'
-'He likes me, he likes me not'
-'He likes me, he likes me not'
-
-All the petals fell to the grass as she repeated this sentence.
-
-She smiled and said, 'I hope he likes me' as she let the petals fall to the ground.
-
-She took the flower petals to school and said, 'I like you a lot, and here are some flower petals for you.'
-
-He responded, 'I like you too' and took the petals in his hand.
-
-He made a necklace out of the petals, and he went up to her and said, 'this necklace is for you, and let's be friends.'
-
-She wore the necklace every day to school, and he would smile at her across the room.
-
-They held hands, and they became best friends forever.
-
-What a wonderful type of love that starts with a flower and its petals.
-
-<br>
-
-## Song Title Ideas, If I Were To Create a Soundtrack ##
-(1) A New Day
-
-(2) Wishing Well
-
-(3) Tossing It Out to Sea
-
-(4) My Hand on My Heart
-
-(5) A Childlike Heart
-
-(6) I Want to Hold Your Hand
-
-(7) The Long Road Ahead
-
-(8) Side Roads
-
-(9) It's Ok, This Experience is Good
-
-(10) Love Your Enemies
-
-(11) A Partnership Like the Stars
-
-(12) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me)
-
-(13) Ode to A Squirrel (or Ode to Insects)
-
-(14) The Lone Bird
-
-(15) Boots
-
-(16) Bells
-
-(17) Holy Book and Church Domes
-
-(18) World of Strangers that become Friends
-
-(19) Rose and Greenery - Eternity
-
-<br>
-
-## It's A New Day #
-It's a new day for the sun to shine
-for the birds to chirp
-for me to meet a new friend.
-
-I love to sing out loud
-and let go all of the doubt
-and feel love in my heart
-for everyone.
-
-It's a new day for the flowers to bloom
-for the rain to fall
-for the neighbors to wave.
-
-I love to skip out side
-and run to the park
-and feel joy in my heart
-with everyone.
-
-<br>
-
-## Children's Play and Hallucinations ##
-Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
-Once in my twenties, people felt like I was tripping. Actually, I was tripping. I had been so depressed and stressed and felt so overweight that I starved myself for a whole semester. I was imagining things like a little kid does. None of it was real; it was twisted - the images and sounds were distorted, and they were not the full, big picture that God has.
-
-I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry; it's embarassing and awkward to look back on.
-
-After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room. I even felt like I saw a high school teacher riding his bike outside. Everything felt "stranger than fiction", as they say, but I could still feel God. My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong - but I was not fully sound mentally. It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack. I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
-
-After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter. I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
-
-I wrote emails madly to a professor, sounding like a lunatic or a mad woman. I met with him face-to-face, in person. I remember sharing how I felt like I could understand the primitive nature of the Alphabet purely through intuition.
-
-Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks.. and then I remember going to the church nearby to see people dancing like children.
-
-I then heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
-I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, like Mary Poppins, who taught children to "find the fun in every job that must be done", and Queen Elizabeth, who represents the ability for women too to govern and understand politics, and he called the police on me so I could be taken care of in the hospital.
-
-It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
-
-My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year, but when coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
-
-There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. I had opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
-
-At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
-
-I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too; but translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
-
-<br>
-
 ## The Democratic Republic and the Debate Inside My Head ##
 Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with
 order, and a set of ways to handle collective challenges. No party has absolute control. The party in control has representative power over a set of people and
@@ -510,8 +475,7 @@ representation, and a right to function and to live well. The majority rules, an
 democracy (government is ruled **by the people**): **a system of government by the whole population or all the eligible members of a state, typically through
 elected representatives**. The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and
 voices make the laws through their votes. Everyone has 'inalieanable rights'. The debate over which set of ideas, or system of government runs in my head. I feel
-like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice
-a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's
+like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's
 voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy
 (https://www.thoughtco.com/republic-vs-democracy-4169936)
 
@@ -588,125 +552,8 @@ There's someone behind, there are people behind the clothes.
 
 <br>
 
-## Smile Like You Mean It ##
-Smile like you mean it.
-In the pain, and the tears, and the fight within, smile like you mean it.
-In the loss for words, and the heartbreak, smile that winning smile.
-You smile like a ray of light.
-It lights up the whole room.
-It brightens up someone's day.
-It makes someone feel at ease.
-It cheers someone's heart.
-So, smile like you mean it.
-Let the glow shine.
-It is yours to share.
-It is yours to wear.
-
-<br>
-
-## Pairs ##
-If all the world were a tree we'd be two leaves on a tree that change with the seasons.
-If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other.
-If all the world were a song we'd be two notes swinging and singing as parts of a harmony
-If all the world were a puzzle we'd be two pieces fitting together, joining together, perfectly fit for each other and showing the world the picture that it's born to become.
-
-<br>
-
-## Parallels ##
-When running through the storm here someone is running through a rainstorm in another city.
-When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
-When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
-When walking by a hotel's front door here, I think of standing in front of hotel in another city.
-When walking by a bookstore here, I remember walking in a bookstore somewhere else.
-When writing notes on my phone, someone on the other side of the country is doing the same thing.
-When sitting alone in bed, someone on the other side of the world is feeling the same way.
-While I'm walking by a car today I love remembering a moment of walking by a running car in another city.
-While walking by apartments here I love thinking of apartments in another place.
-When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
-When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
-When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
-When running down a trail here I think of running down trails in other places in TN and DC.
-When writing poems and creatively writing, someone else is doing this somewhere else.
-When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
-When folding towels I appreciate those folding towels somewhere else.
-When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
-When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
-When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
-When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
-When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
-When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
-When I set down to ask a question about a word, other people have asked the same question.
-When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
-When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
-When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
-When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
-When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
-When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
-When walking by the medical center I think of medical center in another city, and I love all the people in the center.
-When sipping on coffee I think of sipping on coffee with people in Argentina.
-
-<br>
-
 ## A Spanish Lense ##
 It brings an interesting feeling, a new perception, a beautiful insight to look at the green leaves on a tree with the sun shining through the lenses of the Spanish language and culture while listening to Spanish music.
-
-<br>
-
-## It is Ok ##
-It's ok to cry.
-It's ok to let the heart tear inside.
-It's ok to let the tears flow.
-It's ok to let it break inside.
-It's ok to let the heart ache.
-It's ok to feel.
-Let it out.
-It's ok to express emotions and thoughts.
-Sometimes the anger and other emotions mask the need to cry and to feel.
-It is ok.
-
-It's ok to cry.
-It's ok to feel.
-It should feel good to sing.
-
-It's ok to cry.
-It's ok to let the tears flow.
-It's ok to cry.
-It's like the water droplets after a heavy rain.
-
-<br>
-
-## An Enemy is a Friend ## 
-You thought you had an enemy
-You really found a friend in disguise.
-You thought you were being laughed at.
-You really were being taught a lesson.
-The light in the darkness, it's so strong.
-
-You come waltzing in, feeling like you knew just what I needed.
-You woke me up to a side of me yearning, crying out loud to be free.
-
-<br>
-
-## Truth ##
-The truth can be ugly.
-The truth is hard to hide.
-The truth cannot be lied about.
-The truth can be uncovered.
-The truth is real.
-The truth is just.
-The truth is beautiful.
-The truth is within.
-The truth is there.
-The truth is free.
-The truth is light.
-The truth lifts her wings in a world full of colors.
-The truth lives on.
-The truth is at the center.
-The truth is within every's hearts.
-The truth raises her voice.
-The truth shares her wisdom.
-The truth can be tough to bear.
-The truth is there.
 
 <br>
 
@@ -848,73 +695,104 @@ There was once a beautiful, *roan* horse. He was not only the prettiest horse; b
 
 <br>
 
-## Clothes Laying Around ##
-A hat on a fence.
-A shirt on the ground.
-A sweatshirt on the tree with a leaf on it.
-A mask on the ground.
-A shoelace on the sidwalk.
-Shoes on an electric wire.
+---------------------------------------------------------------------------------------------------------------------
+
+## Flickering Lights ##
+The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth.
+The flickering lights glow in the homes and office buildings united that windows provide and entrance to.
+The flickering lights twinkle in the night sky that reach other galaxies.
+The flickering lights mark the course in the middle of sea.
+The flickering lights reflect through the water.
 
 <br>
 
-## Rivers ##
-Rivers, forward coarse, rivers in the United States
+## City Lights ##
+City lights.
+
+The lights at night are on.
+A hard day at work is done.
+
+The day is done.
+The night is on.
+
+The people have left work.
+The light supports their action.
+
+It's loud and silent at the same time.
+
+All the rooms twinkle like the stars in the night sky.
 
 <br>
 
-## Leaves ##
-Everything you thought you knew falls off like the dead leaves on trees.
+---------------------------------------------------------------------------------------------------------------------
+
+## Secret Admirer ##
+He had a secret admirer but he didn't know her name.
+
+Every day, she came home and peeled off petals from flowers.
+
+'He likes me, he likes me not'
+'He likes me, he likes me not'
+'He likes me, he likes me not'
+
+All the petals fell to the grass as she repeated this sentence.
+
+She smiled and said, 'I hope he likes me' as she let the petals fall to the ground.
+
+She took the flower petals to school and said, 'I like you a lot, and here are some flower petals for you.'
+
+He responded, 'I like you too' and took the petals in his hand.
+
+He made a necklace out of the petals, and he went up to her and said, 'this necklace is for you, and let's be friends.'
+
+She wore the necklace every day to school, and he would smile at her across the room.
+
+They held hands, and they became best friends forever.
+
+What a wonderful type of love that starts with a flower and its petals.
 
 <br>
 
-## Trees ##
-The branches lift up, and reach for the sky.
-The many branches lift up.
+---------------------------------------------------------------------------------------------------------------------
 
-<br>
+## Song Title Ideas, If I Were To Create a Soundtrack ##
+(1) A New Day
 
-## Sweet Nothings ##
-Sweet nothings you put in my ear.
-Telling me things I've never heard before.
-Repeating the things that just aren't true.
-Empty words and angry statements shared in vain.
-You are airing them out I hear.
+(2) Wishing Well
 
-<br>
+(3) Tossing It Out to Sea
 
-## Two Birds ##
-Two birds enjoying the day.
-Pecking at each other.
-Singing songs from the heart.
+(4) My Hand on My Heart
 
-My heart calling and beating for you is like two birds calling out high in the sky.
+(5) A Childlike Heart
 
-Two birds flying around in synch with the rhythm of the universe.
-Telling each other they love each other and all the other birds.
+(6) I Want to Hold Your Hand
 
-<br>
+(7) The Long Road Ahead
 
-## Voiceless, A Stolen Voice ##
-All I want to do is keep my mouth shut.
-Songs sing through my heart.
-Words play through my ears.
-All I want to do is keep my mouth sealed.
+(8) Side Roads
 
-Shared so much with you.
-You could not respond.
-You could not share a word.
-And all I want to do is keep my mouth closed.
+(9) It's Ok, This Experience is Good
 
-I have a voice.
-I'm voiceless though.
-I am speechless.
-Voicing my heart is what I don't want to do.
-All I want to do is yell out or be quiet.
+(10) Love Your Enemies
 
-They shut you down.
-They keep you silented.
-They ask you why you don't talk but they don't want you to talk.
+(11) A Partnership Like the Stars
+
+(12) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me)
+
+(13) Ode to A Squirrel (or Ode to Insects)
+
+(14) The Lone Bird
+
+(15) Boots
+
+(16) Bells
+
+(17) Holy Book and Church Domes
+
+(18) World of Strangers that become Friends
+
+(19) Rose and Greenery - Eternity
 
 <br>
 
@@ -1066,5 +944,132 @@ Let it fall to the floor.
 
 <br>
 
+---------------------------------------------------------------------------------------------------------------------
 
+## It's A New Day #
+It's a new day for the sun to shine
+for the birds to chirp
+for me to meet a new friend.
 
+I love to sing out loud
+and let go all of the doubt
+and feel love in my heart
+for everyone.
+
+It's a new day for the flowers to bloom
+for the rain to fall
+for the neighbors to wave.
+
+I love to skip out side
+and run to the park
+and feel joy in my heart
+with everyone.
+
+<br>
+
+## Smile Like You Mean It ##
+Smile like you mean it.
+In the pain, and the tears, and the fight within, smile like you mean it.
+In the loss for words, and the heartbreak, smile that winning smile.
+You smile like a ray of light.
+It lights up the whole room.
+It brightens up someone's day.
+It makes someone feel at ease.
+It cheers someone's heart.
+So, smile like you mean it.
+Let the glow shine.
+It is yours to share.
+It is yours to wear.
+
+<br>
+
+## It is Ok ##
+It's ok to cry.
+It's ok to let the heart tear inside.
+It's ok to let the tears flow.
+It's ok to let it break inside.
+It's ok to let the heart ache.
+It's ok to feel.
+Let it out.
+It's ok to express emotions and thoughts.
+Sometimes the anger and other emotions mask the need to cry and to feel.
+It is ok.
+
+It's ok to cry.
+It's ok to feel.
+It should feel good to sing.
+
+It's ok to cry.
+It's ok to let the tears flow.
+It's ok to cry.
+It's like the water droplets after a heavy rain.
+
+<br>
+
+## An Enemy is a Friend ## 
+You thought you had an enemy
+You really found a friend in disguise.
+You thought you were being laughed at.
+You really were being taught a lesson.
+The light in the darkness, it's so strong.
+
+You come waltzing in, feeling like you knew just what I needed.
+You woke me up to a side of me yearning, crying out loud to be free.
+
+<br>
+
+## Truth ##
+The truth can be ugly.
+The truth is hard to hide.
+The truth cannot be lied about.
+The truth can be uncovered.
+The truth is real.
+The truth is just.
+The truth is beautiful.
+The truth is within.
+The truth is there.
+The truth is free.
+The truth is light.
+The truth lifts her wings in a world full of colors.
+The truth lives on.
+The truth is at the center.
+The truth is within every's hearts.
+The truth raises her voice.
+The truth shares her wisdom.
+The truth can be tough to bear.
+The truth is there.
+
+<br>
+
+---------------------------------------------------------------------------------------------------------------------
+
+## Children's Play and Hallucinations ##
+Little children play with dinosaurs, dress-up clothes, Alphabet letters, and wish lists to Santa Clause.
+Once in my twenties, people felt like I was tripping. Actually, I was tripping. I had been so depressed and stressed and felt so overweight that I starved myself for a whole semester. I was imagining things like a little kid does. None of it was real; it was twisted - the images and sounds were distorted, and they were not the full, big picture that God has.
+
+I had so much work, and it all felt so overwhelming. I worked all night in the politics building with so many papers to write and exams to take. It was late at night and early in the morning in the political science building, and I was listening to English and Scottish Christmas music. It felt like a childhood game was going on around me while checking Facebook and other computer programs; my imagination went wild while writing poetry on envy, money, family, farms, and UVA, and I felt like I was entering a game on the computer. I wrote some weird lines of poetry; it's embarassing and awkward to look back on.
+
+After having slept so little, done so much work, and eaten so little, everything felt so heavy while walking back to my dorm room. I even felt like I saw a high school teacher riding his bike outside. Everything felt "stranger than fiction", as they say, but I could still feel God. My roommate was there; she was beautiful, strong, smart, and interesting and she was from Hong Kong - but I was not fully sound mentally. It felt like the dinosaurs were roaring, and I had traveled back in time into the age of the dinosaurs. It felt like a terrorist attack. I could not move. I felt stuck, frozen, and after starving myself for so long, I rushed to go eat, where I felt the love of the people in the dining hall.
+
+After leaving the dining hall to walk into the cold, brisk, winter air, it felt like I was in the age of the Vietnam War. Everything felt cold, gray-brown-dark-red-green in the depth of winter. I felt confused. Something felt off. I could not articulate what felt off. I knew God, and a sense of childlike joy and discovery in my heart; but I was fascinated by the distorted sense of reality.
+
+I wrote emails madly to a professor, sounding like a lunatic or a mad woman. I met with him face-to-face, in person. I remember sharing how I felt like I could understand the primitive nature of the Alphabet purely through intuition.
+
+Then I entered into the library and saw my friend. It felt almost like I was walking through a children's book or a video game. The light was shining through the darkness in the library, and the books of college guys sitting at desks reminded me of my dad there in the 1980s. I remember the angel voices, the angel monument, and the beauty of the Chinese students working at their desks.. and then I remember going to the church nearby to see people dancing like children.
+
+I then heard voices - like middle school girls laughing, maybe gossiping but probably not, and high school guys bullying me and laughing at me. 
+I had felt forgiveness for him, saw the light in him, but the voices became so loud. It was a distorted sense of reality. It was not really him. It was the ghost of him, and the ghost of me. It was the false him, and the false me. I rushed into his fraternity house, saw the light shining through window in the dark while the Christ light was speaking with the "still, small voice" in my heart, his heart, all of our hearts. I acted out some movie characters, like Mary Poppins, who taught children to "find the fun in every job that must be done", and Queen Elizabeth, who represents the ability for women too to govern and understand politics, and he called the police on me so I could be taken care of in the hospital.
+
+It all felt like a computer game in some way inside the fraternity home and then in the hospital. Interacting with the cops, and handing over credit cards to people like women do when feeling financially dependent on men, can feel freaky especially after working to forgive someone and see the goodness and light in them. My romantic heart came up in self-defense, claiming the rose in my heart that needed to be nourished and watered. I loved all the nurses, and doctors, and people in the hospital, but I felt like I could hear the voices of my family - my cousins, my aunts. All the sounds felt like I was in the North Pole with kitchen sounds, and voice receivers; "what the hell is going on?" I remember questioning in the hospital, but I was tripping and imagining things in the way a little kid imagines Santa Clause and dinosaurs. The false senses were not real. They were distorted sounds and images because the human, mortal mind draws false associations between things.
+
+My dad arrived, and so did my mom. They comforted me. They helped me feel the Christmas light that shines through the darkness and heals the "grinch that steals Christmas." The grinch was trying to steal Christmas. The grinch had been trying to steal Christmas all year, but when coming back down to Hooville, from the top of the majestic, blue Appalachian mountains, the grinch realized it had no power, and I could feel the light of the Christ speaking.
+
+There was restoration between the bullying guy and me. There was some healing. There was some light shining through the darkness during the Christmas season. I had opened up to strangers, and felt exposed for thoughts that were not really mine. It was not really me.
+
+At first I felt embarassed when looking back and remembering this all. Then I read some books for children, and realized that it's ok for children to imagine, so I could think of an adult tripping like a child imagining things, and it makes it more light.
+
+I got into trouble, I violated the boundary of the fraternity house that my dad and peer were in, and my brother too; but translating the terroristic, violating images of thought into childlike images of thought sheds light on the situation.
+
+<br>
+
+---------------------------------------------------------------------------------------------------------------------
