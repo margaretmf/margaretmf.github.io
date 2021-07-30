@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Steward of the Earth
-**56** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+**57** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
 
 
 <br>
@@ -26,9 +26,21 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the human connection
 * Grateful to pray for the whole world, and the whole country and wait patiently in the car
 * Grateful for deepening understanding of psychology and Christian Science
+* Grateful for the work of Thomas Jefferson in gardening and horticultre
+* Grateful to learn about horticulture
+* Grateful for the work of people outside
+* Grateful for the family reunion
+* Grateful for family members
 * Grateful for Mary Baker Eddy's discovery
 * Grateful for the musicians in Georgia and West Virginia, Tennessee, and Kentucky
 * Grateful for people who understand core beliefs, belief systems, and mental health
+* Grateful for deeper understanding of psychology and Christian Science
+* Grateful for Mary Baker Eddy's discoveries
+* Grateful for the musicians in Georgia and West Virginia, TN, and Kentucky
+* Grateful for people who understand core beliefs, belief systems, and mental health
+* Grateful for the root of challenges
+* Grateful for photographers on social media
+* Grateful for all mankind and diffeffernt ways people love
 * Grateful for photography on social media
 * Grateful for the root of challenges in mental health
 * Grateful for all mankind and different ways people love
