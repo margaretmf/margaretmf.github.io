@@ -232,4 +232,9 @@ Something exists in consciousness. The image in mind has not been consciously co
 * The key error is in Verse (I doubt anyone would make the mistake of *uni* meaning anything but '1'). *Verse* comes from vertere, Latin, which means *to turn*. It's use in song is a metaphor: As the plow-turns from plow-line to plow-line, so does the *verse* turn from song-line to song-line.
 So *Universe* actually just means *one turn*. Which interestingly enough, implies a belief that a second, third, and so on number of *turns* might happen. One can imagine the phrase *cycle* being close to interchangeable with *turn*. Edit: otherwise the term might be omniverse: *all the turns*.
 
+## Meaning: ##
+* The thing one intends to convey especially by language
+* The logical connotation of a word or phrase
+* The thing that is conveyed especially by language
+
 
