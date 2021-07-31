@@ -114,7 +114,8 @@ This is a page to share words that speak to me intuitively throughout the day an
 ## Divertir (verb, verbo): ##
 * To amuse, to entertain
 
-## Regular: ##
+## Querer (verb, verbo): ##
+* To want [Quiero]
 
 ----------
 
