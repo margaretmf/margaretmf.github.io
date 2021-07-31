@@ -70,6 +70,7 @@ layout: default
 * Songwriting: Essential Guide to Lyric Form and Structure: Tools and Techniques for Writing Better Lyrics (Songwriting Guides) by Pat Pattison
 * The Art of the Stonemason by Ian Cramb (1992-04-04)
 * The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
+* After Abbey Road: The Solo Hits of The Beatles
 * Demystifying Global Macroeconomics by John E. Marthinsen
 * It's a Long Story: My Life
 * Me and Sister Bobbie: True Tales of the Family Band
