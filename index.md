@@ -86,10 +86,10 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.**
 
 * Daily, I work to give credit to people.
-**Diaria, trabajo para dar crédito a la gente.
+**Diaria, trabajo para dar crédito a la gente.**
 
 * Daily, I work to let go of the past.
-**Diaria, trabajo para deja ir el pasado.
+**Diaria, trabajo para deja ir el pasado.**
 
 * Daily, I work to love someone who I haven't fully loved better.
 **Diaria, trabajo para...**
@@ -101,10 +101,10 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para eschuchar a las necesidades de las demás.**
 
 * Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-**Diaria, trabajo para agradezco que la Sciencia Cristiana inspira mi trabajo, todas las religiones, y el trabajo hecho en el mundo medico.
+**Diaria, trabajo para agradezco que la Sciencia Cristiana inspira mi trabajo, todas las religiones, y el trabajo hecho en el mundo medico.**
 
 * Daily, I work to appreciate my family.
-**Diaria, trabajo para agredezco mi familia.
+**Diaria, trabajo para agredezco mi familia.**
 
 * Daily, I work to learn an English vocabulary word and a Spanish vocabulary word.
 **Diaria, trabajo para aprender una palabra en inglés y una palabra en expañol.**
@@ -116,7 +116,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para no tomar represalias cuando está herida.**
 
 * Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, move forward.
-**Diaria, trabajo para creer que la gente de planta baja puede compartir ideas que apoyar una organización crecer, mejorar, y avanzar.
+**Diaria, trabajo para creer que la gente de planta baja puede compartir ideas que apoyar una organización crecer, mejorar, y avanzar.**
 
 * Daily, I am grateful for democracy and democratization.
 **Diaria, trabajo para democracia y la democratización.**
