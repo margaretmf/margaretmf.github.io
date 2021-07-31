@@ -136,6 +136,7 @@ layout: default
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
 * Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
+* The 1619 Project: A CritiqueThe 1619 Project: A Critique by Phillip W. Magness
 * Spiritual Care in Everyday Nursing Practice: A New Approach by Janice Clarke
 * Songs from Shakespeare's Plays and Popular Songs of Shakespeare's Time by Tom Kines
 * Shakespeare and Popular Music by Adam Hansen
