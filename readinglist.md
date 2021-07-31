@@ -149,6 +149,8 @@ layout: default
 * Rails across the Mississippi: A HISTORY OF THE ST. LOUIS BRIDGE by Robert W. Jackson
 * Accidentally Wes Anderson
 * Long-Ago Stories of the Eastern Cherokee (American Heritage)
+* Exemplary Stories (Oxford World's Classics)Exemplary Stories by Cervantes
+* The History of Banking: The History of Banking and How the World of Finance Became What it is Today by K. Connors
 * Celtic Fairy Tales
 * The Golden Thread
 * Shiloh (children's book)
