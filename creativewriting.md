@@ -6010,6 +6010,10 @@ a lifetime of...
 
 I want to marry you
 
+I hold you tight both day and night
+You're a heart that's true
+and I sure do love you
+
 <br>
 
 ## Kiss on the Heart ##
