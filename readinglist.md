@@ -128,6 +128,7 @@ layout: default
 * Dare to Speak
 * Growth: From Microorganisms to Megacities
 * Energy Transitions: History, Requirements, Prospects
+* The Future Earth: A Radical Vision for What's Possible in the Age of Warming by Eric Holthaus  
 * The Power of Creative Destruction: Economic Upheaval and the Wealth of Nations
 * Natural Gas: Fuel for the 21st Century
 * Creating the Twentieth Century: Technical Innovations of 1867-1914 and Their Lasting Impact
