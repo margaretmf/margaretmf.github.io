@@ -85,11 +85,11 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 * Daily, I work to appreciate and expand upon the work already completed.
 **Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.**
 
-* Daily, I work to give credit to people where credit is already due.
-**Diaria, trabajo para...**
+* Daily, I work to give credit to people.
+**Diaria, trabajo para dar crédito a la gente.
 
 * Daily, I work to let go of the past.
-**Diaria, trabajo para...**
+**Diaria, trabajo para deja ir el pasado.
 
 * Daily, I work to love someone who I haven't fully loved better.
 **Diaria, trabajo para...**
