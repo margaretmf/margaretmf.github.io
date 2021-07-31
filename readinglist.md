@@ -51,8 +51,8 @@ layout: default
 * [Willie Nelson's Letters to America](https://www.amazon.com/Willie-Nelsons-Letters-America-Nelson/dp/078524154X/ref=sr_1_1?dchild=1&keywords=Willie+Nelson%27s+Letters+to+America&qid=1627596051&sr=8-1) by Willie Nelson and Turk Pipkin
 * [The Underground Railroad](https://www.amazon.com/Underground-Railroad-Novel-Colson-Whitehead/dp/0345804325/ref=sr_1_1?dchild=1&keywords=the+Underground+Railroad+by+colson+whitehead&qid=1626727026&sr=8-1) by Colson Whitehead 
 * [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron 
-* [Bicknell Young Notes of 1936 Primary Class Instruction](https://www.amazon.com/gp/product/1720286167/ref=pe_386300_442618370_pd_te_s_qpr_im/140-6685482-5509752?_encoding=UTF8&pd_rd_i=1720286167&pd_rd_r=0N7S4Q9TRT4D51CZD3EG&pd_rd_w=wE3Mh&pd_rd_wg=CS1T8&pf_rd_p=a0e811ca-eb5c-4fcb-bc34-c416999fbce1) by Bicknell Young
-
+* [West Tennessee, The Land Between the Rivers](https://www.amazon.com/s?k=Tennessee+the+west&ref=nb_sb_noss_2) by Sam McGowan
+* [A Journey Through Grace](https://www.amazon.com/Journey-Through-Grace-Reggie-Tuggle/dp/195330754X/ref=sr_1_2?dchild=1&keywords=a+journey+through+grace&qid=1627730953&sr=8-2) by Reggie Tuggle
 
 #### Reading
 * [How to Do Nothing: Resisting the Attention Economy]() by Jenny Odell
@@ -101,6 +101,7 @@ layout: default
 * Great Songwriting Techniques by Jack Perricone
 * The Craft of Lyric Writing by Sheila Davis
 * All You Need to Know About the Music Business: 10th Edition by Donald S. Passman
+* [Bicknell Young Notes of 1936 Primary Class Instruction](https://www.amazon.com/gp/product/1720286167/ref=pe_386300_442618370_pd_te_s_qpr_im/140-6685482-5509752?_encoding=UTF8&pd_rd_i=1720286167&pd_rd_r=0N7S4Q9TRT4D51CZD3EG&pd_rd_w=wE3Mh&pd_rd_wg=CS1T8&pf_rd_p=a0e811ca-eb5c-4fcb-bc34-c416999fbce1) by Bicknell Young
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
 * Cherokee Mythology: Gods, Myths, Legends and Spiritual Beliefs of the Cherokee Tribe (Easy History)
