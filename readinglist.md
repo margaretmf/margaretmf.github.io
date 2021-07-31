@@ -119,8 +119,8 @@ layout: default
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
 * It's a Long Story: My Life by Willie Nelson
+* The Architecture of Happiness
 * Power Density: A Key to Understanding Energy Sources and Uses
-* Sweethearts of Montana: Mail Order Bride Western Romance 7 Book Box Set
 * Looking to Get Lost: Adventures in Music and Writing 
 * Signs and Symbols: An Illustrated Guide to Their Origins and Meanings
 * Signs: The Secret Language of the Universe
