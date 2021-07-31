@@ -7076,6 +7076,27 @@ the father of light
 the land of good soil
 the good going on
 
+Old Glorym sacred symbol, flag
+Symbol to pledge
+America, a new constellation
+A land of twinkling lights, burning hearts
+Stars, individual stars
+the Earth, the mother
+Liberty's crown of stars
+horizon to horizon
+it's written in the stars
+our names are up above
+it's a country we are destined for
+ a nation where people can be born new
+ triumph on land and sea
+ Victory, Triumph, Victorioius, Triumphant
+ the destiny, guiding stars
+ Serving the good for all, the highest supreme good
+ A great nation
+ Father of lights, goodness
+ Common mission
+**"the primary builder of their nation was divine nd that their nation's blueprint was heavenly" "new nation" (p. 18, Inventing the American Flag book)**
+
 <br>
 
 ## Harmony in the Universe ##
