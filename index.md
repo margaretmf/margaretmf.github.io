@@ -9,7 +9,7 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, a graduate of the University of Virginia. I am also **Meg Furr**. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles. As a classically educated historian, I care most about going back to the primary origin of ideas.
+I am **Margaret Furr**, a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles. As a classically educated historian, I care most about going back to the primary origin of ideas.
 
 **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. También, me llamo Meg. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
@@ -80,7 +80,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 **Diaria, trabajo para mover fuera de mi zona de confort.**
 
 * Daily, I work to commit to people who I already know.
-**Diaria, trabajo para...**
+**Diaria, trabajo para comprometerse con la gente que conozco.***
 
 * Daily, I work to appreciate and expand upon the work already completed.
 **Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.**
@@ -91,8 +91,8 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 * Daily, I work to let go of the past.
 **Diaria, trabajo para deja ir el pasado.**
 
-* Daily, I work to love someone who I haven't fully loved better.
-**Diaria, trabajo para...**
+* Daily, I work to love someone better.
+**Diaria, trabajo para amar a alguien mejor.**
 
 * Daily, I work to give up personal ambition.
 **Diaria, trabajo para renunciar a la ambición personal.**
