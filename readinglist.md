@@ -155,6 +155,8 @@ layout: default
 * Celtic Fairy Tales
 * The Golden Thread
 * Shiloh (children's book)
+* No Sense of Place: The Impact of Electronic Media on Social Behavior by Joshua Meyrowitz
+* The Sibley Field Guide to Birds
 * Boone: A Biography
 * A Place for Everything
 * Spanish Novels: Pasaje de Ida
