@@ -175,6 +175,32 @@ layout: default
 * A Treasury of American Folklore: Stories, Ballads, and Traditions of the People
 * Covered Bridges of Kentucky and Tennessee (B&W)
 * The Vanishing American Dream: A Frank Look at the Economic Realities Facing Middle- and Lower-Income Americans by Gene Ludwig
+* The Complete Works of Zhuangzi (Translations from the Asian Classics) by Zhuang Zhou
+* Deep Listening: A Composer's Sound Practice by Pauline Oliveros
+* Walter Benjamin: An Aesthetic of Redemption by Richard Wolin
+* "Creativity in Management" YouTube Video by John Cleese
+* Son of the Wilderness: THe Life of John Muir by Linnie Marsh Wolfe
+* The Writings of John Muir by John Muir
+* Eight Hours for What We Will: Workers and Leisure in an Industrial City by Roy Rosenzweig
+* The post-urban: LA by Eric Holding and Sarah Chaplin
+* The Gig Economy Celebrates Working Yourself to Death by Jia Tolentino
+* Why Work Sucks and How to Fix It: THe Results-Only Revolution by Cali Ressler and Jody Thompson
+* Burning Man: From far our freak-fest to corporate schmoozing event by Sophie Morris
+* Happiness Through Tranquility: The School fo Epicurus
+* Living Together: A Year in the Life of a City Commune by Michael Weiss
+* What the Trees Said: Life on a New Age Farm by Stephen Diamond
+* The Human Condition by Hannah Arendt
+* Walden Two at Fifty by Susan X. Day
+* Walden by Henry David Thoreau
+* On the Duty of Civil Disobedience by Henry David Thoreau
+* The Rebellious Life of Mrs. Rosa Parks by Jeanne Theoharis
+* Policies, Principles, and Protests by Stu Schmill
+* Worked Over and Overworked by Jacob S. Hacker
+* Nickel and Dimed: On (Not) Getting by in America by Barbara Ehrenreich
+* Kids These Days: Human Capital and the Making of Millennials by Malcolm Harris
+* 24/7: Late Capitalism and the Ends of Sleep by Jonathan Crary
+* Psychology by William James
+* Persusasive Design Techniques in the Attention Economy: User Awareness, Theory, and Ethics by Devangi Vivrekar
 * The Power of Creative Destruction: Economic Upheaval and the Wealth of Nations by Philippe Aghion
 * Nursing as Ministry by Kristen L. Mauk and Mary E. Hobus, Editors
 * Called to Care: A Christian Worldview for Nursing by Judith Allen Shelley and Arlene Miller
