@@ -53,15 +53,15 @@ layout: default
 * [The Artist's Way: A Spiritual Path to Higher Creativity](https://www.amazon.com/The-Artists-Way-Julia-Cameron-audiobook/dp/B000CCE4LM/ref=sr_1_3?dchild=1&keywords=the+artist%27s+way+Julia+cameron&qid=1626736321&sr=8-3) by Julia Cameron 
 * [West Tennessee, The Land Between the Rivers](https://www.amazon.com/s?k=Tennessee+the+west&ref=nb_sb_noss_2) by Sam McGowan
 * [A Journey Through Grace](https://www.amazon.com/Journey-Through-Grace-Reggie-Tuggle/dp/195330754X/ref=sr_1_2?dchild=1&keywords=a+journey+through+grace&qid=1627730953&sr=8-2) by Reggie Tuggle
+* [How to Do Nothing: Resisting the Attention Economy](https://www.amazon.com/How-Do-Nothing-Resisting-Attention/dp/1612198554/ref=sr_1_1?dchild=1&keywords=how+to+do+nothing&qid=1627840792&sr=8-1) by Jenny Odell
+* [Inventing the American Flag](https://www.amazon.com/Inventing-Flag-Stars-Stripes-Symbols/dp/1938901789/ref=sr_1_1?dchild=1&keywords=inventing+the+American+flag&qid=1627840906&sr=8-1) by Henry W. Moeller
 
 #### Reading
-* [How to Do Nothing: Resisting the Attention Economy]() by Jenny Odell
 * [Appalachian Reckoning: A Region Responds to *Hillbilly Elegy*]() by Anthony Harkins and Meredith McCarroll
 * [Saved by a Song: The Art and Healing Power of Songwriting]() by Mary Gauthier
 * [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
 * [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature]() by Peter Wohlleben
 * [Sunnis and Shi'a: A Political History]() by Laurence Louer
-* [Inventing the American Flag]() by Henry W. Moeller
 * [Brick: A Social History]() by Louer
 * [The Story of the Moors in Spain]() by Lane-Poole
 
