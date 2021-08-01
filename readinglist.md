@@ -136,6 +136,8 @@ layout: default
 * Creating the Twentieth Century: Technical Innovations of 1867-1914 and Their Lasting Impact
 * Memphis Rent Party: The Blues, Rock & Soul in Music's Hometown
 * A Treasury of Afro-American Folklore: The Oral Literature, Traditions, Recollections, Legends, Tales, Songs, Religious Beliefs, Customs, Sayings, and Humor of Peoples of African Descent
+* Unwhite: Appalachia, Race, and Film
+* Hillbilly: A Cultural History of an American Icon
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
 * Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
 * The 1619 Project: A CritiqueThe 1619 Project: A Critique by Phillip W. Magness
