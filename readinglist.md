@@ -121,6 +121,25 @@ layout: default
 * Pilgrim by David Whyte
 * It's a Long Story: My Life by Willie Nelson
 * The Architecture of Happiness
+* Journal of *Appalachian Studies* by Dwight B. Billings
+* *The Road to Poverty: The Making of Wealth and Hardship in Appalachia* by Dwight B. Billings
+* *Back Talk from Appalachia: Confronting Stereotypes* by Dwight B. Billings
+* *Planters and the Making of a New South* by Dwight B. Billings
+* *Appalachia in the Making* by Dwight B. Billings
+* *Appalachia in Regional Context: Place Matters* by Dwight B. Billings
+* *An American Vein: Critical Readings in Appalachian Literature* by Theresa L. Burriss
+* *When Architecture Meets Activitism: The Transformative Effect of Hank Williams* by Roger Guy
+* *Hillbilly: A Cultural History of an American Icon* by Anthony Harkins
+* *Bloody Breathitt: Politics & Violence in the Appalachian South* by T. R. C. Hutton
+* *Meth Wars: Police, Media, Power* by Travis Linneman
+* *Appalachia: Social Context Past and Present* by Michael E. Maloney
+* *A History of Barbed Wire, Desire, and Devour* by Jeff Mann
+* *Unwhite: Appalachia, Race, and Film* by Meredith McCarroll
+* *Boone: A Biogrpahy* by Robert Morgan
+* *Appalachia in the Classroom* by Theresa L. Burris
+* *Literature and Ecofeminism: Intersectional and International Voices* by Theresa L. Burriss
+* *Appalachian Ecrocriticism* by Theresa L. Burriss
+* *What You Are Getting Wrong about Appalachia* by Elizabeth Catte
 * Power Density: A Key to Understanding Energy Sources and Uses
 * Looking to Get Lost: Adventures in Music and Writing 
 * Signs and Symbols: An Illustrated Guide to Their Origins and Meanings
