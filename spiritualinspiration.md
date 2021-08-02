@@ -29,6 +29,45 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the work of Thomas Jefferson in gardening and horticultre
 * Grateful to learn about horticulture
 * Grateful for the work of people outside
+* Grateful for all the individual ways in which people love all humanity in one affection
+* Grateful for the freedom possess by everyone in the room
+* Grateful for the musicality expressed by everyone in this room
+* Grateful for dogs loving cats
+* Grateful for all the people swimming in the pools in Washington, DC
+* Grateful for all the ability expressed in the Olympics
+* Gateful for memories at chufch
+* Grateful for memories in the Irish pub for work
+* Grateful for people in Colorado and Utah
+* Grateful for the yoga practice
+* Grateful for memories while walking through Washington, DC
+* Grateful for the crunching of leaves
+* Grateful for the horticulture
+* Grateful for memories at UVa near the politics building
+* Grateful for friends from Norfolk Academy
+* Grateful for the experiences at UVA gymn
+* Grateful for memories of jogging in DC
+* Grateful for the beauty in New York
+* Grateful for the people who responded to Hillbilly Elegy
+* Grateful for the people in Kentucky and West Virginia
+* Grateful for people in Washington, DC
+* Grateful for the children's books
+* Grateful for connections with people from other countries
+* Grateful for Hopeway
+* Grateful for church members
+* Grateful for the people where I am
+* Grateful for all the good going on outsde of here
+* Grateful for all the people at Big House
+* Grateful for piano teachers and their cheerfulness
+* Grateful for home at Aunt Mary's house
+* Grateful for the people in TN
+* Grateful for people and memories at UVa
+* Grateful for the bluegrass musicians in NC
+* Grateful for people from Norfolk
+* Grateful for the goodness of God in the coffee shop
+* Grateful for mmeories at UVa
+* Grateful for the interests and joy of the people I'm with
+* Grateful for the spirit in cousins
+* Grateful for positive memories
 * Grateful for the family reunion
 * Grateful for family members
 * Grateful for Mary Baker Eddy's discovery
