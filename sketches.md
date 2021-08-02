@@ -18,3 +18,31 @@
 <img class="profile-picture" src="sketches/sketch15.jpg">
 
 <img class="profile-picture" src="sketches/sketch18.jpg">
+
+<img class="profile-picture" src="sketches/sketch19.jpg">
+
+<img class="profile-picture" src="sketches/sketch20.jpg">
+
+<img class="profile-picture" src="sketches/sketch21.jpg">
+
+<img class="profile-picture" src="sketches/sketch22.jpg">
+
+<img class="profile-picture" src="sketches/sketch23.jpg">
+
+<img class="profile-picture" src="sketches/sketch24.jpg">
+
+<img class="profile-picture" src="sketches/sketch25.jpg">
+
+
+
+
+
+
+
+
+
+
+
+<img class="profile-picture" src="sketches/sketch18.jpg">
+
+<img class="profile-picture" src="sketches/sketch18.jpg">
