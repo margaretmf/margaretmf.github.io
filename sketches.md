@@ -33,16 +33,3 @@
 
 <img class="profile-picture" src="sketches/sketch25.jpg">
 
-
-
-
-
-
-
-
-
-
-
-<img class="profile-picture" src="sketches/sketch18.jpg">
-
-<img class="profile-picture" src="sketches/sketch18.jpg">
