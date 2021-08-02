@@ -56,11 +56,11 @@ layout: default
 * [How to Do Nothing: Resisting the Attention Economy](https://www.amazon.com/How-Do-Nothing-Resisting-Attention/dp/1612198554/ref=sr_1_1?dchild=1&keywords=how+to+do+nothing&qid=1627840792&sr=8-1) by Jenny Odell
 * [Inventing the American Flag](https://www.amazon.com/Inventing-Flag-Stars-Stripes-Symbols/dp/1938901789/ref=sr_1_1?dchild=1&keywords=inventing+the+American+flag&qid=1627840906&sr=8-1) by Henry W. Moeller
 * [Saved by a Song: The Art and Healing Power of Songwriting](https://www.amazon.com/Saved-Song-Healing-Power-Songwriting/dp/1250202116/ref=sr_1_1?dchild=1&keywords=saved+by+a+song&qid=1627845029&sr=8-1) by Mary Gauthier
+* [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature](https://www.amazon.com/Heartbeat-Trees-Embracing-Ancient-Forests/dp/1771646896/ref=sr_1_1?crid=7FDX8EG4SJ97&dchild=1&keywords=the+heartbeat+of+trees&qid=1627936324&sprefix=the+heartbeat+of%2Caps%2C303&sr=8-1) by Peter Wohlleben
 
 #### Reading
 * [Appalachian Reckoning: A Region Responds to *Hillbilly Elegy*]() by Anthony Harkins and Meredith McCarroll
 * [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
-* [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature]() by Peter Wohlleben
 * [Sunnis and Shi'a: A Political History]() by Laurence Louer
 * [Brick: A Social History]() by Louer
 * [The Story of the Moors in Spain]() by Lane-Poole
