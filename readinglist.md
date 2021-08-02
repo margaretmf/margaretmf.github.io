@@ -143,6 +143,7 @@ layout: default
 * Power Density: A Key to Understanding Energy Sources and Uses
 * Looking to Get Lost: Adventures in Music and Writing 
 * Signs and Symbols: An Illustrated Guide to Their Origins and Meanings
+* *Back to Abnormal: Surviving with an Old Farm in the New South* by Dana Wildsmith
 * Signs: The Secret Language of the Universe
 * The Book of Circles: Visualizing Spheres of Knowledge: (with over 300 beautiful circular artworks, infographics and illustrations from across history)
 * I Walked the Line: My Life with Johnny by Vivian Cash
