@@ -4,7 +4,7 @@ layout: default
 
 <br>
 
-## Hello! Welcome to Margaret Furr's site. It's also Meg Furr's site.
+## Hello! Welcome to Margaret Furr's site. 
 
 <img class="profile-picture" src="me.jpg">
 
