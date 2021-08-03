@@ -58,12 +58,12 @@ layout: default
 * [Saved by a Song: The Art and Healing Power of Songwriting](https://www.amazon.com/Saved-Song-Healing-Power-Songwriting/dp/1250202116/ref=sr_1_1?dchild=1&keywords=saved+by+a+song&qid=1627845029&sr=8-1) by Mary Gauthier
 * [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature](https://www.amazon.com/Heartbeat-Trees-Embracing-Ancient-Forests/dp/1771646896/ref=sr_1_1?crid=7FDX8EG4SJ97&dchild=1&keywords=the+heartbeat+of+trees&qid=1627936324&sprefix=the+heartbeat+of%2Caps%2C303&sr=8-1) by Peter Wohlleben
 * [Appalachian Reckoning: A Region Responds to *Hillbilly Elegy*](https://www.amazon.com/Appalachian-Reckoning-Region-Responds-Hillbilly/dp/1946684791/ref=sr_1_1?dchild=1&keywords=Appalachian+reckoning&qid=1628009610&sr=8-1) by Anthony Harkins and Meredith McCarroll
+* [The Story of the Moors in Spain]() by Lane-Poole
+* [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
+* [Brick: A Social History]() by Louer
 
 #### Reading
-* [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
 * [Sunnis and Shi'a: A Political History]() by Laurence Louer
-* [Brick: A Social History]() by Louer
-* [The Story of the Moors in Spain]() by Lane-Poole
 
 #### Interested
 * HowExpert Guide to Becoming a Country Singer-Songwriter: 101 Lessons to Become a Country Singer-Songwriter by HowExpert
