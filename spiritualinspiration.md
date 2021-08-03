@@ -64,9 +64,37 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the bluegrass musicians in NC
 * Grateful for people from Norfolk
 * Grateful for the goodness of God in the coffee shop
-* Grateful for mmeories at UVa
+* Grateful for memories at UVa
 * Grateful for the interests and joy of the people I'm with
 * Grateful for the spirit in cousins
+* Grateful for trips to the doctor as a child
+* Grateful for doctors in the world
+* Grateful for people from Argentina
+* Grateful for how the next generation learns
+* Grateful for interracial couples
+* Grateful for time spent in Washington, DC
+* Grateful for all the people in the airport
+* Grateful for the people I met in Atlanta
+* Grateful for math teachers at Norfolk Academy
+* Grateful for the people with Blueprint Fellowship
+* Grateful for little peoples' love for math
+* Grateful for people in my sister's architecture class
+* Grateful for people dancing
+* Grateful for happy people
+* Grateful for God's unfoldment
+* Grateful for the article on patterns
+* Grateufl for the family that contributed to Hopeway
+* Grateful for the people i've met in Hopeway
+* Grateful for cousins
+* Grateful for the future-orientedness of a friend in Norfolk
+* Grateful for people getting maried
+* Grateful for friends from Norfolk
+* Grateufl for people playing music
+* Grateful for all the people who show up to lectures
+* Grateful for kids learning about math
+* Grateful for the light everywhere in church and everywhere
+* Grateful for vegan cooking
+* Grateful for friends from church
 * Grateful for positive memories
 * Grateful for the family reunion
 * Grateful for family members
