@@ -89,6 +89,10 @@ layout: default
 * The Pilgrim's Progress
 * The Hidden Life of Trees
 * Bipolar Faith
+* Broken Horses: A Memoir
+* Appalachian Magazine's Mountain Superstitions, Ghost Stories & Haint Tales: A Collection of Memories & Commentaries from the Mountains of Appalachia
+* Beeswing: Losing My Way and Finding My Voice 1967-1975
+* Appalachia: A History
 * The Skeletons in God's Closet
 * Writing Better Lyrics
 * Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
