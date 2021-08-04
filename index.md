@@ -127,8 +127,10 @@ In previous work, I have worked with various types of supervisors.
 **I have summarized what I LOVE about supervisors and what I have learned from them.
 
 **What I LOVE about supervisors:**
-* Their ability to give candid feedback, and specific requirements, rather than make me guess about what is needed
-* Their ability to seek my inputs, and thoughtfully incorporate the inputs
+* Their ability to give candid feedback, and specific requirements.
+ **Sus abilidades para dar comentarios sinceros, y requisitos específicos.**
+* Their ability to seek my inputs, and thoughtfully incorporate the inputs.
+  **Susabilidades para buscar mis aportes, y incorporar pensativamente los aportes.**
 * Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
 * Their ability to support cross-departmental work
 * Their ability to encourage people to go outside their comfort zone
@@ -136,15 +138,6 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to facilitate team work
 * Their ability to mentor
 * Their ability to work with other teams effectively
-
-**What I have LEARNED**
-* To appreciate the names of other people
-* To be more clear in providing guidance and respecting space with people through team meetings
-* To respect people doing work
-* To express appreciation and gratitude for other teams and colleagues
-* To respect boundaries on email and social media 
-* To provide clear communciation
-* To give generic advice rather than unsolicited, specific advice 
 
 ## Longer Work Biography ##
 As a continuous, lifelong learner, I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, **languages - Español, English, and interested in Native and Chinese characters and symbols, and Sanskrit**. and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
