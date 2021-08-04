@@ -130,7 +130,7 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to give candid feedback, and specific requirements.
  **Sus abilidades para dar comentarios sinceros, y requisitos específicos.**
 * Their ability to seek my inputs, and thoughtfully incorporate the inputs.
-  **Susabilidades para buscar mis aportes, y incorporar pensativamente los aportes.**
+  **Sus abilidades para buscar mis aportes, y incorporar pensativamente los aportes.**
 * Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
 * Their ability to support cross-departmental work
 * Their ability to encourage people to go outside their comfort zone
