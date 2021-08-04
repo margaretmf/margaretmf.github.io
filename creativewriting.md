@@ -4114,6 +4114,11 @@ What is a lifetime filled with?
 Love between true hearts
 Adventure
 
+I forever wil hold you in my heart
+I wake up to see your smile
+You make me want to smile all day long
+The best pplace in the world
+
 <br>
 
 ## You Plus Me ##
