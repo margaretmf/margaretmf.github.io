@@ -25,6 +25,44 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the woman working at McDonald's
 * Grateful for the human connection
 * Grateful to pray for the whole world, and the whole country and wait patiently in the car
+* Grate for the time at Hopeway
+* Grateful for hope in the universe and the world
+* Grateful for a clearer understanding of history
+* Grateful for the stories of two cultures clashing and meeting
+* Grateful for song structure
+* Grateful for friends on the street
+* Grateful for friends where I am
+* Grateful for friends from Sig Delt sorority
+* Grateful for people I met in Norfolk
+* Grateful for friends from church
+* Grateful for new friends
+* Grateful for friends from childhood and what they're doing
+* Grateful for family members
+* Grateful for partners of family members
+* Grateful for people who can understand
+* Grateful for the people helping
+* Grateful for all of the activities
+* Grateful for people who know who I am
+* Grateful for friends from Norfolk
+* Grateful for people from improv
+* Grateful for the people working everywhere
+* Grateful for people from other states
+* Grateful for security in God
+* Grateful for a good talk with a practitioner
+* Grateful for people from Big House
+* Grateful for the people here
+* Grateful for the sound of the cars
+* Grateful for the therapists
+* Grateful for good teachers
+* Grateful for infinite opportunity
+* Grateful for constant growth and progress
+* Grateful for evidences of rebirth
+* Grateful for anthropological and sociological research
+* Grateful for the thank you notes sent
+* Grateful for youth in Sunday school
+* Grateful for memories of going to Sunday School as a kid and the treats
+* Grateful for everyone learning to set boundaries
+* Grateful for everyone healing from trauma
 * Grateful for deepening understanding of psychology and Christian Science
 * Grateful for the work of Thomas Jefferson in gardening and horticultre
 * Grateful to learn about horticulture
