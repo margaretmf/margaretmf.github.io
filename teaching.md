@@ -1,11 +1,5 @@
-# Children's Books #
-Reading and analyzing children's books feeds my soul. This page exists to share children's books analyzed and literary tools.
-
-The top four books for children are "The River", "Hatchet", "Where the Wild Fern Grows", and "Charlie and the Chocolate Factory". Other children's books authors of interest include Thornton Burgess, Laura Ingalls Wilder, and the author of "Brian's Return", "Brian's Hunt".
-
-Two frameworks listed below help people critically read and teaching children's books. A software application to support literary analysis of books would be interesting to work on. It would also be interesting to explore software tools for educators, course development, as well as film development.
-
-With an interest in teaching, I work on thinking about how to share critical reading of children's books to youth. It's interesting how filmmakers turn children's books into films and how teachers use children's books in Social-Emotional Learning.
+# Teaching #
+With a passion for teaching, I plan to share education content below and explore how to use technology for teaching. 
 
 <br>
 
