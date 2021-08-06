@@ -9,7 +9,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 <br>
 
 ### Steward of the Earth
-**57** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
+**58** days of throwing pieces of trash up when seeing them on the ground outside to be a steward of the Earth.
 
 
 <br>
@@ -28,6 +28,80 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grate for the time at Hopeway
 * Grateful for hope in the universe and the world
 * Grateful for a clearer understanding of history
+* Grateful for all the people expressing joy in other faith circles
+* Grateful for God's care everlasting
+* Grateful for songs about everlasting love
+* Grateful for rhymes in children's music and children's literature
+* Grateful for the constant renewing of people's minds
+* Grateful for people teaching
+* Grateful for God opening the way for people
+* Grateful for children who love to read
+* Grateful for musical people
+* Grateful for educational activities
+* Grateful for people overcoming grief
+* Grateful for childhood memories
+* Grateful for everyone here with spouses and partners
+* Grateful for the life lessons of everyone
+* Grateufl for the HR lead in businesses
+* Grateful for leaders in the world
+* Grateful for a world full of people
+* Grateful for people on a playground
+* Grateful for the structure of safety and health around children on playgrounds
+* Grateful for the work of career advisors
+* Grateful for children's illustrators
+* Grateful for all the people here with me
+* Grateful for Dolly Parton
+* Grateful for the people on the family trip we went on
+* Grateufl for the summer sounds
+* Grateful to heal from toxicity
+* Grateful for pure-heartedness
+* Grateful for what's behind me
+* Grateful for a new day tomorrow
+* Grateful for the continuous good going on
+* Grateful for people who people have helped
+* Grateful for the experience in NOLA
+* Grateful for friends in DC
+* Grateful for the expression, endless expression of students
+* Grateful for experiences on late night buses
+* Grateful for what I have learned about the Arab world
+* Grateful for the bus drivers
+* Grateful for the artwork in Nashville
+* Grateful for memories with drivers
+* Grateful for healthy conversations this morning
+* Grateful that I'm not the only one
+* Grateful for everyone who has shared their stories
+* Grateful for people in therapy with me
+* Grateful for people in Tennessee
+* Grateful for all the good going on in the world
+* Grateful for diagnoses which is for treatment palns
+* Grateful for memories in DC and Alexandria
+* Grateful for the good going on
+* Grateful for people in therapy with me
+* Grateful for people in Tennessee
+* Grateful for all the good going on in the world
+* Grateful for memories at UVa
+* Grateful for people in history classes
+* Grateful for people from Norfolk Academy
+* Grateful for healthy conversations
+* Grateful for people from my sorority and other sororities
+* Grateful for the cooking
+* Grateful for the people who work with Amazon
+* Grateful for new jobs available
+* Grateful for ways that Christian Science has healed people
+* Grateufl for everyone from UVA
+* Grateful for leaders at UVa
+* Grateful for the drives to school and back
+* Grateful for the old car
+* Grateful for old feelings
+* Grateful for people at Norfolk Academy
+* Grateful for reasons to hope
+* Grateful for all the people in West Virginia and Charlottesville
+* Grateful for Harmony Highway
+* Grateful for new songs and singers to appreciate
+* Grateful for other country music singers
+* Grateful for family members
+* Grateful for the stories of people all around
+* Grateful for the goodness inherent
 * Grateful for the stories of two cultures clashing and meeting
 * Grateful for song structure
 * Grateful for friends on the street
