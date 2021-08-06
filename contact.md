@@ -12,11 +12,10 @@ is_contact: true
 7. [Instagram - Photography - Light & Dark](https://www.instagram.com/margaretmfurr_lightdark)
 8. [Instagram - Photography - Sketches](https://www.instagram.com/margaretmfurr_sketches)
 9. [Instagram - Photography - Sunlight from Different Angles](https://www.instagram.com/margaretmfurr_sunlight_angles)
-10. [Instagram - Photography - Country & Port City](https://www.instagram.com/margaretmfurr_country_portcity)
-11. [Instagram - Photography - American Flags](https://www.instagram.com/margaretmfurr_americanflags)
-12. [Instagram - Photography - Leaves](https://www.instagram.com/margaretmfurr_leaves)
-13. [Instagram - Photography - Window Series](https://www.instagram.com/margaretmfurr_windowseries)
-14. [Instagram - Photography - Door Series](https://www.instagram.com/margaretmfurr_doors) 
-15. [Instagram - Photography - Engineering](https://www.instagram.com/margaretmfurr_engineering)
+10. [Instagram - Photography - Leaves](https://www.instagram.com/margaretmfurr_leaves)
+11. [Instagram - Photography - Window Series](https://www.instagram.com/margaretmfurr_windowseries)
+12. [Instagram - Photography - Door Series](https://www.instagram.com/margaretmfurr_doors) 
+13. [Instagram - Photography - Engineering](https://www.instagram.com/margaretmfurr_engineering)
+14. [Instagram - Photography - American Flags](https://www.instagram.com/margaretmfurr_americanflags)
 
 <br>
