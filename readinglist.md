@@ -282,7 +282,7 @@ layout: default
 * The Age of Wood
 * Remarkable Diaries
 * Hidden in the Mix: The African American Presence in Country Music
-* The African-American Century : How Black Americans Have Shaped Our Country
+* The African-American Century: How Black Americans Have Shaped Our Country
 * Black Power and Palestine: Transnational Countries of Color (Stanford Studies in Comparative Race and Ethnicity)
 * The Hero with a Thousand Faces (The Collected Works of Joseph Campbell)
 * The Cafe on the Edge of the World: A Story About the Meaning of Life
@@ -305,7 +305,7 @@ layout: default
 * The Prehistory of Chickamauga Basin in Tennessee, T. M. N. Lewis
 * Myths of the Cherokee and Sacred Formulas of the Cherokee, James Mooney
 * The Death of Meriwether Lewis, J. H. Moore
-* The Annals of Tennessee: TO the End of the Eighteenth Century, J. G. M. Ramsey
+* The Annals of Tennessee: To the End of the Eighteenth Century, J. G. M. Ramsey
 * Culture, Crisis & Conflict: Cherokee British Relations 1756-1765, Anne F. Rogers and Barbara R. Duncan
 * Carolina Traders Among the Overhill Cherokees, 1690-1760, Mary Rothrock
 * Tennessee's Indian Peoples: From White Contact to Removal, 1540-1840, Rondald N. Satz
