@@ -135,6 +135,7 @@ layout: default
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
 * It's a Long Story: My Life by Willie Nelson
+* Songwriting with Purpose
 * The Architecture of Happiness
 * Journal of *Appalachian Studies* by Dwight B. Billings
 * *The Road to Poverty: The Making of Wealth and Hardship in Appalachia* by Dwight B. Billings
