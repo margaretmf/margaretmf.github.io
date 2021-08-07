@@ -29,6 +29,22 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for hope in the universe and the world
 * Grateful for a clearer understanding of history
 * Grateful for all the people expressing joy in other faith circles
+* Grateful for church hymns corresponding with passages in the textbooks
+* Grateful for positive memories in DC and the good going on
+* Grateful for the good going on outside this room
+* Grateful for home in Memphis
+* Grateful for home in Charlottesville
+* Grateful for home in other places
+* Grateful for memories at VUa and the beauty
+* Grateful for music playing
+* Grateful for all the expressions in this room
+* Grateful for the harmony
+* Grateful for mentors at work
+* Grateful for dual language preschools
+* Grateful for the Spanish language
+* Grateful for nusring homes in and around Crossville
+* Grateful for people who have served our country
+* Grateful for the Fourth of July
 * Grateful for God's care everlasting
 * Grateful for songs about everlasting love
 * Grateful for rhymes in children's music and children's literature
@@ -42,7 +58,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for childhood memories
 * Grateful for everyone here with spouses and partners
 * Grateful for the life lessons of everyone
-* Grateufl for the HR lead in businesses
+* Grateful for the HR lead in businesses
 * Grateful for leaders in the world
 * Grateful for a world full of people
 * Grateful for people on a playground
@@ -52,7 +68,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people here with me
 * Grateful for Dolly Parton
 * Grateful for the people on the family trip we went on
-* Grateufl for the summer sounds
+* Grateful for the summer sounds
 * Grateful to heal from toxicity
 * Grateful for pure-heartedness
 * Grateful for what's behind me
@@ -142,7 +158,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people who work with Amazon
 * Grateful for new jobs available
 * Grateful for ways that Christian Science has healed people
-* Grateufl for everyone from UVA
+* Grateful for everyone from UVA
 * Grateful for leaders at UVa
 * Grateful for the drives to school and back
 * Grateful for the old car
@@ -249,13 +265,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for happy people
 * Grateful for God's unfoldment
 * Grateful for the article on patterns
-* Grateufl for the family that contributed to Hopeway
+* Grateful for the family that contributed to Hopeway
 * Grateful for the people i've met in Hopeway
 * Grateful for cousins
 * Grateful for the future-orientedness of a friend in Norfolk
 * Grateful for people getting maried
 * Grateful for friends from Norfolk
-* Grateufl for people playing music
+* Grateful for people playing music
 * Grateful for all the people who show up to lectures
 * Grateful for kids learning about math
 * Grateful for the light everywhere in church and everywhere
@@ -330,7 +346,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people in the olympics and what their proving and demonstrating
 * Grateful for people in Norfolk
 * Grateful for people comfortable with spiritual work
-* Grateufl for the artwork in the medical world
+* Grateful for the artwork in the medical world
 * Grateful for all the good going on here
 * Grateful for the good in West Virginia
 * Grateful for people where I am 
@@ -341,8 +357,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the hotel with the Bible in it
 * Grateful for people who look to the Bible
 * Grateful for all the other people surrounding the beaches and water
-* Grateufl for all the musicians coming out of Memphis
-* Grateufl for people who looked up to the stars with me
+* Grateful for all the musicians coming out of Memphis
+* Grateful for people who looked up to the stars with me
 * Grateful for the stars
 * Grateful for mandolin players
 * Grateful for musicians
@@ -359,7 +375,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for order on the road
 * Grateful for how people can love all mankind in one affection
 * Grateful for all the people at Hopeway
-* Grateufl for life expressed through business
+* Grateful for life expressed through business
 * Grateful for life expressed through balance sheets and what everything in business represents
 * Grateful for people at the hair salon
 * Grateful for ethics online and in the medical world
@@ -374,7 +390,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Christian singer songwriters
 * Grateful for deeper eyes than to behold evil
 * Grateful to be strong and hold fast
-* Grateufl for all God's son and daughters
+* Grateful for all God's son and daughters
 * Grateful for people from other churches
 * Grateful for God in the courts and the divine pattern
 * Grateful for the Holy Spirit in people
@@ -403,21 +419,21 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for city architecture
 * Grateful for business leaders
 * Grateful for healthy conversations at home
-* Grateufl for the reds and blues and the interior design
+* Grateful for the reds and blues and the interior design
 * Grateful for the growth in grace for everyone
 * Grateful for friends from Rolling Hills
 * Grateful for all the people with full agency
 * Grateful for makers of films
 * Grateful for people on social media
 * Grateful for masons
-* Grateufl for values taught at Norfolk Academy
+* Grateful for values taught at Norfolk Academy
 * Grateful for old friends from Norfolk Academy
 * Grateful for books read
 * Grateful for abstract art
 * Grateful for color schemes
 * Grateful for the professor
 * Grateful for the Engels
-* Grateufl for the people at the beach
+* Grateful for the people at the beach
 * Grateful for friends from Memphis
 * Grateful for memories of football games
 * Grateful for family members
@@ -434,11 +450,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the harmony at graduation events
 * Grateful for the good going on right now
 * Grateful for all the people I saw tonight
-* Grateufl for memories supporting CSOs
+* Grateful for memories supporting CSOs
 * Grateful for people yelling outside in the summer
 * Grateful for all the people in classes at UVA
-* Grateufl for people in Memphis
-* Grateufl for all the people singing today
+* Grateful for people in Memphis
+* Grateful for all the people singing today
 * Grateful for moms and dads trip to the beach
 * Grateful for the intelligence of little kids
 * Grateful for the smiles of little kids
@@ -446,7 +462,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people from hometown
 * Grateful for people from camp
 * Grateful for people I worked with
-* Grateufl for all the people in the entrepreneurship class
+* Grateful for all the people in the entrepreneurship class
 * Grateful for Al Green and the people in Memphis
 * Grateful for the people in the store
 * Grateful for all the people working
@@ -507,7 +523,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for peers from Norfolk Academy
 * Grateful for Hutner's work on the book box
 * Grateful for the practitioner's family
-* Grateufl for the women behind the election
+* Grateful for the women behind the election
 * Grateful for the perspective of the other side of the country
 * Grateful for the colors weaving through the country in all we do every day
 * Grateful for strength and balance expressed through womanhood
@@ -546,8 +562,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the historyof the 4th of July, America, and all the people
 * Grateful for the friends here and the qualities of the friendships
 * Grateful for memories in DC
-* Grateufl for God's work
-* Grateufl for people doing new activities
+* Grateful for God's work
+* Grateful for people doing new activities
 * Grateful for memories with coins doing laundry
 * Grateful for interior design and architecture
 * Grateful for the doctor here
@@ -555,7 +571,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for news in Scotland
 * Grateful for friends from UVA
 * Grateful for hearts united
-* Grateufl for the best parts of everyone alive
+* Grateful for the best parts of everyone alive
 * Grateful for singers and musicians from UVA
 * Grateful for all the people working in hotels and airports
 * Grateful for people transformed through grace
@@ -619,7 +635,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the city that has been here for years and the days of storms
 * Grateful for a world with love and life moving it always
 * Grateful for the love in hospitals
-* Grateufl for a shoe left in a driveway
+* Grateful for a shoe left in a driveway
 * Grateful to love all the people people love
 * Grateful for the sun rays lifting up into heaven above feeling peace at home
 * Grateful that everything needed is within
@@ -684,7 +700,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my cousins in Memphis
 * Grateful for the art exhibit
 * Grateful for people surviving COVD-19
-* Grateufl for all the people here at the exhibit
+* Grateful for all the people here at the exhibit
 * Gratefulf or cousins and family members alive
 * Grateful for people in villages and people coming together
 * Grateful for people in Italy
@@ -719,7 +735,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people outside
 * Grateful for all the people you love
 * Grateful for the girls in tech in DC
-* Grateufl for people on the playground
+* Grateful for people on the playground
 * Grateful for lessons at Norfolk Academy about music and history
 * Grateful for Hut Two
 * Grateful for business schools
@@ -750,7 +766,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the ripple effect
 * Grateful for the hymns I used to listen to
 * Grateful for people in classes in DC on data and ethics and product management
-* Grateufl for all the youthful energy and thinking
+* Grateful for all the youthful energy and thinking
 * Grateful for the groups in DC doing their work
 * Grateful for the lunch of Nam and Faf
 * Grateful to hear the prayer of a church somewhere different than here
@@ -774,8 +790,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for folk music from all 50 states
 * Grateful for people in Pakistan
 * Grateful for memories of the churches and neighborhoods in Washington, DC
-* Grateufl for memories walking in Ireland
-* Grateufl for my brother
+* Grateful for memories walking in Ireland
+* Grateful for my brother
 * Grateful for currents, water, electricity
 * Grateful for a smile shared with someone in the car next to me
 * Grateful for American flags reflecting through glass doors
@@ -1191,7 +1207,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the nursing and psychological research 
 * Grateful for psychology and psychologists
 * Grateful for the little kids of others
-* Grateufl for the sound of the air conditioning
+* Grateful for the sound of the air conditioning
 * Grateful for the architecture at The Mother Church
 * Grateful for the man in Memphis who loves Math and Music
 * Grateful for musicians from Indiana, Illinois, Maryland coming to Nashville
@@ -1226,7 +1242,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for ribbons and engineering
 * Grateful for golen thread
 * Grateful for the rose imagery
-* Grateufl for architecture
+* Grateful for architecture
 * Grateful for God's plan
 * Grateful for the Grand Creator
 * Grateful for all the people in the US bluegrass
@@ -1249,7 +1265,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my sister who is really strong and capable
 * Grateful for the innocence of a couple playing music
 * Grateful for the harmony of my music
-* Grateufl for American Eagle airways flying high in the sky
+* Grateful for American Eagle airways flying high in the sky
 * Grateful for all the people on the plane
 * Grateful for Dolly Parton's song on "wildflowers"
 * Grateful for country music embraced by all ethnicities' cultures and sounds
@@ -1975,7 +1991,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the work in the military
 * Grateful for the woman and her family from Idaho
 * Grateful for all the people from Idaho
-* Grateufl for the people in the hotel
+* Grateful for the people in the hotel
 * Grateful for the musicians
 * Grateful for the music
 * Grateful for the adventure
@@ -2066,7 +2082,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the good heart of peope
 * Grateful for the memories of running in DC
 * Grateful that Washington, DC represents the entire country
-* Grateufl for newness of energy every day
+* Grateful for newness of energy every day
 * Grateful for new channels of thought
 * Grateful for all the people at Milestones
 * Grateful for Christianity in rural VA and WV
@@ -2177,8 +2193,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the true thoughts from God that echo through today after yesterday and last summer
 * Grateful for the people in the apartment complex
 * Grateful for the people I worked with in Washington, DC
-* Grateufl for the work in the DC metro subway
-* Grateufl for the people working in NY entrepreneurship
+* Grateful for the work in the DC metro subway
+* Grateful for the people working in NY entrepreneurship
 * Grateful for the life of little kids
 * Grateful for all the people working on software development
 * Grateful for Darius's love of music
@@ -2214,7 +2230,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for friends' dads in Nashville
 * Grateful for memories in Ireland
 * Grateful for how Taylor Swift writes notes on toilet paper
-* Grateufl for the cuteness of little children and their intelligence
+* Grateful for the cuteness of little children and their intelligence
 * Grateful for memories in airports and with people all over the airport
 * Grateful for memroies at UVA of interesting people in class
 * Grateful for Christians who love music
@@ -2387,7 +2403,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the childlike qualities of people
 * Grateful for vintage interior design
 * Grateful for the people working with Hutchison
-* Grateufl for people working in law and doing the right thing
+* Grateful for people working in law and doing the right thing
 * Grateful for people enjoying Disney Land
 * Grateful for people in DC engaging in interfaith
 * Grateful for the physical representation of lifting people up
@@ -2395,7 +2411,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for friends from UVA
 * Grateful for the women creating new music
 * Grateful for other singer songwriters
-* Grateufl for the stars and the moon
+* Grateful for the stars and the moon
 * Grateful for the dialogue event in DC
 * Grateful for the man working in Starbucks
 * Grateful for the guy singing a song about wraparound porches
@@ -2409,7 +2425,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for Mary and Tyelr in Va
 * Grateful for beauty every day
 * Grateful for memories back at home of partying
-* Grateufl for the love that lights up the home
+* Grateful for the love that lights up the home
 * Grateful for lights flickering on and off
 * Grateful for the Cumberland Gap
 * Grateful for Christians creating music
