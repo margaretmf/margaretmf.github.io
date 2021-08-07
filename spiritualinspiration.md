@@ -57,6 +57,27 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people overcoming grief
 * Grateful for childhood memories
 * Grateful for everyone here with spouses and partners
+* Grateful for positive memories in Ireland
+* Grateful for the good going on for little children
+* Grateful for an apology
+* Grateful for God's daughters and sons
+* Grateful for the running race in Washington, DC with people
+* Grateful for the heart of people
+* Grateufl for healthy conversations with an aunt
+* Grateful for people who gather around music making
+* Grateful for the car in Charlottesville
+* Grateful for Christian nursing
+* Grateful for Christian teaching
+* Grateful for playfulness
+* Grateful for 'if you play a wrong note, play it again' and shift out of the binary of 'good, bad' and let it be new and what it's supposed to be
+* Grateful for embracing what's wrong
+* Grateful for teachers from Norfolk Academy
+* Grateful for positive experiences at Norfolk Academy
+* Grateful to blot out error or animal magnetism, and it's not coming from God
+* Grateful for people across the world searching and seeking
+* Grateful for Spanish words that mean "seek"
+* Grateful for all the piano players
+* Grateful for people in Charlottesville
 * Grateful for the life lessons of everyone
 * Grateful for the HR lead in businesses
 * Grateful for leaders in the world
