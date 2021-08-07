@@ -134,7 +134,6 @@ layout: default
 * Perspective Sketching: Freehand and Digital Drawing Techniques for Artists & Designers
 * Sketching Techniques for Artists: In-Studio and Plein-Air Methods for Drawing and Painting Still Lifes, Landscapes, Architecture, Faces and Figures, and More 
 * Koala Tools | Room Grid (1-Point) Large Sketch Pad | 9" x 12", 40 pp. - Perspective Grid Graph Paper for Interior Room Design, Industrial, Architectural and 3D Design
-* The History of Banking: The History of Banking and How the World of Finance Became What it is Today
 * Cash: The Autobiography by Johnny Cash
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
