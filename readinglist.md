@@ -391,7 +391,7 @@ layout: default
 * Begin Again: James Baldwin's America and Its Urgent Lessons for Our Own
 * Into the Wild Paperback by Jon Krakauer  (Author)
 * Captivating by John and Stasi Eldridge
-* * [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
+* [City Slickers, Little League Confidential, The Big Five-Oh!, Way Off the Road, and Good Talk, Dad] by Bill Geist
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
