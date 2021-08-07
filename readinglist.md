@@ -68,11 +68,16 @@ layout: default
 * [The Heartbeat of Trees: Embracing Our Ancient Bond with Forests and Nature](https://www.amazon.com/Heartbeat-Trees-Embracing-Ancient-Forests/dp/1771646896/ref=sr_1_1?crid=7FDX8EG4SJ97&dchild=1&keywords=the+heartbeat+of+trees&qid=1627936324&sprefix=the+heartbeat+of%2Caps%2C303&sr=8-1) by Peter Wohlleben
 * [Appalachian Reckoning: A Region Responds to *Hillbilly Elegy*](https://www.amazon.com/Appalachian-Reckoning-Region-Responds-Hillbilly/dp/1946684791/ref=sr_1_1?dchild=1&keywords=Appalachian+reckoning&qid=1628009610&sr=8-1) by Anthony Harkins and Meredith McCarroll
 * [The Story of the Moors in Spain]() by Lane-Poole
-* [Writing Better Lyrics: The Essential Guide to Powerful Songwriting]() by Pat Pattison
-* [Brick: A Social History]() by Louer
+* [Writing Better Lyrics: The Essential Guide to Powerful Songwriting](https://www.amazon.com/Writing-Better-Lyrics-Pat-Pattison/dp/1582975779/ref=sr_1_1?dchild=1&keywords=writing+better+lyrics&qid=1628357764&sr=8-1) by Pat Pattison
+* [Brick: A Social History](https://www.amazon.com/Brick-Social-History-Carolyne-Haynes/dp/0750991933/ref=sr_1_1?dchild=1&keywords=brick%3A+a+social+history&qid=1628357783&sr=8-1) by Louer
 
 #### Reading
 * [Sunnis and Shi'a: A Political History]() by Laurence Louer
+* [The History of Banking: The History of Banking and How the World of Finance Became What it is Today]() by K. Connors
+* [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
+* [Writing Ethnographic Fieldnotes]() by Emerson, Fretz, and Shaw
+* [The Affirmative Action Puzzle]() by Melvin I. Urofsky
+* [Bicknell Young: Notes of 1936 Primary Class Instruction]() by Bicknell Young
 
 #### Interested
 * HowExpert Guide to Becoming a Country Singer-Songwriter: 101 Lessons to Become a Country Singer-Songwriter by HowExpert
@@ -103,7 +108,6 @@ layout: default
 * Beeswing: Losing My Way and Finding My Voice 1967-1975
 * Appalachia: A History
 * The Skeletons in God's Closet
-* Writing Better Lyrics
 * Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
 * Songwriter's Journal (Diary, Notebook) 
 * Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
@@ -395,7 +399,6 @@ layout: default
 * [My Sixty Years on the Plains: Trapping, Trading, and Indian Fighting](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1695768930/ref=pd_lpo_14_t_0/140-1164491-0949269?_encoding=UTF8&pd_rd_i=1695768930&pd_rd_r=b4345087-d11f-4ad2-9ec3-64ab247604d2&pd_rd_w=otZJk&pd_rd_wg=ohqCU&pf_rd_p=a0d6e967-6561-454c-84f8-2ce2c92b79a6&pf_rd_r=MHKQFHX5BASM0DW17AHK&psc=1&refRID=MHKQFHX5BASM0DW17AHK) by W. T. Hamilton
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
-* [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 * Respect Yourself: Stax Records and the Soul Explosion
 * Johnny Cash, by Robert Hilburn 
 * Roads to Berlin, by Cees Nooteboom, translated from the Dutch by Laura Watkinson 
