@@ -69,6 +69,60 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for memories with drivers
 * Grateful for healthy conversations this morning
 * Grateful that I'm not the only one
+* Grateful for all the ways other people have experienced healing
+* Grateful for God's illumination of healing to people in need
+* Grateful for creative writers around the world
+* Grateful for the drive across the Arkansas Bridge
+* Grateful for the nursing staff
+* Grateful for everyone where I am
+* Grateful for people I remember from interview
+* Grateful for what people have contributed to Hopeway
+* Grateful for people who have overcome things
+* Grateful for people from the Christian Science Church
+* Grateful to learn and grow constantly
+* Grateful for all the ways people use liberal arts degrees in the real world
+* Grateful for what people are learning in the data-driven economy
+* Grateful for my grandmother's faith
+* Grateful for memories from childhood
+* Grateful that the world is always unfolding as it should
+* Grateful for little children and the love grandparents and parents have for them
+* Grateful for other churches with people of faith
+* Grateful for the harmony of God 
+* Grateful for a new day to improve every day
+* Grateful for all the people in the coffee shop
+* Grateful for the feeling being temporary
+* Grateful for the people I ate dinner with
+* Grateful for a phone conversation
+* Grateful for other music
+* Grateful for clearing things out
+* Grateful for the sun shining
+* Grateful for the man serving dinner
+* Grateful for the woman serving food
+* Grateful for the food
+* Grateful for home in Charlotte
+* Grateful for the hymns
+* Grateful for a mother's relationship to her sons
+* Grateful for a mother's relationship to her daughter
+* Grateful for the guy from Norfolk I met
+* Grateful for people in classes
+* Grateful for a new day
+* Grateful for people producing good work
+* Grateful for compassion in the classroom
+* Grateful for the good going on at UVa
+* Grateful for memories from being in Washington, DC and walking around
+* Grateful for a good breakfast
+* Grateful for positive memories
+* Grateful for the post office and people who work with the mail
+* Grateful for people working in coffee shops
+* Grateful for the music therapist and her energy
+* Grateful for the post office and people who work with the mail
+* Grateful for a new chapter ahead for Camp Nakanawa
+* Grateful for people in Scotland
+* Grateful for the beach
+* Grateful for the highwomen
+* Grateful for people from the sororities
+* Grateful for friends from church
+* Grateful that "she" is smart
 * Grateful for everyone who has shared their stories
 * Grateful for people in therapy with me
 * Grateful for people in Tennessee
