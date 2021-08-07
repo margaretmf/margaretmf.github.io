@@ -76,8 +76,8 @@ layout: default
 * [The History of Banking: The History of Banking and How the World of Finance Became What it is Today]() by K. Connors
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 * [Writing Ethnographic Fieldnotes]() by Emerson, Fretz, and Shaw
-* [The Affirmative Action Puzzle]() by Melvin I. Urofsky
 * [Bicknell Young: Notes of 1936 Primary Class Instruction]() by Bicknell Young
+* [Flag: An American Biogrpahy]() by Marc Leepson
 
 #### Interested
 * HowExpert Guide to Becoming a Country Singer-Songwriter: 101 Lessons to Become a Country Singer-Songwriter by HowExpert
