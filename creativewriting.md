@@ -3594,6 +3594,8 @@ He had lived through this all bfore.
 He saved us all from things we could not foresee.
 He knew how to synch us up.
 
+He's got two hands circling around everything
+
 Clock watching
 Father Time
 Counting down the time, the hours, the minutes
