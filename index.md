@@ -132,12 +132,14 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to seek my inputs, and thoughtfully incorporate the inputs.
   **Sus abilidades para buscar mis aportes, y incorporar pensativamente los aportes.**
 * Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
-* Their ability to support cross-departmental work
-* Their ability to encourage people to go outside their comfort zone
-* Their ability to structure projects and time well
-* Their ability to facilitate team work
-* Their ability to mentor
-* Their ability to work with other teams effectively
+  **Sus abilidades para expresar compasión, empatizarse, compadecerse, y escuchar a los sentimientos de la gente.
+* Their ability to support cross-departmental work.
+  ** Sus abilidades para apoyar el trabajo interdepartamental.
+* Their ability to encourage people to go outside their comfort zone.
+* Their ability to structure projects and time well.
+* Their ability to facilitate team work.
+* Their ability to mentor.
+* Their ability to work with other teams effectively.
 
 ## Longer Work Biography ##
 As a continuous, lifelong learner, I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, **languages - Español, English, and interested in Native and Chinese characters and symbols, and Sanskrit**. and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
