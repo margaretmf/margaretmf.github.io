@@ -6019,6 +6019,21 @@ I hold you tight both day and night
 You're a heart that's true
 and I sure do love you
 
+Day in and day out
+It's a yes and I do
+There's a whole world for us
+And I sure do love you
+
+The church bells are rining
+for you and for me
+It's a heart to heart kiss
+It's an eternal embrace
+
+This love never burns out
+It's a continuous thing
+The flame is forever bright
+It goes on and on and on
+
 <br>
 
 ## Kiss on the Heart ##
@@ -7085,7 +7100,7 @@ the father of light
 the land of good soil
 the good going on
 
-Old Glorym sacred symbol, flag
+Old Glory sacred symbol, flag
 Symbol to pledge
 America, a new constellation
 A land of twinkling lights, burning hearts
@@ -7096,14 +7111,20 @@ horizon to horizon
 it's written in the stars
 our names are up above
 it's a country we are destined for
- a nation where people can be born new
- triumph on land and sea
- Victory, Triumph, Victorioius, Triumphant
- the destiny, guiding stars
- Serving the good for all, the highest supreme good
- A great nation
- Father of lights, goodness
- Common mission
+a nation where people can be born new
+triumph on land and sea
+Victory, Triumph, Victorioius, Triumphant
+the destiny, guiding stars
+Serving the good for all, the highest supreme good
+A great nation
+Father of lights, goodness
+Common mission
+glowing hearts
+names written in the sky
+we've fought for our independence
+the rockets have gone up
+Wave it proud, wave it well
+ 
 **"the primary builder of their nation was divine nd that their nation's blueprint was heavenly" "new nation" (p. 18, Inventing the American Flag book)**
 
 <br>
