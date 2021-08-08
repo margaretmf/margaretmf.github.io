@@ -15,6 +15,8 @@ I am **Margaret Furr**, a graduate of the University of Virginia. My dream job i
 
 Previously, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
 
+**Previamente, trabajó como una *analista de datos* con *EVERFI*, una empresa de tecnología educativa en expansión, que proporciona contenido que ayuda los estudiantes se alfabetizan en finanzas y herramientas digitales, participar cívicamente, y desarrollar relaciones saludables. *EVERFI* es muy bueno en amplia la conciencia cultural y sentido de compasión de la gente.**
+
 I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
 
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. 
@@ -29,11 +31,11 @@ I am exploring how to sketch and how to use visual arts to share history and cul
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
 
-I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. Currently, I am researching themes in books like oneness, unity, faith in politics, women's role in elections, the story of America, black lives' roles, republican-democratic party dynamics, and what the American States are. I also love exploring how people create music.
+I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. *I also love developing an understanding of signs and symbols from different languages, and I am working on a series of sketches of symbols.*
 
-**Me amo trabajando en fotografia de la luz en la oscuridad, la bandera de los Estados Unidos, las hojas, las ventanas, las puertas, los objetos cotidianos en la naturaleza, y las cosas. En este momento, investigando los temas en los libros como la Unidad, la unión, la fe en las ciencias políticas, papel de la mujer en las elecciones, la historida de America, las vidas de los afroamericanos, la dinámica republicano-democrática del partido, y qué son los Estados americanos. Me amo explorando cómo la gente crea música.**
+**Me amo trabajando en fotografia de la luz en la oscuridad, la bandera de los Estados Unidos, las hojas, las ventanas, las puertas, los objetos cotidianos en la naturaleza, y las cosas.**
 
-With a love for writing, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I dream of writing books on spiritual entrepreneurship, and how people with liberal arts degrees move into the real world. I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry.
+With a love for writing and reading, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I dream of writing books on spiritual entrepreneurship, and how people with liberal arts degrees move into the real world. I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry. *Finally, I am researching themes in books like oneness, unity, faith in politics, women's role in elections, the story of America, black lives' roles, republican-democratic party dynamics, and what the American States are. I also love exploring how people create music.*
 
 **Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico.**
 
@@ -144,19 +146,6 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to facilitate team work.
 * Their ability to mentor.
 * Their ability to work with other teams effectively.
-
-## Longer Work Biography ##
-As a continuous, lifelong learner, I am developing expertise in **photography**, **sketching**, **writing**, **ethnographic interviewing**, **computer programming**, **languages - Español, English, and interested in Native and Chinese characters and symbols, and Sanskrit**. and **understanding the Bible spiritually**. I also love learning about **requirements specification for product development**, **visual arts, drawing, and painting**, **music**, and **math, science, English, and arts education**. I love helping people as well as living spontaneously and orderly.
-
-Most recently, I have been learning about antiracism and working on photography of light in the darkness and continuing the work to "Take Back the Night."
-
-I am exploring how to paint the light in the darkness series, and looking to the light in the house and on the streets led me to explore using visual arts to understand electrical and civil engineering of homes and cities. I also explore sketching construction sites, geometric shapes, and civil engineering concepts.
-
-To reconcile being a career woman and a woman who loves home, I have started to think about all the activities inside and outside the home from an engineering and visual arts perspective.
-
-I love developing an understanding of signs and symbols from different languages, and I am working on a series of sketches of symbols.
-
-I have also driven through 12 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Wisconsin, Ohio, Kentucky, West Virginia, Georgia, and North Carolina), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience. Kinesthetic learning, and experiential learning helps to understand visually and experientially the country. Listening to music and reading books, and meeting people in hotels also helps people understand what is going on. While learning about farmland and country in America, as well as in Ireland and Scotland back in 2013, I also have an interest in farmland, country, logistics, and supply chain engineering in all countries on Earth.
 
 <br>
 
