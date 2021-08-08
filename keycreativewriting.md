@@ -310,36 +310,67 @@ Someone else is looking to this same flower.
 
 ## Parallels ##
 When running through the storm here someone is running through a rainstorm in another city.
+
 When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
+
 When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
+
 When walking by a hotel's front door here, I think of standing in front of hotel in another city.
+
 When walking by a bookstore here, I remember walking in a bookstore somewhere else.
+
 When writing notes on my phone, someone on the other side of the country is doing the same thing.
+
 When sitting alone in bed, someone on the other side of the world is feeling the same way.
-While I'm walking by a car today I love remembering a moment of walking by a running car in another city.
-While walking by apartments here I love thinking of apartments in another place.
+
+When I'm walking by a car today I love remembering a moment of walking by a running car in another city.
+
+When walking by apartments here I love thinking of apartments in another place.
+
 When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
+
 When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
+
 When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
+
 When running down a trail here I think of running down trails in other places in TN and DC.
+
 When writing poems and creatively writing, someone else is doing this somewhere else.
+
 When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
+
 When folding towels I appreciate those folding towels somewhere else.
+
 When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
+
 When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
+
 When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
+
 When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
+
 When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
+
 When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
+
 When I set down to ask a question about a word, other people have asked the same question.
+
 When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
+
 When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
+
 When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
+
 When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
+
 When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
+
 When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
+
 When walking by the medical center I think of medical center in another city, and I love all the people in the center.
+
 When sipping on coffee I think of sipping on coffee with people in Argentina.
+
 When in a gymn looking to the ceiling, I think of looking to gymn ceilings in two other places.
 
 <br>
@@ -353,7 +384,6 @@ A shoelace on the sidwalk.
 Shoes on an electric wire.
 
 <br>
-
 
 ## Sweet Nothings ##
 Sweet nothings you put in my ear.
@@ -531,8 +561,8 @@ There's someone, there are people behind the data.
 
 There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
 
-There are people behind the word **Queen** on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
-walking on Earth are behind the word **Queen** on the advertisement.
+There are people behind the word *Queen* on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
+walking on Earth are behind the word *Queen* on the advertisement.
 
 There's someone there, there are people there behind the construction of the building.
 
