@@ -940,7 +940,7 @@ Let it flee into the ocean.
 Let it fly across the sea.
 Let it fall to the floor.
 
-**[Biblical Reference](https://truthintheword.wordpress.com/2011/01/28/your-sins-are-at-the-bottom-of-the-ocean/)##
+**[Biblical Reference](https://truthintheword.wordpress.com/2011/01/28/your-sins-are-at-the-bottom-of-the-ocean/)**
 
 <br>
 
