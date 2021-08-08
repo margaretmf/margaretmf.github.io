@@ -22,6 +22,88 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for good books
 * Grateful to learn more about what a friend shared
 * Grateful for a poem shared
+* Grateful for cheerful voices
+* Grateful for everyone at Roaring Gap
+* Grateful for little kids sharing lessons with adults
+* Grateful for my sister singing
+* Grateful for people enjoying vacations
+* Grateful for how couples build lives together
+* Grateful for courage of heart and confidence
+* Grateful that God binds up the broken-hearted
+* Grateful to understand statistical concepts like variance and covariance better
+* Grateful to bring a good attitude and let go of the past
+* Grateful for all the people at Starbucks
+* Grateful for people working in restaurants and hotels
+* Grateful for compassionate businesses
+* Grateful for how God nudges people
+* Grateful for healthy conversations on the phone
+* Grateful for women who work in finance
+* Grateful for Christian nurses
+* Grateful for people living for new days
+* Grateful for other people who have gone through psych wards
+* Grateful for everyone in Memphis today
+* Grateful for cousins
+* Grateful for the experience in Tennessee
+* Grateful for the home of family members
+* Grateful for people who love to dance
+* Grateful for healthy conversations with people
+* Grateful for good books
+* Grateful for a friend at dinner
+* Grateful for all the young people learning new things
+* Grateful for healthy food choices
+* Grateful for yoga practices and meditation styles
+* Grateful for time spent reading
+* Grateful for learning centers
+* Grateful for people who love rulers
+* Grateful for straight lines
+* Grateful for Appalachia
+* Grateful for all the people in Appalachia
+* Grateful for family and family members
+* Grateful for the laws of the land
+* Grateful for the consciousness of the Natives in the land
+* Grateful for purity of heart and thought
+* Grateful for the summer sounds
+* Grateful for the faith of humanity
+* Grateful for little kdis who love Christian Science
+* Grateful for people who love children's books
+* Grateful for the Holy Bible
+* Grateful for great grandmother
+* Grateful for people from hometown
+* Grateful for people from church
+* Grateful for everyone in Chicago
+* Grateful for the leaders of Tennessee Shakespeare Company
+* Grateful for good poetry
+* Grateful for good works of literature
+* Grateful for the Spanish language
+* Grateful for the people working in CVS
+* Grateful for the energy in Memphis
+* Grateful for all the singer songwriters
+* Grateful to learn more about banking
+* Grateful for positive memories in Virginia Beach and nOrfolk
+* Grateful for other singers who express the same ideas
+* Grateful for Christian Science Practitioners who people turn to
+* Grateful for God's work today
+* Grateful for everyone editing and serving food
+* Grateful for Christian Science Practitioners I've turned to
+* Grateful for friends from camp
+* Grateful for the prayers at camp
+* Grateful for the horticulture here
+* Grateful for the woman who leads horticulture
+* Grateful for the work of Harriet Beecher Stowe
+* Grateful for abolitionist preachers
+* Grateful for the time spent in California
+* Grateful for the apologies sent before the Summit
+* Grateful for all the people who attended the Summit and answered questions
+* Grateful for Celtic music
+* Grateful for a phone call with mom
+* Grateful for therapists in Washington, DC
+* Grateful for Buddhism
+* Grateful for walks in the park
+* Grateful for people who teach and practice Buddhism
+* Grateful for spiritual people 
+* Grateful for laundry and photos on Sundays
+* Grateful for the healing going on
+* Grateful for memories in Tennessee
 * Grateful for the woman working at McDonald's
 * Grateful for the human connection
 * Grateful to pray for the whole world, and the whole country and wait patiently in the car
