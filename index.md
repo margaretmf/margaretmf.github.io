@@ -13,6 +13,10 @@ I am **Margaret Furr**, a graduate of the University of Virginia. My dream job i
 
 **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. También, me llamo Meg. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
+Previously, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
+
+I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
+
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. 
 
 **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.**
@@ -154,15 +158,7 @@ I love developing an understanding of signs and symbols from different languages
 
 I have also driven through 12 states (Virginia, Tennessee, Arkansas, Mississippi, Missouri, Illinois, Wisconsin, Ohio, Kentucky, West Virginia, Georgia, and North Carolina), taken photos of American flags, and explored rivers, trains, highways, bridges, and civil infrastructure in our country. I nurture a love of maps, rivers, and the opportunity to learn our country by experience. Kinesthetic learning, and experiential learning helps to understand visually and experientially the country. Listening to music and reading books, and meeting people in hotels also helps people understand what is going on. While learning about farmland and country in America, as well as in Ireland and Scotland back in 2013, I also have an interest in farmland, country, logistics, and supply chain engineering in all countries on Earth.
 
-To learn to articulate feelings and thoughts, I have started writing poetry.
-
-
 <br>
-
-
-Before this work, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
-
-I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
 
 Outside of work, one can find me **reading**, **jogging**, **playing music**, **swimming**, **following world affairs**, **managing Instagram and Twitter accounts**, **dancing**, and **committing to peacemaking**. I am most excited about communities, communication, frameworks, and the balance of art and science.
 
