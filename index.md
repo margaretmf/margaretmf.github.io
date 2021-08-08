@@ -15,9 +15,11 @@ I am **Margaret Furr**, a graduate of the University of Virginia. My dream job i
 
 Previously, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
 
-**Previamente, trabajó como una *analista de datos* con *EVERFI*, una empresa de tecnología educativa en expansión, que proporciona contenido que ayuda los estudiantes se alfabetizan en finanzas y herramientas digitales, participar cívicamente, y desarrollar relaciones saludables. *EVERFI* es muy bueno en amplia la conciencia cultural y sentido de compasión de la gente.**
+**Previamente, trabajó como una Analista de Datos con EVERFI, una empresa de tecnología educativa en expansión, que proporciona contenido que ayuda los estudiantes se alfabetizan en finanzas y herramientas digitales, participar cívicamente, y desarrollar relaciones saludables. EVERFI es muy bueno en amplia la conciencia cultural y sentido de compasión de la gente.**
 
-I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fund to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
+I have enjoyed working as a **pro bono strategic alignment consultant** for [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), and [Jubilee Jumpstart](http://www.jubileejumpstart.org) through [Compass](http://compassprobono.org) to revitalize the DC community, and I have worked as a **proposal reviewer**, **project manager**, **data ambassador** and **data analyst** with [DataKind](http://www.datakind.org). It has been fun to interview people experiencing homeless with [Design for the Homeless](https://www.designforthehomeless.org/).
+
+**He disfrutado trabajando como una consultora de alineación estratégica para [The Welders](https://www.thewelders.org/), [Homeless Children's Playtime Project](https://www.playtimeproject.org), y [Jubilee Jumpstart](http://www.jubileejumpstart.org) por [Compass](http://compassprobono.org) para revitalizar la comunidad de Washington, DC. También, he trabajado como una revisor de propuestas, gerente de proyecto, embajadora de datos, y analista de datos con DataKind](http://www.datakind.org). Ha sido divertido para entrevistar la gente experimentando la falta de vivienda con [Design for the Homeless](https://www.designforthehomeless.org/).
 
 The values that Thomas Jefferson and other founders shared in the Declaration of Independence and the active pursuit of Life, Liberty, and Happiness inspire me. 
 
@@ -62,6 +64,10 @@ It is interesting how movements start from the ground-up. I am interested in the
 Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am and drove team members to practice in Charlottesville. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
 
 **Finalmente, como un estudiante de las Universidad de Virginia y la Universidad de Glasgow, remé. Desperté antes de ante a las 5 am y condujo miembros del equipo para practicar en Charlottesville, Virginia y en Glasgow, Scotland. Me encantaría volver a estar en forma y remar con un equip. Remando en a río es la cosa mejor para agradecer ser una miembra de un equipo, cometer a metas, expresar diligencia, intelligencia, un sentido de unidad, y fuerza, and amar naturaleza - la agua, los árboles, y los aves.**
+
+Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is **"Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all."** 
+
+** **
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
@@ -146,12 +152,6 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to facilitate team work.
 * Their ability to mentor.
 * Their ability to work with other teams effectively.
-
-<br>
-
-Outside of work, one can find me **reading**, **jogging**, **playing music**, **swimming**, **following world affairs**, **managing Instagram and Twitter accounts**, **dancing**, and **committing to peacemaking**. I am most excited about communities, communication, frameworks, and the balance of art and science.
-
-Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is **"Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all."** 
 
 <br>
 
