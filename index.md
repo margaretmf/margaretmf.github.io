@@ -132,9 +132,9 @@ In previous work, I have worked with various types of supervisors.
 * Their ability to seek my inputs, and thoughtfully incorporate the inputs.
   **Sus abilidades para buscar mis aportes, y incorporar pensativamente los aportes.**
 * Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
-  **Sus abilidades para expresar compasión, empatizarse, compadecerse, y escuchar a los sentimientos de la gente.
+  **Sus abilidades para expresar compasión, empatizarse, compadecerse, y escuchar a los sentimientos de la gente.**
 * Their ability to support cross-departmental work.
-  ** Sus abilidades para apoyar el trabajo interdepartamental.
+  ** Sus abilidades para apoyar el trabajo interdepartamental.**
 * Their ability to encourage people to go outside their comfort zone.
 * Their ability to structure projects and time well.
 * Their ability to facilitate team work.
