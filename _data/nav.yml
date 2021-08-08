@@ -37,12 +37,6 @@
 - name: "Teaching"
   link: "teaching"
   
-- name: "Vocabulary"
-  link: "vocabulary"
-  
-- name: "Vocabulario"
-  link: "vocabulario"
-  
 - name: "Coding Concepts"
   link: "codingconcepts"
   
