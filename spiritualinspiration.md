@@ -75,7 +75,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the class on entrepreneurship
 * Grateful for all the people in the class
 * Grateful for people who love to dance
-* Gratefulf or occupational therapy where I am
+* Grateful for occupational therapy where I am
 * Grateful for CBT and DBT where I am
 * Grateful for the doctors and the nurses where I am
 * Grateful for nature outside where I am
