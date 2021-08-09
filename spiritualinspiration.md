@@ -27,6 +27,9 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for little kids sharing lessons with adults
 * Grateful for my sister singing
 * Grateful for people enjoying vacations
+* Grateful for a great aunt
+* Grateful for the gifts a great aunt gives
+* Grateful for family all over the place
 * Grateful for how couples build lives together
 * Grateful for courage of heart and confidence
 * Grateful that God binds up the broken-hearted
