@@ -66,6 +66,100 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people in Appalachia
 * Grateful for family and family members
 * Grateful for the laws of the land
+* Grateful for people I've worked with in the past
+* Grateful for the morning time
+* Grateful for a new day for teachers and students
+* Grateful for breakfast this morning
+* Grateful for experiences in Argentina
+* Grateful for people from church
+* Grateful for friends
+* Grateful for cousins
+* Grateful for the music playing
+* Grateful for God's daughter
+* Grateful for people in Rocky Top
+* Grateful for people in NOLA
+* Grateful for good people
+* Grateful for data analysis skills
+* Grateful for how bees make honey
+* Grateful to be honest
+* Grateful for new apartments in Norfolk
+* Grateful for the apartments in Washington, DC
+* Grateful for a path unfolding
+* Grateful for my cousins' friends
+* Grateful for the innocence of the people in the program
+* Grateful for the good going on in businesses
+* Grateful for innovation
+* Grateful for everyone here with me today
+* Grateful for all my cousins
+* Grateful for people all over the world and a huge smile
+* Grateful for West Virginia
+* Grateful for people from classes and jobs
+* Grateful for people I met in Tennessee
+* Grateful for my sister's friends
+* Grateful for the good attitude and good cheer of people I know
+* Grateful for the grace of God
+* Grateful for memories with Venture for America
+* Grateful for all the people in the room
+* Grateful for inspiring speakers
+* Grateful for good brothers
+* Grateful for good friends
+* Grateful for preschool education
+* Grateful for interior designers
+* Grateful for my sister and the books she's sending
+* Grateful for the bus driving by
+* Grateful for the love and joy around Christmas time
+* Grateful for counter statements
+* Grateful that I can use it again but in moderation
+* Grateful taht there is something else healthier to repalce the use of it with
+* Grateful there are other ways to have fun and be excited
+* Grateful that I can overcome challenges in this life
+* Grateful that there are other solutions
+* Grateful that I can go out with someone, find something else to drink, and that people will understand
+* Gratetful that I can take small steps to get out of debt and not get hurt
+* Grateful that I can choose to do something else
+* Grateful that progress, healing, recovery, and life are not linear and it ebbs and flows
+* Grateful that people will understand why I don't use
+* Grateful that the progress matter
+* Grateful that I'm going to replace this one I want with something else more positive
+* Grateful that something else can take the edge off, and that I can find the peace right now
+* Grateful for all the experiences of people in this room
+* Grateful for the people in North Carolina
+* Grateful for people from other faith backgrounds
+* Grateful for all the artistic expression
+* Grateful for the paintings today
+* Grateful for a love for biology and chemistry
+* Grateful for the progress
+* Grateufl for people and their love for their children
+* Grateful for beautiful people where I am
+* Grateful for people at sports games
+* Gratefulf or the Spanish synonyms for God
+* Grateful taht I can be cute at times in situations
+* Grateful to celebrate assertive victories with family members and community members
+* Grateful for God's work everywhere
+* Grateufl for the music therapist
+* Grateful to participate in kitchen therapy
+* Grateufl for people from church
+* Grateful for the life of the people whose lives are being stolen
+* Grateful for the guys I've gone out with
+* Grateful to heal from prejudice
+* Grateful for the woman at church who lvoes global thinking
+* Grateufl for the Bible
+* Grateful for all the interracial couples that have come before
+* Grateful to live fully in the present today
+* Grateful for the loving note and gift from an aunt
+* Grateful for the family coming together
+* Grateful for assertive communication skills
+* Grateful for forgiveness from my grandmother
+* Grateful for memories of being on the phone
+* Grateful for people who are helping and helpful
+* Grateful for the founders of healing spaces
+* Grateful for the people working where I am
+* Grateful for people's families
+* Grateful for people who have loved our family
+* Grateful for people from my high school
+* Grateful for the compassion shining through the family therapist
+* Grateful for the light in musicians
+* Grateful for family members
 * Grateful for the consciousness of the Natives in the land
 * Grateful for purity of heart and thought
 * Grateful for the summer sounds
