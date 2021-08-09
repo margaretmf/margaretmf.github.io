@@ -64,7 +64,40 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for purity of heart and thought
 * Grateful for the summer sounds
 * Grateful for the faith of humanity
-* Grateful for little kdis who love Christian Science
+* Grateful for little kids who love Christian Science
+* Grateful for creative writing teachers at Norfolk Academy
+* Grateful for the life and expression of people here
+* Grateful for new mercies every day
+* Grateful for how gratitude turned the lives of other people around
+* Grateful for the class on entrepreneurship
+* Grateful for all the people in the class
+* Grateful for people who love to dance
+* Gratefulf or occupational therapy where I am
+* Grateful for CBT and DBT where I am
+* Grateful for the doctors and the nurses where I am
+* Grateful for nature outside where I am
+* Grateful for good going on today
+* Grateful for cousins
+* Grateful for innovative tools for art
+* Grateful for mememories in the hotel
+* Grateful for colleagues at the education business
+* Grateful for family members
+* Grateful for the success of other women
+* Grateful for learn about new technologies
+* Grateful for musical friends who love teaching
+* Grateful for behavioral health around the word
+* Grateful for the man I met in Washington, DC
+* Grateful for God's sons and daughters
+* Grateful for new days to live and love
+* Grateful for the people I met on the Fourth of July
+* Grateful for the Fourth of July show
+* Grateful for stylish people from church
+* Grateful for the people I met in Washington, DC
+* Grateful for the leaders I worked for in Washington, DC
+* Grateful for new lyrics
+* Grateufl for loving and fresh people
+* Grateful for God's way of suprising people
+* Grateful for the musicians I used to listen to in college
 * Grateful for people who love children's books
 * Grateful for the Holy Bible
 * Grateful for great grandmother
