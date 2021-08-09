@@ -75,6 +75,123 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for good poetry
 * Grateful for good works of literature
 * Grateful for the Spanish language
+* Grateful for the people who support the amenities in buildings
+* Grateful for musicians and people in Memphis
+* Grateful for music history
+* Grateful for the security at the White House
+* Grateful for people in rural Virginia and West Virginia
+* Grateful for the people sharing snacks
+* Grateful for family members enjoying life
+* Grateful for all the people here to help
+* Grateful for all the people at gas stations
+* Grateful for all the people at UVA
+* Grateful for family members who went to school elsewhere
+* Grateful for that there's not one way way to do life, there's multiple ways to do life
+* Grateful for the innocence and light in people
+* Grateful for good sense of humor
+* Grateful for all the people enjoying art
+* Grateful for artists
+* Grateful for the people in the grocery store
+* Grateful for the holiness of couples and marriage
+* Grateful for sanctification
+* Grateful for all the leaders at Norfolk Academy
+* Grateful for the love of learning
+* Grateful for articles on health
+* Grateful for a sense of home
+* Grateful for nOrth Carolina, the state
+* Grateful for good places to hike
+* Grateful for connections on social media
+* Grateful for the coloring book
+* Grateful for the love of music
+* Grateful for the people I've prayed with
+* Grateful for people having fun on the playground
+* Grateful for the good going on
+* Grateful for the love of people all around
+* Grateful for harmony on buseses
+* Grateful for the apartment I lived in
+* Grateful for the people I met in Nashville
+* Grateful for parents
+* Grateful for others' essence
+* Grateful to hide myself in God
+* Grateful for memories in other neighborhoods in Washington, DC
+* Grateful for memories driving in California
+* Grateful for church members
+* Grateful for memories in NOVA listening to a hymn
+* Grateful for people I met at the Christian Science Church
+* Grateful for all the people where I am
+* Grateful for cousins
+* Grateful for people who have experienced healing
+* Grateful for the good going on in Norfolk
+* Grateful for what i'm reading about in books
+* Grateful for the help of a therapist
+* Grateful for a love of dogs
+* Grateful for little kids today
+* Grateful for friends with little kids
+* Grateful for the animal on the rock
+* Grateful for jacks fo all trades, masters of none
+* Grateful for people in my English classes at UVA
+* Grateful for everyone praising the Lord today
+* Grateful for everyone seeking God today
+* Grateful for the light in the darkness
+* Grateful for little kids love fo Christianity
+* Grateful for little kids' prayer for issues
+* Grateful for good friends
+* Grateful for friends from EVERFI
+* Grateful for the practitioners
+* Grateful for the nurses here
+* Grateful for fresh, cool, hip people
+* Grateful for the colors in the world
+* Grateful for little kids
+* Grateful for the women sitting outside
+* Grateful for people in Virginia
+* Grateful for people from the other hospital
+* Grateful for family members who love painting
+* Grateful for people getting engaged at age 38
+* Grateful for all the people who ate dinner
+* Grateful for all the people from church
+* Grateful for the Christian Science practitioner
+* Grateful for all the good people are doing in the world
+* Grateful for the harmony in a classroom
+* Grateful for the people from Rural Virginia
+* Grateful for the people from the Starbucks
+* Grateful to pray every time I see a gun law
+* Grateful for clarity on the internet
+* Grateufl for God's way of provisioning
+* Grateful for people I met through Compass
+* Grateful for the artist I met through Compass
+* Grateful for family friends
+* Grateful for my friends who help the community
+* Grateful for community service programs
+* Grateful for mandolin players
+* Grateful for leaders at church
+* Grateful for the people I've met in train stations and subways
+* Grateful for the police officers
+* Grateful for the guy in the program
+* Grateful for the education video I did
+* Grateful for the woman in the video
+* Grateful for the laundry
+* Grateful for memories at the beach house
+* Grateuflf or the Practitioner's work
+* Grateful for flower arranging for eveyrone
+* Grateful for positive sharing on social media
+* Grateful for a love of dogs
+* Grateful for the life of people
+* Grateful for the life of people
+* Grateful for friends from Tennessee
+* Grateful for the expression of poise and joy I see
+* Grateful for the work I did with EVERFI
+* Grateful for the people there
+* Grateful for memories of Portsmouth
+* Grateful for memories of driving in Virginia
+* Grateful for God's Law of Adjustment
+* Grateful for the consciounsess of good that fills everyone and makes everyone perfect
+* Grateful for a path in life forward
+* Grateful for the people making and serving the food
+* Grateful for the beauty there is all around
+* Grateful for the people in West Virginia
+* Grateful for the leaders at Church
+* Grateful for rivers flowing
+* Grateful for peopel appreciating our country
 * Grateful for the people working in CVS
 * Grateful for the energy in Memphis
 * Grateful for all the singer songwriters
