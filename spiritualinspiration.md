@@ -14,6 +14,24 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Inspiring Passages on Oneness from the Holy Bible and Science and Health with Key to the Scriptures - Week of August 10, 2021 ### 
+**Genesis 11:1, 6**
+* "And the whole earth was of one language, and of one speech." -Geneses 11:1
+* "And the Lord said, Behold, the people is one, and they have all one language, and this they begin to do: and now nothing will be restrained from them, which they have imagined to do." -Genesis 11:6
+
+**Science and Health with Key tot he Scriptures pp. 68-69: 29-2, 13-16**
+* "Proportionately as human generation ceases, the unbroken links of eternal, harmonious being will be spiritually discerned; and man, not of the earth earthly but coexistent with God, will appear."
+* "Spiritually to understand that there is but one creator, God, unfolds all creation, confirms the Scripture, brings the sweet assurance of no parting, no pain, and of man deathless and perfect and eternal."
+
+**Science and Health with Key to the Scriptures p. 112: 16-22
+* "From the infinite one in Christian Science comes one Principle and its infintie idea, and with this infinitude comes spiritual rules, laws, and their demonstration, which, like the great Giver, are the same yesterday, and to-day, and forever."
+
+**Science and Health with Key to the Scriptures p. 114, 19
+* "the new tongue"
+* "the original spiritual tongue"
+
+<br>
+
 ### Gratitude List - Creative Writing
 * Grateful for someone's big smile
 * Grateful for people in a city in Virginia
