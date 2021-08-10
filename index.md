@@ -11,7 +11,7 @@ layout: default
 ## Short Biography, **La Biografía** ##
 I am **Margaret Furr**, a graduate of the University of Virginia. My dream job is a **Design Researcher** role, and I would love to learn more about workplace architecture, the circular economy, and financial principles. As a classically educated historian, I care most about going back to the primary origin of ideas.
 
-**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. También, me llamo Meg. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
+**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
 Previously, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
 
