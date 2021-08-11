@@ -14,6 +14,21 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Inspiring Passages on Creation from the Holy Bible and Science and Health with Key to the Scriptures - Week of August 11, 2021 ###
+**Genesis 1:1, 11, 21, 27-31**
+* "In the beginning God created the heaven and the earth." -Genesis 1:1
+* "And God said, let the earth bring forth grass, the herb yielding seed, and the fruit tree yielding fruit after his kind, whose seed is in itself, upon the earth and it was so." -Genesis 1:11
+* "And God created great whales, and every living creature that moveth, which the waters brought forth abundantly, after their kind, and every winged fowl after his kind; and God saw that it was good." -Genesis 1:21
+* "So God created man in his own image, in the image of God created he him; male and female created he them." -Genesis 1:27
+* "And God blssed them, and God said unto them, Be fruitful, and multiply, and replenish the earth, and subdue it: and have dominion over the fish of the sea, and over the fowl of the air, and over every living thing that moveth upon the earth." -Genesis 1:28
+* "And God saw every thing that he had made, and, behold, it was very good. And the evening and the morning were the sixth day." - Genesis 1:31
+
+**Science and Health with Key to the Scriptures p. 257: 12-21**
+* "Mind creates His own likeness in ideas, and the substance of an idea is very far from being the supposed substance of non-intelligent matter. Hence the Father mind is not the father of matter."
+
+**Science and Health with Key to the Scriptures pp. 270-271: 31-6**
+* "The life of Christ Jesus was not miraculous, but it was indigenous to his spirituality, the good soil wherein the seed of Truth springs up and bears much fruit."
+
 ### Inspiring Passages on Oneness from the Holy Bible and Science and Health with Key to the Scriptures - Week of August 10, 2021 ### 
 **Genesis 11:1, 6**
 * "And the whole earth was of one language, and of one speech." -Geneses 11:1
@@ -313,6 +328,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the man I met in Washington, DC
 * Grateful for God's sons and daughters
 * Grateful for new days to live and love
+* Grateful for hope in God and the goodness all around
+* Grateful for memories in coffee shops in Washington, DC
+* Grateful for memories in the subway in Glasgow, Scotland
+* Grateful for childlike innocence in pe
 * Grateful for the people I met on the Fourth of July
 * Grateful for the Fourth of July show
 * Grateful for stylish people from church
