@@ -66,6 +66,44 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the next generation
 * Grateful for the love that fills a space that feels void
 * Grateful to be ethical in life
+* Grateful for the work done I've done
+* Grateful for all the good activities at church
+* Grateful for all the faith of people everywhere
+* Grateful for friends from camp
+* Grateful for how much people in our country love our country
+* Grateful for the childlike innocence in people
+* Grateful to see people fully for who they are and what they love
+* Grateful for leaders in our country
+* Grateful for a new, clearer day of progress
+* Grateful for the Spanish version of the text
+* Grateful that God's idea of me is already free
+* Grateful for my grandmother's faith that is long lasting
+* Grateful for a new day for the country we live in
+* Grateful for the memories of the Christmas party
+* Grateful for the light in all of God's children
+* Grateful for the irds that my sister loves
+* Grateful for the times spent at Nam's and Faf's apartment
+* Grateful for people helping
+* Grateful for healthy conversations on the phone with brother and grandfather
+* Grateful for the wind blowing
+* Grateful for positive childhood memories
+* Grateful to challenge habitual thinking
+* Grateful for all the generations that have come before to express the glory of God
+* Grateful for hope in the goodness of people within
+* Grateful to identify thought patterns
+* Grateful for people giving themselves grace
+* Grateful for family members near and far
+* Grateful for people on the swim team
+* Grateful for people's names being written in the stars
+* Grateful for the colors everywhere
+* Grateful for the doctor this morning
+* Grateful for the black guys I have gone out with
+* Grateful for the people where I am
+* Grateful for people who have overcome challenges
+* Grateful for a healthy conversation with my sister
+* Grateful for people flying airplanes
+* Grateful for all my family members in NYC
+* Grateful for all the musical families out there
 * Grateful for the most high God
 * Grateful for the living God
 * Grateful for artists
