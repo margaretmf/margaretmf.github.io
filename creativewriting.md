@@ -51,7 +51,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (58 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (59 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
@@ -4135,7 +4135,7 @@ Lasts throughout all time
 It lasts until the end
 It lasts through the storm
 
-Me pls you equal one
+Me plus you equal one
 Without each other we're better and bolder
 Like 2 birds on a rooftop
 Lke 2 seeds in a pod
