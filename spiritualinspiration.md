@@ -23,10 +23,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * "Proportionately as human generation ceases, the unbroken links of eternal, harmonious being will be spiritually discerned; and man, not of the earth earthly but coexistent with God, will appear."
 * "Spiritually to understand that there is but one creator, God, unfolds all creation, confirms the Scripture, brings the sweet assurance of no parting, no pain, and of man deathless and perfect and eternal."
 
-**Science and Health with Key to the Scriptures p. 112: 16-22
+**Science and Health with Key to the Scriptures p. 112: 16-22**
 * "From the infinite one in Christian Science comes one Principle and its infintie idea, and with this infinitude comes spiritual rules, laws, and their demonstration, which, like the great Giver, are the same yesterday, and to-day, and forever."
 
-**Science and Health with Key to the Scriptures p. 114, 19
+**Science and Health with Key to the Scriptures p. 114, 19**
 * "the new tongue"
 * "the original spiritual tongue"
 
@@ -47,6 +47,25 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people enjoying vacations
 * Grateful for a great aunt
 * Grateful for my parents at family group time
+* Grateful for the ancient meditation sounds
+* Grateful for a new day in Washington, DC
+* Grateful for people in the Christian Science community
+* Grateful for family members
+* Grateful for friends of family members
+* Grateful for people in Memphis
+* Grateful for people at insurance companies
+* Grateful for people from church working in the world
+* Grateful for the people outside
+* Grateful for God filling up all space outside of here
+* Grateful for other people from church
+* Grateful for how people paint reflections in water
+* Grateful to live fully in the present
+* Grateful for the sound of thunder
+* Grateful for one step at a time
+* Grateful for the people in and around Crossville, TN
+* Grateful for the helpfulness of people where I am
+* Grateful for the prayers of someone
+* Grateful for the airplane sound in the sky
 * Grateful for my sister and her soul
 * Grateful for my brother and his cheer and intelligence and kindness
 * Grateful for the gifts a great aunt gives
