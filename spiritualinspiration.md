@@ -61,6 +61,16 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my sister singing
 * Grateful for people enjoying vacations
 * Grateful for a great aunt
+* Grateful for activities that express joy and goodness
+* Grateful for good people in Washington, DC
+* Grateful for the next generation
+* Grateful for the love that fills a space that feels void
+* Grateful to be ethical in life
+* Grateful for the most high God
+* Grateful for the living God
+* Grateful for artists
+* Grateful that I am loved
+* Grateful for a country that is shifting
 * Grateful for my parents at family group time
 * Grateful for the ancient meditation sounds
 * Grateful for a new day in Washington, DC
