@@ -89,11 +89,57 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the wind blowing
 * Grateful for positive childhood memories
 * Grateful for positive memories in Scotland
+* Grateful for the people I met in other parts of Washington, DC and all these people are loved
+* Grateful for people from the places where I volunteered
+* Grateful for the light filling the students in schools and on the first day 
+* Grateful for Soul’s expression
+* Grateful for people from camp
+* Grateful for the peace at home
+* Grateful for the people in the Middle East
+* Grateful for the people working at Graceland
+* Grateful for the book **See No Stranger**
+* Grateful for singers at church
+* Grateful for genuine true selves of people
+* Grateful for the new apartments in Norfolk
+* Grateful for the design of new hotels
+* Grateful to replace **I’m sorry** with **Thank you**
+* Grateful for friends from IRC
+* Grateful for friends on social media
+* Grateful for friends who forgive
+* Grateful for the health insurance providers
+* Grateful for the sounds of the cars and buses
+* Grateful for the scavenger hunt at church
+* Grateful for God with me all the rugged road
+* Grateful for the good present for everyone
+* Grateful for the children’s books
+* Grateful for all the people who have gone through Hopeway
+* Grateful for my friends from other countries
+* Grateful for my Spanish teachers
+* Grateful for teachers
+* Grateful for the musical
+* Grateful for the people in therapy with me
+* Grateful to express a growth mindset
+* Grateful for the goodness of God operating around church
+* Grateful to commit to getting better after setbacks
+* Grateful for the music industry in Memphis
+* Grateful for positive memories at church
+* Grateful for neighbors
+* Grateful for love’s power
+* Grateful for memories in Atlanta
+* Grateful for the goodness that has gone on in the past
+* Grateful for song lyrics
+* Grateful or people I met in the subway in Washington, DC
+* Grateful for radical acceptance
+* Grateful for God’s way of expressing, directing, and correcting
+* Grateful for the goodness of God operating everywhere
+* Grateful for all the people working in coffee shops today
+* Grateful for all the good going on in schools
 * Grateful for loving people
 * Grateful for the memories in Scotland and the good going on
 * Grateful for strong people
 * Grateful for cousins
 * Grateful for art therapy
+* Grateful for the goodness going on in everyone today
 * Grateful to challenge habitual thinking
 * Grateful for all the generations that have come before to express the glory of God
 * Grateful for hope in the goodness of people within
