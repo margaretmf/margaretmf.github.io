@@ -70,9 +70,9 @@ layout: default
 * [The Story of the Moors in Spain]() by Lane-Poole
 * [Writing Better Lyrics: The Essential Guide to Powerful Songwriting](https://www.amazon.com/Writing-Better-Lyrics-Pat-Pattison/dp/1582975779/ref=sr_1_1?dchild=1&keywords=writing+better+lyrics&qid=1628357764&sr=8-1) by Pat Pattison
 * [Brick: A Social History](https://www.amazon.com/Brick-Social-History-Carolyne-Haynes/dp/0750991933/ref=sr_1_1?dchild=1&keywords=brick%3A+a+social+history&qid=1628357783&sr=8-1) by Louer
+* [Sunnis and Shi'a: A Political History](https://www.amazon.com/Sunnis-Shia-Political-Laurence-Louër/dp/0691186618/ref=sr_1_1?crid=2KIX6OTA4XETN&dchild=1&keywords=sunnis+and+shi%27a+a+political+history&qid=1628809051&sprefix=sunnis+and+shi%27a+a+politic%2Caps%2C149&sr=8-1) by Laurence Louer
 
 #### Reading
-* [Sunnis and Shi'a: A Political History]() by Laurence Louer
 * [The History of Banking: The History of Banking and How the World of Finance Became What it is Today]() by K. Connors
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 * [Writing Ethnographic Fieldnotes]() by Emerson, Fretz, and Shaw
@@ -112,6 +112,9 @@ layout: default
 * The Skeletons in God's Closet
 * Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
 * Songwriter's Journal (Diary, Notebook) 
+* Shiism and Politics in the Middle East
+* Transnational Shia Politics: Religious and Political Networks in the Gulf
+* To Be an Arab in Israel
 * Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
 * Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
 * Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
