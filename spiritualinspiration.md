@@ -60,6 +60,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for little kids sharing lessons with adults
 * Grateful for my sister singing
 * Grateful for people enjoying vacations
+* Grateful for the intelligence of people where I am
 * Grateful for a great aunt
 * Grateful for activities that express joy and goodness
 * Grateful for good people in Washington, DC
@@ -87,6 +88,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for healthy conversations on the phone with brother and grandfather
 * Grateful for the wind blowing
 * Grateful for positive childhood memories
+* Grateful for positive memories in Scotland
+* Grateful for loving people
+* Grateful for the memories in Scotland and the good going on
+* Grateful for strong people
+* Grateful for cousins
+* Grateful for art therapy
 * Grateful to challenge habitual thinking
 * Grateful for all the generations that have come before to express the glory of God
 * Grateful for hope in the goodness of people within
