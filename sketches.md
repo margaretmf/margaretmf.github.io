@@ -39,3 +39,5 @@
 
 <img class="profile-picture" src="sketches/sketch28.jpg">
 
+<img class="profile-picture" src="sketches/sketch29.jpg">
+
