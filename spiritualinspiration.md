@@ -70,11 +70,92 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the work done I've done
 * Grateful for all the good activities at church
 * Grateful for all the faith of people everywhere
+* Grateful for young people holding lemonade stands
+* Grateful for students learning and engaging in civic engagement
+* Grateful for the history of the American flag
+* Grateful for the freedom expressed by people today
+* Grateful for people in our country
+* Grateful for people in the south
+* Grateful for the good going on in DC and NYC
+* Grateful actresses, actors, and musicals in NYC
+* Grateful for the good that went on at EVERFI
+* Grateful for the sound of the truck driving
+* Grateful for the human in the truck
+* Grateful for all the people doing interesting work at UVA
+* Grateful for a dream of playing piano
+* Grateful for peoples’ eyes showing up in my dreams with smiles
+* Grateful for the people where I am
+* Grateful for singer songwriter we learned in college
+* Grateful for new and fresh starts in life
+* Grateful for other Christians playing guitar
+* Grateful for inspirational speakers
+* Grateful for the life of young children
+* Grateful for freedom from thinking over certain things
+* Grateful for the people in libraries and library science
+* Grateful for mentors at work and their families
+* Grateful for friends expressing freedom
+* Grateful for **George of the Jungle**
+* Grateful for friends at the college reunion
+* Grateful for other musicians who have done Johnny Cash spinoffs
+* Grateful for inspirational song lyrics
+* Grateful for all the people with Compass
+* Grateful for people from India and Pakistan
+* Grateful for other people from UVa
+* Grateful for Living Room Conversation
+* Grateful for the experience in Utah
+* Grateful for other cousins
+* Grateful for the dogs and pets of cousins
+* Grateful for the history of the country
+* Grateful for the history of the American flag
+* Grateful for expression of God
+* Grateful for sense of humor
+* Grateful for people from USA
+* Grateful for African American businesses
+* Grateful for people who have helped me along the way
+* Grateful for the post office and the people working for the post office
 * Grateful for friends from camp
 * Grateful for how much people in our country love our country
 * Grateful for the childlike innocence in people
 * Grateful to see people fully for who they are and what they love
+* Grateful for the people who wrote the books I’m reading
 * Grateful for leaders in our country
+* Grateful for the sun shining
+* Grateful for my sister and parents
+* Grateful for what people learn in children’s libraries
+* Grateful for friends in Norfolk
+* Grateful for people from Church
+* Grateful for the interfaith event in Washington, DC
+* Grateful for people I ate dinner with
+* Grateful for people in the softball club
+* Grateful for all the people in the city
+* Grateful for all the people getting married and announcing good news
+* Grateful for all the good going on in coffee shops
+* Grateful for people in the community
+* Grateful for Mud Island
+* Grateful for life continuing to go on
+* Grateful for cousins and friends and family members who enjoy playing music
+* Grateful for the baseball game
+* Grateful for new friends here
+* Grateful for the baseball players
+* Grateful for the people in the non-denominational church
+* Grateful for people at UVA reunions
+* Grateful for the laundry where I am
+* Grateful that when there’s a void there’s already the consciousness of good filling it up
+* Grateful for all the people in my job at EVERFI
+* Grateful for an understanding of the Sunnis and Shi’As
+* Grateful for all the people working in hotels
+* Grateful for God as Life
+* Grateful for the people serving food
+* Grateful for the good that overcomes evil
+* Grateful for friends from Norfolk Academy
+* Grateful for people from my sorority
+* Grateful for people from the IRC
+* Grateful for ways people have fun
+* Grateful for the life of people
+* Grateful for the harmony at social events like football games
+* Grateful for the therapists and what they are teaching us
+* Grateful for the Betsy books and positive memories as a child
+* Grateful for the dollhouse we played with as children
 * Grateful for a new, clearer day of progress
 * Grateful for the Spanish version of the text
 * Grateful that God's idea of me is already free
@@ -2987,7 +3068,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for a conversation with Paige
 * Grateful for her daughter's work in teaching
 * Grateful for people creating music
-* Grateful for th epeople writing the books on Tennessee
+* Grateful for the people writing the books on Tennessee
 * Grateful for moms and their babies
 * Grateful for Chritsian friends from Norfolk Academy
 * Grateful for the people writing books
