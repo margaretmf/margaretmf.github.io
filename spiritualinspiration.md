@@ -291,6 +291,39 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for a friend at dinner
 * Grateful for healthy foods
 * Grateful for the cooking session
+* Grateful for the Church of the people in the Cumberlands
+* Grateful for the path forward God has planned
+* Grateful for the experiences and stories of everyone in this room
+* Grateful for testimonies of healing in JSH 
+* Grateful for the sunlight
+* Grateful for applying opposite action
+* Grateful for the love within and the love that makes me free
+* Grateful for  what my aunt has overcome
+* Grateful for healing from nervous laughter
+* Grateful for healing of a voice
+* Grateful for validating the feeling, not the behavior
+* Grateful to find a better behavior
+* Grateful for the GIVE skill
+* Grateful to take a step away
+* Grateful for all the people in NYC
+* Grateful for the Safe Ride program at UVA 
+* Grateful for music therapy 
+* Grateful for the word **rejoice** in the Dictionary
+* Grateful for dictionaries
+* Grateful for testimonies
+* Grateful for people who want to help
+* Grateful for the light shining in the programs at UVA
+* Grateful for a path forward
+* Grateful for the light shining in the sports games
+* Grateful for the compassion of professors and students
+* Grateful for the El Dorado in the Spanish language
+* Grateful for the innocence of people at camp
+* Grateful for music therapy
+* Grateful for shapes everywhere
+* Grateful for my grandmother and correct thoughts about people
+* Grateful for the turquoise blue and yellow chair
+* Grateful for Christian healers
+
 * Grateful for good friends
 * Grateful for lights flickering
 * Grateful for the goodness ahead for everyone
@@ -1205,7 +1238,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the perspective of the other side of the country
 * Grateful for the colors weaving through the country in all we do every day
 * Grateful for strength and balance expressed through womanhood
-* Grateful for the enw life coming to the earth
+* Grateful for the new life coming to the earth
 * Grateful for family members doing art
 * Grateful for a path opening up
 * Grateful for inner vision
@@ -1236,7 +1269,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for home
 * Grateful for how musicians are inspired
 * Grateful for how artists inspire other artists
-* Grateful for all the people i hvae met
+* Grateful for all the people I have met
 * Grateful for the historyof the 4th of July, America, and all the people
 * Grateful for the friends here and the qualities of the friendships
 * Grateful for memories in DC
@@ -1280,7 +1313,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people in schools
 * Grateful for the inner artist in every human being
 * Grateful for the inner child in every human begin
-* Grateful for being a "child of the universe"
+* Grateful for being a **child of the universe**
 * Grateful for the man singing with the Consortium in Memphis
 * Gratitude for Muslim prayers 
 * Gratitude for the world history teacher at Norfolk Academy
@@ -1698,7 +1731,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the recycle sign
 * Grateful for clearer understanding of the securities market
 * Grateful for the distribtion on the bar code
-* Grateful for the 'sell by' date
+* Grateful for the **sell by** date
 * Grateful to acknoweldge what makes me feel uncomfortable in both ways
 * Grateful to know what I've done wrong
 * Grateful to be open to prayer
@@ -1751,7 +1784,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for clear reading in psych ward
 * Grateful for the nurse who helped me gain my balance
 * Grateful that I am thoughtful, harmonizer, life-long learner, creative, working on seeing the best in people, appreciative, team member, disciplined
-* Grateful that I know that I can be reactive and impulsive and retaliatory when hurt, a slower communicator, afraid of using my voice, soemtimes gossip, strong conscience or inner compass, not always confident enough
+* Grateful that I know that I can be reactive and impulsive and retaliatory when hurt, a slower communicator, afraid of using my voice, sometimes gossip, strong conscience or inner compass, not always confident enough
 * Grateful for the transformation of my neighbor back to her original self
 * Grateful for mutuality in the psych ward
 * Grateful to feel inspired by black inkstains on countertops
@@ -1812,7 +1845,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the book page sitting on the window
 * Grateful for memories, nostalgia, and childlike hearts
 * Grateful to eat my lunch
-* Grateful for the musicians in Memphis democratizing "dare to suck"
+* Grateful for the musicians in Memphis democratizing **dare to suck**
 * Grateful for the change for our country on the 4th of July, 2021
 * Grateful for Nelson Mandela
 * Grateful for rebirthing
@@ -1910,11 +1943,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the nurses
 * Grateful for the noise of voices
 * Grateful for my car
-* Grateful for Johnny Cash's work in prisons helping people on the margines
+* Grateful for Johnny Cash's work in prisons helping people on the margins
 * Grateful for Dolly Parton's work to help those in the shadows
 * Grateful for innovative ways to use trash and love the people
 * Grateful for the power of the people
-* Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book *"For we are strangers before thee, and sojourners, as were all our fathers." -1 Chronicles 29:15*
+* Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book **"For we are strangers before thee, and sojourners, as were all our fathers." -1 Chronicles 29:15**
 * Grateful for sketches
 * Grateful for the phoenix symbology
 * Grateful for ribbons and engineering
@@ -3100,7 +3133,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the neighborhoods in DC
 * Grateful for a connection with the woman at the 711
 * Grateful for the adventure of people
-* Grateful for Mary and Tyelr in Va
+* Grateful for Mary and Tyler in Va
 * Grateful for beauty every day
 * Grateful for memories back at home of partying
 * Grateful for the love that lights up the home
@@ -3184,7 +3217,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people claiming words that belong to them
 * Grateful for everyone being supplied today
 * Grateful for people investing in Black lives
-* Grateful for "la ciudad", the word "city" in Spanish
+* Grateful for **la ciudad**, the word **city** in Spanish
 * Grateful for the river running
 * Grateful for railroads in Scotland
 * Grateful for memories of friends from camp in Memphis
@@ -3198,7 +3231,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the washer machine running
 * Grateful for the people in rural Arkansas I met
 * Grateful for a gratitude wall well
-* Grateful for growth and flwoers in the desert
+* Grateful for growth and flowers in the desert
 * Grateful for water flowing over
 * Grateful for the India center in Washington, DC
 
