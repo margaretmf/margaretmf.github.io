@@ -828,60 +828,65 @@ What a wonderful type of love that starts with a flower and its petals.
 
 ## New Day - Rough Draft ##
 Oh it's a new day for the sun to shine
-From the east to the west the rays light up the day.
+(I love that) from the east to the west the rays light up the day.
 
+I love to feel the warmth of the sun's rays both on you and on me.
 Every day's a new day for me and for you.
-I love to feel the warmth of the sun both on you and on me.
 
 It's a new day for the birds to chirp.
 Flying high through the trees these birds really sing.
 
-I love to sing new songs with the birds and see the blue sky up above.
-Every day's a new day for me and for you.
+I love to sing with the birds and hear their songs ringaling.
+Every day's a new day. Every day's a new day.
+
+Oh it's a new day for the sky to be blue.
+Bright blue the sky is with the birds sailing high.
+
+I love to look up at the sky and dream big upon the clouds. (wish upon the stars)
+Every day's a new day to dream something new. (wish something new)
 
 Oh it's a new day for the people to move.
-All around the world people are skipping and dancing.
+I love that the sun is what the earth spins us around.
 
-Every day's a new day to feel the earth spin.
-Oh how I love feeling the earth move us around the same sun every day.
+Every day's a new day, every day's a new day.
+Every dya's a new day to feel the earth move.
 
-Every day's a new day for the green grass to grow.
-The grass is so green, the soil so fresh.
+It's a new day for the green grass to grow.
+Where the grass is so green is where I long to go.
 
+I love to run and skip outside and feel a rebirth.
 Every day's a new day to love this green earth.
-I love to feel this green grass and run and skip outside.
-
-Oh how every day's a new day.
-I want to live each day like it's the first and the last.
-
-Every day's a new day for the rivers to flow.
-They run so fast, and flow so well.
-
-Every day's a new day. Every day's a new day.
-And I am glad to make the most out of ever day I'm alive.
-
-It's a new day for the flowers to bloom.
-They smell so good, and I love to grow like them.
-Every day's a new day to be born brand new.
 
 It's a new day for the trees to talk.
-I love to talk to them too and grow my roots.
-Every day's a new day for the roots to grow strong.
+I love to hear them and talk to them too.
+
+Every dya's a new day for me and for you.
+Every day's a new day. Every day's a new day.
+
+It's a new day for the bees to buzz.
+How I love the sweet honey these black and gold things make.
+
+Every day's a day to try something new.
+Every day's a new day. Every day's a new day.
+
+It's a new day for the flowers to bloom.
+I lvoe to grow like them and smell them too.
+
+I want to live each day like it's the first and the last.
+Every day's a new day, every day's a new day.
 
 Oh it's a new day for our hearts to beat with love.
-I love to feel all the hearts beating everywhere within.
+I love to feel the hearts all over beating within everywhere.
 
-Every day's a new day for me and for you.
+Every dya's a enw day for me and for you.
 I love when smiles shine through all the people everywhere.
 
-Oh it's a new day to seize the day.
-I love hearing little children laugh and play.
-and I love seeing the neighbors wave.
-Every day's a new day to meet someone new.
+Oh it's a new day to seize that day.
+I love to see neighbors wave and hear little ones laugh and play. 
 
-Every day's a new day.
-Every day's a new day.
-All of life's days are brand new days.
+Every day's a day to be someone new.
+Every day's a new day. Every day's a new day.
+All of live's days are brand new days.
 
 <br>
 
