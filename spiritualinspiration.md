@@ -400,6 +400,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people in Argentina
 * Grateful for people in Scotland
 * Grateful for the music industry in Memphis and Nashville
+* Grateful for the eternal now
+* Grateful for the thunderstorms
 * Grateful for neighbors in Norfolk
 * Grateful for God revealing to me where I need to be
 * Grateful for the people sitting outside the Salvation Army
