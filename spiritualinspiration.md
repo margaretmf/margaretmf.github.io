@@ -75,6 +75,34 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people who have done work for the country in the Middle East
 * Grateful for people from church
 * Grateful for what people have overcome
+* Grateful for stories of healing in Sunday school
+* Grateful for the infinite good going on today
+* Grateful for how Jesus forgave his enemies
+* Grateful for people in and from the state of Indiana
+* Grateful for all the people in Indiana
+* Grateful or other people overcoming similar challenges
+* Grateful for the joy expressed in images
+* Grateful or the nurses where I am
+* Grateful for good artists where I am
+* Grateful for the music therapist
+* Grateful for everyone working in nursing
+* Grateful for the parallels between Norfolk and Memphis
+* Grateful for the everyone in Memphis
+* Grateful that people make mistakes and overcome
+* Grateful for other memories in Boston
+* Grateful for he good going on in coffee shops and gyms
+* Grateful for good people in the world
+* Grateful or a Saturday and Saturday feelings
+* Grateful for pearls
+* Grateful for my cousin’s love of the Arab world
+* Grateful for the harmony of Camp Tabor
+* Grateful for people in Charlottesville
+* Grateful for words in Spanish and English translations
+* Grateful for music playing
+* Grateful for guitar playing
+* Grateful for the light
+* Grateful for friends
+* Grateful for everyone living today
 * Grateful for stories of people from all over the world
 * Grateful for the sustainability in Starbucks
 * Grateful for entrepreneurs
@@ -3292,7 +3320,7 @@ Much of my work in this life has centered around the study of history and educat
 
 While working with EVERFI, my original intent was to grow out of a belief of animal magnetism's power through compassion. When I woke up to the Truth, I could not clearly discern how EVERFI related to Christian Science. It did in some ways, but it did not in other ways. I was trying to take a stance for the Christian Science Community, and report the power of Science. Christian Scientists do not actively teach the Matthew Code. Christian Scientists do not actively teach how to report gender-based harassment. Christian Scientists teach forgiveness. Christian Scientists teach The Golden Rule.
 
-I am sorry I reacted to you. I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe 'lifelong learning' supports freeing the human mind. I also still believe that appreciating the faith of people in other churches and sometimes not even speaking the words 'Christian Science' is the best way to engage with people from other backgrounds.
+I am sorry I reacted to you. I believe that interests I have relating to spirituality and morality will continue to unfold, and I don't know how they take shape. I still believe **lifelong learning** supports freeing the human mind. I also still believe that appreciating the faith of people in other churches and sometimes not even speaking the words **Christian Science** is the best way to engage with people from other backgrounds.
 
 I am sorry to react to you. My original intent was to commit to Christian Science, learn to articulate ideas better, and see people correctly.
 
