@@ -67,6 +67,29 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the next generation
 * Grateful for the love that fills a space that feels void
 * Grateful to be ethical in life
+* Grateful for Truth’s and Love’s sons and daughters
+* Grateful for the rustle of the leaves
+* Grateful for all the people working where I’m working
+* Grateful for all the good people where I am
+* Grateful for other people who have expressed jealousy thoughtfully through music
+* Grateful for people who have done work for the country in the Middle East
+* Grateful for people from church
+* Grateful for what people have overcome
+* Grateful for stories of people from all over the world
+* Grateful for the sustainability in Starbucks
+* Grateful for entrepreneurs
+* Grateful for all the people at Disney World
+* Grateful for the innocence of children
+* Grateful for other people diagnosed with mental health challenges
+* Grateful for the people where I am
+* Grateful for people outside of here
+* Grateful for  Christian Science practitioners
+* Grateful for the people in Georgia
+* Grateful for people in NYC
+* Grateful for the eternal now
+* Grateful for the thunderstorms
+* Grateful for the Malcolm X schools and library
+* Grateful for lessons on children’s tv shows
 * Grateful for the work done I've done
 * Grateful for all the good activities at church
 * Grateful for all the faith of people everywhere
