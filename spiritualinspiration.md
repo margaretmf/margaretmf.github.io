@@ -226,7 +226,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the fellowship in Pennsylvania
 * Grateful for the creative writing
 * Grateful for people walking outside
-* Grateful for the hymn **Speak Gently to the erring ones**
+* Grateful for the hymn "Speak Gently to the erring ones"
 * Grateful for friends from Norfolk Academy
 * Grateful for people from my sorority
 * Grateful for people from the IRC
