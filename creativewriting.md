@@ -5472,11 +5472,6 @@ Dare to stop doing what is harmful.
 
 ## The Wind ##
 The wind knows my name.
-
-<br>
-
-## The Wind ##
-The wind knows my name.
 It carries me home.
 It calls me to where I belong.
 
@@ -6976,8 +6971,8 @@ She remembers the long drives from VA through TN and back down to NC.
 <br>
 
 ## Freedom Fighters ##
-This is a country of freedom fighres
-Daily fightiing for another to live.
+This is a country of freedom fighters.
+Daily fighting for another to live.
 
 <br>
 
