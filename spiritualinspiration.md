@@ -166,7 +166,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for singing groups at UVA
 * Grateful for mentors at work and their families
 * Grateful for friends expressing freedom
-* Grateful for **George of the Jungle**
+* Grateful for "George of the Jungle"
 * Grateful for friends at the college reunion
 * Grateful for other musicians who have done Johnny Cash spinoffs
 * Grateful for inspirational song lyrics
@@ -300,12 +300,12 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the peace at home
 * Grateful for the people in the Middle East
 * Grateful for the people working at Graceland
-* Grateful for the book **See No Stranger**
+* Grateful for the book "See No Stranger"
 * Grateful for singers at church
 * Grateful for genuine true selves of people
 * Grateful for the new apartments in Norfolk
 * Grateful for the design of new hotels
-* Grateful to replace **I’m sorry** with **Thank you**
+* Grateful to replace "I’m sorry" with "Thank you"
 * Grateful for friends from IRC
 * Grateful for friends on social media
 * Grateful for friends who forgive
@@ -2445,11 +2445,11 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the government supporting public education and faith-based government work
 * Grateful for all the ways people express themselves
 * Grateful for the expression of democracy through all the schools and books people write
-* Grateful for conversations that beging with **How are you?**
+* Grateful for conversations that beging with "How are you?"
 * Grateful for the strength of people expressed in others
 * Grateful for the spunkiness of women in politics
 * Grateful for public music education
-* Grateful for the **pitch in** advertisements on trash cans
+* Grateful for the "pitch in" advertisements on trash cans
 * Grateful for communities of trust at Norfolk Academy and UVA
 * Grateful to trust people to do the right thing
 * Grateful to forgive people
@@ -2518,20 +2518,20 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the work that Martin Luther King, Jr. did
 * Grateful for all the churches that supported the elections
 * Grateful for all the faiths of people on college campuses
-* Grateful for **freedom ringing**
+* Grateful for "freedom ringing"
 * Grateful that Black leadership is an expression of freedom
 * Grateful for text messages with Mary Daniel
 * Grateful for the real conversation with someone on the street, and how there is always progress going on
 * Grateful for healing from nervous laughter
 * Grateful that there is always progress
-* Grateful for the conversation with Darius, the outing **the filter through which people perceive, see, and experience the world is what supports art, so someone will hear or see art, analyze it, evaluate it, or express something with a new filter**
-* Grateful for the conversation with Darius, **culture is what gives life to people and what lights people up** - **what is normal, what dictates, what is not normal** **culture is neighborhood in Darius's eyes** **in my eyes culture is color, I love colors I see and the colors I see people wearing**
+* Grateful for the conversation with Darius, the outing "the filter through which people perceive, see, and experience the world is what supports art, so someone will hear or see art, analyze it, evaluate it, or express something with a new filter"
+* Grateful for the conversation with Darius, "culture is what gives life to people and what lights people up" - "what is normal, what dictates, what is not normal" "culture is neighborhood in Darius's eyes" "in my eyes culture is color, I love colors I see and the colors I see people wearing"
 * Grateful that Darius and the real human connection and ligtening up and having real conversation about things and I love that he studies philosophy
 * Grateful for all the people around him and me
 * Grateful for the light in the darkness
 * Grateful for the reflection and the Source
 * Grateful to recall the ideas of Universal and Particular and to remember ideas from metaphysics
-* Grateful for the **Adopt A Street** - no more litter in the city
+* Grateful for the "Adopt A Street" - no more litter in the city
 * Grateful that every step to different people is leading closer to more Truth, more awareness, more perspective, more progress, more perception
 * Grateful for the time spent reading the Qur'an
 * Grateful for the ideas of enlightenment, day and night, light and dark in the Bible
@@ -2557,7 +2557,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the Silver Lining
 * Grateful for Chinese calligraphy and the people from my class in China
 * Grateful for teachers at Norfolk Academy
-* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being **simple and insular**, and less comfort around sexuality
+* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
 * Grateful for people in the neighborhood
 * Grateful for the girls on the bike ride
 * Grateful for the people learning to play the mandolin and enjoying summer camps
@@ -2701,7 +2701,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people at church 
 * Grateful for memories of running in Washington, DC similar to running in Glasgow, Scotland
 * Grateful for the love of summer I see people expressing
-* Grateful for the **Grind, Pray** t-shirt and the rapper behind it
+* Grateful for the "Grind, Pray" t-shirt and the rapper behind it
 * Grateful for the gifts mom and Aunt Mary give to people
 * Grateful for people who let things bounce off of them
 * Grateful for all the guys from the physics class
