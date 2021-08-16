@@ -4600,13 +4600,6 @@ My grandfather always taught to share a good laugh.
 
 <br>
 
-## She Looked Me in the Eye ##
-She looked me straight in the eye and said 'I love you'
-
-She looked him straight in the eye and said 'I love you'
-
-<br>
-
 ## Love the People ##
 I love the people she, he, they love throughout the day
 
@@ -4638,6 +4631,7 @@ It's ok to cry.
 It's ok to feel.
 It should feel good to sing.
 
+## Thank You ##
 Thank you for holding the door and making me feel like a lady.
 Thank you for touching my heart and making me remember home.
 Thank you for the song and helping me feel loved.
@@ -5136,7 +5130,6 @@ Take it all in.
 Do something new.
 Have a good laugh.
 Dance on the street.
-Go for a swim.
 Live.
 Really live.
 
