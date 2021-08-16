@@ -86,6 +86,11 @@ Everything that once existed still exists inthought.
 
 <br>
 
+## The Wind ##
+The wind knows my name.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
