@@ -81,6 +81,11 @@ The many branches lift up.
 
 <br>
 
+## Memories ##
+Everything that once existed still exists inthought.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
@@ -310,6 +315,18 @@ A painting of everyone looking to the same flower with different tools and eyes 
 Someone else is looking to this same flower.
 
 3-8 people appreciating it in different ways.
+
+<br>
+
+## Trash ##
+A piece of litter blows with the air.
+I run after it.
+I chase after it.
+I am trying to catch it.
+It's going too fast.
+I need to stop it.
+I finally reach for it.
+I pick it up, and I throw it away.
 
 <br>
 
