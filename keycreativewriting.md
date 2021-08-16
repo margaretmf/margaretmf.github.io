@@ -50,6 +50,11 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 ---------------------------------------------------------------------------------------------------------------------
 
+## She Looked Me in the Eye ##
+She looked me straight in the eye and said 'I love you'
+
+<br>
+
 ## Open Windows ##
 Open windows, open to the air with the fresh paint on the wall drying and the sun shining through.
 
