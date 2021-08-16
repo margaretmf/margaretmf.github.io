@@ -25,19 +25,19 @@ The values that Thomas Jefferson and other founders shared in the Declaration of
 
 **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.**
 
-Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to **push the boundary of what's possible**, hopefully **in the name of the greater good** (Thomas Jefferson). It's great to cultivate latent talents and play around like little kids and amateurs, and I seek to do work scientifically, applying best practices.
+Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible", hopefully "in the name of the greater good" (Thomas Jefferson). It's great to cultivate latent talents and play around like little kids and amateurs, and I seek to do work scientifically, applying best practices.
 
-**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para *la emprendedora de los límites de que posible*, con esperanza que es *en el nombre de la mayor bien* (Thomas Jefferson). Es excelente cultivar talentos latentes y jugar como niñas pequeñas, y busco trabajar científicamente, aplicando mejores prácticas.**
+**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para "la emprendedora de los límites de que posible", con esperanza que es "en el nombre de la mayor bien" (Thomas Jefferson). Es excelente cultivar talentos latentes y jugar como niñas pequeñas, y busco trabajar científicamente, aplicando mejores prácticas.**
 
 I am exploring how to sketch and how to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
 **Explorando que dibujar y que usar las artes visuales para expresar historia y cultura. Tambien, explorando que usar dibujando para apoyar el campo de Ingenieria.**
 
-I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. *I also love developing an understanding of signs and symbols from different languages, and I am working on a series of sketches of symbols.*
+I love working on photography of light in the darkness, American flags, leaves, windows, doors, every day objects in nature, and homes. I also love developing an understanding of signs and symbols from different languages, and I am working on a series of sketches of symbols.
 
 **Me amo trabajando en fotografia de la luz en la oscuridad, la bandera de los Estados Unidos, las hojas, las ventanas, las puertas, los objetos cotidianos en la naturaleza, y las cosas.**
 
-With a love for writing and reading, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I dream of writing books on spiritual entrepreneurship, and how people with liberal arts degrees move into the real world. I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry. *Finally, I am researching themes in books like oneness, unity, faith in politics, women's role in elections, the story of America, black lives' roles, republican-democratic party dynamics, and what the American States are. I also love exploring how people create music.*
+With a love for writing and reading, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing poetry, creative writing, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I dream of writing books on spiritual entrepreneurship, and how people with liberal arts degrees move into the real world. I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry. Finally, I am researching themes in books like oneness, unity, faith in politics, women's role in elections, the story of America, black lives' roles, republican-democratic party dynamics, and what the American States are. I also love exploring how people create music.
 
 **Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico.**
 
@@ -65,9 +65,9 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 
 **Finalmente, como un estudiante de las Universidad de Virginia y la Universidad de Glasgow, remé. Desperté antes de ante a las 5 am y condujo miembros del equipo para practicar en Charlottesville, Virginia y en Glasgow, Scotland. Me encantaría volver a estar en forma y remar con un equip. Remando en a río es la cosa mejor para agradecer ser una miembra de un equipo, cometer a metas, expresar diligencia, intelligencia, un sentido de unidad, y fuerza, and amar naturaleza - la agua, los árboles, y los aves.**
 
-Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is **"Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all."** 
+Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
-** **
+**Las palabra que me inspiran que el libro por Daniel J. Levitin son "Donde el arte, la tecnologia, o la ciencia solamente no puede resolver problemas, la la combinación de toda los tres es la mas poderosa de todas."**
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
