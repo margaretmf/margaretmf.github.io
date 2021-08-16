@@ -67,7 +67,7 @@ Finally, as a student at the University of Virginia and the University of Glasgo
 
 Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
-**Las palabra que me inspiran que el libro por Daniel J. Levitin son "Donde el arte, la tecnologia, o la ciencia solamente no puede resolver problemas, la la combinación de toda los tres es la mas poderosa de todas."**
+**Las palabras que me inspiran que el libro por Daniel J. Levitin son "Donde el arte, la tecnologia, o la ciencia solamente no puede resolver problemas, la la combinación de toda los tres es la mas poderosa de todas."**
 
 **How Do I Improve Myself?**
 * Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
