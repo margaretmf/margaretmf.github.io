@@ -219,16 +219,66 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for God as Life
 * Grateful for the people serving food
 * Grateful for the good that overcomes evil
+* Grateful for all the people outside of where I am
+* Grateful for memories of someone’s home
+* Grateful to be open to new people
+* Grateful for all the work in Boston
+* Grateful for the fellowship in Pennsylvania
+* Grateful for the creative writing
+* Grateful for people walking outside
+* Grateful for the hymn **Speak Gently to the erring ones**
 * Grateful for friends from Norfolk Academy
 * Grateful for people from my sorority
 * Grateful for people from the IRC
 * Grateful for ways people have fun
 * Grateful for the life of people
+* Grateful for friends from the other sorority
+* Grateful for other people from Norfolk Academy
+* Grateful for all the people in the hotel
+* Grateful for the Christian Science practitioner
+* Grateful for the people playing softball
+* Grateful for God who heals the storms
+* Grateful for the people in West Virginia
+* Grateful for spirited people at Norfolk Academy
+* Grateful for people who give back to Hutchison
+* Grateful for the police
+* Grateful for the people in the hospital in Fishersville
+* Grateful to be led to the right place
+* Grateful for order on the road
+* Grateful for all the people working in government consulting
+* Grateful for people in and from Boston
+* Grateful for friends of my sister
+* Grateful for abolitionist
+* Grateful or memories sin the library at Norfolk Academy
+* Grateful for spirited people at Norfolk Academy
 * Grateful for the harmony at social events like football games
 * Grateful for the therapists and what they are teaching us
 * Grateful for the Betsy books and positive memories as a child
 * Grateful for the dollhouse we played with as children
 * Grateful for a new, clearer day of progress
+* Grateful for the thunder and testimonies of healing around thunder storms
+* Grateful for family members
+* Grateful for the Spanish language
+* Grateful for assertive communication
+* Grateful for creative writing about the coins and money, ‘In God We Trust’
+* Grateful for the Christian Science Practitioners
+* Grateful for more understanding of the Arab world
+* Grateful for God’s sons and daughters
+* Grateful to look up to the stars with people
+* Grateful for friends from the data science program I met from other countries
+* Grateful for the good going on
+* Grateful for math teachers from Norfolk Academy
+* Grateful for the start of school for people
+* Grateful for African American men and women
+* Grateful for growing in other ways right now
+* Grateful for phone conversations with siblings
+* Grateful for cousins
+* Grateful for people in another country
+* Grateful for friends from pre-engineering classes
+* Grateful for people from church
+* Grateful for all thirteen cousins and all five cousins
+* Grateful for grandparents
+* Grateful for friends from the sorority
 * Grateful for the Spanish version of the text
 * Grateful that God's idea of me is already free
 * Grateful for my grandmother's faith that is long lasting
@@ -262,13 +312,42 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the health insurance providers
 * Grateful for the sounds of the cars and buses
 * Grateful for the scavenger hunt at church
+* Grateful for all the good that goes on in church
+* Grateful for strong people
+* Grateful to be honest
+* Grateful for self-restraint on social media
+* Grateful for English literature
 * Grateful for God with me all the rugged road
 * Grateful for the good present for everyone
 * Grateful for the children’s books
 * Grateful for all the people who have gone through Hopeway
 * Grateful for my friends from other countries
 * Grateful for my Spanish teachers
+* Grateful that it’s not the right relationship
+* Grateful for the homeless shelter
+* Grateful for the girls in STEM mentoring program
+* Grateful for the earth
+* Grateful to identify shapes in buildings
+* Grateful for harmonious coordination
+* Grateful for cousins’ music
+* Grateful or people’s families
+* Grateful or people from USA starting families
+* Grateful for people from DataKind
+* Grateful for the time to study the Spanish language
 * Grateful for teachers
+* Grateful for people who I tutored as a peer
+* Grateful for people in NYC
+* Grateful for people in Norfolk
+* Grateful for the American flag
+* Grateful for people all over the world
+* Grateful for other musicians
+* Grateful for the love in the bank
+* Grateful for EVERFI’s new office space
+* Grateful for something new today going on
+* Grateful for the chords in music I hear
+* Grateful for the nurse today
+* Grateful for people in other countries
+* Grateful for the voice of the comforter
 * Grateful for the musical
 * Grateful for the people in therapy with me
 * Grateful to express a growth mindset
