@@ -133,29 +133,6 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 * Daily, I am grateful for democracy and democratization.
 **Diaria, trabajo para democracia y la democratización.**
 
-## Work Environment ##
-In previous work, I have worked with various types of supervisors.
-
-**I have summarized what I LOVE about supervisors and what I have learned from them.
-
-**What I LOVE about supervisors:**
-* Their ability to give candid feedback, and specific requirements.
- **Sus abilidades para dar comentarios sinceros, y requisitos específicos.**
-* Their ability to seek my inputs, and thoughtfully incorporate the inputs.
-  **Sus abilidades para buscar mis aportes, y incorporar pensativamente los aportes.**
-* Their ability to express compassion, empathize, sympathize, and listen to the feelings of people
-  **Sus abilidades para expresar compasión, empatizarse, compadecerse, y escuchar a los sentimientos de la gente.**
-* Their ability to support cross-departmental work.
-  ** Sus abilidades para apoyar el trabajo interdepartamental.**
-* Their ability to encourage people to go outside their comfort zone.
-  ** Sus abilidades para alentar la gente sale de su zona de confort
-* Their ability to structure projects and time well.
-* Their ability to facilitate team work.
-* Their ability to mentor.
-* Their ability to work with other teams effectively.
-
-<br>
-
 ## Research Questions and Interesting Studies
 * A Study on How People Use a Liberal Arts or Humanities Degree in the World
 * A Study Comparing the city of Norfolk and Memphis in addition to Richmond, Charlottesville, and Nashville
@@ -179,7 +156,7 @@ In previous work, I have worked with various types of supervisors.
 * A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
 * A Study on Names
 * A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
-* A Study on "political storms" (1960s, 2020s)
+* A Study on **political storms (1960s, 2020s)**
 * A Study on How to Use Art to Share History
 
 <br>
