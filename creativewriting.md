@@ -3634,7 +3634,7 @@ He leads to the right place at the right time
 
 
 The waltz of the unvierse
-the meeting and greeting of
+the meeting and greeting of hearts shining through faces
 
 <br>
 
@@ -3833,10 +3833,6 @@ Bottled up in a Bottle, not my heart
 
 <br>
 
-## Changing Seasons ##
-
-<br>
-
 ## Another's Lens ##
 Looking at life and everything around through the lens of someone else.
 
@@ -3937,10 +3933,6 @@ Memories, looking through the looking glass, seeing images and hear sounds that 
 
 <br>
 
-## Memories ##
-Everything that once existed still exists.
-
-<br>
 
 ## My Mom and I ##
 My mom and I are on different journeys.
@@ -4414,15 +4406,6 @@ The things to dispose of and throw away.
 The containers empties of the substance to digest.
 The leftover goods, the pouring over of used goods.
 The things that can be reused and recycled to create something new.
-
-A piece of litter blows with the air.
-I run after it.
-I chase after it.
-Trying to catch it.
-It's going too fast.
-I need to stop it.
-I finally reach it.
-I pick it up, and I throw it away.
 
 <br>
 
