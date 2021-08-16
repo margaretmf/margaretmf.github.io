@@ -143,6 +143,27 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the life of young children
 * Grateful for freedom from thinking over certain things
 * Grateful for the people in libraries and library science
+* Grateful for the helpers in Haiti
+* Grateful or people in my family
+* Grateful for a positive afternoon after church
+* Grateful for people in the restaurant
+* Grateful for memories in Charlottesville
+* Grateful for memories in Washington, DC
+* Grateful for people in Georgia
+* Grateful for the appreciation of birds everywhere
+* Grateful for endless opportunities
+* Grateful for family members
+* Grateful for the good going on outside of here
+* Grateful for the sound of thunder
+* Grateful for other people stopping bad habits
+* Grateful for all the people in AA
+* Grateful for confident manhood
+* Grateful for innocent womanhood
+* Grateful for other people in Nashville, Memphis, Georgia, North Carolina
+* Grateful for other people who have spun off Johnny Cash’s music
+* Grateful for friends
+* Grateful for people I’ve met
+* Grateful for singing groups at UVA
 * Grateful for mentors at work and their families
 * Grateful for friends expressing freedom
 * Grateful for **George of the Jungle**
