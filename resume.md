@@ -67,9 +67,9 @@ American Credo Project
 * Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
 * Picked up trash as a citizen across neighborhoods in Norfolk, Charlottesville, and Richmond
 * Drove through 12 states in the United States of America and learned about the highway system, gas stations, the hotel industry, nature, music, and American citizens
-* Composed 2 songs on the piano - one, **A New Day**, inspired by **What A Wonderful World** and **"Here Comes the Sun**, the other, **Like The Lone Bird** and the beauty of **flying solo and flying freely**
+* Composed 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and "Here Comes the Sun", the other, "Flying Like The Lone Bird" and the beauty of flying solo and flying freely
 * Developed a dream album or list of songs to compose if anything were possible
-* Worked on four series of photos - **Light in the Darkness**, **American Flags**, **Leaves**, and **Engineering Scenery**
+* Worked on four series of photos - "Light in the Darkness", "American Flags", "Leaves", and "Engineering Scenery"
 * Researched themes in books and document them on Github
 * Wrote poetry to explore observations, thoughts, and feelings
 
