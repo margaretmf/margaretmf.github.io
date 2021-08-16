@@ -1664,7 +1664,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people where Obama's family members are from
 * Grateful for the connection to the man in Memphis
 * Grateful for people from camp in Aalabama
-* Grateful for memories in Boston, London, DC beging gentle with myself and all the people
+* Grateful for memories in Boston, London, DC being gentle with myself and all the people
 * Grateful for the sound of nature like my great grandfather called me to stay alive on Earth
 * Grateful for Medieval organ music
 * Grateful for God's plan for me and everyone
@@ -2368,7 +2368,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for full forgiveness towards people who have hurt me and the freedom to not keep going over it
 * Grateful for the lesson learned about stopping to use gun images
 * Grateful for the opportunities to pick up trash
-* Grateful for people from other religious backgrounds in schools and the idea of **Coexistence** with God
+* Grateful for people from other religious backgrounds in schools and the idea of "Coexistence" with God
 * Grateful for the freedom to express religious rights in schools and the freedom to care for Christianity
 * Grateful for the freedom to love other religions in schools
 * Grateful for an informed citizenry
@@ -2445,7 +2445,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the government supporting public education and faith-based government work
 * Grateful for all the ways people express themselves
 * Grateful for the expression of democracy through all the schools and books people write
-* Grateful for conversations that beging with "How are you?"
+* Grateful for conversations that begin with "How are you?"
 * Grateful for the strength of people expressed in others
 * Grateful for the spunkiness of women in politics
 * Grateful for public music education
@@ -2686,7 +2686,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the state of Arkansas
 * Grateful for the schools managers and good cheers with EVERFI
 * Grateful for the man who worked next to me at the desk
-* Grateful for the song **What a Wonderful World**
+* Grateful for the song "What a Wonderful World"
 * Grateful for the ribbons on trees
 * Grateful for everyone in traffic in Charlottesville that day
 * Grateful for the next generation
@@ -2749,7 +2749,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the male perspective in country music and around country music
 * Grateful for the time the Scotts are spending in Florida
 * Grateful for the time the Grinders spend in Michigan
-* Grateful for the collective **Our Father** and the appreciation at the fireworks of people overcoming challenges in DC with Nam
+* Grateful for the collective "Our Father" and the appreciation at the fireworks of people overcoming challenges in DC with Nam
 * Grateful for the appreciation of solitude and the ability to rise up out of loneliness
 * Grateful for young kids who are writers
 * Grateful for English teachers in middle school
@@ -2766,7 +2766,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my uncle
 * Grateful for the history of murders and a cultural understanding of gun usage in the country
 * Grateful for memories of going to the Christian Science church in Scotland
-* Grateful to understand the concept of **Manifest Destiny** across two countries, multiple countries, multiple cultures
+* Grateful to understand the concept of "Manifest Destiny" across two countries, multiple countries, multiple cultures
 * Grateful for medieval history
 * Grateful for a broader understanding of the United States of America
 * Grateful for the new release of a Hawaiaan song
@@ -2823,7 +2823,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people who work on Cash App
 * Grateful for my sister who centers around music like other people do
 * Grateful for the man calling me
-* Grateful for memories of the song **Choose God** playing in the car
+* Grateful for memories of the song "Choose God" playing in the car
 * Grateful for people doing environmentally friendly work
 * Grateful that the world is always unfolding as it should
 * Grateful to dwell in Love
@@ -2932,7 +2932,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the people at the concert
 * Grateful for the musician in Scotland
 * Grateful for all the people in Scotland I appreciated
-* Grateful that America has symbolized **rebirth** from the beginning
+* Grateful that America has symbolized "rebirth" from the beginning
 * Grateful for the Cherokee women
 * Grateful for treasures in our land an in our histories and in our earth
 * Grateful for the Lazarus poem that everyone in our country looks to
@@ -3159,7 +3159,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the joy that comes today
 * Grateful for all the next generation learns and creates
 * Grateful for the apartment in DC
-* Grateful for friends who loved **The Giving Tree** mutually
+* Grateful for friends who loved "The Giving Tree" mutually
 * Grateful for other singers and musicians on Istagram
 * Grateful for what little kids express gratitude for
 * Grateful for library spaces
@@ -3369,7 +3369,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people claiming words that belong to them
 * Grateful for everyone being supplied today
 * Grateful for people investing in Black lives
-* Grateful for **la ciudad**, the word **city** in Spanish
+* Grateful for "la ciudad", the word "city" in Spanish
 * Grateful for the river running
 * Grateful for railroads in Scotland
 * Grateful for memories of friends from camp in Memphis
