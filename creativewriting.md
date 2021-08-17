@@ -6969,7 +6969,6 @@ Nothing like that good old flag waving on old porches and construction sites
 
 It's a union where there's two sides to the same story, the same whole.
 
-I put my hand on my heart and sing I love this land.
 I love these beautiful people.
 I care to be strong and true.
 I love this land until I die.
@@ -7002,7 +7001,8 @@ There are ideas that have always existed
 Home of the free, home of the brave
 The women behind the election
 
-I put my hand on my heart and love the land that I am in, the home of the free, the home of the brave
+I put my hand on my heart and love the land that I am in.
+It's the land of the free, and it's the home of the brave.the home of the free, the home of the brave
 It's a brilliant land
 It's a hopeful land
 It's a faithful land
@@ -7146,10 +7146,6 @@ Everything is being born new.
 Those dead leaves have fallen off and moved on.
 They are giving way for something to grow.
 It's a new season.
-
-<br>
-
-## Climbing Trees, Up to the Top ##
 
 <br>
 
@@ -7468,25 +7464,6 @@ God knows everything you have thought before and desired before and known before
 ----------
 
 
-She's a searcher for humanity, and a seeker of the light in the darkest areas of the world.
-She uses Truth's double-edged sword to end human strife.
-She's self-complete and wedded to the author of the universe.
-She holds her covenant with all mankind.
-
-<br>
-
-
-----------
-
-
-She's creative.
-She's poised.
-She's independent.
-She's listening.
-She's thoughtful.
-She's perceptive.
-
-<br>
 
 
 ----------
