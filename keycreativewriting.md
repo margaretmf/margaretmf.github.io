@@ -197,6 +197,34 @@ We are all part of this great photo.
 
 **Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
+## Noise ##
+The bustle of the lawn mower outside my window wakes me up.
+What's with the clamor, and the uproar of the people talking?
+Noise. It is the crescendo of the day.
+The day is starting.
+The human experiences are rising.
+Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard.
+
+<br>
+
+**Word Associations:** bustle, din, clamor, tumult, uproar, thunder, crescendo, cacophony
+
+## Anxiety ##
+Oh my God!
+The darkest dreams of my life come alive.
+I feel so uneasy.
+My stomach is completely nauseated.
+I feel so restless, and I sit in disquietude.
+I feel so fretful.
+I feel so jittery.
+I am living in dread for what is going to happen.
+It's the worst distress I've ever felt.
+I wait in apprehension for the future.
+
+<br>
+
+**Word Associations:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
@@ -242,8 +270,8 @@ He's ordered,
 He's hard-working, and secure.
 
 He's a lover of mankind, and inclusive of all.
-With a passion for Church, He's a seeker of Truth in all areas of the world.
-He knows that Divine Mind has the throne and that reflecting Principle and Joy is the Way.
+With a passion for Church, He's a seeker of Truth in all aspects of Life.
+He knows that Divine Mind is in control and that reflecting Principle is the Way.
 He's self-complete and wedded to the author of the univese.
 
 
