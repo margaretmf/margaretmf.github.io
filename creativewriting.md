@@ -5470,53 +5470,6 @@ Dare to stop doing what is harmful.
 
 <br>
 
-## The Wind ##
-The wind knows my name.
-It carries me home.
-It calls me to where I belong.
-
-The wind blows my hair.
-It touches my face.
-It pushes me along.
-
-The wind has my back.
-It runs with me.
-It spreads my truth.
-
-The wind comes sweeping through
-I know its sound.
-
-The wind blowing through the Earth calling our names.
-The sounds of the universe speaking to our ears.
-Wind chimes.
-
-The wind will move you forward.
-The wind will sing your praises.
-The wind will spread your truth.
-The wind will lift like eagles' wings.
-
-The wind has my back.
-The wind touches my face.
-The wind moves the water.
-
-Run with the wind.
-The answer is in the wind
-The mystery of it all
-I don't know why things happen, but the wind does
-I don't know how things connect, but the wind does
-
-<br>
-
-## The Wind ##
-The wind moving my hair and blowing my face.
-The wind sweeping across the land with the leaves.
-
-Run with the wind.
-
-The wind swept me up by my feet
-
-<br>
-
 ## The Freerider ##
 She's a woman who can stand on her own two feet.
 She knows how to straddle a horse alone,
