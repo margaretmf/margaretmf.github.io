@@ -223,6 +223,7 @@ She's open-mind, and mindful.
 She's a searcher for humanity in the darkest areas of the world.
 She's a lover of Jesus and Mary Baker Eddy.
 She knows that Love has the throne and that Love is Life's true crown and glory.
+She uses Truth's double-edged sword to end human strife.
 
 He's thankful,
 He's gracious,
@@ -241,9 +242,10 @@ He's ordered,
 He's hard-working, and secure.
 
 He's a lover of mankind, and inclusive of all.
-With a passion for Church, He's a searcher for Truth in all areas of the world.
+With a passion for Church, He's a seeker of Truth in all areas of the world.
 He knows that Divine Mind has the throne and that reflecting Principle and Joy is the Way.
-God is the source of her peace, and speaks to her with the still, small voice.
+He's self-complete and wedded to the author of the univese.
+
 
 <br>
 
