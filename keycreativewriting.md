@@ -283,6 +283,25 @@ Telling each other they love each other and all the other birds.
 
 <br>
 
+## The Wind ##
+The wind knows my name.
+It carries me home.
+It calls me to where I belong.
+
+The wind blows my hair.
+It touches my face.
+It pushes me along.
+
+The wind has my back.
+It runs with me.
+It spreads my truth.
+
+The wind comes sweeping through,
+and I know its sound.
+It sings my praises.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## In My Own Words ##
