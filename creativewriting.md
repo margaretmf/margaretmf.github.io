@@ -17,7 +17,6 @@ is_contact: true
 
 <br>
 
-
 ----------
 
 
@@ -6895,8 +6894,7 @@ She remembers the long drives from VA through TN and back down to NC.
 <br>
 
 ## Freedom Fighters ##
-This is a country of freedom fighters.
-Daily fighting for another to live.
+This is a country of freedom fighters, daily fighting for another day to live.
 
 <br>
 
@@ -7367,22 +7365,6 @@ so the union can only bless everyone.
 
 <br>
 
-## Wedding ##
-It's a weddedness to love like the sun shining down midday.
-
-It's a union so tight that he knows to say 'I do' when her thought reaches up to love.
-
-It's a tie so close that it will never fall apart.
-
-It's the purest of pure speaking truth to one another.
-
-It's an openness to everyone around because the love for each other is so great.
-
-It's the highest form of love so strong that stops the storm in her midst.
-
-It's the perfect 'I will commit' to an innocent yearning for a bond so great.
-
-<br>
 
 ## Weddedness to the Earth ##
 I am wedded to the earth
