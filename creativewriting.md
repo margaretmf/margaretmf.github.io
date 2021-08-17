@@ -6795,7 +6795,6 @@ Where I am weak, you are strong.
 Where I am broken, you are whole.
 Where I am alone, you are there.
 Where I have failed, you know me.
-Where I am broken, you are full.
 Where I have said something wrong, you speak the truth.
 Where I am hurt, you provide love.
 
@@ -7422,7 +7421,7 @@ I am wedded to the earth
 In all it's glory and all its inhabitants
 
 In the light of eternity, I walk with you
-Weeded to the whole wide earth with all the colors, the folowers, the trees, and all of the people
+Wedded to the whole wide earth with all the colors, the folowers, the trees, and all of the people
 Walking equally withe veryone with a purpose
 
 <br>
@@ -7443,54 +7442,6 @@ Mortal mind wants to assert itself through fear, through judgment, through offen
 Divine Mind asserts itself through peace, through compassion, through empathy, through understanding, through patience, through prayer.
 Mortal mind wants to control through pressure, through anger, through manipulation, through jealousy.
 Divine Mind wants to control through morality, through the consciousness of good, through helpfulness, through good character.
-
-<br>
-
-## Love's Debut, Love's Marriage ##
-She's quiet,
-She's humble,
-She's light-hearted, and smiling.
-
-She's musical,
-She's forgiving,
-She's dancing, and modest.
-
-She's inclusive,
-She's articulate,
-She's thoughtful, and wise.
-
-She's all-embracing,
-She's resilient,
-She's grateful, and at home.
-
-She's merciful,
-She's modest,
-She's open-mind, and mindful.
-
-She's a searcher for humanity in the darkest areas of the world.
-She's a lover of Jesus and Mary Baker Eddy.
-She knows that Love has the throne and that Love is Life's true crown and glory.
-
-He's thankful,
-He's gracious,
-He's joyful, and kind.
-
-He's trustworthy,
-He's satisfied,
-He's helpful, and strong.
-
-He's embracive,
-He's courageous,
-He's free, and aware.
-
-He's adventurous,
-He's ordered,
-He's hard-working, and secure.
-
-He's a lover of mankind, and inclusive of all.
-With a passion for Church, He's a searcher for Truth in all areas of the world.
-He knows that Divine Mind has the throne and that reflecting Principle and Joy is the Way.
-God is the source of her peace, and speaks to her with the still, small voice.
 
 <br>
 
@@ -7854,14 +7805,6 @@ Appreciating more people.
 
 A world not centered around me but centered around my neighbor's eyes: filter, perspective, viewpoint
 
-## The Coins ##
-The four coins sitting on the grounds.
-Whose are they?
-Where have they been?
-Who are they for next?
-They are shiny silver and bronze.
-
-<br>
 
 ## "Penny for Your Thoughts" ##
 "Penny for your thoughts is an idiom"
@@ -8097,6 +8040,14 @@ Red bloodstains on a white counter
 
 <br>
 
+## The Coins ##
+The four coins sitting on the grounds.
+Whose are they?
+Where have they been?
+Who are they for next?
+They are shiny silver and bronze.
+
+<br>
 ## Leaves ##
 A red leaf on the ground turning to crumbling pieces in a pocket, falling to the ground.
 
@@ -8597,14 +8548,6 @@ the original he received
 
 <br>
 
-## The Apple ##
-He threw an apple down, and I caught it
-He told me he loved me, and I loved him right back
-He showed me the world of knowledge, and I became more aware of how beautiful this world is
-
-An apple, a cherry on the ground
-
-<br>
 
 ## Home ##
 This is a home with a strong foundation
@@ -8796,6 +8739,7 @@ This. Is. Who. I am.
 Speak up.
 Your voice.
 It's one in a million, but it matters.
+Sayy it a little louder.
 It has depth.
 It has grace.
 It has strength.
@@ -8859,7 +8803,7 @@ I'm being mean.
 Yes, I know I'm being mean.
 I have scars on my heart, so I'm being mean.
 I'm saying the things people don't want to hear.
-I'm saying the things that will destory me in the end.
+I'm saying the things that will destroy me in the end.
 I'm being mean and making a scene.
 I want people to know the pain.
 I'm being mean.
