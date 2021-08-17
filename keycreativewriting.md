@@ -1,5 +1,5 @@
 
-## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature and music. I love creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled *Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again* (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
+## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature and music. I love creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled **Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again** (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. Creative writing stems from asking interesting questions and imagining. ##
 
@@ -50,8 +50,8 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 ---------------------------------------------------------------------------------------------------------------------
 
-## She Looked Me in the Eye ##
-She looked me straight in the eye and said 'I love you'
+## I Love You ##
+She looked me straight in the eye and said "I love you".
 
 <br>
 
@@ -365,7 +365,7 @@ One person sketched it.
 
 Another took a video of it.
 
-Three people painted it, one on a fence, and another saw the harmony of looking at all eight, saying **wow, collectively this is God's handiwork art!**"
+Three people painted it, one on a fence, and another saw the harmony of looking at all eight, saying "wow, collectively this is God's handiwork art!"
 
 A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
 
@@ -521,10 +521,8 @@ I am one in a million. There are a million ways to say and do the same thing.
 <br>
 
 ## America Reborn ##
-I once had a vision, or a dream of American reborn.
-I love that women are behind the rebirth of the American dream and that black men can lead the country well.
-Women are behind the rebirth of the American dream through the work in the postal office and the elections.
-A sense of America reborn actually came a live in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
+I once had a vision, or a dream of American reborn. I love that women are behind the rebirth of the American dream and that black men can lead the country well.
+Women are behind the rebirth of the American dream through the work in the postal office and the elections. A sense of America reborn actually came a live in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
 
 <br>
 
@@ -862,19 +860,19 @@ He had a secret admirer but he didn't know her name.
 
 Every day, she came home and peeled off petals from flowers.
 
-'He likes me, he likes me not'
-'He likes me, he likes me not'
-'He likes me, he likes me not'
+"He likes me, he likes me not"
+"He likes me, he likes me not"
+"He likes me, he likes me not"
 
 All the petals fell to the grass as she repeated this sentence.
 
-She smiled and said, 'I hope he likes me' as she let the petals fall to the ground.
+She smiled and said, "I hope he likes me" as she let the petals fall to the ground.
 
-She took the flower petals to school and said, 'I like you a lot, and here are some flower petals for you.'
+She took the flower petals to school and said, "I like you a lot, and here are some flower petals for you."
 
-He responded, 'I like you too' and took the petals in his hand.
+He responded, "I like you too" and took the petals in his hand.
 
-He made a necklace out of the petals, and he went up to her and said, 'this necklace is for you, and let's be friends.'
+He made a necklace out of the petals, and he went up to her and said, "this necklace is for you, and let's be friends."
 
 She wore the necklace every day to school, and he would smile at her across the room.
 
