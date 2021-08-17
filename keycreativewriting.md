@@ -91,6 +91,11 @@ The wind knows my name.
 
 <br>
 
+## Old Dream Dying, New Dream Awakening ##
+The old dream dying is a new dream awakening.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
@@ -283,25 +288,6 @@ Telling each other they love each other and all the other birds.
 
 <br>
 
-## The Wind ##
-The wind knows my name.
-It carries me home.
-It calls me to where I belong.
-
-The wind blows my hair.
-It touches my face.
-It pushes me along.
-
-The wind has my back.
-It runs with me.
-It spreads my truth.
-
-The wind comes sweeping through,
-and I know its sound.
-It sings my praises.
-
-<br>
-
 ---------------------------------------------------------------------------------------------------------------------
 
 ## In My Own Words ##
@@ -439,6 +425,33 @@ Empty words and angry statements shared in vain.
 You are airing them out I hear.
 
 <br>
+
+## The Apple ##
+He threw an apple down, and I caught it.
+He told me he loved me, and I loved him right back.
+He showed me the world, and I became more aware of how beautiful it is.
+
+<br>
+
+## The Wind ##
+The wind knows my name.
+It carries me home.
+It calls me to where I belong.
+
+The wind blows my hair.
+It touches my face.
+It pushes me along.
+
+The wind has my back.
+It runs with me.
+It spreads my truth.
+
+The wind comes sweeping through,
+and I know its sound.
+It sings my praises.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## E Pluribus Unum ##
@@ -508,11 +521,6 @@ A flag is a sign, and a symbol. I can understand how people feel like the Confed
 
 ## The Virginia Flag ##
 Such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
-
-<br>
-
-## Old Dream Dying, New Dream Awakening ##
-The old dream dying is a new dream awakening.
 
 <br>
 
