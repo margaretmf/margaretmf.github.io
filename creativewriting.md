@@ -576,18 +576,6 @@ All of this goes into the dumpster, all pretense is let go of.
 
 **Word Associations** trickery, duplicity, lies, guile, two-faced, imposter, pretense, fraud
 
-## Noise ##
-The bustle of the lawn mower outside my window wakes me up.
-What's with the clamor, and the uproar of the people talking?
-Noise. It is the crescendo of the day.
-The day is starting.
-The human experiences are rising.
-Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard.
-
-<br>
-
-**Word Associations:** bustle, din, clamor, tumult, uproar, thunder, crescendo, cacophony
-
 ## Loneliness ##
 Sitting in your own corner alone in isolation, suffering from sin, where all within you is empty.
 Aching inside because of mistakes.
@@ -599,22 +587,6 @@ In quiet, the innocence and grace of God within.
 <br>
 
 **Word Associations:** isolation, empty, quiet, monotony, ache, silence, longing, seclusion
-
-## Anxiety ##
-Oh my God!
-The darkest dreams of my life come alive.
-I feel so uneasy.
-My stomach is completely nauseated.
-I feel so restless, and I sit in disquietude.
-I feel so fretful.
-I feel so jittery.
-I am living in dread for what is going to happen.
-It's the worst distress I've ever felt.
-I wait in apprehension for the future.
-
-<br>
-
-**Word Associations:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
 
 ## Snow ##
 The white snow melts into the soil of the brown earth.
