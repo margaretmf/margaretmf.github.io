@@ -224,9 +224,81 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to be open to new people
 * Grateful for all the work in Boston
 * Grateful for the fellowship in Pennsylvania
+* Grateful for people working
+* Grateful for singer songwriting
+* Grateful for coffee breaks
+* Grateful for the kind people all around
+* Grateful for the Scottish music festival
+* Grateful for the Renaissance festival
+* Grateful for Christian education and Christ-driven teachers
+* Grateful for the integration of faith and education
+* Grateful for people from Norfolk Academy
+* Grateful for the moment in the bookstore
+* Grateful for other musicians
+* Grateful or positive memories in Washington, DC
+* Grateful for the connection between Nashville and Ireland
+* Grateful for where God needs me to be
+* Grateful for all the places where a coin has been
+* Grateful for the people around me
+* Grateful for the electric wires
+* Grateful for all the people I have met
+* Grateful for the good spirit within everyone I see
+* Grateful for joy expressed
+* Grateful for memories of the Christmas trees in Washington, DC
+* Grateful for interfaith and faith in the world
+* Grateful for my apartment
+* Grateful for other cultures apart from American
+* Grateful for friends from Norfolk Academy
+* Grateful for people who love to cook
+* Grateful for people riding horses
+* Grateful for the people I talked to at dinner
+* Grateful for Christians all over the place
+* Grateful for memories of the snow in Washington, DC
+* Grateful for the people running businesses
+* Grateful for childlike innocence and grace
+* Grateful for people studying the French version of text
+* Grateful for the Cumberlands and the people from there
+* Grateful for entrepreneurs in history
+* Grateful for all the acronyms in the world of psychology
+* Grateful for people in the Arab world
+* Grateful for sustainable businesses
+* Grateful for friends in community
+* Grateful to work towards shifting the tone of my communication
+* Grateful or friends in Washington, DC
+* Grateful for ideas-driven relationships and ideas-driven economy
+* Grateful for healthy reprimands
+* Grateful for teachers
+* Grateful to give my life entirely to God
+* Grateful I’ll find the right people and places
+* Grateful for grace
+* Grateful for practitioners and their families
+* Grateful or the love in people’s hearts
+* Grateful for all the clients of people
+* Grateful for the true self in me
+* Grateful for other people from church
+* Grateful for people in family
+* Grateful for the mountains in Virginia
+* Grateful for the time spent with other churches
+* Grateful for people in Norfolk and other people from UVA
+* Grateful for people continuing to live their lives
+* Grateful for the nurses
+* Grateful for Christians worldwide
+* Grateful for people everywhere
+* Grateful for people from Norfolk Academy
+* Grateful for the American flag
+* Grateful for the book on the American flag
+* Grateful for all the people where I am
+* Grateful or people living their lives
+* Grateful for the love from a sister
+* Grateful for teachers all over the world
+* Grateful for the books I’m reading
+* Grateful for the Spanish version of the text
+* Grateful for people in interracial couples
+* Grateful for the joy expressed
 * Grateful for the creative writing
 * Grateful for people walking outside
 * Grateful for the hymn "Speak Gently to the erring ones"
+* Grateful for cooking
 * Grateful for friends from Norfolk Academy
 * Grateful for people from my sorority
 * Grateful for people from the IRC
