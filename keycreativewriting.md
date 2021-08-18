@@ -22,6 +22,12 @@
 *Do I still believe this?*
 I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
 
+## Nature ##
+*I believe* nature allows a simpler and fuller life [in 2009, 2010]
+
+*Do I still believe this?*
+I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee. [2021] I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
+
 <br>
 
 ---------------------------------------------------------------------------------------------------------------------
