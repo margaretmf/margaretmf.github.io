@@ -580,7 +580,7 @@ A flag is a sign, and a symbol. I can understand how people feel like the Confed
 <br>
 
 ## The Virginia Flag ##
-Such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
+The Virginia state flag is such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
 
 <br>
 
