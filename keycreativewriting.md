@@ -896,7 +896,7 @@ Americans believe in a melting pot is the manifest destiny.
 <br>
 
 ## The Purpose of Studying History ##
-The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime. No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day. History is an expression of experiences, individual and collective. The study of history is the study of what has always and already been there, the stories unmasked. The study of history is the art of telling stories, and the art of communication. Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing. In the Newseum, "journalism is the first draft of history".
+The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime. No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day. History is an expression of experiences, individual and collective. The study of history is the study of what has always and already been there, the stories unmasked. The study of history is the art of telling stories, and the art of communication. Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing. In the Newseum, "journalism is the first draft of history."
 
 <br>
 
@@ -1077,7 +1077,7 @@ Every day's a new day, every day's a new day.
 Oh it's a new day for our hearts to beat with love.
 I love to feel the hearts all over beating within everywhere.
 
-Every day's a enw day for me and for you.
+Every day's a new day for me and for you.
 I love when smiles shine through all the people everywhere.
 
 Oh it's a new day to seize that day.
@@ -1085,7 +1085,7 @@ I love to see neighbors wave and hear little ones laugh and play.
 
 Every day's a day to be someone new.
 Every day's a new day. Every day's a new day.
-All of live's days are brand new days.
+Everyone of life's days are brand new days.
 
 <br>
 
