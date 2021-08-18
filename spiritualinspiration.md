@@ -166,7 +166,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for singing groups at UVA
 * Grateful for mentors at work and their families
 * Grateful for friends expressing freedom
-* Grateful for "George of the Jungle"
+* Grateful for *George of the Jungle*
 * Grateful for friends at the college reunion
 * Grateful for other musicians who have done Johnny Cash spinoffs
 * Grateful for inspirational song lyrics
@@ -372,7 +372,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the peace at home
 * Grateful for the people in the Middle East
 * Grateful for the people working at Graceland
-* Grateful for the book "See No Stranger"
+* Grateful for the book 8See No Stranger*
 * Grateful for singers at church
 * Grateful for genuine true selves of people
 * Grateful for the new apartments in Norfolk
@@ -1577,7 +1577,6 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for allusions to Shakespeare in popular music and popular culture
 * Grateful to learn something from everyone every day
 * Grateful for the people with my car
-* Grateful for remembrances of Black lives and "I am not your negro" in the country and in Paris
 * Grateful for farming throughout the country
 * Grateful that Thomas Jefferson had intuition of the limitlessness of the human mid
 * Grateful for family members who engage with family farming
@@ -2025,7 +2024,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the empathetic therapist
 * Grateful for American home design
 * Grateful for the woman who brought me a ponytail holder
-* Grateful for the book "Imagine a Place"
+* Grateful for the book *Imagine a Place*
 * Grateful for Christian Science
 * Grateful for history, accurate records of Native Americans' lives
 * Grateful for U.S. 23 Country Music Highway, the history, the towns, the artists
@@ -2388,7 +2387,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for my friends teaching
 * Grateful for the people in the psych wards
 * Grateful for sustainable businesses and signs on the walls that show the efficiency
-* Grateful to be a "Steward of the Earth" by cleaning up
+* Grateful to be a "steward of the Earth" by cleaning up
 * Grateful for the man from the Arab world online
 * Grateful for the people from Albania. met in the coffee shop
 * Grateful for the public libraries
@@ -3231,7 +3230,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the joy that comes today
 * Grateful for all the next generation learns and creates
 * Grateful for the apartment in DC
-* Grateful for friends who loved "The Giving Tree" mutually
+* Grateful for friends who loved *The Giving Tree* mutually
 * Grateful for other singers and musicians on Istagram
 * Grateful for what little kids express gratitude for
 * Grateful for library spaces
