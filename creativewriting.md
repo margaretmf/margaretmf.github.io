@@ -3,22 +3,6 @@ layout: default
 is_contact: true
 ---
 
-## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature and music. I love creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled *Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again* (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
-
-## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. Creative writing stems from asking interesting questions and imagining. ##
-
-## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. This journey of writing music and setting poetry to music continues. ##
-
-## In the Creative Writing class, I remember writing down goals to explore how children's books and the media help to teach children concepts. I compared Disney to PBS Kids, and I wrote down goals of writing children's books. An exploration of best practices of writing books for children continues. ##
-
-## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically. ##
-
-## Through a career, I hope to work as a liberal engineer, bringing together culture, social sciences, history, literature, and engineering. I also hope to explore teaching students at the elementary, high school, or college levels. ##
-
-<br>
-
-----------
-
 
 ## Relationship to Art ##
 * Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships and literature
@@ -33,14 +17,6 @@ is_contact: true
 * Appreciate the way multiple people turn to the same things in nature to photograph, sketch, paint, or appreciate
 * Apreciate how music expresses feelings that multiple people have
 * Realized that art shares the same idioms, language, or concepts from that other art uses but spins off it to share an original viewpoint or filter, and multiple artists may look to the same object in different ways, and there's harmony since we all belong to the same universe
-
-## Nature ##
-*I believe* nature allows a simpler and fuller life [in 2009, 2010]
-
-*Do I still believe this?*
-I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee. [2021]
-
-I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
 ## Relationship to Nature ##
 * Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (59 days)
