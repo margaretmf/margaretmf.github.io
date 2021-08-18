@@ -6923,7 +6923,10 @@ The wind, the breeze blowing the leaves
 ## Hand on My Heart ##
 I put my hand on my heart in a nation with two sides of the same coin. The dots all connect. The puzzle pieces all fit. THe 50 states all fit with lines and shapes and rules and boundaries and highways.
 
-We all live in the same world. We all want to be someone to someone else. THe present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
+We all live in the same world. We all want to be someone to someone else. The present was there yesterday and the present will be there tomorrow. I'm moving forward through life to see what I could not see in the past. The script is flipped to show the other side to the story. The script is always being flipped. Driving down the highway I see the fuller picture that was always there and the fuller picture that was always developing. Looking thorugh the rear view mirror to learn the lesson but looking thorugh the window to see what's in full view.
+
+I put my hand on my heart for the red, white, and blue.
+I put my hand on my heart for the stars and the stripes.
 
 It's the native land.
 It's a land of many.
