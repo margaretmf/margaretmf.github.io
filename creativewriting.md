@@ -8043,7 +8043,7 @@ How the sunlight shines in and grows brighter and then dims
 A world
 constantly changing
 Beliefs shifting
-A palce revisited with the eyes of a child
+A place revisited with the eyes of a child
 People occupy places, attitudes, positions
 Contributing their perception, interpretation, perspective
 
