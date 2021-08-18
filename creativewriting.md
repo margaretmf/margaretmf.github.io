@@ -24,15 +24,6 @@ is_contact: true
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
 
-## Spirituality ##
-*I believe* "God is all and God is good" [in 2009, 2010]
-
-*Do I still believe this?* 
-I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others.
-I have found that I can see God's expression everyone through compassion, intelligence, joy, peace.
-I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas.
-I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future.
-
 ## Relationship to Spirituality ##
 * Appreciate the architecture of all the churches in the community
 * Learn about a dual language church
