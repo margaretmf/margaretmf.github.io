@@ -389,7 +389,7 @@ Someone else is looking to this same flower.
 
 ## Trash ##
 A piece of litter blows with the air. <br>
-I run after it. <br.
+I run after it. <br>
 I chase after it. <br>
 I am trying to catch it. <br>
 It's going too fast. <br>
