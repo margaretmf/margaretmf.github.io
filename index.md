@@ -133,40 +133,13 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 * Daily, I am grateful for democracy and democratization.
 **Diaria, trabajo para democracia y la democratización.**
 
-## Research Questions and Interesting Studies
-* A Study on How People Use a Liberal Arts or Humanities Degree in the World
-* A Study Comparing the city of Norfolk and Memphis in addition to Richmond, Charlottesville, and Nashville
-* A Study Comparing Dublin and Glasgow to Nashville and Louisville
-* A Study on Democracy, What it Means to Democratize, What a Republic Is, What It Means to Localize
-* A Study on How Political Leaders Have Read Biblical and Scriptural Texts, What Texts They Studied, and How Scriptural Texts Inspired Them
-* A Study on Whether People Attend Church, What Church They Attend, Why People Attend That Church, What is the Theology, How Strong is the Faith, What Leads People to Doubt, the Relationship to God, and How People Feel Church and Democracy are Related
-* A Study on the American Flag, and what the American flag represents through Text
-* A Study on Light in the Darkness, and Where This Comes Up in Books, and What This Means, and Its Spiritual Significance
-* A Study on Societal Wholeness, and Connectedness; This Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
-* A Study on Signs and Sybmols
-* A Study on Interracial Homes
-* A Study on Democracy and Church
-* A Study on Shays' Rebellion in Relationship to the Trump Election
-* A Study on Cultures that Influence and Shape Engineering
-* A Study on the Dark Web
-* A Study on What People Listen to While Driving
-* A Study on Weaving Individual Narratives with Collective, National Narratives
-* A Study on Harassment - Why Do People Harass People? Men, Women, Women, Men; What's the Boundary Between Teasing, Flirting, Harassment
-* A Study on the Boundaries on the Internet; the Relationship Between the Boundaries on the Internet and the Boundaries on the Road - the Internet Highway
-* A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
-* A Study on Names
-* A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
-* A Study on political storms (1960s, 2020s)
-* A Study on How to Use Art to Share History
-* A Study on how Christianity influences music
-
 <br>
 
 ## Skills
 
 **Writing:** news reviews, book reviews, white paper writing, blog writing, user story writing, historical writing; learning about solutions journalism
 
-**Media Management** Twitter, Instagram; Photography, Videography
+**Media Management:** Twitter, Instagram; Photography, Videography
 
 **Systems Practice, Design Research, and Mission-Driven Consulting**: systems analysis, systems practice and design for social justice, ethnographic interviewing and focus groups, systems mapping and systems narrative development, requirements facilitation, user story and requirements writing, chatbot systems design; nonprofit strategic alignment 
 
@@ -194,3 +167,33 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 
 <br>
 
+## Research Questions and Interesting Studies
+As someone with an undergraduate degree in History, I aspire to write at least one book in my lifetime. Topics of research and writing that interest me include the following:
+
+* A Study on How People Use a Liberal Arts or Humanities Degree in the World
+* A Study Comparing the city of Norfolk and Memphis in addition to Richmond, Charlottesville, and Nashville
+* A Study Comparing Dublin and Glasgow to Nashville and Louisville
+* A Study on Democracy, What it Means to Democratize, What a Republic Is, What It Means to Localize
+* A Study on How Political Leaders Have Read Biblical and Scriptural Texts, What Texts They Studied, and How Scriptural Texts Inspired Them
+* A Study on Whether People Attend Church, What Church They Attend, Why People Attend That Church, What is the Theology, How Strong is the Faith, What Leads People to Doubt, the Relationship to God, and How People Feel Church and Democracy are Related
+* A Study on the American Flag, and what the American flag represents through Text
+* A Study on Light in the Darkness, and Where This Comes Up in Books, and What This Means, and Its Spiritual Significance
+* A Study on Societal Wholeness, and Connectedness; This Concept Comes Up in Multiple Books, Authors, and Texts, and It Is Spiritual
+* A Study on Signs and Sybmols
+* A Study on Interracial Homes
+* A Study on Democracy and Church
+* A Study on Shays' Rebellion in Relationship to the Trump Election
+* A Study on Cultures that Influence and Shape Engineering
+* A Study on the Dark Web
+* A Study on What People Listen to While Driving
+* A Study on Weaving Individual Narratives with Collective, National Narratives
+* A Study on Harassment - Why Do People Harass People? Men, Women, Women, Men; What's the Boundary Between Teasing, Flirting, Harassment
+* A Study on the Boundaries on the Internet; the Relationship Between the Boundaries on the Internet and the Boundaries on the Road - the Internet Highway
+* A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
+* A Study on Names
+* A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
+* A Study on political storms (1960s, 2020s)
+* A Study on How to Use Art to Share History
+* A Study on how Christianity influences music
+
+<br>
