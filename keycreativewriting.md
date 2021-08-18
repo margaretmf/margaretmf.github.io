@@ -1,5 +1,5 @@
 
-## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature and music. I love creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled **Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again** (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
+## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature and music. I love creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled ***Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again*** (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. Creative writing stems from asking interesting questions and imagining. ##
 
@@ -389,67 +389,36 @@ I pick it up, and I throw it away.
 
 ## Parallels ##
 When running through the storm here someone is running through a rainstorm in another city.
-
 When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
-
 When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
-
 When walking by a hotel's front door here, I think of standing in front of hotel in another city.
-
 When walking by a bookstore here, I remember walking in a bookstore somewhere else.
-
 When writing notes on my phone, someone on the other side of the country is doing the same thing.
-
 When sitting alone in bed, someone on the other side of the world is feeling the same way.
-
 When I'm walking by a car today I love remembering a moment of walking by a running car in another city.
-
 When walking by apartments here I love thinking of apartments in another place.
-
 When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
-
 When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
-
 When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
-
 When running down a trail here I think of running down trails in other places in TN and DC.
-
 When writing poems and creatively writing, someone else is doing this somewhere else.
-
 When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
-
 When folding towels I appreciate those folding towels somewhere else.
-
 When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
-
 When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
-
 When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
-
 When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
-
 When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
-
 When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
-
 When I set down to ask a question about a word, other people have asked the same question.
-
 When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
-
 When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
-
 When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
-
 When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
-
 When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
-
 When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
-
 When walking by the medical center I think of medical center in another city, and I love all the people in the center.
-
 When sipping on coffee I think of sipping on coffee with people in Argentina.
-
 When in a gymn looking to the ceiling, I think of looking to gymn ceilings in two other places.
 
 <br>
@@ -527,7 +496,7 @@ Women are behind the rebirth of the American dream through the work in the posta
 <br>
 
 ## The American Chain, Written in 2010 ##
-As a child, I grew up singing *I Am Proud To Be an American* like many of my peers. I never knew what it mean to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, *we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are*. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the *tired*, the *poor*, and the *huddled masses yearning to breathe free* (pp. 11-12, 329).
+As a child, I grew up singing *I Am Proud To Be an American* like many of my peers. I never knew what it mean to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
 
 A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech, the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
 
@@ -537,13 +506,13 @@ Finally, in January 2009, on the Inaugaration Day, although I was not there, I w
 
 Throughout Obama's campaign and these three events, because I have grown love for my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the *Homework Help* program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
 
-Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where *each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop* (p. 577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
+Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop" (p. 577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
 
 <br>
 
 
 ## The American Chain, Edited in 2021 ##
-As a child, I grew up singing *I Am proud to be an American* as many of my peers did. I did not know what it meant to be an American as deeply as recently though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, *we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are*. The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even the *tired*, the *poor*, and the *huddled masses yearning to breathe free* (pp. 11-12, 329).
+As a child, I grew up singing *I Am proud to be an American* as many of my peers did. I did not know what it meant to be an American as deeply as recently though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are." The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
 
 A little over a year ago, in February 2008, I went to the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech, the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
 
@@ -551,9 +520,9 @@ I had a similar experience in October 2008 when I went to another Barack Obama r
 
 Finally, in January 2009, on the Inaugaration Day, although I was not there, I watched the big event on television. While watching the millions of people there, I felt the presence of a true society. That day was truly a day full of nonpartisanship and support for America from everyone. Everyone supported Barack Obama on this day, a day of uniting America together. I not only truly felt like an American on that special day, but I also loved being an American. I wanted to make a difference for my country.
 
-Throughout Obama's campaign and these three events, because I have grown love for my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the *Homework Help* program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
+Throughout Obama's campaign and these three events, because I have grown love for my country and understand the meaning of America, I have challenged myself to give back to this society. I decided to go to Monroe Elementary on Tuesday and Thrusday afternoons when I did not have activities after school. I help children who do not have the same privileges in their households with their homework through the "Homework Help" program. I do this with the Park Place Childlife Center. The children may not be able to read as well, or make as good grades as other children their age, but they all have such big hearts and love for people in general. The children all suppport each other and push each other to do their homework. The relationships between the students and my relationships to the students represent the American culture.
 
-Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where *each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop* (p. 577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
+Because of the three events during Barack Obama's campaign and inauguration, I have realized the good of the American people, and I have learned the importance of giving back to my country. I can now declare that I understand the meaning of America. Through storm or shine, our country can fight its challenges with the help of each individual. Each individual is like a link in the chain. Each individual can also be represented as a bead in Dillard's notion where "each bead is transparent and each has a world, or the same world, light and alive and apparent inside the drop" (p. 577). Each individual, despite his class, race, or gender matters. Each individual can contribute something to our society. Each individual has the opportunity to grow if he learns to work hard. If one link or bead fell, the chain would break, I believe in the American chain of people.
 
 Since writing this, I have continued to see the meaning of America. When reading Vice President Kamala Harris's book, I saw how the words of Lazarus influence her work helping people in need as a political leader; and when watching the fourth of July festivities in Washington, DC I saw the huddle of Americans expressing cheer, renewal, and love for diversity. I hope to continue to stand witness to the meaning of America heading into the future.
 
@@ -586,7 +555,7 @@ Eisenhower's top military job was being a General. He was general during World W
 
 One other important quality helped Eisenhower's success. This was popularity. He was very popular throughout the country during his career. He was also popular as a child when Eisenhower was a young boy in school, he was really popular. He even had this popularity at school when his family was poor and couldn't pay for nice clothing. He was so popular that he became President of Abilene High School Athletic Association when he was in high school. People called Eisenhower *Ike* there and everywhere else too. ANother example of popularity was that when he got back from Europe, he did so well that he was treated as though he killed Hitler himself. After he got back, he flew to England to go to a ceremony. The ceremony took place in London and he was invited by Winston Churchill. At the ceremony he received a key and he made a speech of acceptance, *I am not a native of this land. I come from the very heart of America...'* Another way that showed Eisenhower's populrarity is that he didn't really want to be president although he became president and served for two terms. He was forced into presidency because so many people wanted him to be president. He was successful as president. He helped the civil rights movement and helped blacks. One way is that he helped Ruby Bridges be able to safely be at an all white school. He made a difference in America by being president. He was forced into presidency because of his popularity and he was popular in numerous ways.
 
-Eisenhower was a fantastic leader. He wouldn't have become this great leader without being hard-working, creative, and popular. Eisenhower helped a lot in World War II. He helped end the war in victory for the Allies. As president, he was against discrimination. In Eisenhower's first inaugural address, he says *The men who mine coal and fire furnaces and balance ledgers and turn lathes and pick cotton and heal the sick and plant corn- all serve proudly, and as profitably for America as the statemen who draft treaties and the legislator who enact laws.* Eisenhower was also a man who strived for world peace. He strived for world peace by two ways. One of the ways was by not wanting war. He tried to end the Korean War while president. He also wanted people to be equal and wanted people to help other people out. Eisenhower fulfilled many of his dreams and made a difference in the United States of America and in how our country is today.
+Eisenhower was a fantastic leader. He wouldn't have become this great leader without being hard-working, creative, and popular. Eisenhower helped a lot in World War II. He helped end the war in victory for the Allies. As president, he was against discrimination. In Eisenhower's first inaugural address, he says, "The men who mine coal and fire furnaces and balance ledgers and turn lathes and pick cotton and heal the sick and plant corn- all serve proudly, and as profitably for America as the statemen who draft treaties and the legislator who enact laws." Eisenhower was also a man who strived for world peace. He strived for world peace by two ways. One of the ways was by not wanting war. He tried to end the Korean War while president. He also wanted people to be equal and wanted people to help other people out. Eisenhower fulfilled many of his dreams and made a difference in the United States of America and in how our country is today.
 
 <br>
 
@@ -596,16 +565,15 @@ order, and a set of ways to handle collective challenges. No party has absolute 
 over the collective whole. The party not in control also represents another set of people. The governmental structure builds in a space for dialogue, or a debate
 that gives room for disagreement that can yield to agreement. Not everyone has to agree, but everyone should point their thought to the greater good that supports
 the life, love, and soul that exists within people's hearts and minds. New ideas can evolve out of conflict and disagreement, leading to something better than
-before. A new nation is built everytime conflict erupts so destructively. A republic (government is a **public matter**): **a state in which supreme power is held
-by the people and their elected representatives, and which has an elected or nominated president rather than a monarch**. The republic constitutes the entire
+before. A new nation is built everytime conflict erupts so destructively. A republic (government is a "public matter"): "a state in which supreme power is held
+by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire
 region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives
 decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the
 representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the "inalieanble rights" of the people. A
-democracy (government is ruled **by the people**): **a system of government by the whole population or all the eligible members of a state, typically through
-elected representatives**. The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and
+democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through
+elected representatives." The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and
 voices make the laws through their votes. Everyone has 'inalieanable rights'. The debate over which set of ideas, or system of government runs in my head. I feel
-like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's
-voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy
+like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy
 (https://www.thoughtco.com/republic-vs-democracy-4169936)
 
 <br>
@@ -617,66 +585,37 @@ Daily conversations are democratic. Daily conversations support democracy. Daily
 
 ## The People Behind the Work ##
 There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
-
 There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
-
 There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
-
 There's someone, there are people behind the telemarketing, and they have thoughts and a story, and a culture.
-
 There's someone, there are people behind the nursing, and they have thoughts and a story, and a culture.
-
 There's someone, there are people in front of the chalkboard or the dry erase board, and they have thoughts and a story, and a culture.
-
 There's someone, there are people on the other side of the computer screen, and they have thoughts and a story, and a culture.
-
 There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture.
-
 There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
-
 There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
-
 There's someone, there are people behind the books in the bookstore.
-
 There's someone, there are people behind the airplanes flying.
-
 There's someone, there are people behind the music.
-
 There's someone, there are people behind the trash cans.
-
 There's someone, there are people behind the post office.
-
 There's someone, there are people behind the work in churches.
-
 There's someone, there are people behind the artwork.
-
 There's someone, there are people behind the psych ward.
-
 There's someone, there are people behind the bank accounts.
-
 There's someone, there are people behind the homes.
-
 There's someone, there are people behind the data.
-
+There's someone, there are people behind the medicine.
 There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
-
 There are people behind the word *Queen* on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
 walking on Earth are behind the word *Queen* on the advertisement.
-
 There's someone there, there are people there behind the construction of the building.
-
 There's someone there, there are people there behind the washed clothes.
-
 There's someone there, there are people there behind the cleaned towels.
-
 There's someone behind, there are people behind the painting.
-
 There's someone behind, there are people behind the laundry.
-
 There's someone behind, there are people behind the songs.
-
 There's someone behind, there are people behind the food.
-
 There's someone behind, there are people behind the clothes.
 
 <br>
