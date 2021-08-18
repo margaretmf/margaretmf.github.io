@@ -17,16 +17,22 @@
 
 # American Credo Beliefs #
 ## Art ##
-*I believe* participation in the fine arts brings joy [in 2009, 2010]
+*I believe* participation in the fine arts brings joy [2009, 2010]
  
 *Do I still believe this?*
 I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
 
 ## Nature ##
-*I believe* nature allows a simpler and fuller life [in 2009, 2010]
+*I believe* nature allows a simpler and fuller life [2009, 2010]
 
 *Do I still believe this?*
 I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee. [2021] I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
+
+## Spirituality ##
+*I believe* "God is all and God is good" [2009, 2010]
+
+*Do I still believe this?* 
+I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others. I have found that I can see God's expression everyone through compassion, intelligence, joy, peace. I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas. I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future. [2021]
 
 <br>
 
