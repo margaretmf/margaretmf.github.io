@@ -1043,8 +1043,11 @@ Every day's a new day to dream something new. (wish something new)
 Oh it's a new day for the people to move.
 I love that the sun is what the earth spins us around.
 
+Oh how I love to wake up to this new day
+and feel the people and the earth move around as one.
+
 Every day's a new day, every day's a new day.
-Every dya's a new day to feel the earth move.
+Every day's a new day to feel the earth move.
 
 It's a new day for the green grass to grow.
 Where the grass is so green is where I long to go.
@@ -1055,7 +1058,7 @@ Every day's a new day to love this green earth.
 It's a new day for the trees to talk.
 I love to hear them and talk to them too.
 
-Every dya's a new day for me and for you.
+Every day's a new day for me and for you.
 Every day's a new day. Every day's a new day.
 
 It's a new day for the bees to buzz.
@@ -1065,7 +1068,8 @@ Every day's a day to try something new.
 Every day's a new day. Every day's a new day.
 
 It's a new day for the flowers to bloom.
-I lvoe to grow like them and smell them too.
+I love to grow like them and smell them too.
+(I want my heart to open like the flowers that bloom).
 
 I want to live each day like it's the first and the last.
 Every day's a new day, every day's a new day.
@@ -1073,7 +1077,7 @@ Every day's a new day, every day's a new day.
 Oh it's a new day for our hearts to beat with love.
 I love to feel the hearts all over beating within everywhere.
 
-Every dya's a enw day for me and for you.
+Every day's a enw day for me and for you.
 I love when smiles shine through all the people everywhere.
 
 Oh it's a new day to seize that day.
