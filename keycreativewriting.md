@@ -946,7 +946,7 @@ Miseducated. Lifelong learning. You are what you know. You are what you don't kn
 <br>
 
 ## Vocabulary Usage ##
-There was once a beautiful, 'roan' horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the 'purling' river, the horses enjoyed racing each other. The 'cohesive' pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given 'farina'. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an 'incoherent' group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's 'renown' for his 'inherent' speed, they 'denominated' him as their leader. Upon being chosen, Rapido 'hesitated'. He did not believe he would serve as a good leader and claimed that it had to be a 'misnomer'. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses 'adhered' to each other. Their 'adhesion' made them stronger. After a very close battle, the roan horses won.
+There was once a beautiful, *roan* horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the *purling* river, the horses enjoyed racing each other. The *cohesive* pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given *farina*. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an *incoherent* group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's *renown* for his *inherent* speed, they *denominated* him as their leader. Upon being chosen, Rapido *hesitated*. He did not believe he would serve as a good leader and claimed that it had to be a *misnomer*. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses *adhered* to each other. Their *adhesion* made them stronger. After a very close battle, the roan horses won.
 
 <br>
 
@@ -1285,11 +1285,10 @@ The truth is light. <br>
 The truth lifts her wings in a world full of colors. <br>
 The truth lives on. <br>
 The truth is at the center. <br>
-The truth is within every's hearts. <br>
+The truth is within everyone's hearts. <br>
 The truth raises her voice. <br>
 The truth shares her wisdom. <br>
 The truth can be tough to bear. <br>
-The truth is there. <br>
 
 <br>
 
