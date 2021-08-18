@@ -312,8 +312,11 @@ and a love for the wonder in everyone's eyes is what I seek.
 
 ## Pairs ##
 If all the world were a tree we'd be two leaves on a tree that change with the seasons. 
+
 If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other.
+
 If all the world were a song we'd be two notes swinging and singing as parts of a harmony
+
 If all the world were a puzzle we'd be two pieces fitting together, joining together, perfectly fit for each other and showing the world the picture that it's born to become.
 
 <br>
