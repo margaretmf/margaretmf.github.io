@@ -496,7 +496,7 @@ Women are behind the rebirth of the American dream through the work in the posta
 <br>
 
 ## The American Chain, Written in 2010 ##
-As a child, I grew up singing *I Am Proud To Be an American* like many of my peers. I never knew what it mean to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
+As a child, I grew up singing 'I Am Proud To Be an American' like many of my peers. I never knew what it mean to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
 
 A little over a year ago, in February 2008, I was at the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech, the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
 
@@ -512,7 +512,7 @@ Because of the three events during Barack Obama's campaign and inauguration, I h
 
 
 ## The American Chain, Edited in 2021 ##
-As a child, I grew up singing *I Am proud to be an American* as many of my peers did. I did not know what it meant to be an American as deeply as recently though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are." The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
+As a child, I grew up singing 'I Am proud to be an American' as many of my peers did. I did not know what it meant to be an American as deeply as recently though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are." The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
 
 A little over a year ago, in February 2008, I went to the Barack Obama rally where 18,000 people attended. When Mr. Barack Obama began his speech, the responses from everyone in the audience gave a feel of community support. Everyone was there for a common reason: to support Mr. Obama, to support the Democrats, and most of all to support the United Sates of America. I felt love from each person standing near me. Everyone stood in a tight place for over two hours, but I heard no complaints; everyone worked together to make the rally successful.
 
@@ -569,12 +569,11 @@ before. A new nation is built everytime conflict erupts so destructively. A repu
 by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire
 region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives
 decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the
-representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the "inalieanble rights" of the people. A
+representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the 'inalienable rights' of the people. A
 democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through
 elected representatives." The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and
-voices make the laws through their votes. Everyone has 'inalieanable rights'. The debate over which set of ideas, or system of government runs in my head. I feel
-like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy
-(https://www.thoughtco.com/republic-vs-democracy-4169936)
+voices make the laws through their votes. Everyone has 'inalienable rights'. The debate over which set of ideas, or system of government runs in my head. I feel
+like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy](https://www.thoughtco.com/republic-vs-democracy-4169936)
 
 <br>
 
@@ -585,37 +584,68 @@ Daily conversations are democratic. Daily conversations support democracy. Daily
 
 ## The People Behind the Work ##
 There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
+
 There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
+
 There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
+
 There's someone, there are people behind the telemarketing, and they have thoughts and a story, and a culture.
+
 There's someone, there are people behind the nursing, and they have thoughts and a story, and a culture.
+
 There's someone, there are people in front of the chalkboard or the dry erase board, and they have thoughts and a story, and a culture.
+
 There's someone, there are people on the other side of the computer screen, and they have thoughts and a story, and a culture.
+
 There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture.
+
 There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
+
 There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
+
 There's someone, there are people behind the books in the bookstore.
+
 There's someone, there are people behind the airplanes flying.
+
 There's someone, there are people behind the music.
+
 There's someone, there are people behind the trash cans.
+
 There's someone, there are people behind the post office.
+
 There's someone, there are people behind the work in churches.
+
 There's someone, there are people behind the artwork.
+
 There's someone, there are people behind the psych ward.
+
 There's someone, there are people behind the bank accounts.
+
 There's someone, there are people behind the homes.
+
 There's someone, there are people behind the data.
+
 There's someone, there are people behind the medicine.
+
 There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
+
 There are people behind the word *Queen* on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
 walking on Earth are behind the word *Queen* on the advertisement.
+
 There's someone there, there are people there behind the construction of the building.
+
 There's someone there, there are people there behind the washed clothes.
+
 There's someone there, there are people there behind the cleaned towels.
+
 There's someone behind, there are people behind the painting.
+
 There's someone behind, there are people behind the laundry.
+
 There's someone behind, there are people behind the songs.
+
 There's someone behind, there are people behind the food.
+
 There's someone behind, there are people behind the clothes.
 
 <br>
@@ -627,60 +657,115 @@ It brings an interesting feeling, a new perception, a beautiful insight to look 
 
 ## America, The Country ##
 America is a story of belief.
+
 America is a story of overcoming.
+
 America is a story of team spirit.
+
 America is a story of family.
+
 America is a story of repentance and reformation.
+
 America is a story of change.
+
 America is a story of freedom.
+
 America is a story of freedom of expression.
+
 America is a story of Truth.
+
 America is a story of learning.
+
 America is a story of spiritual transformation.
+
 America is a story of perspiration.
+
 America is a story of courage.
+
 America is a story of community and communal work.
+
 America is a story of liberty and liberation.
+
 America is a story of government.
+
 Ammerica is a story of redemption.
+
 America is a story of singing.
+
 America is a story of music.
+
 America is a story of sacrifice.
+
 America is a story of culture.
+
 America is a story of the fight for independence.
+
 America is a story of home.
+
 America is a story of breath and breathing.
+
 America is a story of religion and a higher spirituality.
+
 America is a story of progress.
+
 America is a story of thanksgiving.
+
 America is a story of exploring.
+
 America is a story of discovery.
+
 America is a story of light in the darkness.
+
 America is a story of pilgrimage.
+
 America is a story of hard work, perspiration, new ideas, and inspiration.
+
 America is a story of protest.
+
 America is a story of marching onward, upward and forward.
+
 America is a story of neighborhood.
+
 America is a story of country.
+
 America is a story of struggles.
+
 America is a story of education.
+
 America is a story of adventure.
+
 America is a story of danger.
+
 America is a story of wholeness.
-"America is a story of individual and indivisible."
+
+America is a story of 'individual' and 'indivisible'.
+
 America is a story of ancestors.
+
 America is a story of the Spirit.
+
 America is a story of nature.
+
 America is a story of churches.
+
 America is a story of schools.
+
 America is a story of expression, the reverse of oppression.
+
 America is a story of healthy conversations.
+
 America is a story of people who love nature.
+
 America is a story of neighborhoods.
+
 America is a story of trailblazers.
+
 America is a story of stories.
+
 America is a story of the new birth that was always here.
+
 America is a story of landmarks.
+
 America is a story of many and oneness.
 
 Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
@@ -688,32 +773,56 @@ Everyone I see while walking down the street includes everything that belongs to
 <br>
 
 ## Beliefs in America ##
-Americans believe in silver linings.
-Americans believe in family.
+Americans believe in silver linings. <br>
+Americans believe in family. <br>
 Americans believe in beauty.
+
 Americans believe in grace.
+
 Americans believe in laughter.
+
 Americans believe in color.
+
 Americans believe in rainbows.
+
 Americans believe in relating.
+
 Americans believe in sincerity.
+
 Americans believe in the power of kindness.
+
 Americans believe in music.
+
 Americans believe in peace.
+
 Americans believe in the voice.
+
 Americans believe in opportunity.
+
 Americans believe that anything can be achieved.
+
 Americans believe in a liberal, broad education.
+
 Americans believe in a team.
+
 Americans believe in the power of people.
+
 Americans believe in the South.
+
 Americans believe in unity.
+
 Americans believe in a better tomorrow.
+
 Americans believe in the ability of someone else.
+
 Americans believe in a new America.
+
 Americans believe in the entrepreneurship.
+
 Americans believe in youth.
+
 Americans believe in what is right.
+
 Americans believe in the power of love.
 Americans believe in sunlight.
 Americans believe that one can do it.
