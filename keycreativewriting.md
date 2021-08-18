@@ -82,7 +82,7 @@ The many branches lift up.
 <br>
 
 ## Memories ##
-Everything that once existed still exists inthought.
+Everything that once existed still exists in thought.
 
 <br>
 
@@ -102,9 +102,9 @@ You thought you had an enemy, but you really found a friend in disguse.
 <br>
 
 ## The Age of Globality, the Age of Spirituality, the Age of Interconnectedness ##
-We live in the age of globality, where people exchange ideas more naturally.
-We live in the age of spirituality, where people slow down and live mindfully, aware of something bigger than themselves within.
-We live in the age of interconnectivity, where everything connects mroe rapidly.
+We live in the age of globality, where people exchange ideas more naturally. <br>
+We live in the age of spirituality, where people slow down and live more mindfully. <br>
+We live in the age of interconnectivity, where everything connects rapidly. <br>
 
 <br>
 
