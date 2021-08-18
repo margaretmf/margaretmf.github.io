@@ -277,6 +277,21 @@ Smiling through all the Earth, our mankind is beautiful, whole, and integrated.
 
 **Word Associations:** grin, laugh, amusement, delight, smirk, beam, dimple, lips
 
+## Silence ##
+The silent truth echoes down the ages from heart to heart,
+from story to story,
+from experience to experience, 
+from song to song,
+from coast to coast.
+It never stops its sound.
+It lives and loves the solitude, putting a stop to the chatter, the murmurs, the muffles.
+The silent secret within is a heart filled with golden light.
+It has great command over the serpent, and is able to tread on it.
+
+<br>
+
+**Word Associations:** sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
