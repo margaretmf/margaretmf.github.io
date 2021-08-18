@@ -267,6 +267,16 @@ I wait in apprehension for the future.
 
 **Word Associations:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
 
+## Smiles ##
+Smiles are God's work through man.
+The sun shines its light that radiates through the Earth as man shines his happiness through a smile.
+There should be 7.2 billion smiles, laughs, expressions of delight, and beams of hope on Earth today.
+Smiling through all the Earth, our mankind is beautiful, whole, and integrated.
+
+<br>
+
+**Word Associations:** grin, laugh, amusement, delight, smirk, beam, dimple, lips
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
