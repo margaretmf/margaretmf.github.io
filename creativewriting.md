@@ -2434,21 +2434,6 @@ the pact to stop throwing a fight.
 
 **Word Associations:** award, relation, civil, envoy, olive, quiet, pact, garden, offering, go
 
-## Silence ##
-The silent truth echoes down the ages from heart to heart,
-from story to story,
-from experience to experience, 
-from song to song,
-from coast to coast.
-It never stops its sound.
-It lives and loves the solitude, putting a stop to the chatter, the murmurs, the muffles.
-The silent secret within is a heart filled with golden light.
-It has great command over the serpent, and is able to tread on them.
-
-<br>
-
-**Word Associations:** sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
-
 ## Women ##
 Gentle beams of living love.
 The expressions of the calm, and peaceful life force.
