@@ -481,9 +481,9 @@ and shoes on an electric wire.
 
 ## Sweet Nothings ##
 Sweet nothings you put in my ear. <br>
-Telling me things I've never heard before. <br>
-Repeating the things that just aren't true. <br>
-Empty words and angry statements shared in vain. <br>
+You're telling me things I've never heard before. <br>
+You're repeating the things that just aren't true. <br>
+You're sharing in vain words and angry statements. <br>
 You are airing them, and out I hear. <br>
 
 <br>
