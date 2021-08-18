@@ -311,7 +311,7 @@ and a love for the wonder in everyone's eyes is what I seek.
 <br>
 
 ## Pairs ##
-If all the world were a tree we'd be two leaves on a tree that change with the seasons.
+If all the world were a tree we'd be two leaves on a tree that change with the seasons. 
 If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other.
 If all the world were a song we'd be two notes swinging and singing as parts of a harmony
 If all the world were a puzzle we'd be two pieces fitting together, joining together, perfectly fit for each other and showing the world the picture that it's born to become.
@@ -360,7 +360,7 @@ I dare to believe again, dream again, and smile that winning smile after the sto
 
 <br>
 
-# I Have a Life to Live #
+## I Have a Life to Live ##
 I have a life to live, a song to sing, a book to write, a heart filled with love and a laugh.
 There are youth to teach, people to meet, churches to go to, homes to architect, nature to appreciate.
 
@@ -388,14 +388,14 @@ Someone else is looking to this same flower.
 <br>
 
 ## Trash ##
-A piece of litter blows with the air.
-I run after it.
-I chase after it.
-I am trying to catch it.
-It's going too fast.
-I need to stop it.
-I finally reach for it.
-I pick it up, and I throw it away.
+A piece of litter blows with the air. <br>
+I run after it. <br.
+I chase after it. <br>
+I am trying to catch it. <br>
+It's going too fast. <br>
+I need to stop it. <br>
+I finally reach for it. <br>
+I pick it up, and I throw it away. <br>
 
 <br>
 
@@ -467,47 +467,47 @@ When in a gymn looking to the ceiling, I think of looking to gymn ceilings in tw
 <br>
 
 ## Clothes Laying Around ##
-A hat on a fence.
-A shirt on the ground.
-A sweatshirt on the tree with a leaf on it.
-A mask on the ground.
-A shoelace on the sidwalk.
-Shoes on an electric wire.
+A hat on a fence, <br>
+A shirt on the ground, <br>
+A sweatshirt on the tree with a leaf on it, <br>
+A mask on the ground, <br>
+A shoelace on the sidwalk, <br>
+and shoes on an electric wire.
 
 <br>
 
 ## Sweet Nothings ##
-Sweet nothings you put in my ear.
-Telling me things I've never heard before.
-Repeating the things that just aren't true.
-Empty words and angry statements shared in vain.
-You are airing them out I hear.
+Sweet nothings you put in my ear. <br>
+Telling me things I've never heard before. <br>
+Repeating the things that just aren't true. <br>
+Empty words and angry statements shared in vain. <br>
+You are airing them, and out I hear. <br>
 
 <br>
 
 ## The Apple ##
-He threw an apple down, and I caught it.
-He told me he loved me, and I loved him right back.
-He showed me the world, and I became more aware of how beautiful it is.
+He threw an apple down, and I caught it. <br>
+He told me he loved me, and I loved him right back. <br>
+He showed me the world, and I became more aware of how beautiful it is. <br>
 
 <br>
 
 ## The Wind ##
-The wind knows my name.
-It carries me home.
-It calls me to where I belong.
+The wind knows my name. <br>
+It carries me home. <br>
+It calls me to where I belong. <br>
 
-The wind blows my hair.
-It touches my face.
-It pushes me along.
+The wind blows my hair. <br>
+It touches my face. <br>
+It pushes me along. <br>
 
-The wind has my back.
-It runs with me.
-It spreads my truth.
+The wind has my back. <br>
+It runs with me. <br>
+It spreads my truth. <br>
 
-The wind comes sweeping through,
-and I know its sound.
-It sings my praises.
+The wind comes sweeping through, <br>
+and I know its sound. <br>
+It sings my praises. <br>
 
 <br>
 
@@ -920,29 +920,29 @@ There was once a beautiful, *roan* horse. He was not only the prettiest horse; b
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Flickering Lights ##
-The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth.
-The flickering lights glow in the homes and office buildings united that windows provide and entrance to.
-The flickering lights twinkle in the night sky that reach other galaxies.
-The flickering lights mark the course in the middle of sea.
-The flickering lights reflect through the water.
+The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth. <br>
+The flickering lights glow in the homes and office buildings united that windows provide and entrance to. <br>
+The flickering lights twinkle in the night sky that reach other galaxies. <br>
+The flickering lights mark the course in the middle of sea. <br>
+The flickering lights reflect through the water. <br>
 
 <br>
 
 ## City Lights ##
-City lights.
+City lights. <br>
 
-The lights at night are on.
-A hard day at work is done.
+The lights at night are on. <br>
+A hard day at work is done. <br>
 
-The day is done.
-The night is on.
+The day is done. <br>
+The night is on. <br>
 
-The people have left work.
-The light supports their action.
+The people have left work. <br>
+The light supports their action. <br>
 
-It's loud and silent at the same time.
+It's loud and silent at the same time. <br>
 
-All the rooms twinkle like the stars in the night sky.
+All the rooms twinkle like the stars in the night sky. <br>
 
 <br>
 
@@ -1157,15 +1157,15 @@ The lone bird knows her place on the wire.
 <br>
 
 ## Tossing It Out to Sea, The Ocean - Rough Draft ##
-The ocean crashes every day upon the shore.
-The deep waters of God are where the sin is stirred out.
-The holiness of God can cleanse what is wrong away.
+The ocean crashes every day upon the shore. <br>
+The deep waters of God are where the sin is stirred out. <br>
+The holiness of God can cleanse what is wrong away. <br>
 
-Let it go.
-Let it shatter into pieces.
-Let it flee into the ocean.
-Let it fly across the sea.
-Let it fall to the floor.
+Let it go. <br>
+Let it shatter into pieces. <br>
+Let it flee into the ocean. <br>
+Let it fly across the sea. <br>
+Let it fall to the floor. <br>
 
 **[Biblical Reference](https://truthintheword.wordpress.com/2011/01/28/your-sins-are-at-the-bottom-of-the-ocean/)**
 
@@ -1195,41 +1195,41 @@ with everyone.
 <br>
 
 ## Smile Like You Mean It ##
-Smile like you mean it.
-In the pain, and the tears, and the fight within, smile like you mean it.
-In the loss for words, and the heartbreak, smile that winning smile.
-You smile like a ray of light.
-It lights up the whole room.
-It brightens up someone's day.
-It makes someone feel at ease.
-It cheers someone's heart.
-So, smile like you mean it.
-Let the glow shine.
-It is yours to share.
-It is yours to wear.
+Smile like you mean it. <br>
+In the pain, and the tears, and the fight within, smile like you mean it. <br>
+In the loss for words, and the heartbreak, smile that winning smile. <br>
+You smile like a ray of light. <br>
+It lights up the whole room. <br>
+It brightens up someone's day. <br>
+It makes someone feel at ease. <br>
+It cheers someone's heart. <br>
+So, smile like you mean it. <br>
+Let the glow shine. <br>
+It is yours to share. <br>
+It is yours to wear. <br>
 
 <br>
 
 ## It is Ok ##
-It's ok to cry.
-It's ok to let the heart tear inside.
-It's ok to let the tears flow.
-It's ok to let it break inside.
-It's ok to let the heart ache.
-It's ok to feel.
-Let it out.
-It's ok to express emotions and thoughts.
-Sometimes the anger and other emotions mask the need to cry and to feel.
-It is ok.
+It's ok to cry. <br>
+It's ok to let the heart tear inside. <br>
+It's ok to let the tears flow. <br>
+It's ok to let it break inside. <br>
+It's ok to let the heart ache. <br>
+It's ok to feel. <br>
+Let it out. <br>
+It's ok to express emotions and thoughts. <br>
+Sometimes the anger and other emotions mask the need to cry and to feel. <br>
+It is ok. <br>
 
-It's ok to cry.
-It's ok to feel.
-It should feel good to sing.
+It's ok to cry. <br>
+It's ok to feel. <br> 
+It should feel good to sing. <br>
 
-It's ok to cry.
-It's ok to let the tears flow.
-It's ok to cry.
-It's like the water droplets after a heavy rain.
+It's ok to cry. <br>
+It's ok to let the tears flow. <br>
+It's ok to cry. <br>
+It's like the water droplets after a heavy rain. <br>
 
 <br>
 
