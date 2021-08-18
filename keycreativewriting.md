@@ -353,13 +353,13 @@ It's the perfect 'I will commit' to an innocent yearning for a bond so great.
 ---------------------------------------------------------------------------------------------------------------------
 
 ## In My Own Words ##
-I am Margaret Furr, it rhymes with concur.
-I am a writer, and I aspire to write a book over a lifetime.
-I am musical, and I love looking at different angles to articulate a balance between the feminine and masculine perspectives in songs.
-I am an engineer, who loves methods to the madness.
-I am a dancer, like my grandmother, who smiled, glistened, and glow.
-I am an educator, who loves STEAM.
-I dare to believe again, dream again, and smile that winning smile after the storm.
+I am Margaret Furr, it rhymes with concur. <br>
+I am a writer, and I aspire to write a book over a lifetime. <br>
+I am musical, and I love looking at different angles to articulate a balance between the feminine and masculine perspectives in songs. <br>
+I am an engineer, who loves methods to the madness. <br>
+I am a dancer, like my grandmother, who smiled, glistened, and glow. <br>
+I am an educator, who loves STEAM. <br>
+I dare to believe again, dream again, and smile that winning smile after the storm. <br>
 
 <br>
 
