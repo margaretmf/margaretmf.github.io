@@ -29,30 +29,6 @@ is_contact: true
 * Learn about a dual language church
 * Love Religioius Liberty
 
-## Individual/Society ##
-*I believe* "each individual is a link in the chain - if that link fell, the chain would break." [in 2009, 2010]
-* I believe in the power of religious liberty and that we are all ultimately reaching the same goal.
- 
-*Do I still believe this?*
-I do not know, but I love this concept, and I have felt reminded of this intuitively.
-I feel like I have failed morally, but I am still learning and growing deeper and understanding how to rise back up.
-I love learning about interconnectedness, and how we are all connecting each other to a higher sense of life.
-I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct.
-Christian Science teaches that 'we are all tributary to the same source', but there are distinct differences between everyone in good ways. [2021]
-I believe in the idea of 'standing in union with everyone around in society and the world' as best as I can from this time forth.
-
-## What do I believe in? ##
-I believe that I, we are all a country and a world of beliefs.
-I believe in the next generation of humanity and all that they can learn each day and all that they can contribute.
-I believe in every individual as individual.
-I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn.
-I believe in giving credit to people who inspire other people, or who inspire us to change and grow.
-I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people.
-I believe in not killing people, and I have learned this the hardway.
-I believe everyone can learn a lesson from someone else, and everyone in the world.
-I believe that everyone has something to express.
-* I believe that President Barack Obama succeeded as president, and I appreciated his books.
-
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better
 * Healed racism and started to realize that everyone is individual and distinct
