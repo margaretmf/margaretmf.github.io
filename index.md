@@ -156,7 +156,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 * A Study on What People Choose to Study and Learn in College [Free People, Free Thinking, Free Conscience, Free Ability, Democracy]
 * A Study on Names
 * A Study on Christian music and what inspires Norton Hall Band and Reverend Al Green to sing the same gospel music
-* A Study on **political storms (1960s, 2020s)**
+* A Study on political storms (1960s, 2020s)
 * A Study on How to Use Art to Share History
 * A Study on how Christianity influences music
 
