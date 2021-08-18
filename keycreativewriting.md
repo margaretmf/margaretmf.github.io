@@ -13,6 +13,16 @@
 
 <br>
 
+---------------------------------------------------------------------------------------------------------------------
+
+# American Credo Beliefs #
+## Art ##
+*I believe* participation in the fine arts brings joy [in 2009, 2010]
+ 
+*Do I still believe this?*
+I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
+
+<br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
