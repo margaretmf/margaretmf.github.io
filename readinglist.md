@@ -71,9 +71,9 @@ layout: default
 * [Writing Better Lyrics: The Essential Guide to Powerful Songwriting](https://www.amazon.com/Writing-Better-Lyrics-Pat-Pattison/dp/1582975779/ref=sr_1_1?dchild=1&keywords=writing+better+lyrics&qid=1628357764&sr=8-1) by Pat Pattison
 * [Brick: A Social History](https://www.amazon.com/Brick-Social-History-Carolyne-Haynes/dp/0750991933/ref=sr_1_1?dchild=1&keywords=brick%3A+a+social+history&qid=1628357783&sr=8-1) by Louer
 * [Sunnis and Shi'a: A Political History](https://www.amazon.com/Sunnis-Shia-Political-Laurence-Louër/dp/0691186618/ref=sr_1_1?crid=2KIX6OTA4XETN&dchild=1&keywords=sunnis+and+shi%27a+a+political+history&qid=1628809051&sprefix=sunnis+and+shi%27a+a+politic%2Caps%2C149&sr=8-1) by Laurence Louer
+* [The History of Banking: The History of Banking and How the World of Finance Became What it is Today](https://www.amazon.com/History-Banking-World-Finance-Became/dp/1545397708/ref=sr_1_5?dchild=1&keywords=the+history+of+banking&qid=1629288019&sr=8-5) by K. Connors
 
 #### Reading
-* [The History of Banking: The History of Banking and How the World of Finance Became What it is Today]() by K. Connors
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 * [Writing Ethnographic Fieldnotes]() by Emerson, Fretz, and Shaw
 * [Bicknell Young: Notes of 1936 Primary Class Instruction]() by Bicknell Young
@@ -89,6 +89,7 @@ layout: default
 * It's a Long Story: My Life
 * Me and Sister Bobbie: True Tales of the Family Band
 * Willie Nelson: An Epic Life
+* Boom and Bust: A Global History of Financial Bubbles
 * The New Possible: Visions of Our World beyond Crisis 
 * Shakespeare: The Complete Collection
 * Willie: An Autobiography
