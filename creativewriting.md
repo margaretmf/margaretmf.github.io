@@ -20,13 +20,6 @@ is_contact: true
 ----------
 
 
-# American Credo Beliefs #
-## Art ##
-*I believe* participation in the fine arts brings joy [in 2009, 2010]
- 
-*Do I still believe this?*
-I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, apprecating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality, but real musicians lead me to hate playing music. [2021]
-
 ## Relationship to Art ##
 * Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships and literature
 * Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, The Riverside Group, and Corinne Bailey Rae
