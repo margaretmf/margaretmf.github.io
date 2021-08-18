@@ -96,6 +96,18 @@ The old dream dying is a new dream awakening.
 
 <br>
 
+## An Enemy is a Friend ## 
+You thought you had an enemy, but you really found a friend in disguse.
+
+<br>
+
+## The Age of Globality, the Age of Spirituality, the Age of Interconnectedness ##
+We live in the age of globality, where people exchange ideas more naturally.
+We live in the age of spirituality, where people slow down and live mindfully, aware of something bigger than themselves within.
+We live in the age of interconnectivity, where everything connects mroe rapidly.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
@@ -1221,38 +1233,26 @@ It's like the water droplets after a heavy rain.
 
 <br>
 
-## An Enemy is a Friend ## 
-You thought you had an enemy
-You really found a friend in disguise.
-You thought you were being laughed at.
-You really were being taught a lesson.
-The light in the darkness, it's so strong.
-
-You come waltzing in, feeling like you knew just what I needed.
-You woke me up to a side of me yearning, crying out loud to be free.
-
-<br>
-
 ## Truth ##
-The truth can be ugly.
-The truth is hard to hide.
-The truth cannot be lied about.
-The truth can be uncovered.
-The truth is real.
-The truth is just.
-The truth is beautiful.
-The truth is within.
-The truth is there.
-The truth is free.
-The truth is light.
-The truth lifts her wings in a world full of colors.
-The truth lives on.
-The truth is at the center.
-The truth is within every's hearts.
-The truth raises her voice.
-The truth shares her wisdom.
-The truth can be tough to bear.
-The truth is there.
+The truth can be ugly. <br>
+The truth is hard to hide. <br>
+The truth cannot be lied about. <br>
+The truth can be uncovered. <br>
+The truth is real. <br>
+The truth is just. <br>
+The truth is beautiful. <br>
+The truth is within. <br>
+The truth is there. <br>
+The truth is free. <br>
+The truth is light. <br>
+The truth lifts her wings in a world full of colors. <br>
+The truth lives on. <br>
+The truth is at the center. <br>
+The truth is within every's hearts. <br>
+The truth raises her voice. <br>
+The truth shares her wisdom. <br>
+The truth can be tough to bear. <br>
+The truth is there. <br>
 
 <br>
 
