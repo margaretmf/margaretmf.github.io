@@ -227,6 +227,82 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people working
 * Grateful for singer songwriting
 * Grateful for coffee breaks
+* Grateful for Christian Science
+* Grateful for the Spanish language
+* Grateful for light workers
+* Grateful for the art of people in church
+* Grateful for drumming sessions
+* Grateful for God’s plan
+* Grateful for all the good people I know from school
+* Grateful for people where I am
+* Grateful or purity
+* Grateful for cheerful people in the residency
+* Grateful for positive sounding voices
+* Grateful for clarity from God
+* Grateful for the beauty within everyone
+* Grateful or peers from Norfolk Academy
+* Grateful for kids shows on TV
+* Grateful for joy
+* Grateful for all the other people in the world
+* Grateful for a story of individuals
+* Grateful for other people in the IRC
+* Grateful for color palettes
+* Grateful for the music playing
+* Grateful for demonstrations of faith and church everywhere
+* Grateful for memories of feeling God present
+* Grateful for the humanity in the room
+* Grateful for the people with the health insurance
+* Grateful for others’ stories
+* Grateful for people everywhere
+* Grateful for angels and spiritual friends
+* Grateful to magnify on the good going on
+* Grateful for a memory of the American flag in Washington, DC
+* Grateful for the people from my classes
+* Grateful for the one that ripples out
+* Grateful for “Now”
+* Grateful for “Heart”
+* Grateful for the letters for mindfulness from the Chinese that goes back years, for eternity
+* Grateful for faith-driven treatment
+* Grateful for the love of life people have
+* Grateful for a moment for the group enjoying life
+* Grateful for people form other cultures and ethnicities
+* Grateful for fall colors
+* Grateful for the alphabet
+* Grateful for fall fashion
+* Grateful for arts and sciences
+* Grateful for colors everywhere
+* Grateful for a new day for everyone
+* Grateful for discipline on social media
+* Grateful for the good going on outside of here
+* Grateful for ethical people
+* Grateful for people doing what they are passionate about
+* Grateful for a relationship with discoveries
+* Grateful for a love of little kids
+* Grateful for the beauty every day
+* Grateful for the good going on at UVA throughout the fall
+* Grateful for loving kindness at church
+* Grateful for little ones
+* Grateful for freedom 
+* Grateful for the dignity expressed by people
+* Grateful for childlike innocence
+* Grateful for the time spent in Spanish speaking countries
+* Grateful for assertive communication tools
+* Grateful for gratitude for the home
+* Grateful to learn to cook
+* Grateful for everyone in the medical world
+* Grateful to live in a world of artists and art
+* Grateful that there’s an artist in everyone
+* Grateful that there’s a musician in everyone
+* Grateful for good people everywhere
+* Grateful that everyone in my class was good
+* Grateful for old friends and new
+* Grateful for fresh foods
+* Grateful for people living on the land
+* Grateful for all the people living in Georgia
+* Grateful for all mankind
+* Grateful for people healing divisions and divides
+* Grateful for the recreation today
+* Grateful for the spirit active at Norfolk Academy
 * Grateful for the kind people all around
 * Grateful for the Scottish music festival
 * Grateful for the Renaissance festival
