@@ -388,38 +388,38 @@ I pick it up, and I throw it away.
 <br>
 
 ## Parallels ##
-When running through the storm here someone is running through a rainstorm in another city.
-When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country.
-When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city.
-When walking by a hotel's front door here, I think of standing in front of hotel in another city.
-When walking by a bookstore here, I remember walking in a bookstore somewhere else.
-When writing notes on my phone, someone on the other side of the country is doing the same thing.
-When sitting alone in bed, someone on the other side of the world is feeling the same way.
-When I'm walking by a car today I love remembering a moment of walking by a running car in another city.
-When walking by apartments here I love thinking of apartments in another place.
-When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time.
-When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else.
-When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place.
-When running down a trail here I think of running down trails in other places in TN and DC.
-When writing poems and creatively writing, someone else is doing this somewhere else.
-When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home.
-When folding towels I appreciate those folding towels somewhere else.
-When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis.
-When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday.
-When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country.
-When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them.
-When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland.
-When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country.
-When I set down to ask a question about a word, other people have asked the same question.
-When praying with the love for "out of many, one" I think of praying with this idea at another time in another place.
-When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there.
-When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants.
-When feeling love in a hospital here, I think of the love for people in a hospital across the sea. 
-When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious.
-When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is.
-When walking by the medical center I think of medical center in another city, and I love all the people in the center.
-When sipping on coffee I think of sipping on coffee with people in Argentina.
-When in a gymn looking to the ceiling, I think of looking to gymn ceilings in two other places.
+When running through the storm here someone is running through a rainstorm in another city. <br>
+When in a convenience store hearing the beepng of a macine I think of the gaming and buying of food in a convenience store in another country. <br>
+When on the phone with someone in a restaurant, I am grateful for a memroy of being in a restaurant in another city. <br>
+When walking by a hotel's front door here, I think of standing in front of hotel in another city. <br>
+When walking by a bookstore here, I remember walking in a bookstore somewhere else. <br>
+When writing notes on my phone, someone on the other side of the country is doing the same thing. <br>
+When sitting alone in bed, someone on the other side of the world is feeling the same way. <br>
+When I'm walking by a car today I love remembering a moment of walking by a running car in another city. <br>
+When walking by apartments here I love thinking of apartments in another place. <br>
+When buying coffee and filling a cup with hot chocolate, I remember filling up a coffee cup in another place at another time. <br>
+When hearing a woman rolling a stroller, I remember the sounds of walking in another city or country somewhere else. <br>
+When sitting in a Starbucks, I think of sitting in a Starbucks at another time and in another place. <br>
+When running down a trail here I think of running down trails in other places in TN and DC. <br>
+When writing poems and creatively writing, someone else is doing this somewhere else. <br>
+When looking at these flowers I appreciate, someone else is drawing these flowers, and someone is appreciating them in their home. <br>
+When folding towels I appreciate those folding towels somewhere else. <br>
+When walking on the urban streets of Richmond, I think of the urban streets in New York, Argentina, and Memphis. <br>
+When walking into a restaurant, I think of walking into a restaurant somewhere else on a Monday. <br>
+When wearing the Alt Spring Break I think of all the people who did ALt Spring Break and love in another country. <br>
+When walking by the flowers I think of how someone else has observed them, loved them, appreciated them, and drawn them, and someone else has also painted them. <br>
+When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland. <br>
+When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country. <br>
+When I set down to ask a question about a word, other people have asked the same question. <br>
+When praying with the love for "out of many, one" I think of praying with this idea at another time in another place. <br>
+When hearing someone talk of fire, I think of the Red Cross Fire project in DC and all the good people there. <br>
+When reading about a man who was a scientist in DC, I think of all the wonderful STEM mentorship program participants. <br>
+When feeling love in a hospital here, I think of the love for people in a hospital across the sea. <br>
+When in a psych ward with people, I think of a time I was in a psych ward with people at another time. Now I am more progressed, and more conscious. <br>
+When sipping on coffee someone else in another part of the world is sipping on coffee, and I love whoever it is. <br>
+When walking by the medical center I think of medical center in another city, and I love all the people in the center. <br>
+When sipping on coffee I think of sipping on coffee with people in Argentina. <br>
+When in a gymn looking to the ceiling, I think of looking to gymn ceilings in two other places. <br>
 
 <br>
 
@@ -583,70 +583,39 @@ Daily conversations are democratic. Daily conversations support democracy. Daily
 <br>
 
 ## The People Behind the Work ##
-There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture.
-
-There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture.
-
-There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture.
-
-There's someone, there are people behind the telemarketing, and they have thoughts and a story, and a culture.
-
-There's someone, there are people behind the nursing, and they have thoughts and a story, and a culture.
-
-There's someone, there are people in front of the chalkboard or the dry erase board, and they have thoughts and a story, and a culture.
-
-There's someone, there are people on the other side of the computer screen, and they have thoughts and a story, and a culture.
-
-There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture.
-
-There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture.
-
-There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture.
-
-There's someone, there are people behind the books in the bookstore.
-
-There's someone, there are people behind the airplanes flying.
-
-There's someone, there are people behind the music.
-
-There's someone, there are people behind the trash cans.
-
-There's someone, there are people behind the post office.
-
-There's someone, there are people behind the work in churches.
-
-There's someone, there are people behind the artwork.
-
-There's someone, there are people behind the psych ward.
-
-There's someone, there are people behind the bank accounts.
-
-There's someone, there are people behind the homes.
-
-There's someone, there are people behind the data.
-
-There's someone, there are people behind the medicine.
-
-There's someone, there are people behind the litter, the trash on the street, and they have good lives to live.
-
+There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people behind the coffee brewing, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people behind the fastfood window, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people behind the telemarketing, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people behind the nursing, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people in front of the chalkboard or the dry erase board, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people on the other side of the computer screen, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people behind the cash register, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people driving the taxis, the Ubers, and the Lyfts, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people sweeping and mopping the floors, and they have thoughts and a story, and a culture. <br>
+There's someone, there are people behind the books in the bookstore. <br>
+There's someone, there are people behind the airplanes flying. <br>
+There's someone, there are people behind the music. <br>
+There's someone, there are people behind the trash cans. <br>
+There's someone, there are people behind the post office. <br>
+There's someone, there are people behind the work in churches. <br>
+There's someone, there are people behind the artwork. <br>
+There's someone, there are people behind the psych ward. <br>
+There's someone, there are people behind the bank accounts. <br>
+There's someone, there are people behind the homes. <br>
+There's someone, there are people behind the data. <br>
+There's someone, there are people behind the medicine. <br>
+There's someone, there are people behind the litter, the trash on the street, and they have good lives to live. <br>
 There are people behind the word *Queen* on the advertisement. All of humanity, 7.2 billion someones, lots of people walking in the shopping mall, lots of people 
-walking on Earth are behind the word *Queen* on the advertisement.
-
-There's someone there, there are people there behind the construction of the building.
-
-There's someone there, there are people there behind the washed clothes.
-
-There's someone there, there are people there behind the cleaned towels.
-
-There's someone behind, there are people behind the painting.
-
-There's someone behind, there are people behind the laundry.
-
-There's someone behind, there are people behind the songs.
-
-There's someone behind, there are people behind the food.
-
-There's someone behind, there are people behind the clothes.
+walking on Earth are behind the word *Queen* on the advertisement. <br>
+There's someone there, there are people there behind the construction of the building. <br>
+There's someone there, there are people there behind the washed clothes. <br>
+There's someone there, there are people there behind the cleaned towels. <br>
+There's someone behind, there are people behind the painting. <br>
+There's someone behind, there are people behind the laundry. <br>
+There's someone behind, there are people behind the songs. <br>
+There's someone behind, there are people behind the food. <br> 
+There's someone behind, there are people behind the clothes. <br>
 
 <br>
 
@@ -656,117 +625,64 @@ It brings an interesting feeling, a new perception, a beautiful insight to look 
 <br>
 
 ## America, The Country ##
-America is a story of belief.
+America is a story of belief. <br>
+America is a story of overcoming. <br>
+America is a story of team spirit. <br>
+America is a story of family. <br>
+America is a story of repentance and reformation. <br>
+America is a story of change. <br>
+America is a story of freedom. <br>
+America is a story of freedom of expression. <br>
+America is a story of Truth. <br>
+America is a story of learning. <br>
+America is a story of spiritual transformation. <br>
+America is a story of perspiration. <br>
+America is a story of courage. <br>
+America is a story of community and communal work. <br>
+America is a story of liberty and liberation. <br>
+America is a story of government. <br>
+Ammerica is a story of redemption. <br>
+America is a story of singing. <br>
+America is a story of music. <br>
+America is a story of sacrifice. <br>
+America is a story of culture. <br>
+America is a story of the fight for independence. <br>
+America is a story of home. <br>
+America is a story of breath and breathing. <br>
+America is a story of religion and a higher spirituality. <br>
+America is a story of progress. <br>
+America is a story of thanksgiving. <br>
+America is a story of exploring. <br>
+America is a story of discovery. <br>
+America is a story of light in the darkness. <br>
+America is a story of pilgrimage. <br>
+America is a story of hard work, perspiration, new ideas, and inspiration. <br>
+America is a story of protest. <br>
+America is a story of marching onward, upward and forward. <br>
+America is a story of neighborhood. <br>
+America is a story of country. <br>
+America is a story of struggles. <br>
+America is a story of education. <br>
+America is a story of adventure. <br>
+America is a story of danger. <br>
+America is a story of wholeness. <br>
+America is a story of 'individual' and 'indivisible'. <br>
+America is a story of ancestors. <br>
+America is a story of the Spirit. <br>
+America is a story of nature. <br>
+America is a story of churches. <br>
+America is a story of schools. <br>
+America is a story of expression, the reverse of oppression. <br>
+America is a story of healthy conversations. <br>
+America is a story of people who love nature. <br>
+America is a story of neighborhoods. <br>
+America is a story of trailblazers. <br>
+America is a story of stories. <br>
+America is a story of the new birth that was always here. <br>
+America is a story of landmarks. <br>
+America is a story of many and oneness. <br>
 
-America is a story of overcoming.
-
-America is a story of team spirit.
-
-America is a story of family.
-
-America is a story of repentance and reformation.
-
-America is a story of change.
-
-America is a story of freedom.
-
-America is a story of freedom of expression.
-
-America is a story of Truth.
-
-America is a story of learning.
-
-America is a story of spiritual transformation.
-
-America is a story of perspiration.
-
-America is a story of courage.
-
-America is a story of community and communal work.
-
-America is a story of liberty and liberation.
-
-America is a story of government.
-
-Ammerica is a story of redemption.
-
-America is a story of singing.
-
-America is a story of music.
-
-America is a story of sacrifice.
-
-America is a story of culture.
-
-America is a story of the fight for independence.
-
-America is a story of home.
-
-America is a story of breath and breathing.
-
-America is a story of religion and a higher spirituality.
-
-America is a story of progress.
-
-America is a story of thanksgiving.
-
-America is a story of exploring.
-
-America is a story of discovery.
-
-America is a story of light in the darkness.
-
-America is a story of pilgrimage.
-
-America is a story of hard work, perspiration, new ideas, and inspiration.
-
-America is a story of protest.
-
-America is a story of marching onward, upward and forward.
-
-America is a story of neighborhood.
-
-America is a story of country.
-
-America is a story of struggles.
-
-America is a story of education.
-
-America is a story of adventure.
-
-America is a story of danger.
-
-America is a story of wholeness.
-
-America is a story of 'individual' and 'indivisible'.
-
-America is a story of ancestors.
-
-America is a story of the Spirit.
-
-America is a story of nature.
-
-America is a story of churches.
-
-America is a story of schools.
-
-America is a story of expression, the reverse of oppression.
-
-America is a story of healthy conversations.
-
-America is a story of people who love nature.
-
-America is a story of neighborhoods.
-
-America is a story of trailblazers.
-
-America is a story of stories.
-
-America is a story of the new birth that was always here.
-
-America is a story of landmarks.
-
-America is a story of many and oneness.
+<br>
 
 Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
 
@@ -775,80 +691,45 @@ Everyone I see while walking down the street includes everything that belongs to
 ## Beliefs in America ##
 Americans believe in silver linings. <br>
 Americans believe in family. <br>
-Americans believe in beauty.
-
-Americans believe in grace.
-
-Americans believe in laughter.
-
-Americans believe in color.
-
-Americans believe in rainbows.
-
-Americans believe in relating.
-
-Americans believe in sincerity.
-
-Americans believe in the power of kindness.
-
-Americans believe in music.
-
-Americans believe in peace.
-
-Americans believe in the voice.
-
-Americans believe in opportunity.
-
-Americans believe that anything can be achieved.
-
-Americans believe in a liberal, broad education.
-
-Americans believe in a team.
-
-Americans believe in the power of people.
-
-Americans believe in the South.
-
-Americans believe in unity.
-
-Americans believe in a better tomorrow.
-
-Americans believe in the ability of someone else.
-
-Americans believe in a new America.
-
-Americans believe in the entrepreneurship.
-
-Americans believe in youth.
-
-Americans believe in what is right.
-
-Americans believe in the power of love.
-Americans believe in sunlight.
-Americans believe that one can do it.
-Americans believe in never quitting.
-Americans believe in freedom fighters.
-Americans believe in trail blazers.
-Americans believe in horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny.
-Americans believe in everyone who looks to the same Sun, moon, stars from different perspectives.
+Americans believe in beauty. <br>
+Americans believe in grace. <br>
+Americans believe in laughter. <br>
+Americans believe in color. <br>
+Americans believe in rainbows. <br>
+Americans believe in relating. <br>
+Americans believe in sincerity. <br>
+Americans believe in the power of kindness. <br>
+Americans believe in music. <br>
+Americans believe in peace. <br>
+Americans believe in the voice. <br>
+Americans believe in opportunity. <br>
+Americans believe that anything can be achieved. <br>
+Americans believe in a liberal, broad education. <br>
+Americans believe in a team. <br>
+Americans believe in the power of people. <br>
+Americans believe in the South. <br>
+Americans believe in the Union. <br>
+Americans believe in unity. <br>
+Americans believe in a better tomorrow. <br>
+Americans believe in the ability of someone else. <br>
+Americans believe in a new America. <br>
+Americans believe in the entrepreneurship. <br>
+Americans believe in youth. <br>
+Americans believe in what is right. <br>
+Americans believe in the power of love. <br>
+Americans believe in sunlight. <br>
+Americans believe that one can do it. <br>
+Americans believe in never quitting. <br>
+Americans believe in freedom fighters. <br>
+Americans believe in trail blazers. <br>
+Americans believe in horse riders who found our home, discovered our land, paved the way, settled, marked the path to the greatest destiny. <br>
+Americans believe in everyone who looks to the same Sun, moon, stars from different perspectives. <br>
 Americans believe in a melting pot is the manifest destiny.
 
 <br>
 
 ## The Purpose of Studying History ##
-The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime.
-
-No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day.
-
-History is an expression of experiences, individual and collective.
-
-The study of history is the study of what has always and already been there, the stories unmasked.
-
-The study of history is the art of telling stories, and the art of communication.
-
-Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing.
-
-In the Newseum, "journalism is the first draft of history".
+The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime. No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day. History is an expression of experiences, individual and collective. The study of history is the study of what has always and already been there, the stories unmasked. The study of history is the art of telling stories, and the art of communication. Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing. In the Newseum, "journalism is the first draft of history".
 
 <br>
 
@@ -1042,35 +923,35 @@ Today I found a handful of coins.
 I threw them in the wishing well, 
 and I made some wishes.
 
-a penny for kindness in school 
-a nickel for the South to live 
-a quarter to wish well the people looking for change
-a penny for a smile on my parents' faces
-a nickel for my sister and brother
-a penny for the people's freedom
-a nickel for the couple's harmony
-a quarter for the love for a neighbor
-a penny for the love that fills the earth
-a nickel for the love that moves mountains
-a quarter for the hugging of two friends
-a penny for the love that smiles at a strangers
-a quarter for the love that forgives at first sight
-a nickel for the love that keeps people young
-a penny for the love that 
-a quarter for the love that heals an illness
-a penny for the love that builds bridges
-a nickel for the life that frees
-a quarter for the life that shares joy and happiness
+a penny for kindness in school <br>
+a nickel for the South to live <br>
+a quarter to wish well the people looking for change 
+a penny for a smile on my parents' faces 
+a nickel for my sister and brother 
+a penny for the people's freedom 
+a nickel for the couple's harmony 
+a quarter for the love for a neighbor 
+a penny for the love that fills the earth 
+a nickel for the love that moves mountains 
+a quarter for the hugging of two friends 
+a penny for the love that smiles at a strangers 
+a quarter for the love that forgives at first sight 
+a nickel for the love that keeps people young 
+a penny for the love that  
+a quarter for the love that heals an illness 
+a penny for the love that builds bridges 
+a nickel for the life that frees 
+a quarter for the life that shares joy and happiness 
 a penny for a song to sing in a mother's heart
 a quarter for a laugh to come out of a father's mouth
 a penny for a story of a grandmother to be remembered
 a penny for a joke of a grandfather to be thankful for
 a penny for the peace with the universe
 
-wishing people well I did with these coins
-wanting the best for people I did with these coins
-caring for people I did with these cools
-sending a heart filled with love to these people
+with these coins I wished people well
+with these coins I wanted the best for people
+with these coins I cared for people
+with these coins I sent a heart filled with love
 
 <br>
 
