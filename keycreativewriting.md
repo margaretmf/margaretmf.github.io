@@ -20,7 +20,7 @@
 **I believe** participation in the fine arts brings joy **[2009, 2010]**
  
 **Do I still believe this?**
-I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. **[2021]**
+I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. I believe that everyone should write at least one song in their lifetime if they want to. **[2021]**
 
 ### Nature ###
 **I believe** nature allows a simpler and fuller life **[2009, 2010]**
