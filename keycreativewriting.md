@@ -435,7 +435,7 @@ One person sketched it.
 
 Another took a video of it.
 
-Three people painted it, one on a fence, and another saw the harmony of looking at all eight, saying "wow, collectively this is God's handiwork art!"
+Three people painted it, one on a fence, and another saw the harmony of looking at all eight, saying, "wow, collectively this is God's handiwork art!"
 
 A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
 
@@ -446,7 +446,7 @@ Someone else is looking to this same flower.
 <br>
 
 ## Trash ##
-A piece of litter blows with the air. <br>
+A piece of trash blows with the air. <br>
 I run after it. <br>
 I chase after it. <br>
 I am trying to catch it. <br>
