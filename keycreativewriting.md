@@ -1145,39 +1145,39 @@ Everyone of life's days are brand new days.
 <br>
 
 ## Wishing Well - Rough Draft ##
-Today I found a handful of coins.
-I threw them in the wishing well, 
-and I made some wishes.
+Today I found a handful of coins. <br>
+I threw them in the wishing well, <br>
+and I made some wishes. <br>
 
 a penny for kindness in school <br>
 a nickel for the South to live <br>
-a quarter to wish well the people looking for change 
-a penny for a smile on my parents' faces 
-a nickel for my sister and brother 
-a penny for the people's freedom 
-a nickel for the couple's harmony 
-a quarter for the love for a neighbor 
-a penny for the love that fills the earth 
-a nickel for the love that moves mountains 
-a quarter for the hugging of two friends 
-a penny for the love that smiles at a strangers 
-a quarter for the love that forgives at first sight 
-a nickel for the love that keeps people young 
-a penny for the love that  
-a quarter for the love that heals an illness 
-a penny for the love that builds bridges 
-a nickel for the life that frees 
-a quarter for the life that shares joy and happiness 
-a penny for a song to sing in a mother's heart
-a quarter for a laugh to come out of a father's mouth
-a penny for a story of a grandmother to be remembered
-a penny for a joke of a grandfather to be thankful for
-a penny for the peace with the universe
+a quarter to wish well the people looking for change <br>
+a penny for a smile on my parents' faces <br>
+a nickel for my sister and brother <br>
+a penny for the people's freedom <br>
+a nickel for the couple's harmony <br>
+a quarter for the love for a neighbor <br>
+a penny for the love that fills the earth <br>
+a nickel for the love that moves mountains <br>
+a quarter for the hugging of two friends <br>
+a penny for the love that smiles at a strangers <br> 
+a quarter for the love that forgives at first sight <br> 
+a nickel for the love that keeps people young <br>
+a penny for the love that <br>
+a quarter for the love that heals an illness <br>
+a penny for the love that builds bridges <br>
+a nickel for the life that frees <br>
+a quarter for the life that shares joy and happiness <br>
+a penny for a song to sing in a mother's heart <br>
+a quarter for a laugh to come out of a father's mouth <br>
+a penny for a story of a grandmother to be remembered <br>
+a penny for a joke of a grandfather to be thankful for <br>
+a penny for the peace with the universe <br>
 
-with these coins I wished people well
-with these coins I wanted the best for people
-with these coins I cared for people
-with these coins I sent a heart filled with love
+with these coins I wished people well <br>
+with these coins I wanted the best for people <br>
+with these coins I cared for people <br>
+with these coins I sent a heart filled with love 
 
 <br>
 
