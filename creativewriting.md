@@ -6742,15 +6742,16 @@ Thank you, God, for the unification in Christ Jesus.
 ## Boots ##
 These boots of mine.
 They've walked down many roads.
-They've touched upon dirt and grovel.
+They've touched upon dirt.
+They've clickity clacked on grovel.
+They've stepped on rocksm and they've
 They've gone down lonely pathways.
-
+They've run through grass.
 They've really worn themselves in.
 They have some holes in the soles .
 They've really lived another day.
 They've become sturdy and strong.
 They've been everywhere.
-
 They've walked down sidewalks.
 They've walked through forests.
 They've hit the mall.
