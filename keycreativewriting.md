@@ -15,32 +15,32 @@
 
 ---------------------------------------------------------------------------------------------------------------------
 
-# American Credo Beliefs #
-## Art ##
-**I believe** participation in the fine arts brings joy [2009, 2010]
+## American Credo Beliefs ##
+### Art ###
+**I believe** participation in the fine arts brings joy **[2009, 2010]**
  
 **Do I still believe this?**
-I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. [2021]
+I believe and have found that playing music and participating in improv brings joy and helps to share stories. I also enjoy learning to paint, appreciating others' music, and appreciating others' paintings. I believe that all of mankind can express musicality. **[2021]**
 
-## Nature ##
-**I believe** nature allows a simpler and fuller life [2009, 2010]
+### Nature ###
+**I believe** nature allows a simpler and fuller life **[2009, 2010]**
 
 **Do I still believe this?**
 I find nature to be calming, and refreshing. I particulary enjoyed nature in Charlottesville while rowing, the farmland in Georgia, and the country and rivers in West Virginia, Kentucky, and Tennessee. [2021] I also believe that the land belongs to everyone, and that we all share the same ancestry, rooted in God. [2021]
 
-## Spirituality ##
-**I believe** "God is all and God is good" [2009, 2010]
+### Spirituality ###
+**I believe** "God is all and God is good" **[2009, 2010]**
 
 **Do I still believe this?** 
-I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others. I have found that I can see God's expression everyone through compassion, intelligence, joy, peace. I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas. I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future. [2021]
+I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others. I have found that I can see God's expression everyone through compassion, intelligence, joy, peace. I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas. I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future. **[2021]**
 
-## Individual/Society ##
-**I believe** "each individual is a link in the chain - if that link fell, the chain would break." I also believe in the power of religious liberty and that we are all ultimately reaching the same goal. [2009, 2010, 2011]
+### Individual/Society ###
+**I believe** "each individual is a link in the chain - if that link fell, the chain would break." I also believe in the power of religious liberty and that we are all ultimately reaching the same goal. ***[2009, 2010, 2011]***
  
 **Do I still believe this?**
 I do not know, but I love this concept, and I have felt reminded of this intuitively. I feel like I have failed morally, but I am still learning and growing deeper and understanding how to rise back up. I love learning about interconnectedness, and how we are all connecting each other to a higher sense of life. I also love learning about distinctions, distinct ideas, and how everyone is individual and distinct. Christian Science teaches that 'we are all tributary to the same source', but there are distinct differences between everyone in good ways. I believe in the idea of 'standing in union with everyone around in society and the world' as best as I can from this time forth. 
 
-I believe that I, we are all a country and a world of beliefs. I believe in the next generation of humanity and all that they can learn each day and all that they can contribute. I believe in every individual as individual. I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn. I believe in giving credit to people who inspire other people, or who inspire us to change and grow. I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people. I believe in not killing people, and I have learned this the hard way. I believe everyone can learn a lesson from someone else, and everyone in the world. I believe that everyone has something to express. I believe that President Barack Obama succeeded as president, and I appreciated his books. I believe that I used to be miseducated in some ways. [2021]
+I believe that I, we are all a country and a world of beliefs. I believe in the next generation of humanity and all that they can learn each day and all that they can contribute. I believe in every individual as individual. I believe in the older generation's ability to learn something new even if they have fallen, feel like they have failed, or feel stuck like they can't learn. I believe in giving credit to people who inspire other people, or who inspire us to change and grow. I believe it's important to live from a place of authenticity and remember what resonates from within one's heart and not let oneself be in bondage to other people. I believe in not killing people, and I have learned this the hard way. I believe everyone can learn a lesson from someone else, and everyone in the world. I believe that everyone has something to express. I believe that President Barack Obama succeeded as president, and I appreciated his books. I believe that I used to be miseducated in some ways. **[2021]**
 
 <br>
 
