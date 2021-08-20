@@ -473,6 +473,24 @@ I pick it up, and I throw it away. <br>
 
 <br>
 
+## Boots ##
+These boots of mine. They've really been everywhere.
+They've walked down many roads.
+They've dug themselves into the dirt.
+Can't you see? They've really been worn.
+
+These worn-down boots. They've traveled the world.
+They've stepped on rocks.
+They've run through grass.
+Can't you see? They have some holes in the soles.
+
+These beloved boots. They've been my best friend.
+They've gone down lonely pathways.
+They've skipped across sidewalks.
+Can't you see? They've become sturdy and strong.
+
+<br>
+
 ## Parallels ##
 When running through the storm here someone is running through a rainstorm in another city. 
 
