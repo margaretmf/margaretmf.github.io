@@ -78,6 +78,17 @@ The sound alone tells a colorful story of the youthfulness that bounces with joy
 
 <br>
 
+## What Can America Achieve? Diamante Poem ##
+Despair,
+enormous, steep,
+scorching, perishing, callousing,
+The climb is summoned by a new spirit -
+overcoming, unyielding, conquering,
+bright, energetic,
+Hope.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## I Love You ##
