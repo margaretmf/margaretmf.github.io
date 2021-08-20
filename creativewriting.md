@@ -6740,9 +6740,18 @@ Thank you, God, for the unification in Christ Jesus.
 # Creative Writing - Independent Writing #
 # Boots #
 ## Boots ##
-These boots of mine.
+These boots of mine. They've really been everywhere.
 They've walked down many roads.
-They've touched upon dirt.
+They've dug themselves into the dirt ground.
+Can't you see? They've really been worn.
+
+These worn-down boots. They've traveled the world.
+They've run down grovel roads.
+They've stepped on rocks.
+Can't you see? They have some holes in the soles.
+
+These beloved boots.
+
 They've clickity clacked on grovel.
 They've stepped on rocksm and they've
 They've gone down lonely pathways.
@@ -6802,11 +6811,6 @@ She can hear the beauty of the sounds.
 She can open her eyes to new people in roadside hotels and at gas stations.
 She can cherish the order and harmony of all the cars driving together through mid-day traffic.
 She remembers the long drives from VA through TN and back down to NC.
-
-<br>
-
-## Freedom Fighters ##
-This is a country of freedom fighters, daily fighting for another day to live.
 
 <br>
 
