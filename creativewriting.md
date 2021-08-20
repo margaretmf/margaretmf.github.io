@@ -3369,11 +3369,6 @@ A society driven by money, money makes the world go round, leaves turn into gold
 
 <br>
 
-## Martin Luther King, Jr. Event ##
-In Washington, DC, I attended the event at the Chapel with Martin Luther King, Jr. III. He encouraged people to walk outside their bubbles and meet new people to learn from other perspectives. Since then, I met someone who encouraged me to learn about Malcolm X, the Arabs, and the Spanish ancestry. I have read two civil rights leaders and understood two different perspectives. One perspective is that "it's not the color of your skin but the content of your character" that matters. The other is slightly different that "Black is powerful" and "Black is beautiful". I met some people in Norfolk, and I met some other people in Memphis, St. Louis, and Washington, DC. I have learned about their individuality, and unique perspectives and strengths. I have learned how Black leaders have inspired their thinking. I also restarted a friendship with someone from high school. In school, it can feel like people limit people from reaching out of their bubbles to meet new people, but in the real world, it's helpful that people encourage people to learn from other walks of life.
-
-<br>
-
 ## Struggling vs. Suffering ##
 Struggling - fighting the good fight, persisting in the face of adversity, committing to the team, listening to mentors, working through the suffering, overcoming evil suggestions and beliefs with good, gratitude, helpfulness, and saying no to the "tempter" when wanting to do what seems wrong but desiring to do what's right.
 
