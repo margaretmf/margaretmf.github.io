@@ -3013,18 +3013,6 @@ The hope to begin again is have the struggle.
 
 
 # Creative Writing - Independent Writing from the Past at Norfolk Academy - Credo Project #
-## What Can America Achieve? Diamante Poems ##
-Despair,
-enormous, steep,
-scorching, perishing, callousing,
-The climb is summoned by a new spirit -
-overcoming, unyielding, conquering,
-bright, energetic,
-Hope.
-
-<br>
-
-
 ## Letter to Oneself ##
 Sweet Margaret,
 Do not feel self-conscious all the time; you look beautiful, you make good grades, and you express kindness to everyone when you smile and reach out. Rather than worry about what people think of you, either say hello or give a smile to people instead.
