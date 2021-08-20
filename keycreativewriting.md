@@ -138,6 +138,11 @@ We live in the age of interconnectivity, where everything connects rapidly. <br>
 
 <br>
 
+## Freedom Fighters ##
+This is a country of freedom fighters, daily fighting for another day to live.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
