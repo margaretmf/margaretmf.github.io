@@ -2960,7 +2960,7 @@ Arguments, suspicions, excuses.
 **Word Associations:** argument, suspect, revelation, instinct, justice, compel, logic, error, motive, excuse
 
 ## Family ##
-A unviersal family with mothers and fathers, and children, and homes.
+A universal family with mothers and fathers, and children, and homes.
 All over the world, though people look different, there are common roots, common ancestry, yet distinct features on the tree of life.
 Everyone has a name reflecting who each indidivdual is.
 Names reflect values of tribes and clans.
@@ -4954,18 +4954,6 @@ All of us rising stronger and wiser.
 
 <br>
 
-## Just Live ##
-Just live.
-It's all you got to do.
-Truly live.
-Take it all in.
-Do something new.
-Have a good laugh.
-Dance on the street.
-Live.
-Really live.
-
-<br>
 
 ## This Experience ##
 This is good for you.
