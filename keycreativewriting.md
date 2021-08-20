@@ -490,20 +490,34 @@ I pick it up, and I throw it away. <br>
 <br>
 
 ## Boots ##
-These boots of mine. They've really been everywhere.
-They've walked down many roads.
-They've dug themselves into the dirt.
-Can't you see? They've really been worn.
+These boots of mine. They've really been everywhere. <br>
+They've walked down many roads. <br>
+They've dug themselves into the dirt. <br>
+Can't you see? They've really been worn. <br>
 
-These worn-down boots. They've traveled the world.
-They've stepped on rocks.
-They've run through grass.
-Can't you see? They have some holes in the soles.
+These worn-down boots. They've traveled the world. <br>
+They've stepped on rocks. <br>
+They've run through grass. <br>
+Can't you see? They have some holes in the soles. <br>
 
-These beloved boots. They've been my best friend.
-They've gone down lonely pathways.
-They've skipped across sidewalks.
-Can't you see? They've become sturdy and strong.
+These beloved boots. They've been my best friend. <br>
+They've gone down lonely pathways. <br>
+They've skipped across sidewalks. <br>
+Can't you see? They've become sturdy and strong. <br>
+
+<br>
+
+## Just Live ##
+Just live. <br>
+It's all you got to do. <br>
+Truly live. <br>
+Take it all in. <br>
+Do something new. <br>
+Have a good laugh. <br>
+Dance on the street. <br>
+Play some great music. <br>
+Live. <br>
+Really live. <br>
 
 <br>
 
