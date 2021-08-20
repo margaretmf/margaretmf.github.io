@@ -6721,57 +6721,6 @@ Thank you, God, for the unification in Christ Jesus.
 
 
 # Creative Writing - Independent Writing #
-# Boots #
-## Boots ##
-These boots of mine. They've really been everywhere.
-They've walked down many roads.
-They've dug themselves into the dirt ground.
-Can't you see? They've really been worn.
-
-These worn-down boots. They've traveled the world.
-They've run down grovel roads.
-They've stepped on rocks.
-Can't you see? They have some holes in the soles.
-
-These beloved boots.
-
-They've clickity clacked on grovel.
-They've stepped on rocksm and they've
-They've gone down lonely pathways.
-They've run through grass.
-They've really worn themselves in.
-They have some holes in the soles .
-They've really lived another day.
-They've become sturdy and strong.
-They've been everywhere.
-They've walked down sidewalks.
-They've walked through forests.
-They've hit the mall.
-They've been down grassland.
-
-**"dust the dirt off my boots**
-
-dirt on my boots
-gum I stepped on
-rocks stuck in the bottoms
-stepping on this rocky land
-shoots clicking
-
-litter on the ground
-
-digging these heels into the ground
-digging a hole ddeper and fruther
-running on rocks
-stepping on stones
-running through dirt, the clay
-getting clay stuck on the bottom of these shoes
-
-red, yellow, brown clay on my boots
-playing outside
-running outside
-
-<br>
-
 ## Night ##
 Saying a prayer before going to bed for you
 
