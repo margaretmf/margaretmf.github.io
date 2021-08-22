@@ -234,6 +234,8 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for drumming sessions
 * Grateful for God’s plan
 * Grateful for all the good people I know from school
+* Grateful for the people working where I am
+* Grateful for the good food this evening
 * Grateful for people where I am
 * Grateful or purity
 * Grateful for cheerful people in the residency
