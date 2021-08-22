@@ -73,17 +73,35 @@ layout: default
 * [Sunnis and Shi'a: A Political History](https://www.amazon.com/Sunnis-Shia-Political-Laurence-Louër/dp/0691186618/ref=sr_1_1?crid=2KIX6OTA4XETN&dchild=1&keywords=sunnis+and+shi%27a+a+political+history&qid=1628809051&sprefix=sunnis+and+shi%27a+a+politic%2Caps%2C149&sr=8-1) by Laurence Louer
 * [The History of Banking: The History of Banking and How the World of Finance Became What it is Today](https://www.amazon.com/History-Banking-World-Finance-Became/dp/1545397708/ref=sr_1_5?dchild=1&keywords=the+history+of+banking&qid=1629288019&sr=8-5) by K. Connors
 * [Flag: An American Biogrpahy](https://www.amazon.com/Flag-American-Biography-Marc-Leepson/dp/0312323085/ref=sr_1_2?dchild=1&keywords=flag%3A+an+American+history+nelson+demille&qid=1629465417&sr=8-2) by Marc Leepson
+* [Bicknell Young: Notes of 1936 Primary Class Instruction](https://www.amazon.com/Bicknell-Primary-Instruction-Publications-Christian-ebook/dp/B07HXZ64PC/ref=sr_1_1?crid=9BJZWG72LR5I&dchild=1&keywords=bicknell+young+1936&qid=1629657532&sprefix=Bicknell+young%2Caps%2C261&sr=8-1) by Bicknell Young
+* [Writing Ethnographic Fieldnotes](https://www.amazon.com/Writing-Ethnographic-Fieldnotes-Chicago-Publishing/dp/0226206831/ref=sr_1_1?dchild=1&keywords=writing+ethnographic+fieldnotes&qid=1629657558&sr=8-1) by Emerson, Fretz, and Shaw
+* [Pop Sonnets: Shakespearean Spins on Your Favorite Songs](https://www.amazon.com/Pop-Sonnets-Shakespearean-Spins-Favorite/dp/1594748284/ref=sr_1_3?dchild=1&keywords=pop+sonnets+Shakespeare&qid=1629657708&sr=8-3) by Erik Didriksen
 
 #### Reading
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
-* [Writing Ethnographic Fieldnotes]() by Emerson, Fretz, and Shaw
-* [Bicknell Young: Notes of 1936 Primary Class Instruction]() by Bicknell Young
+* Cervantes
+* Jorge Louis Borges
+* Shakespeare
+* Cash: The Autobiography by Johnny Cash
+* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
+* [Traffic]() by tom vanderbilt
+* The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
+* The Art of Songwriting by Ed Bell
+* Great Songwriting Techniques by Jack Perricone
+* The Craft of Lyric Writing by Sheila Davis
+* Signs: The Secret Language of the Universe
+* Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
+* Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
+* Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
+* All You Need to Know About the Music Business: 10th Edition by Donald S. Passman
+* Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
+* Spanish Novels: Pasaje de Ida
+* Respect Yourself: Stax Records and the Soul Explosion
 
 #### Interested
 * HowExpert Guide to Becoming a Country Singer-Songwriter: 101 Lessons to Become a Country Singer-Songwriter by HowExpert
 * Songwriting: Essential Guide to Lyric Form and Structure: Tools and Techniques for Writing Better Lyrics (Songwriting Guides) by Pat Pattison
 * The Art of the Stonemason by Ian Cramb (1992-04-04)
-* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
 * After Abbey Road: The Solo Hits of The Beatles
 * Demystifying Global Macroeconomics by John E. Marthinsen
 * It's a Long Story: My Life
@@ -96,11 +114,8 @@ layout: default
 * Outlaw: Waylon, Willie, Kris, and the Renegades of Nashville
 * Chasing Fireflies: A Novel of Discovery
 * Waylon: Tales of My Outlaw Dad 
-* Cervantes
-* Jorge Louis Borges
-* Shakespeare
 * Robinson Cruesoe
-* Confederates in Montana Territory:: In the Shadow of Price's Army (Civil War Series) by Ken Robison
+* Confederates in Montana Territory: In the Shadow of Price's Army (Civil War Series) by Ken Robison
 * Topsy-Turvy: How the Civil War Turned the World Upside Down for Southern Children (American Childhoods Series) by Anya Jabour
 * The Arabia Nights
 * The Pilgrim's Progress
@@ -117,16 +132,6 @@ layout: default
 * Transnational Shia Politics: Religious and Political Networks in the Gulf
 * To Be an Arab in Israel
 * Bipolar Faith: A Black Woman's Journey with Depression and Faith by Monica A. Coleman
-* Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
-* Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
-* Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
-* Pop Sonnets: Shakespearean Spins on Your Favorite Songs by Erik Didriksen
-* The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
-* The Art of Songwriting by Ed Bell
-* Great Songwriting Techniques by Jack Perricone
-* The Craft of Lyric Writing by Sheila Davis
-* All You Need to Know About the Music Business: 10th Edition by Donald S. Passman
-* [Bicknell Young Notes of 1936 Primary Class Instruction](https://www.amazon.com/gp/product/1720286167/ref=pe_386300_442618370_pd_te_s_qpr_im/140-6685482-5509752?_encoding=UTF8&pd_rd_i=1720286167&pd_rd_r=0N7S4Q9TRT4D51CZD3EG&pd_rd_w=wE3Mh&pd_rd_wg=CS1T8&pf_rd_p=a0e811ca-eb5c-4fcb-bc34-c416999fbce1) by Bicknell Young
 * Country Standards: Guitar Chord Songbook (Guitar Chord Songbooks) by Hal Leonard Corp
 * Three-Chord Country Songs: E-Z Play Today Volume 13 by Various
 * Cherokee Mythology: Gods, Myths, Legends and Spiritual Beliefs of the Cherokee Tribe (Easy History)
@@ -134,37 +139,34 @@ layout: default
 * The Book of Signs (Dover Pictorial Archive)
 * Walking on the Wind: Cherokee Teachings for Harmony and Balance by Michael Tlanusta Garrett
 * Shinrin-Yoku: The Art and Science of Forest Bathing
-* Koala Tools | Room Grid (1-Point) Large Sketch Pad | 9" x 12", 40 pp. - Perspective Grid Graph Paper for Interior Room Design, Industrial, Architectural and 3D Design
-* Cash: The Autobiography by Johnny Cash
 * Draft No. 4: On the Writing Process by John McPhee
 * Pilgrim by David Whyte
 * It's a Long Story: My Life by Willie Nelson
 * Songwriting with Purpose
 * The Architecture of Happiness
 * Journal of *Appalachian Studies* by Dwight B. Billings
-* *The Road to Poverty: The Making of Wealth and Hardship in Appalachia* by Dwight B. Billings
-* *Back Talk from Appalachia: Confronting Stereotypes* by Dwight B. Billings
-* *Planters and the Making of a New South* by Dwight B. Billings
-* *Appalachia in the Making* by Dwight B. Billings
-* *Appalachia in Regional Context: Place Matters* by Dwight B. Billings
-* *An American Vein: Critical Readings in Appalachian Literature* by Theresa L. Burriss
-* *When Architecture Meets Activitism: The Transformative Effect of Hank Williams* by Roger Guy
-* *Hillbilly: A Cultural History of an American Icon* by Anthony Harkins
-* *Bloody Breathitt: Politics & Violence in the Appalachian South* by T. R. C. Hutton
-* *Meth Wars: Police, Media, Power* by Travis Linneman
-* *Appalachia: Social Context Past and Present* by Michael E. Maloney
-* *A History of Barbed Wire, Desire, and Devour* by Jeff Mann
-* *Unwhite: Appalachia, Race, and Film* by Meredith McCarroll
-* *Boone: A Biogrpahy* by Robert Morgan
-* *Appalachia in the Classroom* by Theresa L. Burris
-* *Literature and Ecofeminism: Intersectional and International Voices* by Theresa L. Burriss
-* *Appalachian Ecrocriticism* by Theresa L. Burriss
-* *What You Are Getting Wrong about Appalachia* by Elizabeth Catte
+* The Road to Poverty: The Making of Wealth and Hardship in Appalachia* by Dwight B. Billings
+* Back Talk from Appalachia: Confronting Stereotypes* by Dwight B. Billings
+* Planters and the Making of a New South* by Dwight B. Billings
+* Appalachia in the Making by Dwight B. Billings
+* Appalachia in Regional Context: Place Matters* by Dwight B. Billings
+* An American Vein: Critical Readings in Appalachian Literature* by Theresa L. Burriss
+* When Architecture Meets Activitism: The Transformative Effect of Hank Williams* by Roger Guy
+* Hillbilly: A Cultural History of an American Icon by Anthony Harkins
+* Bloody Breathitt: Politics & Violence in the Appalachian South* by T. R. C. Hutton
+* Meth Wars: Police, Media, Power by Travis Linneman
+* Appalachia: Social Context Past and Present* by Michael E. Maloney
+* A History of Barbed Wire, Desire, and Devour* by Jeff Mann
+* Unwhite: Appalachia, Race, and Film* by Meredith McCarroll
+* Boone: A Biogrpahy by Robert Morgan
+* Appalachia in the Classroom* by Theresa L. Burris
+* Literature and Ecofeminism: Intersectional and International Voices* by Theresa L. Burriss
+* Appalachian Ecrocriticism by Theresa L. Burriss
+* What You Are Getting Wrong about Appalachia* by Elizabeth Catte
 * Power Density: A Key to Understanding Energy Sources and Uses
 * Looking to Get Lost: Adventures in Music and Writing 
 * Signs and Symbols: An Illustrated Guide to Their Origins and Meanings
-* *Back to Abnormal: Surviving with an Old Farm in the New South* by Dana Wildsmith
-* Signs: The Secret Language of the Universe
+* Back to Abnormal: Surviving with an Old Farm in the New South by Dana Wildsmith
 * The Book of Circles: Visualizing Spheres of Knowledge: (with over 300 beautiful circular artworks, infographics and illustrations from across history)
 * I Walked the Line: My Life with Johnny by Vivian Cash
 * What Were We Thinking
@@ -180,8 +182,7 @@ layout: default
 * Unwhite: Appalachia, Race, and Film
 * Hillbilly: A Cultural History of an American Icon
 * The Annotated African American Folktales (The Annotated Books) by Henry Louis Gates Jr.
-* Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
-* The 1619 Project: A CritiqueThe 1619 Project: A Critique by Phillip W. Magness
+* The 1619 Project: A Critique of The 1619 Project: A Critique by Phillip W. Magness
 * Spiritual Care in Everyday Nursing Practice: A New Approach by Janice Clarke
 * Songs from Shakespeare's Plays and Popular Songs of Shakespeare's Time by Tom Kines
 * Shakespeare and Popular Music by Adam Hansen
@@ -202,7 +203,6 @@ layout: default
 * The Sibley Field Guide to Birds
 * Boone: A Biography
 * A Place for Everything
-* Spanish Novels: Pasaje de Ida
 * Thank You for Arguing, Fourth
 * An English Medieval and Renaissance Song Book: Part Songs and Sacred Music for One to Six Voices
 * Paper Trails: The US Post and the Making of the American West
@@ -213,7 +213,6 @@ layout: default
 * The Cherokee Nation: A History 
 * Voices of Cherokee Women (Real Voices, Real History)
 * Breaking Old Rhythms: Answering the Call of a Creative God 
-* Trail of Tears: The Rise and Fall of the Cherokee Nation 
 * Beyond Shame: Creating a Healthy Sex Life on Your Own Terms
 * Remarkable Diaries: The World's Greatest Diaries, Journals, Notebooks, & Letters
 * A Treasury of Southern Folklore: Stories, Ballads, Traditions, & Folkways of the People of the South 
@@ -227,7 +226,7 @@ layout: default
 * Son of the Wilderness: THe Life of John Muir by Linnie Marsh Wolfe
 * The Writings of John Muir by John Muir
 * Eight Hours for What We Will: Workers and Leisure in an Industrial City by Roy Rosenzweig
-* The post-urban: LA by Eric Holding and Sarah Chaplin
+* The Post-Urban: LA by Eric Holding and Sarah Chaplin
 * The Gig Economy Celebrates Working Yourself to Death by Jia Tolentino
 * Why Work Sucks and How to Fix It: THe Results-Only Revolution by Cali Ressler and Jody Thompson
 * Burning Man: From far our freak-fest to corporate schmoozing event by Sophie Morris
@@ -379,7 +378,6 @@ layout: default
 * Books on Islam, Spain, Africa, and Medieval History
 * Books on Iraq, Afghanistan, and Middle East
 * Age of Ambition: Chasing Fortune, Truth, and Faith in the New China
-* The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
 * Taylor Swift: The Whole Story
 * Fewer, Better Things: The Hidden Wisdom of Objects by Glenn Adamson
 * Bricks Now & Then: The Oldest Man-Made Building Material (BRAUN) by Chris van Uffelen
@@ -395,11 +393,9 @@ layout: default
 * [Heartland: A Memoir of Working Hard and Being Broke in the Richest Country on Earth, "the roots-music journal No Depression"]
 * ["And Their Children After Them"]
 * ["What You Are Getting Wrong About Appalachia"]
-* [Traffic]() by tom vanderbilt
 * [My Sixty Years on the Plains: Trapping, Trading, and Indian Fighting](https://www.amazon.com/My-Sixty-Years-Plains-Trapping/dp/1695768930/ref=pd_lpo_14_t_0/140-1164491-0949269?_encoding=UTF8&pd_rd_i=1695768930&pd_rd_r=b4345087-d11f-4ad2-9ec3-64ab247604d2&pd_rd_w=otZJk&pd_rd_wg=ohqCU&pf_rd_p=a0d6e967-6561-454c-84f8-2ce2c92b79a6&pf_rd_r=MHKQFHX5BASM0DW17AHK&psc=1&refRID=MHKQFHX5BASM0DW17AHK) by W. T. Hamilton
 * [Journal of a Trapper: Nine Years in the Rocky Moutains - 1834-1843](https://www.amazon.com/Journal-Trapper-Years-Mountains-1834-1843/dp/1541104935) by Osborne Russell 
 * [The Secret Scrolls of Magda]() 
-* Respect Yourself: Stax Records and the Soul Explosion
 * Johnny Cash, by Robert Hilburn 
 * Roads to Berlin, by Cees Nooteboom, translated from the Dutch by Laura Watkinson 
 * The Fata Morgana Books, by Jonathan Littell, translated from the French by Charlotte Mandell (Two Lines)
