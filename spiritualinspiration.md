@@ -342,6 +342,48 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to work towards shifting the tone of my communication
 * Grateful or friends in Washington, DC
 * Grateful for ideas-driven relationships and ideas-driven economy
+* Grateful for harmony at UVA and the football game
+* Grateful for the musicians from other places
+* Grateful for people in Illinois and Missouri
+* Grateful for the harmony in Boston
+* Grateful for positive memories in Washington, DC
+* Grateful for everyone at camp
+* Grateful for my grandparents
+* Grateful for the Spanish version of Science and Health with Key to the Scriptures
+* Grateful for memories at baseball games
+* Grateful for all the people who have graduated from UVa
+* Grateful for friends from Norfolk Academy
+* Grateful for medieval fairy tales
+* Grateful for other peoples’ expressions
+* Grateful for people from other countries
+* Grateful for nature
+* Grateful for perspective
+* Grateful for the good going on in grocery stores
+* Grateful for the good going on in family
+* Grateful for the harmony this fall
+* Grateful for team members
+* Grateful for how babies learn to speak
+* Grateful for how mothers love their children
+* Grateful for este, esta, esto; ese, esa, eso
+* Grateful for the photo of the Christian Science Church
+* Grateful for beautiful people everywhere
+* Grateful for family members
+* Grateful for everyone as eternal ideas and musical ideas
+* Grateful for the musician who sang ‘When You Say Nothing at All’
+* Grateful for all the people in Memphis
+* Grateful for people I met in the movie theater
+* Grateful for the love of people
+* Grateful for everyone worldwide
+* Grateful for everything we are learning
+* Grateful for other people who play the guitar
+* Grateful for other people in the South who express a lot of love
+* Grateful for happy people
+* Grateful for all the hotels
+* Grateful for other musicians
+* Grateful for memories at camp in the summer
+* Grateful for everyone in church
+* Grateful for all the substance form God
+* Grateful for who God made people to be
 * Grateful for healthy reprimands
 * Grateful for teachers
 * Grateful to give my life entirely to God
@@ -433,6 +475,144 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for a new day for the country we live in
 * Grateful for the memories of the Christmas party
 * Grateful for the light in all of God's children
+* Grateful for family in NJ
+* Grateful for my mom and the film she shared
+* Grateful for all the people living today
+* Grateful for all the Spanish vocabulary words
+* Grateful for people who prayed for me about the God of second chances
+* Grateful for strong women
+* Grateful for the origin of music lyrics
+* Grateful for Afghan culture shared
+* Grateful for the Spanish language
+* Grateful for translators
+* Grateful for other people living and loving
+* Grateful for the noble people of God
+* Grateful for family
+* Grateful for healing on social media
+* Grateful for the colors of the leaves
+* Grateful for the colors in other countries’ cultures
+* Grateful for the colors in the building
+* Grateful for the sound of laughter
+* Grateful for other musicians
+* Grateful for memories in Washington, DC in the apartment
+* Grateful for a path forward in life
+* Grateful for how people love the earth
+* Grateful for memories of all the people in Boston
+* Grateful for people in my family
+* Grateful for people in my church
+* Grateful for people from Sig Delt sorority
+* Grateful for the work of people where I am
+* Grateful for democracy
+* Grateful for people who have suffered from loss
+* Grateful for good music produced
+* Grateful for everyone in Memphis
+* Grateful for people where I am
+* Grateful for everyone I met at UVA
+* Grateful for everyone in NYC
+* Grateful for the goodness of God being shared on social media
+* Grateful for youthfulness
+* Grateful for endless good going on
+* Grateful for professors at UVA
+* Grateful for the love my grandmother had for people
+* Grateful for the good going on in Charlotte
+* Grateful for the people who belong to the country
+* Grateful for my cousins and their friends
+* Grateful for other musicians
+* Grateful for Friday
+* Grateful for all the teachers at Norfolk Academy
+* Grateful for the love inside every child
+* Grateful for a heart filled with love
+* Grateful for loving people
+* Grateful for the love in the city
+* Grateful for the love for everyone in Boston
+* Grateful for the love of women and men worldwide
+* Grateful for the excitement of my sister for her favorite book showing up in a movie
+* Grateful for highways
+* Grateful for the light shining on everything
+* Grateful for all the good people out there
+* Grateful for the presence of God that lasts forever through all things
+* Grateful for friends from other countries
+* Grateful for friends from Norfolk Academy
+* Grateful for memories of turning to God in Charlottesville
+* Grateful for everyone in the data science program in other countries
+* Grateful for good professors
+* Grateful for the cheerful people where I am
+* Grateful for the love of little kids
+* Grateful for people from EVERFI
+* Grateful for the people that EVERFI are helping
+* Grateful for the people I met overcoming challenges
+* Grateful for writers
+* Grateful for a conversation with my brother
+* Grateful for people who showed me about India
+* Grateful for a healthy conversation with my brother
+* Grateful for a healthy conversation at dinner
+* Grateful for infinite blessings
+* Grateful for the culinary school
+* Grateful for friends in Maryland
+* Grateful for Spanish words
+* Grateful for people from Washington, DC
+* Grateful for the sound of the white board
+* Grateful for people’s family members
+* Grateful for other people in the world I’ve met and that are out there
+* Grateful for horticulture
+* Grateful for the tomato memory
+* Grateful for systems thinking
+* Grateful for linear thinking
+* Grateful for art
+* Grateful for the horticulture
+* Grateful for the music therapist
+* Grateful for the art in Norfolk
+* Grateful for all the people form SigDelt at UVa
+* Grateful for friends
+* Grateful for people from India
+* Grateful for God’s supply in the entire workplace
+* Grateful for all the people in Norfolk
+* Grateful for the Salvation Army
+* Grateful for all the good going on in Charlotte
+* Grateful that God has his people in the palm of his hand
+* Grateful for other people playing music
+* Grateful for other people with faith
+* Grateful for people in Africa
+* Grateful for friends from Sig Felt
+* Grateful for friends from UVA and Norfolk Academy
+* Grateful for the love of children expressed through books
+* Grateful for family friends
+* Grateful for people learning to cook
+* Grateful for the beauty of people where I am
+* Grateful for humanity everywhere
+* Grateful for project management tools
+* Grateful for the culinary school
+* Grateful that God knows what he’s doing with people everywhere, including me
+* Grateful for my best friends from Norfolk Academy
+* Grateful to send love out
+* Grateful for the community of artists
+* Grateful for the Holy Bible
+* Grateful for Spanish speakers
+* Grateful for the memory of the Sig Delt reunion
+* Grateful for colorful, innovative, spunky people
+* Grateful for Spanish music
+* Grateful for the people I will talk to
+* Grateful that everyone is included in and belongs to humanity
+* Grateful for confidence and trust
+* Grateful for memories running at UVA
+* Grateful for singers at church
+* Grateful for cute families
+* Grateful for the barista
+* Grateful for a morning conversation
+* Grateful for the smoothie and yogurt store
+* Grateful for God’s work in Washington, DC
+* Grateful for fall fashion
+* Grateful to trust and find joy in every day
+* Grateful for everyone I’ve met in life
+* Grateful for other people I know
+* Grateful for people from Norfolk and sorry they felt depressed
+* Grateful for the love of people working
+* Grateful for everyone from Norfolk Academy
+* Grateful for the endless good going on
+* Grateful for all the little kids
+* Grateful for people making good food
+* Grateful for the reader at church
+* Grateful for the purity and inner strength of people where I am
 * Grateful for the irds that my sister loves
 * Grateful for the times spent at Nam's and Faf's apartment
 * Grateful for people helping
