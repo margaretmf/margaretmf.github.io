@@ -74,17 +74,17 @@ layout: default
 * [The History of Banking: The History of Banking and How the World of Finance Became What it is Today](https://www.amazon.com/History-Banking-World-Finance-Became/dp/1545397708/ref=sr_1_5?dchild=1&keywords=the+history+of+banking&qid=1629288019&sr=8-5) by K. Connors
 * [Flag: An American Biogrpahy](https://www.amazon.com/Flag-American-Biography-Marc-Leepson/dp/0312323085/ref=sr_1_2?dchild=1&keywords=flag%3A+an+American+history+nelson+demille&qid=1629465417&sr=8-2) by Marc Leepson
 * [Bicknell Young: Notes of 1936 Primary Class Instruction](https://www.amazon.com/Bicknell-Primary-Instruction-Publications-Christian-ebook/dp/B07HXZ64PC/ref=sr_1_1?crid=9BJZWG72LR5I&dchild=1&keywords=bicknell+young+1936&qid=1629657532&sprefix=Bicknell+young%2Caps%2C261&sr=8-1) by Bicknell Young
-* [Writing Ethnographic Fieldnotes](https://www.amazon.com/Writing-Ethnographic-Fieldnotes-Chicago-Publishing/dp/0226206831/ref=sr_1_1?dchild=1&keywords=writing+ethnographic+fieldnotes&qid=1629657558&sr=8-1) by Emerson, Fretz, and Shaw
+* [Writing Ethnographic Fieldnotes](https://www.amazon.com/Writing-Ethnographic-Fieldnotes-Chicago-Publishing/dp/0226206831/ref=sr_1_1?dchild=1&keywords=writing+ethnographic+fieldnotes&qid=1629657558&sr=8-1) by Robert M. Emerson, Rachel I. Fretz, & Linda L. Shaw
 * [Pop Sonnets: Shakespearean Spins on Your Favorite Songs](https://www.amazon.com/Pop-Sonnets-Shakespearean-Spins-Favorite/dp/1594748284/ref=sr_1_3?dchild=1&keywords=pop+sonnets+Shakespeare&qid=1629657708&sr=8-3) by Erik Didriksen
-
+* [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) by Harry M. Caudill
+ 
 #### Reading
-* [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) 
 * Cervantes
 * Jorge Louis Borges
 * Shakespeare
 * Cash: The Autobiography by Johnny Cash
 * The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart by Dudley Delffs
-* [Traffic]() by tom vanderbilt
+* traffic by tom vanderbilt
 * The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
 * The Art of Songwriting by Ed Bell
 * Great Songwriting Techniques by Jack Perricone
@@ -124,6 +124,7 @@ layout: default
 * Broken Horses: A Memoir
 * Appalachian Magazine's Mountain Superstitions, Ghost Stories & Haint Tales: A Collection of Memories & Commentaries from the Mountains of Appalachia
 * Beeswing: Losing My Way and Finding My Voice 1967-1975
+* Dream More: Celebrate the Dreamer in You
 * Appalachia: A History
 * The Skeletons in God's Closet
 * Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
