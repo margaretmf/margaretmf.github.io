@@ -14,6 +14,15 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 
 <br>
 
+### Inspiring Passages on Light from the Holy Bible and Science and Health with Key to the Scriptures - Week of August 24, 2021 ###
+**Genesis 1:3-5, 14-18
+* "And God said, Let there be light: and there was light." -Genesis 1:3
+* "And God saw the light, that it was good: and God divided the light from the darkness." -Genesis 1:4
+* "And God called the light Day, and the darkness he called Night." -Genesis 1:5
+* "And God said, let there be lights in the firmament of the heaven to divide the day from the night..." -Genesis 1:14
+
+* "The wakeful Shepherd beholds the first faint morning beams, ere cometh the full radiance of a risen day." -Science and Health with Key to the Scriptures p. vii, 2:4
+
 ### Inspiring Passages on Creation from the Holy Bible and Science and Health with Key to the Scriptures - Week of August 11, 2021 ###
 **Genesis 1:1, 11, 21, 27-31**
 * "In the beginning God created the heaven and the earth." -Genesis 1:1
