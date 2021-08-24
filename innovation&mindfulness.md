@@ -3,6 +3,10 @@ layout: default
 is_contact: true
 ---
 
+## This is a space to record images I see and sounds I hear each day. What I share here is part of a creative process to ground in the simple wonders of the world each day. At the bottom, I list innovative ideas. ##
+
+<br>
+
 ## **Images & Sounds** ##
 
 ## **Day 1** ##
