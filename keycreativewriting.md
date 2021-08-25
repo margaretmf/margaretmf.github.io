@@ -492,7 +492,7 @@ I pick it up, and I throw it away. <br>
 ## Boots ##
 These boots of mine. They've really been everywhere. <br>
 They've walked down many roads. <br>
-They've dug themselves into the dirt. <br>
+They've dug their heels into the dirt. <br>
 Can't you see? They've really been worn. <br>
 
 These worn-down boots. They've traveled the world. <br>
@@ -504,6 +504,11 @@ These beloved boots. They've been my best friend. <br>
 They've gone down lonely pathways. <br>
 They've skipped across sidewalks. <br>
 Can't you see? They've become sturdy and strong. <br>
+
+These wonderful boots. I keep them tied real tight.
+They've kept me feeling snug.
+They're as comfortable as can be.
+Can't you see? They're my favorite.
 
 <br>
 
@@ -1221,24 +1226,31 @@ and I made some wishes. <br>
 a penny for kindness in school <br>
 a nickel for the South to live <br>
 a quarter to wish well the people looking for change <br>
+
 a penny for a smile on my parents' faces <br>
 a nickel for my sister and brother <br>
 a penny for the people's freedom <br>
+
 a nickel for the couple's harmony <br>
 a quarter for the love for a neighbor <br>
 a penny for the love that fills the earth <br>
+
 a nickel for the love that moves mountains <br>
 a quarter for the hugging of two friends <br>
 a penny for the love that smiles at a strangers <br> 
+
 a quarter for the love that forgives at first sight <br> 
 a nickel for the love that keeps people young <br>
 a penny for the love that <br>
+
 a quarter for the love that heals an illness <br>
 a penny for the love that builds bridges <br>
 a nickel for the life that frees <br>
+
 a quarter for the life that shares joy and happiness <br>
 a penny for a song to sing in a mother's heart <br>
 a quarter for a laugh to come out of a father's mouth <br>
+
 a penny for a story of a grandmother to be remembered <br>
 a penny for a joke of a grandfather to be thankful for <br>
 a penny for the peace with the universe <br>
