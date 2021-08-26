@@ -154,6 +154,11 @@ This is a country of freedom fighters, daily fighting for another day to live.
 
 <br>
 
+## A World That Is Always Moving ##
+We live in a world that is always moving. Three hundred and sixty-five days per year, the world rotates around the Sun. Since the beginning of time, the world has moved, and it has never stopped. The world is always moving.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
