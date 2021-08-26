@@ -64,6 +64,32 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for good books
 * Grateful to learn more about what a friend shared
 * Grateful for a poem shared
+* Grateful spiritual and cultural entrepreneurship with EVERFI, Altar'd States, and the Assemblage
+* Grateful for time glasses
+* Grateful for friendship taught about in class
+* Grateful for themes, colors, metaphors, similes, grammar
+* Grateful for country music themes, including home, the Bible, relationships, stars, and nature
+* Grateful for systems
+* Grateful for the universe
+* Grateful for the community
+* Grateful for universality
+* Grateful for humanity
+* Grateful for a coffee shop
+* Grateful for smoke rising up from a bagel, up out of a house, out of a truck
+* Grateful for circles and mandalas
+* Grateful for art in hotels
+* Grateful for supply chain engineering and logistics
+* Grateful for traffic signs and roadmarks
+* Grateful for trucks, ports, trains, and ships
+* Grateful for interconnectedness
+* Grateful for farmland
+* Grateful for Hotel Indigo
+* Grateful for Thornton Wilder
+* Grateful for Thornton Burgess
+* Grateful for folklore from other countries and cultures
+* Grateful for roots
+* Grateful for rising higher
+* Grateful for pen on paper
 * Grateful for cheerful voices
 * Grateful for everyone at Roaring Gap
 * Grateful for little kids sharing lessons with adults
