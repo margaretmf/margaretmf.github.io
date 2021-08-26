@@ -5748,18 +5748,31 @@ day star, night star
 
 Through night and day
 good times and bad
-I love you true
+I love you truly
 from the moment I wake up to the moment I sleep
 I see your light 
 like a morning star by day and a night star by night
 Moment by moment with you by my side
 I learn and love and grow with you
 
+As long as I'm living I have you in my heart
+With you in my heart I'm hoping to live
+Through til to the end
+Happy and sad
+Highs and lows
+Day and night
+the rise and the fall
+the beginnings and the ends
+the ups and downs
+the waxes and wanes
+the laughs and the cries
+There's a lifetime ahead of us
+
 From season to seaon
 I love you through and through
 Winter and spring
 Summer and fall
-Like a red red rose and green grass poppuing up in the harshness of the rocky earth
+Like a red red rose and green grass popping up in the harshness of the rocky earth
 I love you with all my heart
 I cross my heart and hope to die
 
@@ -5818,6 +5831,7 @@ and you are the man for me
 Leading all the steps towards you I took make you better and all the steps you took towards me make me better
 The golden thread linking all my stepping stones
 Running on stones with you
+
 ## Someone Out There ##
 There is someone out there for everyone
 What a beauty is in the match made in heaven
@@ -8037,16 +8051,6 @@ Imagine reaching the mountain heights.
  explore the earth
  synch, rhythm, sail, soar
  from the great heat, sandy seashells and sandcastles to the falling leaves and orange, gold, yellow, and green to glistening brown trees with snow falling down to the pink flowers blossoming with an occasional rainfall back around again to heat with green leaves everywhere
-
-<br>
-
-## A World That Is Always Moving ##
-A world that's always moving.
-365 days around the Sun.
-Since the beginnig of time.
-It never stops.
-It's always going.
-The planets are always cycling and circling.
 
 <br>
 
