@@ -1114,7 +1114,7 @@ What a wonderful type of love that starts with a flower and its petals.
 
 ---------------------------------------------------------------------------------------------------------------------
 
-## Song Title Ideas, If I Were To Create a Soundtrack ##
+## Song Title Ideas (if I were to create a soundtrack) ##
 (1) A New Day
 
 (2) Wishing Well
@@ -1405,3 +1405,17 @@ The truth can be tough to bear. <br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
+## Children's Book Ideas (if I were to write a book) ##
+(1) A book about an eagle flying across mountains, showing how love moves mountains, and neigbhors can see each other cross countries and continents
+
+(2) A book about a symphony in the night sky
+
+(3) A book about a kaleidoscope and someone traveling through time, seeing shifts and perspectives
+
+(4) A book about word trees and word structures
+
+(5) A book about opposites
+
+(6) A book about building a house, gratitude, people working together, a strong foundation, and everything working together.
+
+<br>
