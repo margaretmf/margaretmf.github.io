@@ -160,6 +160,7 @@ layout: default
 * A History of Barbed Wire, Desire, and Devour* by Jeff Mann
 * Unwhite: Appalachia, Race, and Film* by Meredith McCarroll
 * Boone: A Biogrpahy by Robert Morgan
+* I Walked the Line: My Life with Johnny
 * Appalachia in the Classroom* by Theresa L. Burris
 * Literature and Ecofeminism: Intersectional and International Voices* by Theresa L. Burriss
 * Appalachian Ecrocriticism by Theresa L. Burriss
