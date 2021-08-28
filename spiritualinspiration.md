@@ -296,8 +296,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for a memory of the American flag in Washington, DC
 * Grateful for the people from my classes
 * Grateful for the one that ripples out
-* Grateful for “Now”
-* Grateful for “Heart”
+* Grateful for the words "Now" and "Heart" in Chinese mindfulness
 * Grateful for the letters for mindfulness from the Chinese that goes back years, for eternity
 * Grateful for faith-driven treatment
 * Grateful for the love of life people have
@@ -452,7 +451,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the joy expressed
 * Grateful for the creative writing
 * Grateful for people walking outside
-* Grateful for the hymn "Speak Gently to the erring ones"
+* Grateful for the hymn *Speak Gently to the Erring Ones*
 * Grateful for cooking
 * Grateful for friends from Norfolk Academy
 * Grateful for people from my sorority
@@ -1522,13 +1521,13 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the root of challenges in mental health
 * Grateful for all mankind and different ways people love
 * Grateful for someone who actually understand and heard where I was coming from
-* Grateful for the song by the Black Eyed Peas, asking "Where is the Love?"
+* Grateful for the song by the Black Eyed Peas, asking *Where is the Love?*
 * Grateful for the sound of the laundry machine
 * Grateful that a story shared in a song can resonate with another individual who fits in with many other stories of people all around her
 * Grateful for a home someone architected at a schoolhouse on a farm
 * Grateful for a woman in Barnes and Noble who has overcome challenges and looks dignified
 * Grateful for the voice on the news, representing ethics and good judgment
-* Grateful for the song "One Tribe"
+* Grateful for the song *One Tribe*
 * Grateful or the Soaps and Suds in Norfolk that serves the community
 * Grateful for friends who share news articles and support my spiritual growth
 * Grateful for the dancers and the musicians
@@ -2170,7 +2169,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the country in every state, and Nashville, country, north, east, west, south
 * Grateful for the country in other states 
 * Grateful that in the psych ward, I see people reacting in similar ways to how I have reacted at home, and I appreciate the common struggles bringing us together to heal and how I help them and they help me, and grateful that I can see the light in them as well
-* Grateful for the woman who wrote "Broken Record" and cited Amena Brown and India.Arie
+* Grateful for the woman who wrote *Broken Record* and cited Amena Brown and India.Arie
 * Grateful for global cultures
 * Grateful that the human mind can psh boundaries and express limitlessness
 * Grateful to hear my supervisor, manager describe me as someone who can carve out a career path independently
@@ -2895,7 +2894,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the light in the darkness
 * Grateful for the reflection and the Source
 * Grateful to recall the ideas of Universal and Particular and to remember ideas from metaphysics
-* Grateful for the "Adopt A Street" - no more litter in the city
+* Grateful for the "Adopt A Street" sign - no more litter in the city
 * Grateful that every step to different people is leading closer to more Truth, more awareness, more perspective, more progress, more perception
 * Grateful for the time spent reading the Qur'an
 * Grateful for the ideas of enlightenment, day and night, light and dark in the Bible
@@ -2921,7 +2920,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the Silver Lining
 * Grateful for Chinese calligraphy and the people from my class in China
 * Grateful for teachers at Norfolk Academy
-* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple and insular", and less comfort around sexuality
+* Grateful that the music reminded me of the American Credo Project, where I composed a song on the piano, explored the relationship between math and music, took photos near the water, and reminded me of country music I felt inspired by when healing a relationship with a peer from school with blurred lines and boundaries, and also reminded me of my style on the piano but also my concerns over being "simple" and "insular", and less comfort around sexuality
 * Grateful for people in the neighborhood
 * Grateful for the girls on the bike ride
 * Grateful for the people learning to play the mandolin and enjoying summer camps
@@ -3050,7 +3049,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the state of Arkansas
 * Grateful for the schools managers and good cheers with EVERFI
 * Grateful for the man who worked next to me at the desk
-* Grateful for the song "What a Wonderful World"
+* Grateful for the song *What a Wonderful World*
 * Grateful for the ribbons on trees
 * Grateful for everyone in traffic in Charlottesville that day
 * Grateful for the next generation
@@ -3187,7 +3186,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the people who work on Cash App
 * Grateful for my sister who centers around music like other people do
 * Grateful for the man calling me
-* Grateful for memories of the song "Choose God" playing in the car
+* Grateful for memories of the song *Choose God* playing in the car
 * Grateful for people doing environmentally friendly work
 * Grateful that the world is always unfolding as it should
 * Grateful to dwell in Love
@@ -3626,7 +3625,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for wisdom teachers from other countries
 * Grateful for friends who work on Spanish
 * Grateful for art from Morocco
-* Grateful for the people from Mississippi who love "Where the Red Fern Grows"
+* Grateful for the people from Mississippi who love *Where the Red Fern Grows*
 * Grateful for the childlike qualities of people
 * Grateful for vintage interior design
 * Grateful for the people working with Hutchison
