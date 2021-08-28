@@ -2170,7 +2170,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the country in every state, and Nashville, country, north, east, west, south
 * Grateful for the country in other states 
 * Grateful that in the psych ward, I see people reacting in similar ways to how I have reacted at home, and I appreciate the common struggles bringing us together to heal and how I help them and they help me, and grateful that I can see the light in them as well
-* Grateful for the woman who wrote "Broken Record" and cited "Amena Brown" and "India Arie"
+* Grateful for the woman who wrote "Broken Record" and cited Amena Brown and India.Arie
 * Grateful for global cultures
 * Grateful that the human mind can psh boundaries and express limitlessness
 * Grateful to hear my supervisor, manager describe me as someone who can carve out a career path independently
@@ -2237,7 +2237,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the ideas one expresses interest in
 * Grateful for carpenters and carpatners' sons
 * Grateful for the nurses
-* Grateful for the belief I had that the dream is coming true, "the final arc" that someone shared is the "*I Have A Dream*"
+* Grateful for the belief I had that "the dream" is coming true, "the final arc" that someone shared is the message in "I Have A Dream"
 * Grateful that retrograde steps are false and unreal in Science
 * Grateful for the relationship to music of everyone in the room
 * Grateful for other people who have gone through Hopeway
@@ -2392,7 +2392,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Gratteful for bridges
 * Grateful for reflections in water
 * Grateful for sayings on "Honky tonk"
-* Grateful for the allusion to "Gone with the wind" in Dolly Parton
+* Grateful for the allusion to "Gone with the Wind" in Dolly Parton
 * Grateful for the entrepreneurs in Tennessee's state history
 * Grateful for Cas Walker, a grocery selling door-to-door entrepreneur
 * Grateful for the "wife material" shirt
@@ -2827,10 +2827,10 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for all the shapes and colors in the universe
 * Grateful for the oval shape around a tree
 * Grateful for people keeping everything organized
-* Grateful for the *Thank you for the Troops* sign in the mall
+* Grateful for the "Thank you for the Troops" sign in the mall
 * Grateful for the colors in the mall
 * Grateful for the man, Shakespeare, who did the work
-* Grateful for *Community Feed*
+* Grateful for "Community Feed"
 * Grateful for the history of streets, pedestrians, and cars and bikers
 * Grateful for the light through the darkness in history
 * Grateful for the Holy Qur'an
