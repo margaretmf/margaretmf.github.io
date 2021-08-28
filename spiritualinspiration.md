@@ -2237,7 +2237,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for the ideas one expresses interest in
 * Grateful for carpenters and carpatners' sons
 * Grateful for the nurses
-* Grateful for the belief I had that "the dream" is coming true, "the final arc" that someone shared is the message in "I Have A Dream"
+* Grateful for the belief I had that "the dream" is coming true, "the final arc" that someone shared is the message in *I Have A Dream*
 * Grateful that retrograde steps are false and unreal in Science
 * Grateful for the relationship to music of everyone in the room
 * Grateful for other people who have gone through Hopeway
@@ -2392,7 +2392,7 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Gratteful for bridges
 * Grateful for reflections in water
 * Grateful for sayings on "Honky tonk"
-* Grateful for the allusion to "Gone with the Wind" in Dolly Parton
+* Grateful for the allusion to *Gone with the Wind* in Dolly Parton
 * Grateful for the entrepreneurs in Tennessee's state history
 * Grateful for Cas Walker, a grocery selling door-to-door entrepreneur
 * Grateful for the "wife material" shirt
