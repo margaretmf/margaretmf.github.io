@@ -31,23 +31,21 @@
 - name: "Creative Writing"
   link: "keycreativewriting"
   
-- name: "Resume"
-  link: "resume"
-  
+- name: "Github Portfolio as a Product - Product Management Tasks"
+  link: "GithubPortfolioAsAProduct&ProductManagementTasks"
+ 
 - name: "Contact"
   link: "contact"
+  
+- name: "Resume"
+  link: "resume"
   
 - name: "Calendar"
   link: "calendar"
   
-- name: "Resume"
-  link: "resume"
-  
 - name: "Coding Concepts"
   link: "codingconcepts"
  
-- name: "Github Portfolio as a Product - Product Management Tasks"
-  link: "GithubPortfolioAsAProduct&ProductManagementTasks"
   
 
 
