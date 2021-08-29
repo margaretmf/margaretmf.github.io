@@ -370,6 +370,19 @@ Everything private becomes public, everything public influences our private live
 
 **Word Associations:** reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
 
+## Deceit ##
+Deceit, it's like flirtation.
+It's trickery.
+The evil in our hearts and thoughts masquerading for what's real.
+It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lies.
+Evil sits with pretense wanting to be uncovered, and not unmasked.
+Do you really believe in the duplicity and the lies?
+All of this goes into the dumpster, all pretense is let go of.
+
+<br>
+
+**Word Associations** trickery, duplicity, lies, guile, two-faced, imposter, pretense, fraud
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
