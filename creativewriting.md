@@ -58,28 +58,6 @@ In this journal, you will start your writing exercise by selecting a topic that 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
 
-## Friendship ##
-Feeling safe, and validated by someone kindred to trust them with information.
-Building a bond on the basis of what seems kindred, and natural, sharing the deepest longings within to support mutual growth within the friendship and the larger radius.
-Forming memories that last day in and day out, and growing in union with one another in constant companionship.
-
-<br>
-
-**Word Associations:** companion, bond, share, kindred, reciprocal, confide, trust, mutual, memories, secrets
-
-## Love ##
-Love - a sacrifice for a team, a family, a church.
-Healthy communication filled with joy, honesty, appreciation, openness, and validation.
-The trust to be able to pick oneself back up and restore to wholeness, clarity, and even better dynamics.
-Falling into an attraction to a common purpose, a common rhythm, a common heart.
-A kiss of a heart-to-heart connection echoing and resounding throughout the universe that rings like church bells forever and ever.
-A compromise to put a stop to the envy.
-Romantic fun and sense of humor.
-
-<br>
-
-**Word Associations:** kiss, sacrifice, romance, partner, trust, attraction, falling, communication, envy, compromise
-
 ## Quest ##
 On a quest to discover the rhyme and reason to the universe.
 On an adventurous search to understand the purpose to life and the endless possibilities.
@@ -90,17 +68,6 @@ In a story to appreciate the true vision, the heroism, and the exciting goal for
 
 **Word Associations:** goal, future, adventure, possibility, road, vision, purpose, obstacle, story, hero
 
-## Secrets ##
-Hidden lusts, and affections.
-Latent talents, and memories.
-Covered traumas, and painpoints and nightmares.
-These lies and trusts within are there to be uncovered, and discovered, revealed, and unfolded.
-In the mystery, all the secrets become vanished into a mortal dream of nothingness with nothing more to guard or protect but a true sense of Love and Truth.
-
-<br>
-
-**Word Associations:** spy, death, reveal, guard, protect, discovery, mystery, hidden, trust, lies
-
 ## Message ##
 A secret message signaling to someone information, and knowledge that should be known.
 Through a divine connection, people receive encrypted notes alerting people to missing puzzle pieces.
@@ -110,30 +77,6 @@ Different conduits for voices and paper to share these secrets.
 <br>
 
 **Word Associations:** send, encrypt, alert, bottle, secret, spy, prophet, phone, deliver, signal
-
-## Lie ##
-Subliminal messages, and an image-saturated world.
-Detecting the sneaky, snakey deceiving suggestions that speak to us when half asleep.
-The falsehood, the fake bubbles up louder and louder until it finds the truth, and the arrogance of the mask of slights, doubts, attachments, and error using the tongue.
-Detect the sneakiness, remove it, and the Truth can find its proper place.
-
-<br>
-
-**Word Associations:** detect, sleep, place, mask, false, truth, deception, snake, sneak, fake
-
-## The Ocean ##
-The ocean.
-Deep, vast waters that touch the brown earth.
-Waves of different heights flow in flux.
-Like how the currents move around, God causes his people to move.
-Like how the tide rises and lowers, God causes us to wake up.
-The ocean.
-The ocean represents the deep waters of God within man's soul.
-The green, blue, grey, white is the substance of thought connecting us all in consciousness between the foundations of the earth.
-
-<br>
-
-**Word Associations:** billows, deep, brine, offing, wave, flux, tide, current
 
 ## Clouds ##
 The clouds. 
@@ -149,14 +92,6 @@ People imagine different things about them and how they support our ecosystem.
 
 **Word Associations:** puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
 
-## First Love ##
-The flame of love within shows me the way to have fun with life and cherish the light within all around.
-The source within is tender, and I relish the youthlike energy that everyone yearns to feel.
-
-<br>
-
-**Word Associations:** tenderness, relish, flame, yearning, cherishing, passion, enchantment, youth
-
 ## Spring ##
 A fresh season for living, moving, and loving begins.
 The pink buds, the white and yellow flowers.
@@ -165,17 +100,6 @@ From little seeds to full openings, it is perennial as the primrose.
 <br>
 
 **Word Associations:** budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
-
-## A Tree ##
-The tree that stands in front of my house has roots that go deep into the ground.
-The branches expand outwardly and onwardly into the sky.
-The tree comes from a forest, the woods.
-The little sapling holds it strong.
-The timber keeps it steady.
-
-<br>
-
-**Word Associations:** sapling, woods, leaves, greenery, roots, branches, timber, forest
 
 ## A Storm ##
 The storm is roaring and raging in the sky and in our hearts.
@@ -274,19 +198,6 @@ The rainbow today and all the colors smiling through the earth
 
 **Word Associations:** deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid, sunshine
 
-## Illness ##
-Illness sucks the life out of people.
-Illness is a great malady.
-There is breakdown, affliction, ailing, disability, relapse.
-Illness is emotional wailing, cellular destruction, tears, pain.
-It leads people to want to die.
-Recovery is normal, a desire to sing is normal.
-Illness leads to perfect health, recovery.
-
-<br>
-
-**Word Associations:** malady, breakdown, affliction, ailing, relapse, disability, convalescence, recovery
-
 ## Music ##
 Life is a symphony.
 The breeze moves the trees, and cars move around on the highway in a beautifully orchestrated way.
@@ -310,83 +221,8 @@ An expectation of being in the right place.
 
 **Word Associations:** expectation, wish, aspiration, ambition, belief, optimism, faith, anticipation
 
-## Mortality ##
-The fatal pull to feel compressed, stuck, ashamed, heavy, guilt-ridden.
-The lethal pull to attack, attach, react, and be indignant.
-Life is beautiful, beauty is immortal, grace comes to us unexpectedly.
-Paradise of heaven is within.
-The passing storm, the passing clouds.
-The darkness, the storminess of the night can not touch us.
-In sure repose I find the way.
-In deep silence, I appreciate the music of God.
-In sleep, despite the heaviness and pull towards death, I feel the touch of eternity.
-
-<br>
-
-**Word Associations:** fatal, lethal, life, paradise, passing, repose, silence, sleep
-
-## Heaven ##
-Heaven is here, not somewhere out there.
-Heaven covers the earth and the sky.
-Heaven in our hearts feels like the expanse of the sky.
-Heaven is the glory of the reign of God's kingdom.
-Heaven exists for eternity for us all.
-Heaven is pure bliss and exists well beyond the current present, it exists hereafter.
-Heaven gives its eternal rest.
-
-<br>
-
-**Word Associations:** Kingdom, glory, eternity, bliss, beyond, afterworld, hereafter, eternal rest
-
-## Parents ##
-Parents, the guardians and educators of youth.
-They bring mankind up to know what is right spiritually and morally.
-Childhood is protected by nurturing motherhood and protective fatherhood.
-Parents teach what is right, or real, from wrong or unreal.
-God, the awareness of goodness all around, is the parent mind for everyone.
-
-<br>
-
-**Word Associations:** guardian, idol, nurture, mother, father, childhood. upbringing, teacher
-
-## Children ##
-Children, the sound of children playing is beautiful.
-It's so natural to appreciate youth.
-Youth rise to love and teach us to love more.
-Little kids are so deep and eloquent in their understanding of spirituality.
-Toddlers look deep into our souls, and play with us to help us feel more alive and joyful.
-The changing seasons, the next generation, the progression of humanity, and mankind, is reflected through youth.
-
-<br>
-
-**Word Associations:** toddler, play, offspring, kids, little, founding, youngsters, youth
-
-## Home ## 
-Home starts from within.
-Activities in a house, a community, workplace flow out from home within.
-The love of the house reflects the love of the home within.
-Everything in the home works together in an orchestrated way as the light shines through it.
-Great is the joy of conversations near the light of the fireside.
-Great is the delight of cooking in the kitchen.
-Great is the grace of working from a place of comfort in the garage.
-A healthy home contributes to a village.
-
-<br>
-
-**Word Associations:** house, fireside, village, kitchen, hearth, cottage, apartment, tenement
-
-## Work ##
-Rising up out of bed with the morning sun shining through the city to do the daily duties.
-There's a song and a whistle in the daily grind.
-Finding the fun in the work makes it worthwhile.
-I exert myself, use my skills, put in the effort, and have fun.
-
-<br>
-
-**Word Associations:** toil, labor, wage, artisan, skill, exertion, effort, grind
-
 ## The Past ##
-The past is done. It's gone. It's a distant dream, a memory fading away so that the past of new mercies can unfold.
+The past is done. It's gone. It's a distant dream, a memory fading away so that the future of new mercies can unfold.
 Let bygones teach us the lessons while holding on to remembrances of the good.
 Nothing is born of ruminating about what happened long ago or regretting past actions.
 The present is here to be made new.
@@ -395,58 +231,6 @@ The cycle of light continues through history forever.
 <br>
 
 **Word Associations:** memory, distant, history, remembrance, antiquity, memoir, bygone, long ago
-
-## The Future ##
-No one knows what the future will bring.
-Putting hope in the prospects of a better day tomorrow rests thought in the right place.
-Carrying the weight of concerns over imminent threats to our being next week brings heaviness.
-Trusting that there are opportunities for new modes of life in a year brings a reason to keep going.
-Prophesying for good, not for evil, shall be the goal in the uncertainty and questioned destiny.
-The fate is good, and the cycle of light continues forever out of the darkness.
-
-<br>
-
-**Word Associations:** destiny, hope, potential, imminent, opportunity, fate, foresee, prophesy
-
-## Historical Figure ##
-Thomas Jefferson, the first president, the first country-westerner.
-He revolutionized our country with democracy, a republic, and land and nature.
-He was the captain of the ship that freed America from Britain, the author of the Declaration of Independence, and the conqueror of the west.
-He was a hero, a leader, though he was flawed, and he set the foundation for the United States of America.
-
-<br>
-
-**Word Associations:** president, activist, revolutionary, captain, author, conqueror, hero, leader
-
-## Responsbility ##
-Humbling myself to take responsibility for the wrongs done.
-Letting God carry my burdens, my cross.
-There is an obligation, a charge to be moral, to be pure, to be just, to respect boundaries.
-God's leadership, God's voice is active today to set all in motion, upright, free, joyful, and light.
-There is a constant safeguard around me, keeping me safe.
-
-<br>
-
-**Word Associations:** cross, burden, leadership, obligation, safeguard, onus, charge, bond
-
-## Truth ##
-Waking up to the Truth of being, the Reality underlying my life, and our lives.
-Realizing the fact that goodness reigns and tuning into the genuity within every heart.
-Being honest with oneself, being authentic within, and waking up to the purity that is within the Christ.
-
-<br>
-
-**Word Associations:** candor, purity, reality, fact, certainty, genuine, honesty, authentic
-
-## Dedication ##
-A dedication, a devotion to loving someone every day and seeing them in God's eyes.
-Committing to the country, the family, and the work called to do.
-Truly repenting with constancy dwelling in the land of love with zeal.
-Sharing loyalty with people, expressing fervor.
-
-<br>
-
-**Word Associations:** devotion, allegiance, commit, piety, constancy, zeal, loyalty, fervor
 
 ## Love ##
 Love blooms like a red rose within one's heart that is shared with others with no regret.
@@ -459,19 +243,6 @@ Yearning for the love for all mankind and the smiles on all of mankind's fate is
 <br>
 
 **Word Associations:** adoration, affection, yearning, flame, emotion, ardor, fondness, rapture
-
-## Deceit ##
-Deceit, it's like flirtation.
-It's trickery.
-The evil in our hearts and thoughts masquerading for what's real.
-It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lies.
-Evil sits with pretense wanting to be uncovered, and not unmasked.
-Do you really believe in the duplicity and the lies?
-All of this goes into the dumpster, all pretense is let go of.
-
-<br>
-
-**Word Associations** trickery, duplicity, lies, guile, two-faced, imposter, pretense, fraud
 
 ## Loneliness ##
 Sitting in your own corner alone in isolation, suffering from sin, where all within you is empty.
