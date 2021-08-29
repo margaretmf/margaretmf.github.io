@@ -1085,141 +1085,106 @@ All the rooms twinkle like the stars in the night sky. <br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
+## A Young Boy's Gratitude ##
+A little boy lives in the basement of a house. He has a heart filled with gratitude for all the good going on. Each night, he thinks of one more thing he's grateful for. His heart grows and grows and grows so that all the thoughts of gratitude fill the whole house. The heart of gratitude floods the staircase, spills into other places in the home, and runs into his park, school, and city. His parents and the other people around him can feel this gratitude. One heart filled with gratitude can change the life of everyone around. His parents and other people start filling their hearts with gratitude also, so that all of the hearts grow and grow and grow.
+
+<br>
+
 ## Secret Admirer ##
-He had a secret admirer but he didn't know her name.
-
-Every day, she came home and peeled off petals from flowers.
-
-"He likes me, he likes me not"
-"He likes me, he likes me not"
-"He likes me, he likes me not"
-
-All the petals fell to the grass as she repeated this sentence.
-
-She smiled and said, "I hope he likes me" as she let the petals fall to the ground.
-
-She took the flower petals to school and said, "I like you a lot, and here are some flower petals for you."
-
-He responded, "I like you too" and took the petals in his hand.
-
-He made a necklace out of the petals, and he went up to her and said, "this necklace is for you, and let's be friends."
-
-She wore the necklace every day to school, and he would smile at her across the room.
-
-They held hands, and they became best friends forever.
-
-What a wonderful type of love that starts with a flower and its petals.
+He had a secret admirer but he didn't know her name. Every day, she came home and peeled off petals from flowers. "He likes me, he likes me not", she said multiple times. "He likes me, he likes me not". "He likes me, he likes me not". All the petals fell to the grass as she repeated this sentence. She smiled and said, "I hope he likes me" as she let the petals fall to the ground. She took the flower petals to school and said, "I like you a lot, and here are some flower petals for you." He responded, "I like you too" and took the petals in his hand. He made a necklace out of the petals, and he went up to her and said, "this necklace is for you, and let's be friends." She wore the necklace every day to school, and he would smile at her across the room. They held hands, and they became best friends forever. What a wonderful type of love that starts with a flower and its petals.
 
 <br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Song Title Ideas (if I were to create a soundtrack) ##
-(1) A New Day
-
-(2) Wishing Well
-
-(3) Tossing It Out to Sea
-
-(4) My Hand on My Heart
-
-(5) A Childlike Heart
-
-(6) I Want to Hold Your Hand
-
-(7) The Long Road Ahead
-
-(8) Side Roads
-
-(9) It's Ok, This Experience is Good
-
-(10) Love Your Enemies
-
-(11) A Partnership Like the Stars
-
-(12) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me)
-
-(13) Ode to A Squirrel (or Ode to Insects)
-
-(14) The Lone Bird
-
-(15) Boots
-
-(16) Bells
-
-(17) Holy Book and Church Domes
-
-(18) World of Strangers that become Friends
-
-(19) Rose and Greenery - Eternity
+(1) A New Day <br>
+(2) Wishing Well <br>
+(3) Tossing It Out to Sea <br>
+(4) My Hand on My Heart <br>
+(5) A Childlike Heart <br>
+(6) I Want to Hold Your Hand <br>
+(7) The Long Road Ahead <br>
+(8) Side Roads <br>
+(9) It's Ok, This Experience is Good <br>
+(10) Love Your Enemies <br>
+(11) A Partnership Like the Stars <br>
+(12) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me) <br>
+(13) Ode to A Squirrel (or Ode to Insects) <br>
+(14) The Lone Bird <br>
+(15) Boots <br>
+(16) Bells <br>
+(17) Holy Book and Church Domes <br>
+(18) World of Strangers (who become friends)  <br>
+(19) Rose and Greenery - Eternity  <br>
 
 <br>
 
 ## New Day - Rough Draft ##
-Oh it's a new day for the sun to shine
-(I love that) from the east to the west the rays light up the day.
+Oh it's a new day for the sun to shine. <br>
+(I love that) from the east to the west the rays light up the day. <br>
 
-I love to feel the warmth of the sun's rays both on you and on me.
-Every day's a new day for me and for you.
+I love to feel the warmth of the sun's rays both on you and on me. <br>
+Every day's a new day for me and for you. <br>
 
-It's a new day for the birds to chirp.
-Flying high through the trees these birds really sing.
+It's a new day for the birds to chirp. <br>
+Flying high through the trees these birds really sing. <br>
 
-I love to sing with the birds and hear their songs ringaling.
-Every day's a new day. Every day's a new day.
+I love to sing with the birds and hear their songs ringaling. <br>
+Every day's a new day. Every day's a new day. <br>
 
-Oh it's a new day for the sky to be blue.
-Bright blue the sky is with the birds sailing high.
+Oh it's a new day for the sky to be blue. <br>
+Bright blue the sky is with the birds sailing high. <br>
 
-I love to look up at the sky and dream big upon the clouds. (wish upon the stars)
-Every day's a new day to dream something new. (wish something new)
+I love to look up at the sky and dream big in the clouds. (wish upon the stars)  <br>
+Every day's a new day to dream something new. (wish something new) <br>
 
-Oh it's a new day for the people to move.
-I love that the sun is what the earth spins us around.
+Oh it's a new day for the people to move. <br>
+I love that the sun is what the earth spins us around. <br>
 
-Oh how I love to wake up to this new day
-and feel the people and the earth move around as one.
+Oh how I love to wake up to this new day. <br>
+and feel the people and the earth move around as one. <br>
 
-Every day's a new day, every day's a new day.
-Every day's a new day to feel the earth move.
+Every day's a new day, every day's a new day. <br>
+Every day's a new day to feel the earth move. <br>
 
-It's a new day for the green grass to grow.
-Where the grass is so green is where I long to go.
+It's a new day for the green grass to grow. <br>
+Where the grass is so green is where I long to go. <br>
 
-I love to run and skip outside and feel a rebirth.
-Every day's a new day to love this green earth.
+I love to run and skip outside and feel a rebirth. <br>
+Every day's a new day to love this green earth. <br>
 
-It's a new day for the trees to talk.
-I love to hear them and talk to them too.
+It's a new day for the trees to talk. <br>
+I love to hear them and talk to them too. <br>
 
-Every day's a new day for me and for you.
-Every day's a new day. Every day's a new day.
+Every day's a new day for me and for you. <br>
+Every day's a new day. Every day's a new day. <br>
 
-It's a new day for the bees to buzz.
-How I love the sweet honey these black and gold things make.
+It's a new day for the bees to buzz. <br>
+How I love the sweet honey these black and gold things make. <br>
 
-Every day's a day to try something new.
-Every day's a new day. Every day's a new day.
+Every day's a day to try something new. <br>
+Every day's a new day. Every day's a new day. <br>
 
-It's a new day for the flowers to bloom.
-I love to grow like them and smell them too.
-(I want my heart to open like the flowers that bloom).
+It's a new day for the flowers to bloom. <br>
+I love to grow like them and smell them too. <br>
+(I want my heart to open like the flowers that bloom). <br>
 
-I want to live each day like it's the first and the last.
-Every day's a new day, every day's a new day.
+I want to live each day like it's the first and the last. <br>
+Every day's a new day, every day's a new day. <br>
 
-Oh it's a new day for our hearts to beat with love.
-I love to feel the hearts all over beating within everywhere.
+Oh it's a new day for our hearts to beat with love. <br>
+I love to feel the hearts all over beating within everywhere. <br>
 
-Every day's a new day for me and for you.
-I love when smiles shine through all the people everywhere.
+Every day's a new day for me and for you. <br>
+I love when smiles shine through all the people everywhere. <br>
 
-Oh it's a new day to seize that day.
-I love to see neighbors wave and hear little ones laugh and play. 
+Oh it's a new day to seize that day. <br>
+I love to see neighbors wave and hear children laugh and play.  <br>
 
-Every day's a day to be someone new.
-Every day's a new day. Every day's a new day.
-Everyone of life's days are brand new days.
+Every day's a day to be someone new. <br>
+Every day's a new day. Every day's a new day. <br>
+Everyone of life's days are brand new days. <br>
 
 <br>
 
@@ -1268,39 +1233,39 @@ with these coins I sent a heart filled with love
 <br>
 
 ## Flying Solo - Rough Draft ##
-There's a bird sitting on the fence alone.
-She lifts her wings so gracefully.
-How I long to be like this lone bird.
-Peacefully knowing who she is.
+There's a bird sitting on the fence alone. <br>
+She lifts her wings so gracefully. <br>
+How I long to be like this lone bird. <br>
+Peacefully knowing who she is. <br>
 
 <br>
 
 ## The Lone Bird - Rough Draft ##
-The lone bird flies high through the spring trees.
-The lone bird sits still on the ground.
-The lone bird sails gracefully on the yellow driving sign.
-The lone bird rests on a walking sign.
-The lone bird launches and lands onto a brown tree branch. 
-The lone bird flutters with the wind amongst the green leaves.
-The lone bird rises high in the sky.
-The lone bird perches on the electric wire.
-The lone bird mounts on the street sign.
-The lone bird glides with the wind.
-The lone bird pecks at the lead. 
-The lone bird flaps his wings just above the ground.
-The lone red bird finds her spot on a machine outside.
-The lone blue jay stands on a fence.
-The lone bird explores her freedom.
-The lone bird finds her support on the power line.
-The lone bird scurries through the grass.
-The lone grey bird expands her wings.
-The lone bird swoops down to hover the river.
-The lone bird feathers her wings above the water.
-The big lone bird stands on the grass near the farm holding her poise.
-The lone bird skates on the ice.
-The shadow of the lone bird is beautiful in the grass.
-The bird alone on the city map, she knows her city and she loves the water.
-The lone bird knows her place on the wire.
+The lone bird flies high through the spring trees. <br>
+The lone bird sits still on the ground. <br>
+The lone bird sails gracefully on the yellow driving sign. <br>
+The lone bird rests on a walking sign. <br>
+The lone bird launches and lands onto a brown tree branch.  <br>
+The lone bird flutters with the wind amongst the green leaves. <br>
+The lone bird rises high in the sky. <br>
+The lone bird perches on the electric wire. <br>
+The lone bird mounts on the street sign. <br>
+The lone bird glides with the wind. <br>
+The lone bird pecks at the lead.  <br>
+The lone bird flaps his wings just above the ground. <br>
+The lone red bird finds her spot on a machine outside. <br>
+The lone blue jay stands on a fence. <br>
+The lone bird explores her freedom. <br>
+The lone bird finds her support on the power line. <br>
+The lone bird scurries through the grass. <br>
+The lone grey bird expands her wings. <br>
+The lone bird swoops down to hover the river. <br>
+The lone bird feathers her wings above the water. <br>
+The big lone bird stands on the grass near the farm holding her poise. <br>
+The lone bird skates on the ice. <br>
+The shadow of the lone bird is beautiful in the grass. <br>
+The bird alone on the city map, she knows her city and she loves the water. <br>
+The lone bird knows her place on the wire. <br>
 
 <br>
 
@@ -1322,23 +1287,23 @@ Let it fall to the floor. <br>
 ---------------------------------------------------------------------------------------------------------------------
 
 ## It's A New Day #
-It's a new day for the sun to shine
-for the birds to chirp
-for me to meet a new friend.
+It's a new day for the sun to shine <br>
+for the birds to chirp <br>
+for me to meet a new friend. <br>
 
-I love to sing out loud
-and let go all of the doubt
-and feel love in my heart
-for everyone.
+I love to sing out loud <br>
+and let go all of the doubt <br>
+and feel love in my heart <br>
+for everyone. <br>
 
-It's a new day for the flowers to bloom
-for the rain to fall
-for the neighbors to wave.
+It's a new day for the flowers to bloom <br>
+for the rain to fall <br>
+for the neighbors to wave. <br>
 
-I love to skip out side
-and run to the park
-and feel joy in my heart
-with everyone.
+I love to skip out side <br>
+and run to the park <br>
+and feel joy in my heart <br>
+with everyone. <br>
 
 <br>
 
