@@ -57,18 +57,6 @@ In this journal, you will start your writing exercise by selecting a topic that 
 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
-## Scandal ##
-Oh my God!
-It's so scandalous...
-All those dirty secrets covered up in my heart blew up in my face, exposed the lies of subliminal messaging, and defamed me.
-It's outraging, it's hushing, it's public!
-What a release that something so dark is brought to light through high-minded sensational art.
-It's good to keep things private, and not be afraid of the public.
-Everything private becomes public, everything public influences our private lives.
-
-<br>
-
-**Word Associations:** reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
 
 ## Friendship ##
 Feeling safe, and validated by someone kindred to trust them with information.
