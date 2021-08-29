@@ -1,4 +1,4 @@
-# I paint what I capture and see.
+# I explore painting what I capture and see. Check out the paintings I feel good about below.
 
 
 
