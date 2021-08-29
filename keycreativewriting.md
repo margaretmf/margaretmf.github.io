@@ -357,6 +357,19 @@ The curtain opening to show what's shielded.
 
 **Word Associations:** shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
 
+## Scandal ##
+Oh my God!
+It's so scandalous...
+All those dirty secrets covered up in my heart blew up in my face, exposed the lies of subliminal messaging, and defamed me.
+It's outraging, it's hushing, it's public!
+What a release that something so dark is brought to light through high-minded sensational art.
+It's good to keep things private, and not be afraid of the public.
+Everything private becomes public, everything public influences our private lives.
+
+<br>
+
+**Word Associations:** reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
