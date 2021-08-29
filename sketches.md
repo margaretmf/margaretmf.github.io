@@ -1,5 +1,5 @@
 
-## Sketching and playing with colors and shapes, and painting brings me joy. See my sketches below.
+## Sketching and playing with colors and shapes brings me joy. See my sketches below.
 
 <img class="profile-picture" src="sketches/sketch1.jpg">
 
