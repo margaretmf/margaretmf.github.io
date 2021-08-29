@@ -34,17 +34,17 @@
 - name: "Github Portfolio as a Product - Product Management Tasks"
   link: "GithubPortfolioAsAProduct&ProductManagementTasks"
  
+- name: "Coding Conepts"
+  link: "codingconcepts"
+  
+- name: "Calendar"
+  link: "calendar"
+  
 - name: "Contact"
   link: "contact"
   
 - name: "Resume"
   link: "resume"
-  
-- name: "Calendar"
-  link: "calendar"
-  
-- name: "Coding Concepts"
-  link: "codingconcepts"
  
   
 
