@@ -618,24 +618,6 @@ Curtains and shutters protect people's privacy, and shut out the light when it's
 
 **Word Associations:** sill, pane, view, light, panorama, curtain, shutter, glass
 
-## Change ##
-Heading into new territory.
-It's foreign.
-There's a shift in how I am, how things look.
-Undergoing a transition from one state, stage to another state, stage.
-There's a metamorphosis.
-I come out of the cocoon.
-I make revisions.
-It's a new season ahead.
-I switch, tune in, change, repent.
-Everything is on a new basis, a different foundation.
-I transmute myself.
-There's variance.
-
-<br>
-
-**Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
-
 ## Evil ##
 Thank you, God, a sense of good, a consciousness of joy, 
 for delivering us from evil.
