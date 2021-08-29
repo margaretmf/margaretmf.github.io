@@ -2676,15 +2676,6 @@ The force for good that works intuitively.
 
 **Word Associations:** control, force, system, submission, authority, train, drill, strucutre, skill, prison
 
-## Veil ##
-The true light within someone or a situation unveiled, unhidden.
-The mystery of it all made more transparent.
-The ignorance brought into sight.
-The curtain opening to show what's shielded.
-
-<br>
-
-**Word Associations:** shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
 
 ## Time ##
 Past, present, future weaving together.
