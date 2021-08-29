@@ -347,6 +347,16 @@ There's variance.
 
 **Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
 
+## Veil ##
+The true light within someone or a situation unveiled, and unhidden.
+The mystery of it all made more transparent.
+The ignorance brought into sight.
+The curtain opening to show what's shielded.
+
+<br>
+
+**Word Associations:** shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
