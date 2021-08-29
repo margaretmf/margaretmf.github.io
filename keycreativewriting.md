@@ -329,6 +329,24 @@ Moment by moment, we choose to stand in that goodness.
 
 **Word Associations:** eternity, hours, period, era, clock, ticktock, infinity, moment
 
+## Change ##
+Heading into new territory.
+It's foreign.
+There's a shift in how I am, and how things look.
+Undergoing a transition from one state, or stage to another state, or stage.
+There's a metamorphosis.
+I come out of the cocoon.
+I make revisions.
+It's a new season ahead.
+I switch, tune in, change, repent.
+Everything is on a new basis, a different foundation.
+I transmute myself.
+There's variance.
+
+<br>
+
+**Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
