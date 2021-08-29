@@ -200,3 +200,5 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 
 ## Note ##
 **Note:** In my portfolio, I put in double quotation marks terms, sayings, quotes, and article titles, even though normally some of these are italicized or put in single quotations. Throughout my portfolio, I italicize book titles, speech titles, and song titles even though song titles are normally put in quotation marks.
+
+<br>
