@@ -12,21 +12,24 @@
   
 - name: "Education"
   link: "education"
-  
+    
 - name: "Photography"
   link: "photography"
   
 - name: "Sketches"
   link: "sketches"
   
-- name: "Innvoation & Mindfulness"
+- name: "Painting"
+  link: "paintings"
+  
+- name: "Innovation & Mindfulness"
   link: "innovation&mindfulness"
   
 - name: "Spiritual Inspiration"
   link: "spiritualinspiration"
   
-- name: "Reading List"
-  link: "readinglist"
+- name: "Creative Writing"
+  link: "keycreativewriting"
   
 - name: "Resume"
   link: "resume"
@@ -37,15 +40,12 @@
 - name: "Calendar"
   link: "calendar"
   
-- name: "Teaching"
-  link: "teaching"
+- name: "Resume"
+  link: "resume"
   
 - name: "Coding Concepts"
   link: "codingconcepts"
-  
-- name: "Sketches"
-  link: "sketches"
-
+ 
 - name: "Github Portfolio as a Product - Product Management Tasks"
   link: "GithubPortfolioAsAProduct&ProductManagementTasks"
   
