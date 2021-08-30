@@ -337,199 +337,7 @@ Mortal mind blackens the human experience, causes man to fear, and deceives, and
 
 <br>
 
-**Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, black
-
-## Betrayal ##
-Betrayal is mischief.
-After helping someone, that someone commits treason and breaks the covenant.
-It leads to heartbreak for all involved.
-Mortal mind is a great trickster from the beginning, leading to perfidy.
-Envy is double-minded, and in the shadows of one's heart, like Judas, Brutus, not having someone's back, breaking a promise.
-Duplicity in motives, deceit is uncool.
-
-<br>
-
-**Word Associations:** duplicity, perfidy, Judas, Brutus, trickster, double, heartbreak, treason
-
-## Seeds ##
-One thought at a time we bear goodness and life in our minds and experience.
-A thought is a seed, and a seed can grow.
-A concept can develop into a full idea wholly.
-A seed is a new beginning, and the stem that gives it strength helps it live at its core.
-
-<br>
-
-**Word Associations:** beginnings, ideas, kernel, core, concept, embryo, germ, stem
-
-## Mother ##
-A mother holds her child, 
-walks with her child,
-helps her child get up after she falls.
-Childhood is wrapped up in, and cared for in the wombs of motherhood.
-There is warmth in this place of divine origin.
-
-<br>
-
-**Word Associations:** matriarch, origins, childhood, warm, womb, complex, goddess, caregiver
-
-## A Secret ##
-Some human experiences and thoughts that I must bury deep down in the darkest spot of my consciousness.
-I am ashamed and feel regret for such cryptic thoughts.
-People in the world hush you and think you are crazy for them.
-They cloud out what's real in the world around.
-The dark mist in our thoughts can turn to light and be exposed.
-
-<br>
-
-**Word Associations:** cryptic, dark, hush, private, clouded, mist, regret, buried
-
-## Dilemma ##
-A dilemma, a double bind.
-Feeling boxed in, and stuck in a mess of my own doing.
-There is a choice to make amidst the chaos, and the wrongdoing.
-It's a green plight indeed, a quagmire.
-
-<br>
-
-**Word Associations:** bind, choice, boxed in, impasse, scrape, plight, mess, quagmire
-
-## Dreams ##
-The fantasy inside my head of something unreal.
-A image in thought of something I wish for, or long for.
-It's a deep trance; people say I seem delusional.
-When reality comes to the surface, the fact of what people are really doing, the dream presents itself as an illusion.
-I had a vision, it was a beautiful mental picture, but it proved to be nothing but fancy.
-
-<br>
-
-**Word Associations:** fantasy, trance, thought, image, illusion, mental picture, fancy, vision
-
-## Travel ##
-On a trek to discover something new.
-Wandering without a destination.
-Touring a new, foreign place to understand another part of the world.
-Rambling through unknown places to appreciate nature.
-Expediting an adventure to experience the joy of going outside one's comfort zone.
-On a voyage to another side of the Earth.
-On a trip to see location A to location B.
-
-<br>
-
-**Word Associations:** trek, ramble, wandering, touring, expedition, tour, voyage, trip
-
-## Fame ##
-Known for the good done and expressed.
-Everyone living has done some good.
-Everyone should be and can be renown for the good done and being done.
-The bad done can be acknolwedged.
-The bad done can harm, reduce, and press down a reputation, but the gold within is always there to be refined.
-The immoral acts bring down popularity, but there's good ground we are all standing on to find high regards and good repute.
-
-<br>
-
-**Word Associations:** renown, repute, standing, acknowledgement, reputation, popularity, regard, immoral
-
-## Poetry ##
-Listening within I find the rhyme and reason to the universe.
-Attuning to the inner muse, I find the words to capture the feelings.
-I am in touch with the composition waiting to be created.
-The composition within sparks up in verse, in rhyme, and in stanza.
-It turns into a lyric, and an epic of tracks.
-All of life's highs and lows captured in a poem that can be turned into something larger.
-
-<br>
-
-**Word Associations:** verse, rhyme, stanza, composition, muse, rhythm, lyric, epic
-
-## Wishes ##
-The intention to love.
-The desire to sing.
-The aspiration to learn each day.
-The ambition to create something with what is already done.
-The longing to be better.
-The hope to succeed.
-The will to turn visions and dreams into reality.
-The yearning to forgive, let go, and speak with more compassionate tones.
-
-<br>
-
-**Words Associations:** intention, aspiration, ambition, hope, longing, will, yearning, desire
-
-## Food ##
-Thank you for the daily food to chew on.
-There's so much substance in it.
-I wish to digest it fully, and take delight in the taste, to imbibe all that it has to offer.
-My daily diet consists of taking care of myself with the nutrients.
-I eat what feels like heaven's cuisine, and take it all in, masticating it for the day.
-
-<br>
-
-**Word Associations:** imbibe, taste, chew, eat, digest, masticate, cuisine, diet
-
-## Education ##
-Education for a lifetime, a lifetime journey.
-Gaining an enlightened sense of Life and reality.
-Intelligence of man unfolding.
-Schooling in what it means to be in a culture, a society, a group, a family, a team, a classroom, a Earth, a world.
-Knowledge of right vs. wrong.
-Gaining the smarts to know what to do.
-
-<br>
-
-**Word Associations:** knowledge, smart, learn, teach, training, enlightenment, intelligence, schooling
-
-## A Garden ##
-A garden of thoughts, some good, some bad.
-The good thoughts, feelings unfold, beginning with the seed into a flower.
-At the roots, the evil thoughts are weeded out.
-The garden within grows and grows with a rosebud sprouting up through the soil.
-A terrace unfolds from that base.
-
-<br>
-
-**Word Associations:** flower, petals, soil, roots, seed, rosebud, Eden, terrace
-
-## Ice ##
-The water freezes into ice.
-Touching the transformed material chills mhy fingers.
-I must put gloves on because it's frigid, and frozen.
-I run my hand over the tip of the crystal clear iceberg in winter.
-It's a glacier.
-
-<br>
-
-**Word Associations:** chill, freeze, glacier, crystal, winter, iceberg, frigid, frozen
-
-## Science Fiction ##
-In the space alien to who I am, I am exploring a land that feels foreign, distance, and off into another time period.
-It feels like I have been abducted by a space-time void, invaded by another sense of the dimension of things, and taken into another galaxy.
-I am in a humanoid, where the space-time void enfolds and unfolds infinitely, and humanity is mirrored, but not real.
-
-<br>
-
-**Word Associations:** space, alien, explore, abduction, invasion, future, humanoid, galaxy
-
-## An Animal ##
-The untamed animalistic beast inside of me.
-It's wild and fierce, ferocious and untamed.
-It's like a feral cat for a human.
-Waiting to be unloosed, uncaptivated, and liberated into the domesticated sense of itself.
-A good creature inside, indeed, waiting to turn from the Beast to the Beauty, like all mammals do.
-
-<br>
-
-**Word Associations:** fur, tail, beast, untamed, wild, creature, mammal, feral
-
-## A Pet ##
-A dog, the best companion in life.
-Someone to feed, walk, cuddle with, hug, and kiss.
-More friendly than a cat.
-Just as fun to play with as a rabbit.
-Keeping man in good company like a parrot, or a snake, but not caged in or dangerous.
-
-<br>
-
-**Word Associations:** companion, dog, cat, turtle, rabbit, snake, company, parrot
+**Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, blac
 
 ## Heroism ##
 Heroism - as it goes, "everywhere, life is filled with it."
@@ -552,28 +360,6 @@ I am grateful for the good fortune, and gamble with what to do, knowing that som
 <br>
 
 **Word Associations:** luck, fortune, random, fate, remote, providence, gamble, destiny
-
-## Kisses ## 
-In our lowest moment, faith shall kiss our heart, and show us how loved within we are.
-Embraced by the lips of angels voicing our innate goodness and completeness, a clasping of a faithful heart-to-heart meets the great need.
-The passion within of the kisses of good leads us to find the warmth of the flame abright leading us to love everyone.
-A gentle touch on the cheek reminding them how precious they are, how gentle they are makes the day.
-Caressing softly with love makes the home on fire, lit aglow.
-
-<br>
-
-**Word Associations:** lips, cheek, warm, wet, clasp, passion, caress, embrace
-
-## A Waterfall ##
-The water rapidly moving down into the pool with endless possibilities, roaring into the river, and pouring into the pull.
-Walking up to it, I feel the spray and the foam on my cheek.
-The beautiful cascade of blue material forever flows on and on in a cycle.
-
-<br>
-
-**Word Associations:** cascade, power, possibility, rapids, spray, foam, roaring, pool
-
-## Summer ##
 
 ## Ecology ##
 Everyone, everything working together harmoniously for good.
@@ -600,17 +386,6 @@ What was the convention yesterday may not be the convention today.
 
 **Word Associations:** values, custom, heritage, legend, fable, culture, folklore, convention
 
-## Affection ##
-Are you going to buy into the madness?
-It wasn't you, it wasn't of God.
-Choosing to love, to care, to appreciate, to devote to the Truth of being.
-The warmth of a smile, a greeting, a tender hug, a note of appreciation.
-Not held by the past, but a day made new by new affections, with the tingle brought to my heart.
-
-<br>
-
-**Word Associations:** crush, itch, amore, devotion, caring, warmth, tingle, tender
-
 ## A Walk ##
 I take a walk down memory lane.
 I stroll, and see all the good people and beautiful images that have touched my life.
@@ -625,55 +400,6 @@ I know there is infinitely more to love and learn during the next phase of the w
 
 **Word Associations:** stroll, fresh air, pulse, footsteps, path, promenade, breeze, wander
 
-## Flavors ##
-So many flavors in life.
-There are many ways to taste part of our culture.
-The sweetness of people serving food in a Chinese Restaurant,
-the zest of people dancing in the street,
-the savor of someone preserving the past essence of America,
-the spiciness of people opening up a new business,
-the relishing of ideas that make us think home and hotel halls,
-and the tang in a dance show.
-
-<br>
-
-**Word Associations:** taste, sweet, zest, savor, essence, spicy, tang, relish
-
-## Pride ##
-Taking pride in all things great about your people and your land.
-Expressing arrogance, a sense of superiority that one is better than another.
-Boasting how great one is while believing others are inferior or superior.
-Showing the confidence to enjoy life and having the pomp to prove to someone else they don't live life correctly.
-Expressing the dignity to express good cheer, and good peace.
-Having an ego filled with what's right for oneself and a love for all of humanity.
-
-<br>
-
-**Word Associations:** lion, dignity, pomp, ostentation, arrogance, boast, confidence, ego
-
-## Trust ##
-I take stock in everything I have done correctly, and the light shining in everyone.
-With surety, I know that goodness is unfolding.
-With conviction, I know I can find what I need and there's harmony.
-I am loyal.
-I fill myself with integrity.
-I take charge of the new day.
-I work steadfastly to love, be cheerful, and connect.
-
-<br>
-
-**Word Associations:** stock, sure, credence, conviction, loyal, integrity, charge, steadfast
-
-## A Fragrance ##
-A sweet smell of goodness, mercy, and love, coming from a bouquet of new ideas and projects.
-Gracious aroma blessing the whole Earth, with the smell of it.
-A savory, intoxicating subtle way to express a love for someone.
-There's a balm of freshness, coming from the honeysuckle.
-
-<br>
-
-**Word Associations:** bouquet, balm, aroma, savory, musk, honeysuckle, intoxicate, subtle
-
 ## Opportunities ##
 There's a new horizon ahead.
 There's a wide scope of opportunities.
@@ -686,20 +412,6 @@ Carpe Diem.
 <br>
 
 **Word Associations:** horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
-
-## Meditation ##
-Stop the rumination, the guilt, the worry.
-God knows each and every concern.
-Stay tranquil, and ponder the good in life, the beauty.
-Meditation is the consciousness of good.
-Choose to be peaceful, joyful.
-Enjoy the reflections of the light within.
-Ponder all the interconnectedness of humanity, and the rapture of a lively home.
-Be grateful for Zen.
-
-<br>
-
-**Word Associations:** rumination, reflection, peace, introspection, tranquil, rapt, Zen, ponder
 
 ## Equality ##
 I am equal to him riding his bike.
@@ -730,17 +442,6 @@ The determination within to keep going.
 
 **Word Associations:** freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
 
-## Reliability ##
-Childlike innocence in tact.
-Even after doing something wrong, the intuition of what's right is constant and incorrupt.
-The source of all knowledge reliably points us back to our decency, and what character traits are solid within.
-The upright spirit choosing to be joyful, creative, loving, disciplined, complete, honorable, and not touched by anger is within.
-Staunch, and committed to reaching the goal.
-
-<br>
-
-**Word Associations:** incorrupt, honorable, constant, solid, trusty, staunch, decency, upright
-
 ## Patience ##
 Wanting to react, but choosing to pause.
 Experiencing anxiety, dividedness, but finding the peace within.
@@ -755,121 +456,6 @@ Being pulled by the stir, but experiencing the gentleness within.
 
 **Word Associations:** stoic, serene, calm, peace, composure, humility, gentleness, placidly
 
-## Perspective ##
-I wake up with a new perspective on Life, on Earth each day.
-I wake up to see the sun from a slightly diffferent angle each morning.
-I can understand current events from another's viewpoint each day.
-I can shift my perception above the current context, and see the whole scene.
-The expressions of life are broad, the frame to appreciate life is wide.
-So many activities, so many places in which to express joy, order, grace, patience, and forgiveness.
-There are always wonderful vistas ahead each day.
-
-<br>
-
-**Word Associations:** viewpoint, context, scene, vista, shift, frame, broad, angle
-
-## A Voyage ##
-On a voyage to a new land, and the passage to the unknown.
-It's new, it's uncertain, there's fear.
-Moving across with courage, trusting God with each step.
-One step leads to another with constant discovery, and unearthing.
-It's okay to explore, experiment, play around.
-Life is not stagnant, life is a journey.
-There's a constant search for goodness, new ideas, and new ways of being.
-
-<br>
-
-**Word Associations:** passage, jaunt, journey, crossing, discovery, vessel, explore, search
-
-## Moments ##
-Life is a series of moments, of being conscious of the light, the love.
-An occasion to care, a flash taken by the mental camera, an instant of gratitude, a present day, a pause before a reaction, a twinkling blinking of an eye, a lingering hellow, a savor.
-
-<br>
-
-**Word Associations:** occasion, flash, instant, present, pause, savor, twinkling, linger
-
-## Control ##
-Control.
-Peace within gives control.
-Faith in oneself, others, and the harmonious unfolding of life gives control.
-There's a higher power controlling all aspects of life.
-I am governed by a harmonious force.
-In tough situations, I have dominion over the wrong.
-I restrain myself when I want to react.
-The authority is good, symphonious, and nothing is missing, or lacking.
-I cannot be swayed for evil under this control.
-An intelligent force is monitoring everything to keep everyone in check.
-
-<br>
-
-**Word Associations:** govern, dominion, restraint, clout, authority, direct, sway, monitor
-
-## Pain ##
-Pain, torment.
-Tormented with lack, being mocked.
-Aching within.
-Ignored.
-Condescended.
-Grieving over loss, mourning over what has gone wrong.
-Suffering in silence, and afraid to speak up.
-Forever in the depth of the darkness.
-Finding ways to soothe oneself, free from the wounds, and heal by finding the inner wholeness.
-
-<br>
-
-Word Associations: ache, grief, wound, suffer, healing, forever, deep, torment, sorrow, soothe
-
-## Expectations ##
-An expectation - a knowing that something good will happen.
-Founded in a promise that there will be a kind person, a wake up call, something new to learn.
-Rested in a motive to understand life and improve.
-Based in a hope for the divine reality of mankind coming to full fruition.
-Association with a potential action springing from a thought in God.
-Supported by the design of the universe causing good prospects to live always.
-
-<br>
-
-**Word Associations:** promise, notion, supposition, design, motive, prospects, hope, potential
-
-## Blessings ##
-Blessings abound every day.
-Constant grace, new ways to give thanks, new ways to supply a need.
-Benedictions for the good going on.
-Gifts bestowed even when undeserved.
-Good luck for the ashes.
-Constant bounty of mountains.
-A bestowal of supplies. A boon.
-
-<br>
-
-**Word Associations:** gifts, grace, thanks, benediction, luck, boon, betstow, bounty
-
-## Values ##
-The values that our parents and teachers share with us show us how to treat people, cope with challenges, and recover after doing something bad.
-Standards of living, being, and doing provide the code to decisions.
-Upward, higher ideals lead us to who we really can be.
-An inner conscience rebuking oneself or others when something is wrong, guiding us to higher ethics.
-Thank you for the mentors who help to correct and help people get back up with good mores.
-
-<br>
-
-**Word Associations:** mores, scruples, ethics, standards, conscience, ideals, code, tenet
-
-## Laughter ##
-A joy, a smile, and a good laugh after a mistake.
-It hurts my belly in a weird way because I laugh so hard.
-After a fall, a laugh is such good medicine, the best medicine indeed.
-I rejoice in knowing that it's not that big of a deal.
-I don't have to take myself too seriously, someone can poke through my funny bone and lead me to improve.
-I can share some merriment with someone. It comes with a burst of sound.
-It pokes a hole through me to see just how strong I am with humor as a shield.
-It comes in a shriek and a howl, and nothing is hurt after all.
-
-<br>
-
-**Word Associations:** joy, belly, medicine, shriek, howl, merriment, rejoice, burst
-
 ## Silence ##
 The beauty of silence, of quiet.
 It hushes the noise all around.
@@ -883,76 +469,6 @@ It's the lull in the darkness.
 
 **Word Associations:** hush, lull, peace, calm, quietude, stillness, whisper, profound
 
-## Solitude ##
-Alone, I rest in peace, gather thoughts, enjoy loving something.
-In isolation, I find my self, my voice.
-In privacy, I sing a song and learn to love life.
-As a recluse, I find my source of energy within.
-In seclusion, I heal from the outside world and seek to understand the outside world.
-
-<br>
-
-**Word Associations:** alone, isolation, seclusion, recluse, introvert, private, remote, hermit
-
-## Romance ##
-The thrill of seeing your partner smile and love you back.
-The passion when finding someone share a laugh, a walk, a car ride, or a song with you.
-The intimate details being shared of one's desires, cares, concerns, faith that should be cast on God.
-The desire to grow together, express common goals, be a part of the collective humanity.
-The freedom from entanglement with other people.
-The freedom from outside affairs with people.
-
-<br>
-
-**Word Associations:** thrill, amour, affair, flirtation, entangle, intimacy, passion, desire
-
-## Appreciation ##
-I see work someone does, or experience someone doing something positive.
-I appreciate them and who they are.
-I am thankful for their presence in my life.
-I express gratitude for their impact in my life.
-I salute people who are unique, valuable, and distinct.
-I hold them in high regard, and high veneration.
-
-<br>
-
-**Word Associations:** gratitude, tribute, thankful, salute, favor, regard, esteem, veneration
-
-## Carpe Diem ##
-Carpe diem, sieze the day.
-Choose to live boldly, go outside the comfort zone, dare to do something different, and start a new endeavor and commit to it fully with audacity.
-Have the nerves to laugh, and to love, to speak, and to smile, and to dance.
-Choose boldly to see, capture, and create the beauty.
-Really live.
-Pluck out all the negativity.
-
-<br>
-
-**Word Associations:** live, pluck, seize, dare, boldness, endeavor, audacity, nerve
-
-## Colors ##
-The true colors within someone, waiting to shine through like an inner rainbow coming out of the storm.
-In all its brilliance, all the colors are there, reflecting all the many hues displayed through the world.
-Many pigments and shades captured within the inner and outer expression of all that can be experienced in life inwardly and outwardly.
-From vermillion to cobalt to scarlet, so much is there, waiting to unfold in the light like an inner prism, part of an outer prism.
-
-**Dolly Parton's song** 
-
-<br>
-
-**Word Associations:** pigment, shade, tincture, complexion, scarlet, cobalt, brilliance, vermillion
-
-## Conflict ##
-A fight over something or someone.
-The strife that comes with feeling like you want something but knowing it's not good for you.
-The clash of perspectives and ways of seeing the world that are unaligned with the common reality.
-A break of trust between people.
-A fray of ideas unraveling in agitation.
-
-<br>q
-
-**Word Associations:** fray, breach, clash, rival, contest, embroil, protagonist, strife
-
 ## Forgiveness ##
 The return to one's self.
 The change involved when letting go of false beliefs.
@@ -965,39 +481,6 @@ God moving the sinner with compassion that heals and lights through the obstruct
 <br>
 
 **Word Associations:** clemency, compassion, mercy, absolution, leniency, charity, grace, repent
-
-## Growth ##
-A surge of frustration, anger, wants surge inside me.
-A purer sense of love for people and all mankind sprouts and begins to flower.
-With the anger, frustration, comes the purer love.
-There's a swell of goodness going on the universe today.
-This I love.
-Forever, the goodness of God unfolds.
-I am in harmony, in symphony with it.
-Mankind is made to prosper and bloom year to year as the flowers do.
-The bud within is made to open to full grace.
-
-<br>
-
-**Word Associations:** surge, prosper, flowering, sprout, swell, unfold, boost, bud
-
-## Hate ##
-What do I hate?
-Being exposed to people who ignore or cast jugdment.
-Being rejected.
-Being threatened.
-Making mistakes.
-Being patronized, or condescended.
-The venom of hate strings, and consumes the day.
-The spiteful spirit within that takes no care for the people around them.
-The aversion to people.
-The ire, the malevolence, the bile.
-Hate leads to wrath.
-It's the absence of the love that lies deep within everyone's heart.
-
-<br>
-
-**Word Associations:** ire, venom, spite, scorn, malevolence, aversion, bile, wrath
 
 ## Humility ##
 Having the humility to own up to the things done wrong,
@@ -1025,70 +508,6 @@ Images seen through the eye originally are romanticized, not see in the full lig
 
 **Word Associations:** vivid, invention, fantatstic, stimulating, vision, enterprise, originality, artistry
 
-## Innocence ##
-Childlike innocence. 
-A pure heart that is untouched by sin, want, decay, or unloveliness.
-A love for anyone and artless ability to play in life joyfully and freely.
-Virtuous in the face of adversity.
-Modest when achieving success.
-Impeccable with one's words with people.
-Decent when going out of the house.
-Tempered when relating to people.
-A clean, gentle spirit able to laugh and have fun.
-
-<br>
-
-**Word Associations:** virtue, clean, lamb, impeccable, artless, modesty, decency, temperance
-
-## Inspiration ##
-A new insight into the reality of life.
-The insight comes through revelation and intuition.
-On a whim, hearing something new, seeing something new.
-Living with a constant sense of delight for what is possible.
-Grateful for the latent talents that come out of nowhere.
-A boundless sense of elation supporting one's ability to spring up quickly.
-
-<br>
-
-**Word Associations:** whimsy, insight, elation, fervor, delight, talent, fancy, revelation
-
-## A Journey ##
-A journey to a new place, a new way of living.
-Roaming through the world to discover new ideas, new viewpoints, new ways of being.
-Traversing through the streets to apreciate the beauty.
-Expediting the adventure to arise to a new height of understanding, living, perspicacity.
-Wandering through the woods to unearth the past, and discover something unfound.
-Going on an odyssey to explore new territories.
-Sojourning to make new ways possible.
-
-<br>
-
-**Word Associations:** pilgrimage, sojourn, roam, traverse, odyssey, expedition, circumnavigation, wander
-
-## Judgment ##
-Ability to distinguish, to see what one needs to know about a situation.
-The intuition to know where to go, and how to handle a situation.
-The perception of the true heart within a neighbor.
-Prudence, the the discernment of what's wrong from right.
-The wisdom that goes before and helps one be patient through adversity.
-The knowledge that goes before and sides with the morality rootted in God.
-The saavy to stop what's not contributing to the higher good.
-The reason behind a choice.
-
-<br>
-
-**Word Associations:** acumen, savvy, reason, intuition, sense, perception, prudence, wisdom
-
-## Moving On ##
-One door closes loudly, and another door opens quietly.
-Hasten to move through the new door opening quietly, and learn from the mistakes of the old door closing.
-Go forth with momentum, the intention to progress, and proceed as if the past cannot still affect the person becoming.
-Continue to learn, push through the obstacles, and launch the new day.
-
-<br>
-
-**Word Associations:** hasten, momentum, go forth, launch, progress, proceed, continue, push
-
 ## A Mystery ##
 Why are events happening the way they are? I do not know.
 It's a mystery, an enigma to me.
@@ -1103,41 +522,6 @@ I choose to walk over the crux trying to entrap, and ensare me.
 <br>
 
 **Word Associations:** conundrum, pickle, quandary, crux, enigma, puzzlement, charade, baffle
-
-## Paradise ##
-Heaven within, where no passion can reign.
-Balanced bliss governing the day with thoughtful intentions and freedom from want.
-Pure delight found in the joy of making someone happy.
-A utopia created externally from leaning on the grace of goodness and simplicity within.
-Boundless bliss expanding infintely.
-A nirvana, wehre stress has no power at all.
-
-<br>
-
-**Word Associations:** eden, Elysium, heaven, bliss, delight, utopia, transport, nirvana
-
-## Passion ##
-The fervor to do something.
-An intense excitement within for something.
-Taking the heat that lights up the Earth with love, and renewal.
-A fervent desire to grow in harmony, love, grace, and good cheer.
-A reason within to live another day with ardor.
-The zeal within to move forward.
-Lust for something that can't be had.
-
-<br>
-
-**Word Associations:** ardor, ferver, intensity, heat, zest, lust, desire, zeal
-
-## Sleep ##
-In sleep, I dream, and find peace.
-I doze off into a land where there's constant love.
-In sure repose, I find the silence, the love, the vision of snow, grace, beauty all around.
-I enter into a trance, slumber, and then wake up.
-
-<br>
-
-**Word Associations:** dream, doze, Morpheus, repose, torpor, trance, slumber, somnolence
 
 ## Soul Mate ##
 In Soul, the source of our souls and hearts, we may find multiple kindred spirits.
@@ -1185,18 +569,6 @@ As I grow older, I pass by those elders who are more mature and venerable.
 
 **Word Associations:** golden years, mature, dotage, decline, elder, venerable, evolved, perfected
 
-## A Choice ##
-Making a choice to let it go, give it up, and love someone else.
-Making the choice to step over the dilemma keeping me in bed and walking down the path unfolding with grace in my heart.
-Choosing to tackle the challenge and overcome the problem.
-Married to the idea and the one there is to love, seeing all there is that they can offer from the basis of their true self.
-Making a logical decision rather than giving into passion.
-Taking the alternative road rather than do what's popular and choosing to be confident with it.
-
-<br>
-
-**Word Associations:** marriage, path, challenge, alternative, dilemma, passion vs. logic, popular, ballot
-
 ## Jealousy ##
 The strife from wanting what someone else has and feeling the need to compete.
 Envying them because they express something fully that seems incompletely expressed in me.
@@ -1221,21 +593,6 @@ Taken over by the angst of what needs to be done and the tremors on the Earth.
 
 **Word Associations:** dread, tremor, paralyzed, foreboding, nightmare, creeps, jitters, angst
 
-## A Breath ##
-Something speaks to me in the depth of my soul to lead me to rise up for another day.
-Rise up to the sounds, rise up to the light, rise up to the cheerful phone calls.
-A way of being moves through me, there's something at the depth of my breath that is not myself animating me.
-With inspiriation, I feel energized for the day for myself and others.
-The good thoughts roll off on everyone around, leading to fresh insights for everyone.
-In the depth of the pain, there's a gasp of wind in humanity moving me forward with a book or a dance on the street.
-Some say I inspire them, I surprise myself, and my thoughts expand and renew my views.
-I gasp for the air of good cheer, and clear insights, and catch the wind.
-It's fresh, like the breeze.
-
-<br> 
-
-**Word Associations:** inspire, expand, renewal, energize, gasp, wind, freshen, depth
-
 ## A Shadow ##
 A dark side underlying the light.
 The false, fake, sham part of the two-faced being.
@@ -1252,39 +609,6 @@ It's the self hidden by the lightlessness, waiting to evolve from shadow to ligh
 
 **Word Associations:** two-faced, dark side, lightless, mimic, obfuscate, blacken, obscure, extinguish
 
-## Society ##
-It's a trend to use social media and then take a break.
-It's fashionable to wear cowboy boots and listen to country music.
-Populism capitalizes on the false stories, sentiments, and stereotypes shared through the media.
-Opinions have no weight in God's kingdom within, and without.
-Sometimes people are outcasted because of the weight of human opinion.
-It's the responsibility of mankind to let go of, spurn the wrong, and interpet what they need, hear, and see.
-Don't believe it all.
-Progress is built on understanding.
-Seek to understand another's viewpoint, and perspective.
-
-<br>
-
-**Word Associations:** trend, media, opinion, populism, fashion, responsiblity, outcast, progress
-
-## Forgetting ##
-Disremembering the wrongs of the past, letting the false experiences go completely away in consciousness, moving the negative experiences into oblivion, and starting on a clean slate with the error ommitted. Escaping the dark skeletons in the closet to be as fresh as the sunlight.
-
-<br>
-
-**Word Associations:** oblivion, disremember, consign, escape, pass, omit, scorn, clean slate
-
-## Luck ##
-The windfall profit found from a chance encounter to a new land when availing oneself of the blessings.
-Through luck, there's a win, and a breakthrough that beats the odds.
-Fortune made though such a fire stroke that hits right on target.
-Huge glory and abundance ahead that meets the infinite need.
-Grace in disguise, synchronized working out for the best for oneself and mankind.
-
-<br>
-
-**Word Associations:** stroke, profit, win, windfall, break, avail, odds, fortune
-
 ## Regret ##
 Wow. That was such a big mistake.
 I should not have done that in the land of bitterness, and in my self-defeat.
@@ -1295,17 +619,6 @@ Repining for rue.
 <br>
 
 **Word Associations:** penitence, self-reproach, repine, bitterness, lament, bemoan, rue, defeat
-
-## Confessions ##
-Taking the wrong up to talk it down.
-Acknowledging the harm done, owning up to the wrong.
-Turning to God or to someone about the misdeeds, the mistakes, and the regrets.
-Feeling guilt, and seeking and receiving forgiveness.
-Finding absolution after living in contrition, sharing the darkness, and letting it roll off in sacarament with newer, higher, and diviner views.
-
-<br>
-
-**Word Associations:** misdeeds, mistake, absolution, regrets, contrition, guilt, sacrament, forgiveness
 
 ## Insanity ##
 Falling to pieces mentally,
@@ -1319,105 +632,6 @@ Working hastily and showing folly.
 <br>
 
 **Word Associations:** delirium, lunacy, mania, irrational incoherent, delusion, neurosis, folly
-
-## A Surprise ##
-An unexpected event that awakens one to see something, more of reality.
-It's baffling to understand and solve the puzzles.
-How could this have happened?
-It's so astounding.
-A sudden epiphany, with exclamations out of nowhere.
-A flood of information that feels like a Godsend.
-Ambushed by the surprises.
- 
- <br>
- 
- **Word Associations:** sudden, exclaim, unexpected, epiphany, godsend, ambush, astound, baffle
-
-## A Voice ##
-People say they can't hear your voice.
-It's so soft, and so passive.
-It's being shut out by the hollers.
-The voice is within though.
-It speaks like a whisper, feeling good inside.
-It is the inner conscience sharing the truth loudly, clearly, and freely.
-It is the instinct to know what is right from wrong.
-It murmurs the right answer in one's heart.
-
-<br>
-
-**Word Associations:** murmur, whisper, holler, soft, husky, sultry, conscience, instinct
-
-## Sharing ##
-Someone approaches someone else in need, and someone else offer to provide support.
-Someone cooperates with someone else, and work as in a team with someone else.
-The two collaborate as one makes a sacrifice, and the other receives charity.
-The two work harmoniously as one gives generously, and the other receives a ration.
-
-<br>
-
-**Word Associations:** support, cooperation, ration, teamwork, collaboration, sacrifice, charity, generosity
-
-## Water ##
-The deep, clear water that runneth through the earth and separates the country.
-It flows through the earth from the ocean to the land and cycles around, giving life and purity.
-The sky soaks it up, it changes elements, becomes vapor, and is a flood.
-
-<br>
-
-**Word Associations:** vapor, ocean, sky, life, cycle, shallow, sprinkle, flow, element, flood
-
-## Reliable ##
-Being consistently on time, ready to go, ready to help.
-Expressing the same quality over and over again.
-Demonstrating predictable behavior when a promise is made, it's guaranteed that it will be kept without error, with stability.
-Relying on a safe foundation, free from the need to test out.
-Being always there, ready to go, reliable.
-
-<br>
-
-**Word Associations:** quality, stability, bias, error, prediction, test, guarantee, safety, foundation, sense
-
-## Letter ##
-Remembering all of the letters friends and family members sent at camp.
-What a joy to write with pen on a card and put the card in an envelope, and lick the envolope and stamp it.
-Writing slows thought down.
-What a joy to receive a card in the mailbox from someone.
-
-<br>
-
-**Word Associations:** letter, memories, pen, card, envelope, send, stamp, write, reception, mail
-
-## Chore ##
-The grace expressed in doing chores, stacking clothes, cleaning dishes, running the laundry machine.
-Running these errands are some of the greatest gifts in the world.
-What joy comes from singing through them like a novice or like a child works through routine tasks.
-Not a robot but like Cinderella singing and not neglecting a single detail.
-
-<br>
-
-**Word Associations:** errand, sing, novice, fix, childhood, task, routine, Cinderella, neglect, robot
-
-## Style ##
-She's a woman with style, grace, and flair.
-Nothing gets to her.
-She's royal and strong.
-She's fashionable, dressing well.
-Everything on display fits her and every sign supports her decoration.
-
-<br>
-
-**Word Associations:** flair, grace, fashion, figure, display, ornament, sign, dress, royalty, decorate
-
-## Face ##
-The face of God reflected through all the face of humanity, smiling, and laughing, or sometimes crying.
-The expression of joy, or sorrow on humanity's face.
-The image of beauty in the sky.
-The good comes back to the surface, the mirror.
-The head is Life.
-
-<br>
-
-**Word Associations:** beard, mask, expression, head, image, reputation, surface, makeup, confront, mirror
 
 ## Swallow ##
 The truth is hard to swallow.
@@ -1442,15 +656,6 @@ With the nourishment of water, it becomes something lives and flourishes with wi
 
 **Word Associations:** seed, buried, growth, ground, heart, life, flourish, nourish, water, become
 
-## Destiny ##
-The epic course for life that God designed.
-It's fate to land here, and meet and help these people.
-It's epic that an omniscient source of intelligence guides, and shapes the paths forward so that all is made manifest for His glory and His birth, and His seed to live.
-
-<br>
-
-**Word Associations:** fate, manifest, birth, epic, course, prophecy, shape, guide, tragic, seed
-
 ## Letter ##
 Your song is a secret letter speaking to the deepest darkness and lightest light of my heart.
 Your song is like a note in an envelope holding up a mirror to the ghost of the past and the truth of the Christ.
@@ -1473,31 +678,6 @@ No question about it, in God's mysterious workings and intuitions, he connects o
 
 **Word Associations:** surprise, unexpected, curiosity, wonder, clue, suspect, question, riddle, darkness, secret
 
-## Men ##
-Men, the best people in the world.
-They have the power.
-They provide the defense.
-They are our brothers, and cousins, teaching us how to be better friends.
-They end wars.
-They take care of the provision.
-They are the king of all kigns, with the glory of true fatherhood, sonship, and husbandry.
-
-<br>
-
-**Word Associations:** power, father, husband, brother, son, alpha, defense, war, provision, king
-
-## Distance ##
-Finding the space to think things through, understand, and process emotions.
-Distancing oneself from the chaos, the scene, the drama.
-Moving to the point at which one can be oneself freely.
-Gaining the right place to travel without pain, judgment, coldness.
-Finding the difference between the real, and the false, others and oneself.
-Standing at the line of coldness and lack of sympathy of others hearing the true voice within.
-
-<br>
-
-**Word Associations:** space, point, measure, difference, line, void, travel, emotion, pace, cold
-
 ## Forbidden ##
 The forbidden forest.
 The place where one cannot go.
@@ -1513,34 +693,6 @@ It's shaky, that's why a rule through religion keeps the fruit contained and unt
 
 **Word Associations:** fruit, taboo, danger, ban, rule, sin, untouchable, snake, religion, zone
 
-## Fight ##
-It's really a fight, within and without.
-At odds with reality and what's going on.
-Rebelling against the norm.
-Arguing with those in power, those in authority, those who feel superior.
-Mocked, teased, and harassed by the enemy's voice.
-Dueling with what's wrong and right, but surrendering to what's right.
-Finding allies to help win and overcome the numbered enemy's voices.
-
-<br>
-
-**Word Associations:** duel, enemy, odds, rebel, ally, blood, win, surrender, number, power
-
-## Holy ##
-The holy ground,
-the health and wholeness within,
-the meekness to rest upon the divine blessings,
-the spirit of peace and patience,
-the vow to hold off from sin,
-the angels on the pathway,
-the book that gives the truth,
-the soul within,
-the true religion.
-
-<br>
-
-**Word Associations:** divine, religion, spirit, bless, book, prophet, soul, vow, sin, angel
-
 ## Music ##
 The metaphor of music in life has lied, echoed, and resounded since the beginning of time.
 Everyone living in harmony, people working to harmonize.
@@ -1551,258 +703,6 @@ Some words become a lyric in line with the rest of the band.
 <br>
 
 **Word Associations:** lyric, funk, rap, melody, harmony, chord, note, line, lute, band
-
-## Cycle ##
-A new cycle of life beginning.
-A new beginning.
-The starting point on a circle, rotating around and around.
-The old becoming new.
-The past learned so that new stories can be created.
-A sequence that is then shifted to a new rotation.
-A new routine developing, an adaptation like in music that helps the circle enlarge, grow, renew.
-The dropping of old past, old baggage.
- 
- <br>
- 
- **Word Associations:** water, rotation, bike, life, vertex, carbon, music, circle, routine, sequence
- 
-## Stranger ##
-Someone on the outside, living in the shadows of life's existence.
-It's a mystety why she's so unknown to people, living in the dark, enraptured by the loneliness.
-She's foreign, she's different, she's unfamiliar, yet she has something new to offer and a heart to light up the whole room.
-
-<br>
-
-**Word Associations:** lonely, outsider, shadow, unknown, darkness, mystery, new, foreign, different, unfamiliar
-
-## Money ##
-Every day, people exchange money for goods.
-In God we trust, and place our value, when attracted to the things that the purse buys.
-There's a price to everything, so I spend carefully, and protect the bank from greed and stealth.
-It's a luxury to make these exchanges everyday.
-
-<br>
-
-**Word Associations:** luxury, value, purse, price, greed, steal, operation, exchange, attraction, bank
-
-## Undergound ##
-Deep undergound, where the soul goes to find respite.
-Burying one's heart in the tunnel beneath the earth's rock, where there's a chamber of dirt supporting a bloom.
-A great treasure lies deep underground, waiting to be mined.
-I can be a fugitive from this hostile earth's existence and live in the subway to freedom.
-
-<br>
-
-**Word Associations:** mine, treasure, coffin, tunnel, subway, well, crypt, chamber, magma, fugitive
-
-## Betrayal ##
-Failing to stay loyal to people.
-Failing to keep the trust in the relationship.
-A greatest enemy, someone not capable of looking deeper to understand.
-A manipulator, someone using someone for their own gain.
-Vengeance after being stabbed in the back after trying to trust.
-Alliances to help community, someone like Judas, a traitor.
-
-<br>
-
-**Word Associations:** enemy, turst, spy, manipulation, traitor, vengeance, Judas, stab, alliance, loyalty
-
-## Education ##
-Life is continuous education.
-A lesson to learn from everyone someone meets.
-A new skill to learn every day.
-Constant training, testing, and refining for the purpose of life.
-A larger instituion of improving, and giving.
-
-<br>
-
-**Word Associations:** train, skill, judgment, class, refine, bachelor, test, institution, program, segregate
-
-## Stolen ##
-A gem of great price within that feels stolen, trampled upon, violated.
-The good work done stolen, not guarded.
-The dreams ransom, thundered on.
-Straight ways made crooked.
-The good in human character villainized.
-
-<br>
-
-**Word Associations:** dreams, crook, gem, villian, price, ransom, lurk, thunder, land, guard
-
-## Charge ##
-Taking charge of what needs to be accomplished.
-In the hour of darkness, the angels spy and conspire to take charge of everything.
-In the moment of guilt-riddenness, fine, thoughts of peace explode and come to the rescue for the plea.
-
-<br>
-
-**Word Associations:** horse, bill, electric, murder, spy, guilt, fine, conspire, plea, explode
-
-## Bloom ## 
-My heart longs to hide in the deepness of the dirt where the seedling is buried and the roots spread throughout.
-Out of the ripening of this earthgroud plant, this earthground rocks, comes a beatuiful, fresh season filled with bounty, spreading across all the land from a small beginning, springing to a full flower, touching all the points of the land, the country, the earth with love everything else is plucked out and flows out like honey.
-
-<br>
-
-**Word Associations:** flower, complexion, spring, beauty, fresh, love, sesaon, honey, pluck, ripe
-
-## Details ##
-The devil is in the details.
-Details matter.
-Perceiving them, working with them thoroughly.
-Small, specific facts and observations carry weight in building up to the whole.
-They aren't mundane .
-They are personal parts of the outline.
-They matter to the diary, the biography, the whole travel.
-
-<br>
-
-**Word Associations:** small, diary, biography, outline, whole, fact, specific, mundane, travel, personal
-
-## Culture ##
-Ways of living and behaving that belong to a group people share these ways through assimilation.
-There are stereotypes based on assimilations.
-Over time through civilization, values, and characters develop.
-Maps show how cultures weave through the world in different places.
-Art is an expression.
-
-<br>
-
-**Word Associations:** art, map, bacteria, build, assimilate, civilization, lifestyle, stereotype, value, character
-
-## Comedy ##
-The breakdown, the reaction is so ridiculous, it's like slapstick comedy, giving people a reason to laugh.
-It's so out of the ordinary, it's tragic, and staged.
-It's such a strong gag, that someone must satirize and turn humanity's vices into high art.
-Drama in humanity becomes showtime in no time.
-A direct sketch of everything comical in every day life.
-
-<br>
-
-**Word Associations:** sketch, showtime, direct, laugh, satire, gag, tragic, art, drama, stage
-
-## Symbol ##
-A representation for something to be known, and understood.
-A sign signaling a missing puzzle piece.
-A pictograph of an idea with meaningful importance.
-A code expressing metaphors, and constellations.
-
-<br>
-
-**Word Associations:** tattoo, sign, code, talisman, metaphor, constellation, mascot, meaning, representation, importance
-
-## Mutation ##
-A change in the code to life,
-mutating the pattern, the order,
-triggering renewal, and destruction all at once,
-leading to an inherited difference in behavior and being,
-a monstrous shift,
-an experiment with a new breed of thinking,
-a trigger to adapt,
-a random event that leads to a structural cleavage.
-
-<br>
-
-**Word Associations:** change, inherit, trigger, code, offspring, monster, experiment, cleave, random, breed
-
-## Fire ##
-The fire within that lights someone up.
-The enflamed heat that cares for our heart and its sincerest desires.
-The kindling of what helps people feel at home.
-A passion within for someone tht helps us explode with joy.
-The bonds shared around a camp.
-The overcoming of the hell of lusts, anger, and depravity.
-The red drag of reactions and lashing out and hurting people.
-
-<br>
-
-**Word Assocations:** heat, flame, camp, explode, bomb, kindle, Hell, passion, dragon, cook
-
-## Story ##
-Every one has a story of faith transforming them.
-Every one has a story of ancetors in other countires and the US.
-Respecting the accounts, and the backgrounds of others that they share, and trusting them in their ability to be free and progress spiritually in the light.
-Incorporating the sides of African Americans into the publishing of stories and narratives.
-
-<br>
-
-**Word Associations:** lie, plot, epic, myth, beat, edit, entertain, account, publish, picture
-
-## Peace ##
-The kingdom of heaven within, 
-the peace within,
-the quiet within,
-the ability to pause,
-the rich reward for hardship,
-the offering of the Love from God and other people,
-the civil conduct in relationships with people,
-the pact to stop throwing a fight.
-
-<br>
-
-**Word Associations:** award, relation, civil, envoy, olive, quiet, pact, garden, offering, go
-
-## Women ##
-Gentle beams of living love.
-The expressions of the calm, and peaceful life force.
-People with a strong sense and connection to nature.
-Anchors to life as sisters, mothers, and wives.
-Protectors of the earth.
-People who can "help the women nearby adjust their crowns" with a rejoicing heart.
-
-<br>
-
-**Word Associations:** life, protection, attraction, sense, nature, sister, mother, wife, queen, anchor
-
-## Temptation ##
-The lure to engage in something that's not right for oneself, that's wrong,
-the pull to sin,
-the snakey voice that leads to reactions, a draw to sexiness, hotness,
-the cravings for what is not healthy,
-the desire to be wild,
-and the voice of the devil belitting, patronizing, defining someone as less than pure ideas.
-
-<br>
-
-**Word Associations:** devil, lure, wild, shame, sin, resist, snake, craving, struggle, desire
-
-## Monster ##
-The monstrous ego that wants to promote itself, compare itself to others, boast, speak only about itself,
-the monstrous terroristic reactions that wnat to be individualistic and like no one else,
-the society myths of cowobys, damsels-in-distress,
-the labyrinth of false beliefs to be purged,
-the ugly creature within that wants to be unleashed and uncloseted,
-and the feeling of being hit by truck with hate, and foolishness, and teasing, and ridicule.
-
-<br>
-
-**Word Associations:** terror, beast, myth, labyrinth, creature, truck, unleashed, closet, hunt, supernatural
-
-## Identity ##
-Identity - what gives one meaning, and a purpose.
-The essence within that roots someone and defines them.
-The authetnic self with passions, ideas, thoughts, interests, and qualities like curiosity, wholeness, grace, creativity, ability.
-The person who naturally loves.
-People try to steal this identity, rob the identity of it's true gold, it's true worth, define it by societyal truths.
-Soceity tries to mask it.
-People destroy the privacy.
-Beliefs cover up the appearance, and personality comes as a disguise.
-
-<br>
-
-**Word Associations:** theft, mask, appearance, disguise, authentic, self, meaning, person, privacy, proof
-
-## Boundary ##
-A limit within oneself for what is acceptable in relations with others.
-A boundary for how others can treat someone, and how they can treat others.
-An edge, where one begins and ends, and where another begins and ends.
-An openness to a new frontier, a new territory.
-A crossing, a bridge that helps people relate and map the interests and ideas of one individual to the interests and individuals of another.
-The line that shuts out the outlaws from those that belong in the territory.
-
-<br>
-
-**Word Associations:** edge, coastline, frontier, territory, fault, limit, outlaw, cross, map, citizen
 
 ## Honor ##
 The loss of honor, the loss of the pledge to mankind and society,
@@ -1831,65 +731,6 @@ the part of humanity that leads to immaturity and immorality, and a sinking ship
 
 **Word Associations:** hole, layer, sense, fall, sink, cargo, low, despair, plug, decompose
 
-## Dreams ##
-Dreams of the pain, 
-concerns of the people around me,
-shadows of life coming to the surface,
-reaching a crossroad where there are nightmarish memories in relation to beliefs coming to the surface,
-anxiety for what I don't want to happen,
-but the terror becomes real, all the more real,
-the goals go to waste, and
-the victory is hard to attain.
-
-<br>
-
-**Word Associations:** shadows, goals, memories, nightmares, night, hopes, anxiety, fears, terror, victory
-
-## Crisis ##
-Crisis of one's worth, one does not believe in oneself, one does not trust in oneself, others do not believe or trust.
-One is bankrupt of what seems natural to someone else,
-one is at a crucial moment of transition,
-one is not accepted, falling hostage and prey to popular culture.
-One is changing and falling out and impacted by the social norms that peope dictate and govern.
-
-<br>
-
-**Word Associations:** collapse, resolve, turn, change, hostage, bankrupt, danger, crucial, ultimatum, nuclear
-
-## Folk ##
-Good folk live all around us.
-Tales are told, customs are shared, and revived.
-History is archived and excavated
-Traditions carry on and new ways of seeing and living are created in the common culture.
-The love of ordinary moments in the spirit, feeling the culture expressed.
-
-<br>
-
-**Word Associations:** common, culture, tradition, history, lore, tale, influence, ordinary, custom, spirit
-
-## Courage ##
-The courage to take another step after falling,
-the spirit of hope for humanity,
-the spirit fo virtue to know how to help people,
-the muster to keep going after failing,
-the ability to live amdist danger and fear and warfare, 
-and the heroism to overcome cowardly ways.
-
-<br>
-
-**Word Associatiosn:** hero, virtue, muster, coward, display, fail, spirit, danger, fear, war
-
-## Art ##
-Art, a mirror to hold up to people to show them the dark corners of thought no one wants to be exposed, yet waiting to be exposed.
-Art, a reflection of the truth and light that has existed always.
-Art, a natural design and pattern to the universe that captures the full spectrum, all the colors, including the light, and the shadows.
-Art, a way to lead to a perspective shift, a way to advance civilization, a way to achieve healing in nebulous ways.
-It's abstract in its forms, its a creation that can lead to a revolution, or a 180 degree change in thought.
-
-<br>
-
-**Word Associations:** design, pattern, color, achieve, civilization, perspective, abstract, creation, form, revolution
-
 ## Movement ##
 A step taken closer to the Truth that operates through a dance, both collective and individual through the universe that changes and moves forward, only through the lens of the illusions of change.
 A complete reversal, a 180 degree revolution.
@@ -1900,33 +741,6 @@ The graceful shifting of perception from wrong to right.
 
 **Word Associations:** motion, revolution, resistance, forward, progress, grace, dance, trend, change, illusion
 
-## Ladder ##
-The beauty of the carpenter climbing up the ladder and standing on top of the roof.
-He works so humbly, and gracefully. He has a good heart.
-There's a goal for him ahead to build and construct, and move through the passageway humbly and support the top, metaphysically climbing the stairs of being.
-
-<br>
-
-**Word Associations:** stair, ascend, snake, passage, top, capture, rung, scale, damsel, goal
-
-## News ##
-The good news is that you are free, you can choose to express joy today, and you can fly like a bird.
-The fake story, the one to ignore is such a teaser, leaked online in sketchy documents, and alerted to people through computer hacking, and private networks.
-
-<br>
-
-**Word Associations:** document, wire, anchor, air, leak, alert, hack, network, fake, story
-
-## Nostalgia ##
-A sense of childlike innocence, of home, a childhood memory that remains pure and unexplored.
-A longing for a purity within that belongs to people.
-A positive aspect of the world that lasts throughout time.
-A vintage piece of something that lasts throughout time.
-
-<br>
-
-**Word Associations:** innocence, home, childhood, memory, lost, sense, longing, vintage, haunt, time
-
 ## Coming Full Circle ##
 It all began like this.
 It's coming back home to restore not break.
@@ -1936,15 +750,6 @@ It's showing you who you can become.
 <br>
 
 **Word Associations:** none
-
-## Home ##
-A place deep within, deep within the family tree more broadly that shares the love of things that bring joy to everyone and all mankind,
-the safety that trusts one another with secrets and challenges, and that picks someone up when they fall,
-the memories of past ancestors and common roots that help us grow past the loss and bounce back up from the damage done in the weeds of existence
-
-<br>
-
-**Word Associations:** family, roots, love, ancestor, safety, memory, growth, loss, damage, past
 
 ## Noise ##
 The noise vs. the sound.
@@ -1963,135 +768,6 @@ With observation, the noise can become sound.
 <br>
 
 **Word Associations:** roar, sound, click, rumor, commotion, complaint, music, crash, filter, drown
-
-## Light ##
-The light in the darkness heals everything.
-It's the simplest, most eloquent, and loudest truth.
-The intelligent force lighting everything up.
-The stars in the highest sky.
-The fire in the forest guiding the path.
-The inner echoing of the true spirit behind the layers of dark evil forces in the world.
-The window that lets the sun extinguish out and draw the shadows.
-The inner truth voicing good in one's heart.
-
-<br>
-
-**Word Associations:** spirit, intelligence, fire, star, sun, window, dark, extinguish, shadow, heart
-
-## Challenge ##
-A challenge, an obstacle to overcome, something to create a solution for so that people can become better.
-The success that comes from beating down the odds, the opposition, the face of adversity, the championing to something better.
-
-<br>
-
-**Word Associations:** duel, dare, wrestle, possession, champion, success, opposition, monopoly, ballot, face
-
-## Go ##
-Go forth as if all of the past can be left behind.
-Moving onward, moving forward, not being stalled.
-There's something beyond what is right here.
-Go, march, proceed.
-
-<br>
-
-**Word Association:** errand, wilt, bathroom, fare, nowhere, move, beyond, stall, travel, leave
-
-## Future ##
-The opportunity that exists tomorrow provides reason to live today.
-Today, there are regrets and a legacy, but there's also a future.
-The past may look bleak, the present may be uncertain, but the future is filled with hope.
-Endless promises and possibilities for those who lean on God and are able to imagine past the dark dreams shielding the light.
-
-<br> 
-
-**Word Associations:** legacy, questions, uncertainty, hope, fear, promise, possibility, prediction, bleak, imagination
-
-## Discipline ##
-The discipline within to stay silent, quiet, and in meditation with the Lord.
-The submission to God, the authority figure.
-The training to know how to pause to do the right thing.
-The drill to practice, practice, practice, repeat, repeat, repeat.
-The inner control to trust the structure, the system.
-The force for good that works intuitively.
-
-<br>
-
-**Word Associations:** control, force, system, submission, authority, train, drill, strucutre, skill, prison
-
-
-## Time ##
-Past, present, future weaving together.
-The stories and tales of the past being entertained in and informing the present,
-and the present moment's choices shaping the future.
-Time flowing forever through the river and cycling throughout with growth, decay, and a legacy to leave behind.
-
-<br>
-
-**Word Associations:** past, present, future, watch, flow, forever, cycle, growth, decay, legacy
-
-## Perfection ##
-The state of excellence, refinement,
-the perfect qualities,
-the careful honing in on details and what's right,
-the high demand,
-the harmony within and without,
-the quest to improve,
-the transcending ability to probe deeper and wider,
-the infinite sense of growing more ethical, and moral,
-and the desire to make the right decisions to overcome flaws.
-
-<br>
-
-**Word Associations:** high, excellence, quality, harmony, transcend, spiritual, utopia, infinite, flaw, quest
-
-## Evolution ##
-The evolution of thinking.
-The process to get to the answer.
-The human steps to order a solution.
-The ground in diversity of people and thoughts.
-The renewal of a population.
-
-<br>
-
-**Word Associations:** process, human, gene, diversity, extinction, origin, order, body, population, ape
-
-## Punish ##
-Anger, guilt, loss, deprivation, a negative conscience, the worst punishment.
-After a crime, a misdeed, there's knowledge of the harm done, and there may be a pull to rebel further against the innocent and the innocence.
-Punishment is the way to seek justifce for an offence, correct behavior, and dictate what's wrong from what's right.
-
-<br>
-
-**Word Associations:** crime, justice, offense, anger, rebel, conduct, harm, innocent, dictator, defy
-
-## Maturity ##
-The ripening of potential.
-The actualization of a small idea into the harvesting of something in action.
-The ability to function as an adult with a healthy mind.
-The life within that is whole, and spanning across the world.
-
-<br>
-
-**Word Associations:** life, adulthood, seed, potential, ripe, harvest, age, span, account, mind
-
-## Faith ##
-The belief in something outside of oneself or within oneself motivating someone to live another day.
-The ability to trust one's intuition, interests, and nudgings.
-THe faith in the inner truth, the miraculous ways God unfolds religion.
-The love of God, and letting go of sin that supports waking up, and walking forward, and leaping with joy with trust in another day.
-
-<br>
-
-**Word Associations:** question, sin, God, belief, truth, miracle, religion, doubt, trust, leap
-
-## Space ##
-The flight to outer space.
-The movement to a new time and sphere.
-The journey to the infinite vastne
-
-<br>
-
-**Word Associations:** time, sphere, star, air, void, infinite, empty, open, curtain, gravity
 
 ## Touch ##
 The touch of a stranger who turns a life around in a different direction.
@@ -2116,64 +792,6 @@ The lines and shapes draw a dimension around a geography of movement for people.
 
 **Word Associations:** mark, continue, dimension, commute, figure, geography, rope, communication, border, ancestor
 
-## Connection ##
-A connection through the spirit, through God that supports the divine interconnectedness, the whole family.
-Everyone is part of a network that enfolds, unfolds, and deepens.
-What strikes a nerve with one or even sever another nerve.
-The transition of ideas, the movement from one stage to another stage.
-The plumbing that supports a massive consciousness cleaning and shifting.
-
-<br>
-
-**Word Associations:** brain, nerve, network, transit, mafia, plumbing, family, blood, sever, tie
-
-## Power ##
-The power within moving through the currents spreading through the lives that light up the world on a daily basis.
-The force of energy transmuting with strength all of the homes and buildings.
-The inner drive reaching heights and large falls with royal light.
-The drive within our ecosystem that keeps everyone living and under control in the day and the night.
-
-<br>
-
-**Word Associations:** height, fall, force, strength, sacrifice, royalty, energy, drive, control, current
-
-## Resolution ##
-The resolution to shift a thought, and change a habit.
-The unanimous decision to withdraw from something.
-The vote to affirm an idea.
-
-<br>
-
-**Word Associations:** meditation, image, scan, telescope, decision, unanimous, affirm, withdraw, war, vote
-
-## Bully ##
-A bystander of the bribing, the taunting, the torment, leading to an imbalance.
-A target of rage, unkind behavior mixed messages.
-A tyrant lashing out, making life difficult for others.
-The failure to bring out a full child in school with security.
-
-<br>
-
-**Word Associations:** bystander, kid, bribe, target, school, imbalance, rage, security, torment, tyrant
-
-## Trouble ##
-Trouble ahead, a crisis moment, trouble trusting in oneself, and beliefing in oneself because of the mischief.
-Rebelling against everyone, questioning, robbing, accusing of mistakes, and punishment with the pain of loss and failure to obey the law.
-
-<br>
-
-**Word Associations:** punish, pain, crisis, mischief, thief, loss, law, rebellion, youth, mistake
-
-## Guilt ##
-The guilt from another mistake made.
-Awareness of the wrong done, the sin that defileth.
-Confessing the tripping that harms and offends.
-The plea for atonement.
-
-<br>
-
-**Word Associations:** wrong, awareness, atonement, jury, sin, verdict, confess, offense, trip, haunt
-
 ## Smoke ##
 The smoke coming up from a truck captures my eyes.
 It's swirling and vaporous, and wispy.
@@ -2182,130 +800,7 @@ An illusion, a mirror.
 
 <br>
 
-**Word Associations:** chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haze
-
-## Joy ##
-Nothing, no one can rob the joy within to be a giver, sharer, and seer of light.
-There's a feeling inside of the gratitude for people at convenience stores, gas stations, and shopping malls.
-The wish is to take another day to appreciate some form of beauty in the ocean, even if its fleeting and the buzz of nasty, angry fears and emotions that come back up.
-
-<br>
-
-**Word Assocations:** feeling, tiding, fleeting, wish, dance, buzz, house, light, giver, cheer
-
-## Heroism ##
-"Everywhere life is filled with heroism" the poem writes,
-the desire to heal,
-the bravery to do what's right when at a crossroads,
-the ability to be a superhuman when facing villains and tragedies,
-and the slaying of demons in the face of adversity when seeing someone suffering
-
-<br>
-
-**Word Associations:** bravery, model, villain, fable, legend, superhuman, tragedy, slay, sandwhich, icon
-
-## Cherish ##
-The peace within I cherish.
-the heartfelt love for another for a dear someone 
-a feeling of gratitude, and appreciation,
-a memory of something positive,
-protection from the harm done,
-a promise for something better to come to light,
-an inner treasure that's crystal clear and lasts forever,
-a hope for the best to play out,
-and a care for the future and what's dearest to one's heart.
-
-<br>
-
-**Word Associations:** love, dear, feeling, memory, protect, promise, treasure, forever, hope, care
-
-## Sanity ##
-The sanity within to know what's real, and what's causing imbalance.
-The freedom from the joker, the ongoing question of who one is, the release from the chaos, the madness, the clinginess, the fear, the insanity unmasked and released to balance.
-
-<br>
-
-**Word Associations:** madness, chaos, erosion, question, mind, cling, fear, balance, mask, joker
-
-## Disturbance ##
-A disturbance, an event that shocks the human mind and wakes it up to more of the reality within and without.
-A disturbance that leads to madness, rage, mood swings, insomnia.
-A disease of the senses because of the noise, and the magnetic fragments of the earth.
-
-<br>
-
-**Word Associations:** insomnia, fragment, disease, mind, madness, sense, noise, mood, magnet, earthquake
-
-## Freedom ##
-The freedom to take off the chains, the weight of the oppression that slows people down,
-the right to be untrapped,
-the right to be a free spirit, a free bird, and engage with opportunity,
-the right to be protected,
-and the right to express, share the ideas that spring up from within, from the source of life.
-
-<br>
-
-**Word Associations:** opportunity, chains, rights, oppression, safety, protection, trap, spirit, genie, life
-
-## Nature ##
-Nature, the earth, the land, the place where people belong and deeply connect to the seed of the universe.
-Forces for good, beauteous things, a good environment, mother instinct, healing the chaos of all the vioence and passion and weather from the past.
-
-<br>
-
-**Word Associations:** force, beuaty, instinct, violence, chaos, human, environment, passion, seed, weather
-
-## School ##
-The best place to learn, to develop habits of the mind, and to make new friends.
-There can be competition, segregation, and compulsory classes.
-It can be a place for safety, a place for growth, a place for discipline with peers.
-
-<br>
-
-**Word Associations:** competition, segregate, safety, peers, growth, intelligence, lesson, discipline, compulsory, class
-
-## Reason ##
-A reason for everything.
-Revelation to why everything operates the way it does.
-It operates for order, it operates for justice, it operates for logic, it operates to minimize, subtract, and let go of error.
-Arguments, suspicions, excuses.
-
-<br>
-
-**Word Associations:** argument, suspect, revelation, instinct, justice, compel, logic, error, motive, excuse
-
-## Family ##
-A universal family with mothers and fathers, and children, and homes.
-All over the world, though people look different, there are common roots, common ancestry, yet distinct features on the tree of life.
-Everyone has a name reflecting who each indidivdual is.
-Names reflect values of tribes and clans.
-
-<br>
-
-**Word Associations:** tree, roots, ancestors, mother, father, children, home, name, tribe, clan
-
-## Treasure ##
-The treasures within ancient cultures that bring us closer to stories we can uncover to know ourselves better.
-The hunt is for the the true gold within the earth,
-the sweet suprise that lay buried for all to discover,
-the relics to uncover,
-the shifts in view that people can explain through maps.
-
-<br>
-
-**Word Associations:** gold, hunt, danger, map, relic, guard, legend, hidden, buried, pirate
-
-## Struggle ##
-The struggle to break the chains and shackles of pain,
-constraint, and limitation.
-The adversity leads to higher views, and greater outlooks.
-The obstacles support achieving nobler goals.
-The perserverance supports winning.
-The hope to begin again is have the struggle.
-
-<br>
-
-**Word Associations:** adversity, obstacles, goal, perserverance, chains, shackles, growth, chance, pain, hope
+**Word Associations:** chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haz
 
 
 ----------
