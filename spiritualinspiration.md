@@ -1095,6 +1095,181 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for family members who went to school elsewhere
 * Grateful for that there's not one way way to do life, there's multiple ways to do life
 * Grateful for the innocence and light in people
+* Grateful for people from camp
+* Grateful for people teaching 
+* Grateful for elementary schoolers 
+* Grateful for memories at the IRC
+* Grateful for people from EVERFI
+* Grateful for people from Norfolk Academy
+* Grateful for people in other countries 
+* Grateful for my previous roommates 
+* Grateful for a new day to wake up 
+* Grateful for the photos of trees in hotels 
+* Grateful for other people from the South
+* Grateful for people from the IRC
+* Grateful for positive memories 
+* Grateful for people in Memphis 
+* Grateful for all the people from VW
+* Grateful that everything is unfolding as it should 
+* Grateful for the practitioners 
+* Grateful for the nurses and doctors where I am
+* Grateful for people alive today
+* Grateful for songs of children 
+* Grateful for innocent people 
+* Grateful for faithful people
+* Grateful for the people starting school
+* Grateful for wildflowers 
+* Grateful for a change of scenery 
+* Grateful for people at UVA
+* Grateful for people working in healthcare 
+* Grateful for the good going on everywhere 
+* Grateful for infinite people, like the sand
+* Grateful for people in my friend list 
+* Grateful for people who I grew up knowing 
+* Grateful for spunky women 
+* Grateful for the pure love of God present 
+* Grateful for people globally 
+* Grateful for all of God’s sons and daughters
+* Grateful for positive memories at the Engels’ house 
+* Grateful for universal ideas and truths and beauty 
+* Grateful for memories of walks with family members 
+* Grateful for symphonies coming out of mankind
+* Grateful for the Afghan culture
+* Grateful for everyone in the Association
+* Grateful for people worldwide dancing and singing and coming up with music 
+* Grateful for expression of Soul
+* Grateful for the gentle presence 
+* Grateful for God coming to every nation and the time to decide what is good and light 
+* Grateful for freedom of women worldwide 
+* Grateful for women of Science demonstrating infinite capacity and ability 
+* Grateful for music and dancing coming out of everyone living 
+* Grateful that there are symphonies coming out of everyone 
+* Grateful for everyone’s rebirth 
+* Grateful for God’s sons and daughters, childlike selves being expressed through everyone 
+* Grateful for God’s sons and daughters everywhere singing high and low in all churches 
+* Grateful for the kingdom of heaven everywhere including all
+* Grateful for prayerful responses
+* Grateful that I am musical
+* Grateful for the Christ-driven businesses everywhere in the country 
+* Grateful for people’s love of trees 
+* Grateful for leaves 
+* Grateful for infinite expression of God, Soul worldwide 
+* Grateful for the starlight, the harmony, the Godlike character in everyone 
+* Grateful for God’s way of harmonizing action and synching people up together 
+* Grateful for the innate daughter within, pure, upheld
+* Grateful for water in the soil, seeds in the soil
+* Grateful for worked hands with dirt cleaned out of finger tips
+* Grateful for harmonious people at Hopeway
+* Grateful for new life coming to people at new life ministries 
+* Grateful for beautiful sons and daughters world wide
+* Grateful for the love that goes on and on and on
+* Grateful for something new to learn every day 
+* Grateful for musical little kids 
+* Grateful for musicality on airplanes and in airports
+* Grateful for starlight within everyone’s hearts and souls and minds 
+* Grateful for music going back in time as something to turn to
+* Grateful for sound baths and sound meditation
+* Grateful for people who inspire others to sing a little bit louder and praise a little bit louder and be a little bit more in tune and in touch
+* Grateful for everyone in the Association 
+* Grateful for the musicality of everyone in the Association
+* Grateful for the musicality of everyone I meet
+* Grateful for women who are strong and single
+* Grateful for the continuity of Life and Love
+* Grateful for the next generation of people growing up and living and loving 
+* Grateful for qualities of home and neighborhood living out everywhere 
+* Grateful for the fruitfulness of people’s lives
+* Grateful for God’s children within know nothing but holiness and health and fullness and light and love 
+* Grateful for symphonies coming out of everyone
+* Grateful for angelic voices 
+* Grateful for the Spanish accent 
+* Grateful for the faith of my grandparents 
+* Grateful for the faith of little kids 
+* Grateful for new seeds 
+* Grateful for the love of little ones 
+* Grateful for the light shining in the darkness 
+* Grateful for the shining star 
+* Grateful for childlike innocence 
+* Grateful for all the books I’ve read this summer 
+* Grateful for memories in the restroom
+* Grateful for assertive communication tools
+* Grateful for all the people in the world working to be better
+* Grateful for thresholds 
+* Grateful for the star metaphor 
+* Grateful for my sorority sisters in SigDelt 
+* Grateful for all the people from Kappa sorority 
+* Grateful for other people from Michigan 
+* Grateful for infinite opportunities for mankind
+* Grateful for harmony 
+* Grateful for symphonies coming out of people 
+* Grateful for all the good people in the session
+* Grateful for testimonies shared at church
+* Grateful for the moon
+* Grateful for church groups
+* Grateful for other musicians who sing Johnny Cash
+* Grateful for people from Camp Nakanawa 
+* Grateful for all the people I lived with in Charlottesville 
+* Grateful for the memory of the sun shining in places 
+* Grateful for all the other people in the world 
+* Grateful for the certainty of God Divine Love going on
+* Grateful for all the people in Charlotte today
+* Grateful for the harmony today
+* Grateful for education for children in Charlottesville
+* Grateful for memories in the Norfolk Academy chorus 
+* Grateful for the chapel singing at UVA
+* Grateful for people where I am
+* Grateful for all the people in North Carolina 
+* Grateful for all my cousins and family 
+* Grateful for everyone who did the mission trip 
+* Grateful for people in Kappa sorority 
+* Grateful for all the teachers teaching 
+* Grateful for all the young children learning 
+* Grateful for the people in the hospital
+* Grateful that adults can find their groups and people 
+* Grateful for the true self I can see in the mirror
+* Grateful for genuine connection 
+* Grateful for the books on architecture 
+* Grateful for the continuity of life 
+* Grateful for discipline on social media 
+* Grateful for all the doctors 
+* Grateful for the doctor where I am
+* Grateful for the medicine
+* Grateful for home 
+* Grateful for rhythm
+* Grateful for drumming class
+* Grateful for the full moon
+* Grateful for healthy, strong people 
+* Grateful for all the people teaching 
+* Grateful for all the love for youth
+* Grateful for all that youth are learning 
+* Grateful for God’s sons and daughters 
+* Grateful for the harmony of God’s unfoldment 
+* Grateful what sparks each individual inside to learn and live and find meaningful work
+* Grateful for other people learning about teaching 
+* Grateful for the love of Christian Science and the students everywhere 
+* Grateful for a love of youth that each teacher has 
+* Grateful for how much God loves everyone
+* Grateful for all the people from UVA
+* Grateful for church architecture all over the world
+* Grateful for everyone being themselves 
+* Grateful for everyone from other cultures 
+* Grateful for the people with faith from all over the world
+* Grateful for the right place at the right time 
+* Grateful for how loved people are on other sides of the world 
+* Grateful for how loved everyone who walks in the door is 
+* Grateful for the sound of the train
+* Grateful for how Christian Science influences the world of teaching 
+* Grateful for all the love at Norfolk Academy 
+* Grateful for all the love at Hopeway 
+* Grateful for the people at church
+* Grateful for teachers everywhere worldwide 
+* Grateful for intelligent men everywhere 
+* Grateful for intelligent women everywhere 
+* Grateful for the joy expressed in a capella singers 
+* Grateful for the peace within everyone at the hospital 
+* Grateful for the professor of medieval history
+* Grateful for the year of togetherness
+* Grateful for lightbulbs
+* Grateful for all the people in the city where I am 
 * Grateful for good sense of humor
 * Grateful for all the people enjoying art
 * Grateful for artists
