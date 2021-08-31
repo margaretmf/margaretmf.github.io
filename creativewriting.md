@@ -299,46 +299,6 @@ Death, decay, leading to new life.
 
 **Word Associations:** autumn, orange, foliage, harvest, leaves, bramches, cornucopia, death
 
-## Prayer ##
-Prayer is the heart's sincere desire.
-Prayer is the giving of humble thanks to God.
-Prayer is the deliverance of sin, disease, and death.
-Prayer is the receiving of blessings from the Lord.
-Prayer is invocation to trust in God and entreat.
-Prayer is appealing to the ways of Love.
-Prayer is a psalm.
-Prayer is natural to man.
-Pray is gratitude and a heart singing within for the logic of the universe.
-
-<br>
-
-**Word Associations:** invocation, entreat, appeal, humble, thanks, psalm, deliverance, blessing
-
-## History ##
-What is done is done.
-What is complete is complete.
-The joys of yesterday exist forever.
-The mistakes of the past are indeed, just that, past, behind, and events to learn from.
-In the words of the poet, 'let bygones be bygones.'
-The wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity.
-His story from antiquity is continuous, ever-renewing and cyclical.
-
-<br>
-
-**Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
-
-## Nighttime ##
-At nighttime, when I can't sleep in the darkness, I turn to the stars.
-The stars represent light.
-During these sleepless nights, I am wakeful,
-I pray for mankind,
-I let go of the shadows of mortal sense.
-Mortal mind blackens the human experience, causes man to fear, and deceives, and God causes all to shine, so people can be aware.
-
-<br>
-
-**Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, blac
-
 ## Heroism ##
 Heroism - as it goes, "everywhere, life is filled with it."
 It is the courage to rise up and shine for another day to help someone.
