@@ -905,10 +905,6 @@ The principle in everything
 
 <br>
 
-## Tennessee and Nashville ##
-Tennessee used to be the west, and the state of the frontier, not just the south.
-
-<br>
 
 ## Tennessee ## 
 All these roads lead to and from home
