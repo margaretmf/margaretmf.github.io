@@ -159,6 +159,11 @@ We live in a world that is always moving. Three hundred and sixty-five days per 
 
 <br>
 
+## Tennessee and Nashville ##
+Tennessee used to be the west, and the state of the frontier, not just the south.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
