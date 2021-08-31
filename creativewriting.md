@@ -1121,7 +1121,7 @@ Something is sweeping through as the seasons change
 Old leaves die,
 buds come to bloom,
 there's another cycle ahead.
-Bowing and bending with the universe I am.
+Bowing and bending with the universe I am in.
 Flowing through time.
 Growing with the seasons.
 Adapting to the change.
@@ -1130,22 +1130,18 @@ Swaying with the earth.
 <br>
 
 ## Worlds Apart ##
-Seeing eye-to-eye
-Meeting heart-to-heart
-Two worlds apart
-Exchanging views
-Hearing each other
-Greeting each other
-Loving the world as it is
-Shifts, changes, adaptations, dances
-In the same world, different languages
+Seeing eye-to-eye,
+meeting heart-to-heart,
+while two worlds apart we are.
+Greeting each other,
+exchanging views,
+hearing each other,
+and loving the world as it is we are.
+Shifts, changes, adaptations, and dances
+in the same world we experience with different languages
 
 <br>
 
-## Time Distance ##
-It's amazing that someone is six hours behind me somewhere doing the same activities.
-
-<br>
 
 ## Falling, Rising ##
 Falling low, rising higher to the destiny
