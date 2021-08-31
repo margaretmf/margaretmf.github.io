@@ -141,6 +141,11 @@ The old dream dying is a new dream awakening.
 
 <br>
 
+## The Fire ##
+Through the fire I saw it all burn, become nothing, become pure, become refined, become golden, and become glowing with grace.
+
+<br>
+
 ## An Enemy is a Friend ## 
 You thought you had an enemy, but you really found a friend in disguse.
 
