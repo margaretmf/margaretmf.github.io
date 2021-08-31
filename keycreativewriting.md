@@ -118,7 +118,6 @@ Everything you thought you knew falls off like the dead leaves on trees.
 
 ## Trees ##
 The branches lift up, and reach for the sky.
-The many branches lift up.
 
 <br>
 
@@ -129,6 +128,11 @@ Everything that once existed still exists in thought.
 
 ## The Wind ##
 The wind knows my name.
+
+<br>
+
+## Time Distance ##
+It's amazing that someone is six hours behind me somewhere doing the same activities.
 
 <br>
 
@@ -167,262 +171,262 @@ Tennessee used to be the west, and the state of the frontier, not just the south
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
-Use your voice,
-cherish the silence,
-speak your truth,
-express your heart,
-accent your strengths,
-articulate your opinion,
-narrate stories - your story and others' stories,
-echo another's,
-find the strength within,
-get things off your chest.
+Use your voice, <br>
+cherish the silence, <br>
+speak your truth, <br>
+express your heart, <br>
+accent your strengths, <br>
+articulate your opinion, <br>
+narrate stories - your story and others' stories, <br>
+echo another's, <br>
+find the strength within, <br>
+get things off your chest. <br>
 
 <br>
 
 **Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
 
 ## Mountains ##
-Through the mountains, the Earth is singing.
-The peaks of green, blue in summer - orange, red, yellow in fall -
-White in winter, pink in spring, touching the horizion.
-It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird.
-The ascent is freeing, and walking down the slope is humbling.
-Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one.
+Through the mountains, the Earth is singing. <br>
+The peaks of green, blue in summer - orange, red, yellow in fall - <br>
+White in winter, pink in spring, touching the horizion. <br>
+It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird. <br>
+The ascent is freeing, and walking down the slope is humbling. <br>
+Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one. <br>
 
 <br>
 
 **Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
 
 ## Stranger ##
-Someone new on the street who I have never met.
-A visitor on Earth, who looks familiar, yet so different, like a stranger.
-A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity.
-Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation.
-There's no stranger to God.
+Someone new on the street who I have never met. <br>
+A visitor on Earth, who looks familiar, yet so different, like a stranger. <br>
+A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity. <br>
+Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation. <br>
+There's no stranger to God. <br>
 
 <br>
 
 **Word Associations:** friend or foe, sojourner, mysterious, guest, newcomer, migrant, visitor, acquaintance
 
 ## The Night Sky ##
-The night sky sings with holiness and peace.
-The stars shine infinitely.
-The blackness is so dark and the pitch of the night silences everyone to sleep.
-THe glimmer of the stars give hope and point people to inncocence, hope, and home.
-The wakeful individuality share the love for all mankind with a heart at rest for all the holy light.
+The night sky sings with holiness and peace. <br>
+The stars shine infinitely. <br>
+The blackness is so dark and the pitch of the night silences everyone to sleep. <br>
+THe glimmer of the stars give hope and point people to inncocence, hope, and home. <br>
+The wakeful individuality share the love for all mankind with a heart at rest for all the holy light. <br>
 
 <br>
 
 **Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
 
 ## The Moon ##
-The moon is shining in the darkness.
-In the darkness, there is still light.
-It stands in the sphere, the orb of the Earth.
-Good tidings fall, wane, wax, upon it.
-The lunar eclipse shines also. 
+The moon is shining in the darkness. <br>
+In the darkness, there is still light. <br>
+It stands in the sphere, the orb of the Earth. <br>
+Good tidings fall, wane, wax, upon it. <br>
+The lunar eclipse shines also.  <br>
 
 <br>
 
 **Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
 
 ## History ##
-Across time and space, 
-records stored, 
-mistakes made,
-lessons learned,
-empires built,
-folklore shared,
-records stored,
-maps used,
-globes loved,
-humanity moved,
-life repeated,
-truth expressed,
-and modernity created.
+Across time and space,  <br>
+records stored,  <br>
+mistakes made, <br>
+lessons learned, <br>
+empires built, <br>
+folklore shared, <br>
+records stored, <br>
+maps used, <br>
+globes loved, <br>
+humanity moved, <br>
+life repeated, <br>
+truth expressed, <br>
+and modernity created. <br>
 
 <br>
 
 **Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
 
 ## Color ##
-All of the colors of the rainbow reflected through everything in our world.
-Many shades - red, green, pink, orange, yellow, purple.
-A vision that includes:
-red apples, trucks,
-pink gums,
-orange crayons,
-black window frames,
-purple TVs,
-yellow dentures.
-All the race, many nationalities, and countries.
-Colors and tones, all original.
-Such great contrast in everything we do with the light bouncing off of us in original ways.
-We are all part of this great photo.
+All of the colors of the rainbow reflected through everything in our world. <br>
+Many shades - red, green, pink, orange, yellow, purple. <br>
+A vision that includes: <br>
+red apples, trucks, <br>
+pink gums, <br>
+orange crayons, <br>
+black window frames, <br>
+purple TVs, <br>
+yellow dentures. <br>
+All the race, many nationalities, and countries. <br>
+Colors and tones, all original. <br>
+Such great contrast in everything we do with the light bouncing off of us in original ways. <br>
+We are all part of this great photo. <br>
 
 <br>
 
 **Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
 
 ## Noise ##
-The bustle of the lawn mower outside my window wakes me up.
-What's with the clamor, and the uproar of the people talking?
-Noise. It is the crescendo of the day.
-The day is starting.
-The human experiences are rising.
-Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard.
+The bustle of the lawn mower outside my window wakes me up. <br>
+What's with the clamor, and the uproar of the people talking? <br>
+Noise. It is the crescendo of the day. <br>
+The day is starting. <br>
+The human experiences are rising. <br>
+Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard. <br>
 
 <br>
 
 **Word Associations:** bustle, din, clamor, tumult, uproar, thunder, crescendo, cacophony
 
 ## Anxiety ##
-Oh my God!
-The darkest dreams of my life come alive.
-I feel so uneasy.
-My stomach is completely nauseated.
-I feel so restless, and I sit in disquietude.
-I feel so fretful.
-I feel so jittery.
-I am living in dread for what is going to happen.
-It's the worst distress I've ever felt.
-I wait in apprehension for the future.
+Oh my God! <br>
+The darkest dreams of my life come alive. <br>
+I feel so uneasy. <br>
+My stomach is completely nauseated. <br>
+I feel so restless, and I sit in disquietude. <br>
+I feel so fretful. <br>
+I feel so jittery. <br>
+I am living in dread for what is going to happen. <br>
+It's the worst distress I've ever felt. <br>
+I wait in apprehension for the future. <br>
 
 <br>
 
 **Word Associations:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
 
 ## Smiles ##
-Smiles are God's work through man.
-The sun shines its light that radiates through the Earth as man shines his happiness through a smile.
-There should be 7.2 billion smiles, laughs, expressions of delight, and beams of hope on Earth today.
-Smiling through all the Earth, our mankind is beautiful, whole, and integrated.
+Smiles are God's work through man. <br>
+The sun shines its light that radiates through the Earth as man shines his happiness through a smile. <br>
+There should be 7.2 billion smiles, laughs, expressions of delight, and beams of hope on Earth today. <br>
+Smiling through all the Earth, our mankind is beautiful, whole, and integrated. <br>
 
 <br>
 
 **Word Associations:** grin, laugh, amusement, delight, smirk, beam, dimple, lips
 
 ## Silence ##
-The silent truth echoes down the ages from heart to heart,
-from story to story,
-from experience to experience, 
-from song to song,
-from coast to coast.
-It never stops its sound.
-It lives and loves the solitude, putting a stop to the chatter, the murmurs, the muffles.
-The silent secret within is a heart filled with golden light.
-It has great command over the serpent, and is able to tread on it.
+The silent truth echoes down the ages from heart to heart, <br>
+from story to story, <br>
+from experience to experience,  <br>
+from song to song, <br>
+from coast to coast. <br>
+It never stops its sound. <br>
+It lives and loves the solitude, putting a stop to the chatter, the murmurs, the muffles. <br>
+The silent secret within is a heart filled with golden light. <br>
+It has great command over the serpent, and is able to tread on it. <br>
 
 <br>
 
 **Word Associations:** sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
 
 ## Time ##
-Outside of time, stands eternity.
-Through time and space, an interconnected humanity unfolds.
-The hours of the period stand for the progress and advancement of mankind.
-Through time, an idea builds upon an idea, a thought builds upon a thought, a human action for good builds upon a human action for good.
-Sometimes there are reactions, as anger and strife build up, but each step back towards the shadows of the night have the potential to lead to greater resiliency in the light.
-The clock never stops. It continues to circle around for eternity, with the same ideals always shining their light through the darkness.
-An era of sunlight unfolds, and the night is taken back so that the clock runs towards the right side of history.
-Tick-tock it goes for infinite time.
-For infinite time, the truth for why mankind exists will march onward.
-Moment by moment, we choose to stand in that goodness.
+Outside of time, stands eternity. <br>
+Through time and space, an interconnected humanity unfolds. <br>
+The hours of the period stand for the progress and advancement of mankind. <br>
+Through time, an idea builds upon an idea, a thought builds upon a thought, a human action for good builds upon a human action for good. <br>
+Sometimes there are reactions, as anger and strife build up, but each step back towards the shadows of the night have the potential to lead to greater resiliency in the light. <br>
+The clock never stops. It continues to circle around for eternity, with the same ideals always shining their light through the darkness. <br>
+An era of sunlight unfolds, and the night is taken back so that the clock runs towards the right side of history. <br>
+Tick-tock it goes for infinite time. <br>
+For infinite time, the truth for why mankind exists will march onward. <br>
+Moment by moment, we choose to stand in that goodness. <br>
 
 <br>
 
 **Word Associations:** eternity, hours, period, era, clock, ticktock, infinity, moment
 
 ## Change ##
-Heading into new territory.
-It's foreign.
-There's a shift in how I am, and how things look.
-Undergoing a transition from one state, or stage to another state, or stage.
-There's a metamorphosis.
-I come out of the cocoon.
-I make revisions.
-It's a new season ahead.
-I switch, tune in, change, repent.
-Everything is on a new basis, a different foundation.
-I transmute myself.
-There's variance.
+Heading into new territory. <br>
+It's foreign. <br>
+There's a shift in how I am, and how things look. <br>
+Undergoing a transition from one state, or stage to another state, or stage. <br>
+There's a metamorphosis. <br>
+I come out of the cocoon. <br>
+I make revisions. <br>
+It's a new season ahead. <br>
+I switch, tune in, change, repent. <br>
+Everything is on a new basis, a different foundation. <br>
+I transmute myself. <br>
+There's variance. <br>
 
 <br>
 
 **Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
 
 ## Veil ##
-The true light within someone or a situation unveiled, and unhidden.
-The mystery of it all made more transparent.
-The ignorance brought into sight.
-The curtain opening to show what's shielded.
+The true light within someone or a situation unveiled, and unhidden. <br>
+The mystery of it all made more transparent. <br>
+The ignorance brought into sight. <br>
+The curtain opening to show what's shielded. <br>
 
 <br>
 
 **Word Associations:** shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
 
 ## Scandal ##
-Oh my God!
-It's so scandalous...
-All those dirty secrets covered up in my heart blew up in my face, exposed the lies of subliminal messaging, and defamed me.
-It's outraging, it's hushing, it's public!
-What a release that something so dark is brought to light through high-minded sensational art.
-It's good to keep things private, and not be afraid of the public.
-Everything private becomes public, everything public influences our private lives.
+Oh my God! <br>
+It's so scandalous... <br>
+All those dirty secrets covered up in my heart blew up in my face, exposed the lies of subliminal messaging, and defamed me. <br>
+It's outraging, it's hushing, it's public! <br>
+What a release that something so dark is brought to light through high-minded sensational art. <br>
+It's good to keep things private, and not be afraid of the public. <br>
+Everything private becomes public, everything public influences our private lives. <br>
 
 <br>
 
 **Word Associations:** reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
 
 ## Deceit ##
-Deceit, it's like flirtation.
-It's trickery.
-The evil in our hearts and thoughts masquerading for what's real.
-It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lies.
-Evil sits with pretense wanting to be uncovered, and not unmasked.
-Do you really believe in the duplicity and the lies?
-All of this goes into the dumpster, all pretense is let go of.
+Deceit, it's like flirtation. <br>
+It's trickery. <br>
+The evil in our hearts and thoughts masquerading for what's real. <br>
+It's two-faced, it's like an imposter, a fraud, a clown, a mask beguiling me with lies. <br>
+Evil sits with pretense wanting to be uncovered, and not unmasked. <br>
+Do you really believe in the duplicity and the lies? <br>
+All of this goes into the dumpster, all pretense is let go of. <br>
 
 <br>
 
 **Word Associations** trickery, duplicity, lies, guile, two-faced, imposter, pretense, fraud
 
 ## Prayer ##
-Prayer is the heart's sincere desire.
-Prayer is the giving of humble thanks to God.
-Prayer is the deliverance of sin, disease, and death.
-Prayer is the receiving of blessings from the Lord.
-Prayer is invocation to trust in God and entreat.
-Prayer is appealing to the ways of Love.
-Prayer is a psalm.
-Prayer is natural to man.
-Pray is gratitude and a heart singing within for the logic of the universe.
+Prayer is the heart's sincere desire. <br>
+Prayer is the giving of humble thanks to God. <br>
+Prayer is the deliverance of sin, disease, and death. <br>
+Prayer is the receiving of blessings from the Lord. <br>
+Prayer is invocation to trust in God and entreat. <br>
+Prayer is appealing to the ways of Love. <br>
+Prayer is a psalm. <br>
+Prayer is natural to man. <br>
+Pray is gratitude and a heart singing within for the logic of the universe. <br>
 
 <br>
 
 **Word Associations:** invocation, entreat, appeal, humble, thanks, psalm, deliverance, blessing
 
 ## History ##
-What is done is done.
-What is complete is complete.
-The joys of yesterday exist forever.
-The mistakes of the past are indeed, just that, the past, what's behind me, and events to learn from.
-In the words of the poet, 'let bygones be bygones.'
-The wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity.
-His story from antiquity is continuous, ever-renewing and cyclical.
+What is done is done. <br>
+What is complete is complete. <br>
+The joys of yesterday exist forever. <br>
+The mistakes of the past are indeed, just that, the past, what's behind me, and events to learn from. <br>
+In the words of the poet, 'let bygones be bygones.' <br>
+The wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity. <br>
+His story from antiquity is continuous, ever-renewing and cyclical. <br>
 
 <br>
 
 **Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
 
 ## Nighttime ##
-At nighttime, when I can't sleep in the darkness, I turn to the stars.
-The stars represent light.
-During these sleepless nights, I am wakeful,
-I pray for mankind,
-I let go of the shadows of mortal sense.
-Mortal mind blackens the human experience, causes man to fear, and deceives, and God causes all to shine, so people can be aware.
+At nighttime, when I can't sleep in the darkness, I turn to the stars. <br>
+The stars represent light. <br>
+During these sleepless nights, I am wakeful, <br>
+I pray for mankind, <br>
+I let go of the shadows of mortal sense. <br>
+Mortal mind blackens the human experience, causes man to fear, and deceives, and God causes all to shine, so people can be aware. <br>
 
 <br>
 
@@ -431,73 +435,73 @@ Mortal mind blackens the human experience, causes man to fear, and deceives, and
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
-She's gentle,
-She's humble,
-She's light-hearted, and smiling.
+She's gentle, <br>
+She's humble, <br>
+She's light-hearted, and smiling. <br>
 
-She's musical,
-She's forgiving,
-She's dancing, and modest.
+She's musical, <br>
+She's forgiving, <br>
+She's dancing, and modest. <br>
 
-She's inclusive,
-She's articulate,
-She's thoughtful, and wise.
+She's inclusive, <br>
+She's articulate, <br>
+She's thoughtful, and wise. <br>
 
-She's all-embracing,
-She's resilient,
-She's grateful, and at home.
+She's all-embracing, <br>
+She's resilient, <br>
+She's grateful, and at home. <br>
 
-She's merciful,
-She's modest,
-She's open-mind, and mindful.
+She's merciful, <br>
+She's modest, <br>
+She's open-mind, and mindful. <br>
 
-She's a searcher for humanity in the darkest areas of the world.
-She's a lover of Jesus and Mary Baker Eddy.
-She knows that Love has the throne and that Love is Life's true crown and glory.
-She uses Truth's double-edged sword to end human strife.
+She's a searcher for humanity in the darkest areas of the world. <br>
+She's a lover of Jesus and Mary Baker Eddy. <br>
+She knows that Love has the throne and that Love is Life's true crown and glory. <br>
+She uses Truth's double-edged sword to end human strife. <br>
 
-He's thankful,
-He's gracious,
-He's joyful, and kind.
+He's thankful, <br>
+He's gracious, <br>
+He's joyful, and kind. <br>
 
-He's trustworthy,
-He's satisfied,
-He's helpful, and strong.
+He's trustworthy, <br>
+He's satisfied, <br>
+He's helpful, and strong. <br>
 
-He's embracive,
-He's courageous,
-He's free, and aware.
+He's embracive, <br>
+He's courageous, <br>
+He's free, and aware. <br>
 
-He's adventurous,
-He's ordered,
-He's hard-working, and secure.
+He's adventurous, <br>
+He's ordered, <br>
+He's hard-working, and secure. <br>
 
-He's a lover of mankind, and inclusive of all.
-With a passion for Church, He's a seeker of Truth in all aspects of Life.
-He knows that Divine Mind is in control and that reflecting Principle is the Way.
-He's self-complete and wedded to the author of the univese.
+He's a lover of mankind, and inclusive of all. <br>
+With a passion for Church, He's a seeker of Truth in all aspects of Life. <br>
+He knows that Divine Mind is in control and that reflecting Principle is the Way. <br>
+He's self-complete and wedded to the author of the univese. <br>
 
 
 <br>
 
 ## Married to the Earth ##
-Married to the Earth, I am.
+Married to the Earth, I am. <br>
 
-What I love is this green and blue and brown earth 
-that supplies all our needs,
-with the rivers and the sea,
-and the grass and the dirt.
+What I love is this green and blue and brown earth  <br>
+that supplies all our needs, <br>
+with the rivers and the sea, <br>
+and the grass and the dirt. <br>
 
-It circles, round and round and round the earth goes,
-with all these wondrous people.
+It circles, round and round and round the earth goes, <br>
+with all these wondrous people. <br>
 
-Married to the earth, I am.
+Married to the earth, I am. <br>
 
-This place for adventure and beauty
-with wonders to see is what I love.
+This place for adventure and beauty <br>
+with wonders to see is what I love. <br>
 
-A union with all the people
-and a love for the wonder in everyone's eyes is what I seek.
+A union with all the people <br>
+and a love for the wonder in everyone's eyes is what I seek. <br>
 
 <br>
 
