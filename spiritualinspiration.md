@@ -294,6 +294,129 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for angels and spiritual friends
 * Grateful to magnify on the good going on
 * Grateful for a memory of the American flag in Washington, DC
+* Grateful for everyone in the library science career track
+* Grateful for leadership qualities expressed 
+* Grateful for kind and graceful people 
+* Grateful for friends 
+* Grateful for the city where I am
+* Grateful for people from other countries and cultures 
+* Grateful for the love people have for little children 
+* Grateful for childlike joy 
+* Grateful for visions and images of rowing 
+* Grateful for other country musicians 
+* Grateful for all the places where my clothes are
+* Grateful for the love for all the people in Norfolk
+* Grateful for people I’ve worked with in Washington, DC
+* Grateful for all the people in Charlotte
+* Grateful for a memory at my grandparents house 
+* Grateful for the light in the darkness 
+* Grateful for the light in people
+* Grateful for people walking outside 
+* Grateful for the people overseas 
+* Grateful for people from other cultures 
+* Grateful for memories at the beach cottage 
+* Grateful for the music therapy and music therapist 
+* Grateful for grounding techniques 
+* Grateful for the therapy at Hopeway
+* Grateful for clarity 
+* Grateful for God’s plan for me
+* Grateful for time to grow alone 
+* Grateful for all the good people out there 
+* Grateful for all the little children around me 
+* Grateful for openness with people 
+* Grateful for family members and cousins 
+* Grateful for all the goodness going on right now 
+* Grateful for healthy relationships 
+* Grateful for beauty in people
+* Grateful for the love expressed 
+* Grateful for food blessed 
+* Grateful for people blessed 
+* Grateful for atonement 
+* Grateful for all the good going on today in Charlotte 
+* Grateful for all the good going on today in Charlottesville 
+* Grateful for inspiration not to look back 
+* Grateful for little ones starting New Years of school
+* Grateful for everyone in Washington, DC from other churches 
+* Grateful for all the people from Norfolk Academy
+* Grateful for God’s love for me and everyone 
+* Grateful for the people in the Spanish speaking churches 
+* Grateful for the Spanish language 
+* Grateful for the book 
+* Grateful for people from Norfolk Academy
+* Grateful for all the other people in Georgia 
+* Grateful for all the work people do in Georgia to show what is being done with the land 
+* Grateful for the stories of people 
+* Grateful for the heritage of people
+* Grateful for the beauty outside 
+* Grateful for people expressing joy as children and loving people
+* Grateful for all the people who I rowed with
+* Grateful for the love for people on school buses 
+* Grateful for all the people from the VWC
+* Grateful for for people from other cultures 
+* Grateful for all the people from the IRC
+* Grateful for leaders I know 
+* Grateful for good people from church
+* Grateful for forgiving, accepting people 
+* Grateful for God’s presence everywhere 
+* Grateful for God’s presence in the children’s book business 
+* Grateful God’s presence in the life of little ones 
+* Grateful for discipline on social media 
+* Grateful for all the learning done at Norfolk Academy 
+* Grateful for good friends from church
+* Grateful for the Sesame Street song
+* Grateful for the people in day to day work
+* Grateful for the people in the grocery store 
+* Grateful for the grocery store 
+* Grateful that I’m an infinite expression
+* Grateful that I’m an expression of God 
+* Grateful for people enjoying school
+* Grateful for joyful little kids 
+* Grateful for people from Mississppi
+* Grateful for businesses worldwide during COVID
+* Grateful for infinite expansion and growth 
+* Grateful or the history of Elvis Presley
+* Grateful for everything coming to light 
+* Grateful for a love of Spanish culture and people 
+* Grateful for people to rest over the weekend 
+* Grateful for Christian Science 
+* Grateful for the love of little kids 
+* Grateful for people stepping into the research work 
+* Grateful for people continuing with their lives 
+* Grateful for all the work worldwide, globally 
+* Grateful for the love of Christian Science 
+* Grateful for people I’ve worked with
+* Grateful for teachers and students 
+* Grateful for God’s sons and daughters 
+* Grateful the time of people I’ve talked to today 
+* Grateful for God knowing all my concerns 
+* Grateful for the chance to get back up on my feet 
+* Grateful for all the people applying to this work 
+* Grateful for cheerful people 
+* Grateful for the shame, love video 
+* Grateful for the purity in people 
+* Grateful for God going ahead of everyone 
+* Grateful for consumers
+* Grateful for people in NYC
+* Grateful for all the places where my clothes went 
+* Grateful for the love for all the people 
+* Grateful for the faith everywhere 
+* Grateful for the nurses where I am
+* Grateful for the people with CDC
+* Grateful for everyone from Norfolk Academy
+* Grateful for all the good that happened this week
+* Grateful for the Christian Science summit on Saturdays 
+* Grateful for the music I’ve created
+* Grateful for people in Charlottesville 
+* Grateful for therapists 
+* Grateful for people singing online and sharing their singing
+* Grateful for the people I ate with
+* Grateful for all the people in Richmond
+* Grateful for God’s sons and daughters 
+* Grateful for the hijos and hijas de Dios
+* Grateful for a sky of winking stars
+* Grateful for all the women from VWC
+* Grateful for a Saturday morning 
+* Grateful for the construction of a good email
 * Grateful for the people from my classes
 * Grateful for the one that ripples out
 * Grateful for the words "Now" and "Heart" in Chinese mindfulness
