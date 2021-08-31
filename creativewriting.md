@@ -4813,14 +4813,9 @@ The darkness cannot touch it because so much light is bouncing off of light, and
 
 <br>
 
-## The Fire ##
-Through the fire I saw it all burn, become nothing, become pure, refined, golden, and glowing with grace.
-
-<br>
 
 ## The Story of the Puzzle ##
-Life as a puzzle piece
-Everyone has a place
+With life as a puzzle piece, everyone has a place.
 
 ## A Childlike Home ##
 A childlike heart rings true
