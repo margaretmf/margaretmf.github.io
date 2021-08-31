@@ -2151,6 +2151,198 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful to see towels on the driveway
 * Grateful for memories of screen porches
 * Grateful for all the musicians on social media
+* Grateful for good ideas 
+* Grateful for good singers 
+* Grateful for good music 
+* Grateful for other people in this world from all over the globe 
+* Grateful for leaders 
+* Grateful for the good going on for people 
+* Grateful for all the people in the Association
+* Grateful for productivity and work being done 
+* Grateful for spiritedness
+* Grateful that beauty is of Soul
+* Grateful for people who have walked through my life 
+* Grateful for the time with family
+* Grateful for abundance 
+* Grateful for infinite opportunity
+* Grateful for sincere apologies 
+* Grateful God’s way of leading me 
+* Grateful for a place for everyone 
+* Grateful for cooking 
+* Grateful for a step forward in life 
+* Grateful for the boyfriends of cousins 
+* Grateful for people outside 
+* Grateful for the individual journeys of people in the room
+* Grateful for the nursing staff
+* Grateful for a new year starting 
+* Grateful for “my hands on my heart”
+* Grateful for grounding techniques 
+* Grateful for everyone from UVa
+* Grateful for positive memories at UVa
+* Grateful for the people where I am
+* Grateful for everyone living in the world today 
+* Grateful for Church
+* Grateful for people from Memphis 
+* Grateful for the perfection of youth and little ones 
+* Grateful for the church service this morning 
+* Grateful to pause before reacting 
+* Grateful for memories in Pennsylvania with people 
+* Grateful for friends from college 
+* Grateful for illustrators 
+* Grateful for healthy and ethical terms of use 
+* Grateful for loving people in the room
+* Grateful for family members who I care 
+* Grateful for assertive communication tools
+* Grateful for grounding techniques 
+* Grateful for all the other nurses 
+* Grateful for all the good going on in Starbucks 
+* Grateful for a new school year and all the sweet children 
+* Grateful for teachers that I’ve had 
+* Grateful for people who support me for who I am
+* Grateful for the good going on everywhere
+* Grateful for healthy social connections
+* Grateful to challenge core beliefs 
+* Grateful for all the youth
+* Grateful for new friends 
+* Grateful for God’s humble servants
+* Grateful for how Christian Science has supported my life 
+* Grateful for a letter that I write
+* Grateful for the power of prayer
+* Grateful for other Christians out there praying and singing 
+* Grateful for where God knows I need to be 
+* Grateful for the overlapping spheres 
+* Grateful for the works of Shakespeare in Tennessee
+* Grateful for friends from high school
+* Grateful for all the people in other countries 
+* Grateful for a daily rebirth
+* Grateful for a feeling of rebirth right now 
+* Grateful for family members taking the medication
+* Grateful for Christian Science Practitioner’s today 
+* Grateful for holistic healing care 
+* Grateful for nature 
+* Grateful for Christian Science, prayer, and meditation contributing to healing my voice, healing me from hearing voices 
+* Grateful for God’s path unfolding 
+* Grateful for the word “appreciation”
+* Grateful for all the love from family 
+* Grateful for good recipes for home 
+* Grateful for all the works of Shakespeare 
+* Grateful for the love of people where I am
+* Grateful for the people I met today 
+* Grateful for the people outside 
+* Grateful for a teacher, multiple teachers from Norfolk Academy
+* Grateful for the time to glorify God in Friday
+* Grateful for my the people or faith where I am
+* Grateful that everything in architecture represents something 
+* Grateful for God going before everyone 
+* Grateful for God everywhere on the planet 
+* Grateful for God where family members are
+* Grateful for God’s expression in people
+* Grateful for the drummers 
+* Grateful for positive memories in Washington, DC
+* Grateful for the Church activities 
+* Grateful for other people living today 
+* Grateful for friends in California 
+* Grateful for good and cool people from Sig Delt
+* Grateful for people from Norfolk Academy 
+* Grateful for the adults in nursing homes 
+* Grateful for a love of people
+* Grateful for a love for music 
+* Grateful for family members in Greece
+* Grateful for the good going on all over the world 
+* Grateful for the culinary school
+* Grateful for all the children learning new things 
+* Grateful for everyone at the Christmas parties and the harmony 
+* Grateful for a love so big that goes back to the very beginning, the beginning of time with the trees and the rocks and the rose 
+* Grateful for sounds from other cultures 
+* Grateful for Albert Einstein
+* Grateful for friends this morning reaching out 
+* Grateful for friends getting married 
+* Grateful for all the veterans 
+* Grateful for the friends from Sig Delt
+* Grateful for the people from Kappa
+* Grateful for how loved people are 
+* Grateful for other careers apart from journalism 
+* Grateful that I’m on a different career path 
+* Grateful for all the other people in Greece 
+* Grateful for all the people in the airports 
+* Grateful for all aspects of home 
+* Grateful for all the good going on in Charlotte 
+* Grateful for new friends at Hopeway
+* Grateful for people I met from Princeton
+* Grateful for people’s families 
+* Grateful for the ability to label feelings
+* Grateful for people who know the law and the right thing to do
+* Grateful for ethics on social media terms of usage 
+* Grateful for the jars in cabinets 
+* Grateful for memories at Milestones 
+* Grateful for the nature everywhere
+* Grateful for the birds chirping 
+* Grateful for the lawn mower sound 
+* Grateful for all the people from UVa
+* Grateful for people from church
+* Grateful for their families 
+* Grateful for people where I am sitting in front of me 
+* Grateful for friends doing things abroad 
+* Grateful for leaders in the country 
+* Grateful for family members 
+* Grateful for couples I see online 
+* Grateful for the good that is continuously going on
+* Grateful for Spanish podcasts 
+* Grateful for everyone in the room
+* Grateful for people at the Christmas party
+* Grateful for the time in quietude 
+* Grateful for the airplane above
+* Grateful for the people outside where I am
+* Grateful for my cousins 
+* Grateful for the expectancy of good
+* Grateful for friends from church
+* Grateful for the time to make drinks 
+* Grateful for the time in the garden
+* Grateful for the nutritionist 
+* Grateful for people having fun 
+* Grateful for musical people from UVA
+* Grateful for all the other people in the world 
+* Grateful for the people in Washington, DC I met from Princeton 
+* Grateful for all the individualities 
+* Grateful for people I have yet to meet 
+* Grateful for the goodness running after everyone 
+* Grateful for the experiences in the DC Cathedral and for the interfaith
+* Grateful for the people at restaurants 
+* Grateful for the people I drove around 
+* Grateful for people in the metro station 
+* Grateful for all the people from the hair salon 
+* Grateful for all the people in Washington, DC
+* Grateful for the Netflix video on shame
+* Grateful for people in Greece
+* Grateful for people working in Starbucks 
+* Grateful for other singer songwriters 
+* Grateful for the purity of Church
+* Grateful for the health of Church
+* Grateful for lunch 
+* Grateful for the Spanish language and to understand more 
+* Grateful for people I met in Washington, DC on the street 
+* Grateful for grace be with us 
+* Grateful for peace and love be upon the people this week 
+* Grateful for youthfulness worldwide 
+* Grateful for people I worked with in Washington, DC
+* Grateful for Sunday lunches 
+* Grateful for the Summer sun 
+* Grateful for the friends of my grandparents on both sides of the family
+* Grateful for the glass half full 
+* Grateful for leaders and leadership
+* Grateful for purity in being 
+* Grateful to replace the immature part of myself with lots of true love for my cousin
+* Grateful for time with other family members 
+* Grateful for lifelong learning
+* Grateful for family 
+* Grateful for all the people in Greece 
+* Grateful for God’s infinite supply
+* Grateful that God can fully restore anything and everything 
+* Grateful for places in Washington, DC
+* Grateful for home sweet home
+* Grateful for reformation 
+* Grateful for the right place at the right time
+* Grateful for therapists and safety and people where I am
 * Grateful for the supplies being met each day
 * Grateful for the infinite humanity that continues forever and that echoes out for ever
 * Grateful for the infinite humanity that is broad and whole
