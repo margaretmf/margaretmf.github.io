@@ -163,21 +163,6 @@ Elation comes when dancing and having a good time.
 
 **Word Associations:** glee, rapture, ecstasy, bliss, cheer, contentment, delight, elation
 
-## Tears ##
-I weep inside.
-There's so much pain in my heart.
-I want to cry, and I feel the tears.
-It's so hard to see the pictures, the images.
-I grieve over rejection after trying to do what's right.
-How did I go wrong?
-How do I love?
-Loving people heals the distress, the wailing, and the whimpering.
-The tears flow out, but I let a smile, and a laugh, and a dance have the last word.
-
-<br>
-
-**Word Associations:** crying, distress, grieving, sorrow, pain, weep, wailing, whimpering
-
 ## Rain ##
 The rain falls down onto the windowshield.
 It showers.
