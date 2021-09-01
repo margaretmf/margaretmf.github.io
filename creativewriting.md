@@ -2386,8 +2386,8 @@ Spending time in a hotel
 It's a lifesaving drive
 It's a heartbreak hotel
 
-These nights in hotels
 These daystops in gas stations
+These nights in hotels
 
 It's a road trip to calm the raging heart
 It's a round trip back home to heal the breaking heart
@@ -2615,7 +2615,7 @@ They push you to grow the most
 
 ## The Mask ##
 You're not the mask.
-The comes off.
+The mask comes off.
 It's a game of make-believe and pretend.
 Masking the hurts and the pain.
 You're so much more than that.
@@ -2624,14 +2624,13 @@ Make-believe, pretend
 <br>
 
 ## Serpents ##
-Serpents attacking her in her sleep.
-Snakes coming out of her mouth.
-It's attacking.
+Serpents attack her in her sleep.
+Snakes come out of her mouth.
 It's creepy.
 It's weird.
 It's cruel.
-This cruel cruel world hitting us hard.
-It's a cruel cruel world of hardship and pain.
+It's harsh.
+This cruel cruel world hits her hard.
 
 <br>
 
@@ -2924,8 +2923,24 @@ there's an entire world you live in
 Imagine what is in the world
 
 Wonderful people, stars wonder
-you are all kinds of wonderufl
+you are all kinds of wonderful
 
+You're the one that I love
+You're the one that's true
+
+Day in and day out
+Like a star in the night sky
+Winking and twinkling
+I sure do love you
+
+You make me stronger
+You make me better
+You're the one that I want
+You're the one that I love
+
+With you in my heart I will always be living
+You're the one that I want
+You're the one that's true
 <br>
 
 ## Green Earth ##
