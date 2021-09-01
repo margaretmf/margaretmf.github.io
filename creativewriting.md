@@ -889,15 +889,6 @@ Shadows of birds.
 
 <br>
 
-## Bible Imagery ##
-My favorite imagery is the rose in the desert surrounded by drops of water.
-
-<br>
-
-## Spiritual Imagery ##
-My favorite imagery are a flower with water droplets, green weeds, and a flower with snow on it.
-
-<br>
 
 ## Heart to Heart - Bells ##
 Through the heart to heart I can hear the bells ringing
