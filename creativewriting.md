@@ -7375,7 +7375,7 @@ Music + Chai Tea = Love + Joy
 Rowing + Team Spirit = Oneness
 
 ## Think of a celebrity you would like to have dinner with. Write a note that just might catch that person's attention enough for him/ her to aggree to the dinner. ##
-It would be amazing to eat dinner with Taylor Swift. She's so in touch with the challenges in male-female relationships.
+It would be amazing to eat dinner with Taylor Swift. She's so in touch common feelings people share.
 
 Dear Taylor,
 
