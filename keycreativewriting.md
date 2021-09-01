@@ -151,6 +151,11 @@ You thought you had an enemy, but you really found a friend in disguse.
 
 <br>
 
+## Spiritual Imagery ##
+My favorite images are the rose in the desert surrounded by drops of water, a flower with water droplets on it, a flower with snow on it, and green weeds.
+
+<br>
+
 ## The Age of Globality, the Age of Spirituality, the Age of Interconnectedness ##
 We live in the age of globality, where people exchange ideas more naturally. <br>
 We live in the age of spirituality, where people slow down and live more mindfully. <br>
