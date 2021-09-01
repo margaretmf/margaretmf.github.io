@@ -131,6 +131,11 @@ The wind knows my name.
 
 <br>
 
+## The Wind Before the Rain ##
+The wind is blowing like it's about to rain.
+
+<br>
+
 ## Time Distance ##
 It's amazing that someone is six hours behind me somewhere doing the same activities.
 
@@ -568,6 +573,13 @@ It's an openness to everyone around because the love for each other is so great.
 It's the highest form of love so strong that stops the storm in her midst.
 
 It's the perfect 'I will commit' to an innocent yearning for a bond so great.
+
+<br>
+
+## A Heart That's True, A Mind That's Great ##
+The truth is that I really love you, a heart that's true, even when it's hard to love.
+
+The reality is that it's you who I care for, a mind so great, even on the lowest days.
 
 <br>
 
@@ -1231,21 +1243,22 @@ He had a secret admirer but he didn't know her name. Every day, she came home an
 (2) Wishing Well <br>
 (3) Tossing It Out to Sea <br>
 (4) My Hand on My Heart <br>
-(5) A Childlike Heart <br>
-(6) I Want to Hold Your Hand <br>
-(7) The Long Road Ahead <br>
-(8) Side Roads <br>
-(9) It's Ok, This Experience is Good <br>
-(10) Love Your Enemies <br>
-(11) A Partnership Like the Stars <br>
-(12) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me) <br>
-(13) Ode to A Squirrel (or Ode to Insects) <br>
-(14) The Lone Bird <br>
-(15) Boots <br>
-(16) Bells <br>
-(17) Holy Book and Church Domes <br>
-(18) World of Strangers (who become friends)  <br>
-(19) Rose and Greenery - Eternity  <br>
+(5) In the Hands of Time
+(6) A Childlike Heart <br>
+(7) I Want to Hold Your Hand <br>
+(8) The Long Road Ahead <br>
+(9) Side Roads <br>
+(10) It's Ok, This Experience is Good <br>
+(11) Love Your Enemies <br>
+(12) A Partnership Like the Stars <br>
+(13) Two Seeds in a Pod, Two Leaves on a Tree (or You plus Me) <br>
+(14) Ode to A Squirrel (or Ode to Insects) <br>
+(15) The Lone Bird <br>
+(16) Boots <br>
+(17) Bells <br>
+(18) Holy Book and Church Domes <br>
+(19) World of Strangers (who become friends)  <br>
+(20) Rose and Greenery - Eternity  <br>
 
 <br>
 
