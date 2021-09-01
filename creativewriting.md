@@ -1799,6 +1799,17 @@ All of our dreams become real
 I want to live with you forever
 I want our lives to leave marks in the trails on earth
 
+You plus me, it equals we
+You plus me, it adds up to love
+You plus me, it's an equation alright
+It's a love that lasts
+It's a love that's true
+
+We're stronger together
+We can't be without each one of us
+The moments that our true hearts share
+It's a love equation alright
+
 <br>
 
 ## Kissing Game ##
@@ -2039,6 +2050,11 @@ The tall grass sprouting up
 Driving down these highways like driving old school wagons.
 
 History of wagons
+
+Back on the highway again
+These are the roads that heal
+Where the sounds are so good
+On I 40 where the music resounds
 
 <br>
 
@@ -3686,6 +3702,10 @@ I want my brain to spark when I hear you speak about interesting things
 From your feet to your head I want to feel us alive and well
 
 He grabbed and held her hand
+I wanna feel the warmth of your love
+The blood rushing through
+I'm living by moments with you
+The moments with the love between our hearts filling it up
 
 <br>
 
