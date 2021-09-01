@@ -9,7 +9,7 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, a graduate of the University of Virginia. Over the course of a career, I would love to learn more about teaching and education, workplace architecture, the circular economy, and financial principles. As a classically educated historian, I care most about going back to the primary origin of ideas.
+I am **Margaret Furr**, a graduate of the University of Virginia. Over the course of a career, I would love to learn more about teaching and education, workplace architecture, the circular economy, financial principles, and nonprofit management. As a classically educated historian, I care most about going back to the primary origin of ideas.
 
 **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
