@@ -136,9 +136,13 @@ The wind is blowing like it's about to rain.
 
 <br>
 
-
 ## Time Distance ##
 It's amazing that someone is six hours behind me somewhere doing the same activities.
+
+<br>
+
+## She's the Rock n' Roll Girl ##
+She's the kind of girl that knows how to rock and knows how to roll. She's a sweet lover of the world.
 
 <br>
 
