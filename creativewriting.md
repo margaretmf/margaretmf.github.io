@@ -1186,6 +1186,7 @@ He's got two hands circling around everything
 Clock watching
 Father Time
 Counting down the time, the hours, the minutes
+"In the hands of time"
 
 Watching the clock eternity is for everyone.
 Tic toc.
@@ -3565,6 +3566,13 @@ It goes on and on and on
 
 <br>
 
+## Trees and Roots  ##
+Look how high the trees go. Wouldn't it be great to soar that high, and lift up like the branches?
+
+Look how far the roots spread. Wouldn't it be great to go so deep, and be that strong?
+
+<br> 
+
 ## Kiss on the Heart ##
 A kiss on the heart, a heart to heart kiss
 It ties our hearts in a knot and entwines the two of us into one
@@ -5547,7 +5555,8 @@ Shift the perspective, and there is something fitting underneath.
 ## The Airplane ##
 The airplane is launching.
 It's going up and up.
-It's lifting higher and higher.It's taking everyone with it.
+It's lifting higher and higher.
+It's taking everyone with it.
 
 <br>
 
