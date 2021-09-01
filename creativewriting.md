@@ -1165,6 +1165,21 @@ A day for rest, for community, and homework
 
 <br>
 
+## Home Sweet Home ##
+Home sweet home
+where screen doors are wide open
+where tomatoes are fresh
+where there's the sweet sound of peace
+where birds are singing
+where momma's hugs are priceless
+where the noise from the pool carries like the whistle of the train
+where the flowers are waiting to be smelled
+where the peaches are so sweet
+where the peanuts are so tasty
+where the breeze cools my neck
+
+<br>
+
 ## Medieval Alt-Country ##
 Traveling back into the past
 Traveling forward into the future
