@@ -1312,6 +1312,24 @@ Chained train cars
 
 <br>
 
+## Beginning of Time ##
+Back to the beginning of time when this red red rose peeps through the cracks is like my love for you. My love for you is like the red red rose in the brown brown dirt.
+
+<br>
+
+## Heaven Meets the Earth ##
+My heart touches the starting point where heaven meets the earth.
+
+<br>
+
+## Right Place, Right Time ##
+At the right place at the right time
+just when I thought I was late we meet on time
+just when I am heartbroken someone is there to push me along
+just when I thought I didn't have the answer something shows up
+
+<br>
+
 ## Peeking Through, Peering Through ##
 Peeking through the hole in the blinds, peering through the window to see the lines on the bench
 Walking around, going out the door, seeing the blinds and the bench from another angle, the full picture outside
