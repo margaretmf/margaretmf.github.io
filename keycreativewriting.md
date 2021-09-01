@@ -136,6 +136,7 @@ The wind is blowing like it's about to rain.
 
 <br>
 
+
 ## Time Distance ##
 It's amazing that someone is six hours behind me somewhere doing the same activities.
 
@@ -153,6 +154,16 @@ Through the fire I saw it all burn, become nothing, become pure, become refined,
 
 ## An Enemy is a Friend ## 
 You thought you had an enemy, but you really found a friend in disguse.
+
+<br>
+
+## The Devil on My Shoulders ##
+The devil on my back is yanking and pulling, and pushing and shoving.
+
+<br>
+
+## Same Thing, Two Different Ways ##
+We're saying the same thing in two different ways.
 
 <br>
 
