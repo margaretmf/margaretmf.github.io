@@ -1628,6 +1628,21 @@ is_contact: true
 (4) Metal clinking
 (5) The whistle of the train on a sunny day
 
+## **Day 96** ##
+## **Images** ##
+(1) A squirrel scurrying down a pathway
+(2) Trees swaying
+(3) The sun shining thorugh the light
+(4) Leaves in the water
+(5) A leaf falling onto a roof
+
+## **Sounds** ##
+(1) The breeze blowing
+(2) My footsteps
+(3) Cicadas
+(4) Cars driving by
+(5) Women's singing voices
+
 <br>
 
 <br>
