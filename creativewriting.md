@@ -6750,6 +6750,17 @@ Harmonious action
 Family reunion
 Drove through Virginia, bad day, anger, reactions
 
+The election results in 2016 shocked some people. It shocked me. Some people argue that the election results were an effect of miseducation in our country. I have felt miseducated. I read the biographies of President Barack Obama in 2021 while feeling sick, and angry.
+
+My mom has compared me to President Obama before in the past because of how I speak.
+
+The storm of women before a woman was elected President.
+The women behind the election.
+The women who have run for president before.
+
+This is the city where the East meets the west.
+It's home sweet home, and it will welcome me again and again.
+
 <br>
 
 ## A Hairbrush on the Ground ##
