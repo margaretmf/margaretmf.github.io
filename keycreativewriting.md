@@ -442,6 +442,22 @@ Mortal mind blackens the human experience, causes man to fear, and deceives, and
 
 **Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, black
 
+## Tears ##
+I weep inside. <br>
+There's so much pain in my heart. <br>
+I want to cry, and I feel the tears. <br>
+It's so hard to see the pictures, the images. <br>
+I grieve over rejection after trying to do what's right. <br>
+How did I go wrong? <br>
+How do I love? <br>
+Loving people heals the distress, the wailing, and the whimpering. <br>
+The tears flow out, but I let a smile, and a laugh, and a dance have the last word. <br>
+
+<br>
+
+**Word Associations:** crying, distress, grieving, sorrow, pain, weep, wailing, whimpering
+
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
