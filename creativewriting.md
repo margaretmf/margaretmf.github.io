@@ -1232,6 +1232,9 @@ He holds you tight
 He leads to people meeting by coincidence
 He leads to being on point
 He leads to the right place at the right time
+In the hands of time
+I'm right where I'm supposed to be
+I'm at the right place
 
 **Literary Allusion to Shakespeare**
 
