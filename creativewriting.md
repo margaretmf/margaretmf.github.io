@@ -3618,6 +3618,20 @@ It goes on and on and on
 
 <br>
 
+## This Love ##
+This love goes back.
+It goes back to a time before you and me.
+It goes back to a time when roses bloomed through the cracks, and the family tree was being conceived.
+
+There's a love so big.
+It was born with the stars before you and me.
+It loved before the writing was on the wall.
+It's so big, and it goes back. It embraces the whole sky above.
+
+This love goes back.
+It goes way back, and it's a love that's huge.
+It fills all of our hearts.
+
 ## Trees and Roots  ##
 Look how high the trees go. Wouldn't it be great to soar that high, and lift up like the branches?
 
