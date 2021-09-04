@@ -666,10 +666,15 @@ They've gone down lonely pathways. <br>
 They've skipped across sidewalks. <br>
 Can't you see? They've become sturdy and strong. <br>
 
-These wonderful boots. I keep them tied real tight.
-They've kept me feeling snug.
-They're as comfortable as can be.
-Can't you see? They're my favorite.
+These wonderful boots. I keep them tied real tight. <br>
+They've kept me feeling snug. <br>
+They're as comfortable as can be. <br>
+Can't you see? They're my favorite. <br>
+
+These boots of mine. They've really gone the extra mile. <br>
+They've done more than I could've asked. <br>
+They've survived the hard work. <br>
+Can't you see? There's some pep in every step with them. <br>
 
 <br>
 
