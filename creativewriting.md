@@ -2922,6 +2922,7 @@ They are crystal clear
 They are the yellow-white silence of the night
 With the cars driving by, the zooms on the highway, and the crickets singing and hummingtheir songs, the stars are white, graceful, a symphony, a dance, a waltz in the sky.
 
+How you are more than brilliant
 They know their names and yours.
 They sit still up there.
 They sparkle.
@@ -2970,6 +2971,9 @@ You're the one that I love
 With you in my heart I will always be living
 You're the one that I want
 You're the one that's true
+
+I'm crossin my heart and hopin to die
+
 <br>
 
 ## Green Earth ##
