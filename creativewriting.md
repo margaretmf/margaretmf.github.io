@@ -2660,10 +2660,10 @@ as the rain lifts and the storms stops, the colors shine through to smile throug
 ## It Was All A Dream ##
 It was all a dream.
 It was all a dream in a little girl's heart wanting to be someone.
-She watched all the other girls having fun and beeing free.
+She watched all the other girls having fun and being free.
 She was the one on the outskirts.
-It was all a dream not for me. It was a dream for some other girl that crashed down on me.
-It crashed down, and I grew up.
+It was all a dream not for her. 
+It crashed down, and she grew up.
 
 <br>
 
@@ -3516,151 +3516,6 @@ It is a new day, the fan is blowing, the water is running, the sound of silence 
 I made mistakes, reacted out of anger yesterday, yet again.
 The sun is dawning on a new day, and I can choose to reform, and let go.
 The sun is shining on the Earth from a new angle, shedding new perspectives on things.
-
-<br>
-
-## It's a New Day ##
-It's a new day to wake up and sing with the birds
-The sun is rising form the east to the west
-And oh how I want to live for another day 
-
-It's a beautiful day ahead for you and for me
-Seize all that life has to offer
-
-It's a new day for the sun to come out
-It's a new day for movement everywhere
-
-Every days a new day
-We/I/You and me am/are lucky to live another day
-It's a grand day every day to...
-It's a beautiful day every day to...
-We/I/You and me am/are are lucky to be alive another day
-
-Oh, it's a new day to wake up to the sun and let the life within make my heart beat with love.
-The beating heart within gives me reasons to smile.
-The pulsing heart within makes want to love.
-
-Every day's a new day to watch all humanity wake up with a smile.
-There are people to meet, there are things to be born.
-
-Oh, it's a glorious new day to wake up to the sun and let the life within make the heart beat with love.
-The beating heart within gives me reason to live.
-The pulsing heart within makes me want to sing out loud.
-There's a new song to sing to light up everything.
-
-Oh, it's a new day for the sun to rise from the east to the west.
-I love how the rays shine through the trees and then warm my face with the heat.
-There are new people to meet, there are new things to be born.
-It's a new day for the sun to shine down and light up everything.
-
-Oh it's a radiant day to go and skip outside.
-There's a movement of people circling everywhere.
-I love meeting new friends, and seeing smiles of neighbors waving.
-I love hearing kids laugh and play and seeing people work.
-
-Oh it's a beautiful day to love the green earth.
-The grass is so fresh and the sky is so blue.
-I love seeing the clouds above and hearing the bees. I love smelling the buds and flying with the birds.
-It's a wonderful day to be free and sing and live on this earth.
-
-There's a brand new day every day.
-There's a reason to live and there's a reason to dance.
-There's a reason to watch all humanity smile in unity today.
-It's a great day...
-
-It's a new day for the new you to arise.
-There's a new self waiting to live.
-There's something new every day.
-
-There are good people everywhere to light up the path.
-There are new ways to see things and new views to hold.
-There's something ot learn every day with joy.
-
-Oh its a beautiful day to rise up with the sun
-And watch the rays shine through and light out the way
-I love how the sun rises up from the East to the West
-The light shines through in new angles and warms my face
-
-Oh it's a new day to fall in love with all the earth
-And feel the heart of humanity pulse aloud with life
-There's movement everywhere and there' joy everywhere
-There's good work everywhere and there's home everywhere
-
-Like the sun lighting up the earth
-There's a smile lighting up you and me
-And it's a radiant day for a smile to sweep through everyone all at once
-
-Like a smile sweeping through everyone all at once
-There's a song singing through everything all at once
-It's a new day to sing a sweet sweet song
-I love singing this song in everything I do
-
-Oh it's a new day for the earth to be whole 
-and the people to be free
-It's a new day for the flowers to bloom
-It's a new day for the sky to open up for you and me
-It's a new day to see with different eyes, see through another's eyes
-
-It's a new day for the wind to breeze and the air to chime 
-It's a new day for the water to glisten on the green green grass
-It's a new day for all the sounds of the earth to lift up into harmony, heaven
-It's a new day for the story to be told and the story to be shared and the story to weave itself through the universe
-It's a new day for a hand to reach out to reach out a hand
-
-It's a new day to open your ears to the sounds everywhere
-It's a new day to open your arms to the people everywhere
-
-It's a new day to think a different thought, and discover something new
-
-There's always a new day ahead
-There's always something new to learn
-There's always a surprise to come
-
-It's a day under the sun
-There's always a new day
-Every day
-It's a lifelong day
-It's a day to do something new
-It's an infinite day
-My whole life is a day under the Sun
-
-It's a new day to choose to love and love within your heart
-There are people everywhere loving and to love
-
-It's a lifetime of days with you in my heart
-
-It's a day to try something new
-It's a beautiful and amazing day to be alive
-
-Each and every day, the Truth, the light shines on something new
-Every new day to wake up to the Truth, and see what's there
-
-The smile through the earth as one
-
-Anyone can rise up
-Anyone can get back up
-Anyone can lead
-Anyone can do what's right after doing what's wrong
-
-I want to live each day like it's a new day to live
-
-There are a thousand, infinite, many new days for you and for me to live and love all the world
-
-There are new friends to meet every day.
-
-Every day I'm humbled by a new view to take, a new lesson to learn, a new wrong I've done, a new mistake I've made
-Seeing from a new angle
-
-There's a brand new view to take of you and me and all humanity
-
-It's another day to wake up to the truth within
-
-It's a new day to appreciate something old, and something from the past
-It's a new day to share a smile with a friend
-It's a new day to be born again
-It's a new day to see something never seen before
-
-Everyday's a new day to be someone new, to see something new
 
 <br>
 
