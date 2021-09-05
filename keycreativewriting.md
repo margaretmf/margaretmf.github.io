@@ -218,9 +218,9 @@ echo another's, <br>
 find the strength within, <br>
 get things off your chest. <br>
 
-<br>
-
 **Word Associations:** mermaid, narrate, opinion, echo, silence, accent, sing, choke, chest, express
+
+<br>
 
 ## Mountains ##
 Through the mountains, the Earth is singing. <br>
@@ -230,9 +230,9 @@ It's a joy, a challenge to climb up the summit and feel like you're touching the
 The ascent is freeing, and walking down the slope is humbling. <br>
 Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one. <br>
 
-<br>
-
 **Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
+
+<br>
 
 ## Stranger ##
 Someone new on the street who I have never met. <br>
@@ -241,9 +241,9 @@ A mysterious voice speaks through this quest on Earth and shows me the similiart
 Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation. <br>
 There's no stranger to God. <br>
 
-<br>
-
 **Word Associations:** friend or foe, sojourner, mysterious, guest, newcomer, migrant, visitor, acquaintance
+
+<br>
 
 ## The Night Sky ##
 The night sky sings with holiness and peace. <br>
@@ -252,9 +252,9 @@ The blackness is so dark and the pitch of the night silences everyone to sleep. 
 THe glimmer of the stars give hope and point people to inncocence, hope, and home. <br>
 The wakeful individuality share the love for all mankind with a heart at rest for all the holy light. <br>
 
-<br>
-
 **Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
+
+<br>
 
 ## The Moon ##
 The moon is shining in the darkness. <br>
@@ -263,9 +263,9 @@ It stands in the sphere, the orb of the Earth. <br>
 Good tidings fall, wane, wax, upon it. <br>
 The lunar eclipse shines also.  <br>
 
-<br>
-
 **Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
+
+<br>
 
 ## History ##
 Across time and space,  <br>
@@ -282,9 +282,9 @@ life repeated, <br>
 truth expressed, <br>
 and modernity created. <br>
 
-<br>
-
 **Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
+
+<br>
 
 ## Color ##
 All of the colors of the rainbow reflected through everything in our world. <br>
@@ -301,9 +301,9 @@ Colors and tones, all original. <br>
 Such great contrast in everything we do with the light bouncing off of us in original ways. <br>
 We are all part of this great photo. <br>
 
-<br>
-
 **Word Associations:** shade, vision, race, selective, tone, insignia, rainbow, contrast, photo, light
+
+<br>
 
 ## Noise ##
 The bustle of the lawn mower outside my window wakes me up. <br>
@@ -313,9 +313,9 @@ The day is starting. <br>
 The human experiences are rising. <br>
 Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard. <br>
 
-<br>
-
 **Word Associations:** bustle, din, clamor, tumult, uproar, thunder, crescendo, cacophony
+
+<br>
 
 ## Anxiety ##
 Oh my God! <br>
@@ -329,9 +329,9 @@ I am living in dread for what is going to happen. <br>
 It's the worst distress I've ever felt. <br>
 I wait in apprehension for the future. <br>
 
-<br>
-
 **Word Associations:** jittery, dread, uneasy, fretful, disquietude, distress, restless, apprehension
+
+<br>
 
 ## Smiles ##
 Smiles are God's work through man. <br>
@@ -339,9 +339,9 @@ The sun shines its light that radiates through the Earth as man shines his happi
 There should be 7.2 billion smiles, laughs, expressions of delight, and beams of hope on Earth today. <br>
 Smiling through all the Earth, our mankind is beautiful, whole, and integrated. <br>
 
-<br>
-
 **Word Associations:** grin, laugh, amusement, delight, smirk, beam, dimple, lips
+
+<br>
 
 ## Silence ##
 The silent truth echoes down the ages from heart to heart, <br>
@@ -354,9 +354,9 @@ It lives and loves the solitude, putting a stop to the chatter, the murmurs, the
 The silent secret within is a heart filled with golden light. <br>
 It has great command over the serpent, and is able to tread on it. <br>
 
-<br>
-
 **Word Associations:** sound, murmur, chatter, solitude, echo, mute, muffle, gene, command, secret
+
+<br>
 
 ## Time ##
 Outside of time, stands eternity. <br>
@@ -370,9 +370,9 @@ Tick-tock it goes for infinite time. <br>
 For infinite time, the truth for why mankind exists will march onward. <br>
 Moment by moment, we choose to stand in that goodness. <br>
 
-<br>
-
 **Word Associations:** eternity, hours, period, era, clock, ticktock, infinity, moment
+
+<br>
 
 ## Change ##
 Heading into new territory. <br>
@@ -388,9 +388,9 @@ Everything is on a new basis, a different foundation. <br>
 I transmute myself. <br>
 There's variance. <br>
 
-<br>
-
 **Word Associations:** shift, transition, metamorphosis, revision, season, switch, transmutation, variance
+
+<br>
 
 ## Veil ##
 The true light within someone or a situation unveiled, and unhidden. <br>
@@ -398,9 +398,9 @@ The mystery of it all made more transparent. <br>
 The ignorance brought into sight. <br>
 The curtain opening to show what's shielded. <br>
 
-<br>
-
 **Word Associations:** shadow, bride, hide, lure, shield, sight, mystery, transparent, ignorance, curtain
+
+<br>
 
 ## Scandal ##
 Oh my God! <br>
@@ -411,9 +411,9 @@ What a release that something so dark is brought to light through high-minded se
 It's good to keep things private, and not be afraid of the public. <br>
 Everything private becomes public, everything public influences our private lives. <br>
 
-<br>
-
 **Word Associations:** reputation, expose, hush, cover, public, fame, outrage, gossip, private, sensation
+
+<br>
 
 ## Deceit ##
 Deceit, it's like flirtation. <br>
@@ -424,9 +424,9 @@ Evil sits with pretense wanting to be uncovered, and not unmasked. <br>
 Do you really believe in the duplicity and the lies? <br>
 All of this goes into the dumpster, all pretense is let go of. <br>
 
-<br>
-
 **Word Associations** trickery, duplicity, lies, guile, two-faced, imposter, pretense, fraud
+
+<br>
 
 ## Prayer ##
 Prayer is the heart's sincere desire. <br>
@@ -439,9 +439,9 @@ Prayer is a psalm. <br>
 Prayer is natural to man. <br>
 Pray is gratitude and a heart singing within for the logic of the universe. <br>
 
-<br>
-
 **Word Associations:** invocation, entreat, appeal, humble, thanks, psalm, deliverance, blessing
+
+<br>
 
 ## History ##
 What is done is done. <br>
@@ -452,9 +452,9 @@ In the words of the poet, 'let bygones be bygones.' <br>
 The wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity. <br>
 His story from antiquity is continuous, ever-renewing and cyclical. <br>
 
-<br>
-
 **Word Associations:** yesterday, past, antiquity, bygone, ancient, annals, chronicle, story
+
+<br>
 
 ## Nighttime ##
 At nighttime, when I can't sleep in the darkness, I turn to the stars. <br>
@@ -464,9 +464,9 @@ I pray for mankind, <br>
 I let go of the shadows of mortal sense. <br>
 Mortal mind blackens the human experience, causes man to fear, and deceives, and God causes all to shine, so people can be aware. <br>
 
-<br>
-
 **Word Associations:** sleepless, moonless, darkness, wakeful, vigil, dim, shadow, black
+
+<br>
 
 ## Tears ##
 I weep inside. <br>
@@ -479,10 +479,9 @@ How do I love? <br>
 Loving people heals the distress, the wailing, and the whimpering. <br>
 The tears flow out, but I let a smile, and a laugh, and a dance have the last word. <br>
 
-<br>
-
 **Word Associations:** crying, distress, grieving, sorrow, pain, weep, wailing, whimpering
 
+<br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
