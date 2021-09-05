@@ -72,23 +72,6 @@ People imagine different things about them and how they support our ecosystem.
 
 **Word Associations:** puff, mist, billow, blanket, swarm, thunderhead, nebulous, cumulous
 
-## Spring ##
-A fresh season for living, moving, and loving begins.
-The pink buds, the white and yellow flowers.
-From little seeds to full openings, it is perennial as the primrose.
-
-<br>
-
-**Word Associations:** budding, flowering, vernal, seedtime, beginnings, fresh, perennial, primrose
-
-## A Storm ##
-The storm is roaring and raging in the sky and in our hearts.
-The blustering winds, the tempestuous feelings.
-There is nothing like a winter blast, and a heart filled with wrath that loses control.
-The storm roars without us, the sun is always shining, and it is always a beautiful world to be joyful, and cheerful in.
-
-**Word Associations:** roaring, raging, blustering, tempestuous, squall, blast, gale, wrath
-
 ## A Sunny Day ##
 A sunny day is like God smiling through the day.
 God's light shines through our land and our hearts.
@@ -143,25 +126,6 @@ Elation comes when dancing and having a good time.
 
 **Word Associations:** glee, rapture, ecstasy, bliss, cheer, contentment, delight, elation
 
-## Rain ##
-The rain falls down onto the windowshield.
-It showers.
-The water falls in a torrent.
-It's a deluge of water.
-Precipitation, changing form from the sky to the earth.
-The sprinkles, the droplets.
-The sunshine wants to evaporate the water after it falls.
-
-The rain falling, little circles, droplets on the earth
-The rain fall, the rainbow smiles
-A bouquet of flowers parralel to all the colors of the things in the world
-The rainbow today and all the colors smiling through the earth
-
-**Dolly Parton's music on colors and rainbows**
-
-<br>
-
-**Word Associations:** deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid, sunshine
 
 ## The Past ##
 The past is done. It's gone. It's a distant dream, a memory fading away so that the future of new mercies can unfold.
@@ -343,8 +307,6 @@ That old clock ticking
 
 ## Trucks and Cargo Colors ##
 Light green, royal blue, yellow, rusty orange, red, brown, dark blue, forest green. A chain of colors. A chain of nationalities being represented. A whole globe expressed through a chain of colors.
-
-**Dolly Parton's song on colors and God's rainbow painted through the world, the Earth** 
 
 <br>
 
