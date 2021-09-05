@@ -1290,9 +1290,9 @@ He had a secret admirer but he didn't know her name. Every day, she came home an
 
 ## New Day - Rough Draft ##
 Oh it's a new day for the sun to shine. <br>
-(I love that) from the east to the west the rays light up the day. <br>
+From the east to the west the rays light up the way. <br>
 
-I love to feel the warmth of the sun's rays both on you and on me. <br>
+I love to feel (the warmth of) the sun's rays both on you and on me. <br>
 Every day's a new day for me and for you. <br>
 
 It's a new day for the birds to chirp. <br>
@@ -1304,8 +1304,8 @@ Every day's a new day. Every day's a new day. <br>
 Oh it's a new day for the sky to be blue. <br>
 Bright blue the sky is with the birds sailing high. <br>
 
-I love to look up at the sky and dream big in the clouds. (wish upon the stars)  <br>
-Every day's a new day to dream something new. (wish something new) <br>
+I love to look up at the sky and dream big in the clouds. <br>
+Every day's a new day to dream something new. <br>
 
 Oh it's a new day for the people to move. <br>
 I love that the sun is what the earth spins us around. <br>
