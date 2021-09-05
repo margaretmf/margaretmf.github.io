@@ -58,26 +58,6 @@ In this journal, you will start your writing exercise by selecting a topic that 
 ## **I have turned to writing poetry with Picadilly products, and I explore how poetic thinking supports systems engineering. Earlier in 2020, and before 2020, I was sending aggressive emails, but my sister realized that some of my attacks had a poetic sound underlying them. Some people don't feel like expressing feelings is ok, and that feelings must be worked out independently; but feelings must be expressed, others express feelings through music, and poetry is a good tool for expressing feelings verbally. I write two poems each day.** ##
 
 
-## Quest ##
-On a quest to discover the rhyme and reason to the universe.
-On an adventurous search to understand the purpose to life and the endless possibilities.
-On the road to a deepening, enlivening sense of life and love.
-In a story to appreciate the true vision, the heroism, and the exciting goal for the future of youth.
-
-<br>
-
-**Word Associations:** goal, future, adventure, possibility, road, vision, purpose, obstacle, story, hero
-
-## Message ##
-A secret message signaling to someone information, and knowledge that should be known.
-Through a divine connection, people receive encrypted notes alerting people to missing puzzle pieces.
-It's like a giant iSpy game with phones and bottles.
-Different conduits for voices and paper to share these secrets.
-
-<br>
-
-**Word Associations:** send, encrypt, alert, bottle, secret, spy, prophet, phone, deliver, signal
-
 ## Clouds ##
 The clouds. 
 They sit like a blanket covering the sky, and looking like puff, they sit in the sky for a divinely childlike adventure.
@@ -183,29 +163,6 @@ The rainbow today and all the colors smiling through the earth
 
 **Word Associations:** deluge, showers, dew, precipitation, torrent, raindrops, sprinkle, liquid, sunshine
 
-## Music ##
-Life is a symphony.
-The breeze moves the trees, and cars move around on the highway in a beautifully orchestrated way.
-There is constant rhythm when we tune into the underlying reality and let ourselves be instruments of good cheer.
-There is constant melody in the interconnectedness of Life.
-Our experiences are living hymns.
-
-<br>
-
-**Word Associations:** melody, hymn, instrumental, orchestra, popular, tune, choral, rhythm
-
-## Hope ##
-A hope, a desire for something - something better.
-A wish for something to happen.
-A belief in the best.
-An aspiration, a life goal, optimism and faith that everything will work together for the best.
-Anticipation of harmony, love, God's care, God's detailed plan.
-An expectation of being in the right place.
-
-<br>
-
-**Word Associations:** expectation, wish, aspiration, ambition, belief, optimism, faith, anticipation
-
 ## The Past ##
 The past is done. It's gone. It's a distant dream, a memory fading away so that the future of new mercies can unfold.
 Let bygones teach us the lessons while holding on to remembrances of the good.
@@ -229,17 +186,6 @@ Yearning for the love for all mankind and the smiles on all of mankind's fate is
 
 **Word Associations:** adoration, affection, yearning, flame, emotion, ardor, fondness, rapture
 
-## A Work of Art ##
-The Earth we live on is a work of art.
-There is divine interconnectedness expressed all around through people's actions.
-The light of the sun shines on every one slightly differently, from a different perspective through the landscape.
-The colors, the hues are beautiful brushstrokes revealing the prism of light.
-Thank you for this beautiful craft that all of humanity can cherish and love.
-
-<br>
-
-**Word Associations:** portrait, brushstrokes, texture, color, craft, landscape, shade, light
-
 ## The Sun ##
 The Sun is always there.
 Never will there be a day when mankind questions whether the sun is there.
@@ -250,502 +196,6 @@ All of our hearts, and minds, like the sun can come to full effulgence, beyond t
 <br>
 
 **Word Associations:** golden, effulgence, solstice, radiance, heat, dappled, shadow, zenith
-
-## Tragedy ##
-Falling into the deep, dark pit of wreckage, mistakes, failure, rejection is such a tragedy.
-Letting emotions override and control, and feeling overtaken by adversity.
-Sudden misfortune and affliction is a shock to the whole system, causing pain, and heaviness.
-It feels like a curse and like one is doomed.
-Always the light of life is there to turn us from tragedy to comedy with a smile and a laugh.
-
-<br>
-
-**Word Associations:** doom, adversity, death, wreck, catastrophe, affliction, misfortune, curse
-
-## Winter ##
-As fall turns to winter, the golden-yellow leaves fall off, and the glistening grey branches shine in the sunlight.
-There's a chill in the air as the winds blow and the solstice comes.
-Yuletide carols, fireside chats, evergreen mountains, snow falling.
-The Earth is brilliant and so filled with love.
-Winter is here, the grey is warm, and in just a little bit the buds will pop up.
-
-<br>
-
-**Word Associations:** snow, chill, solstice, igloo, yule, fireside, evergreen, arctic
-
-## Fall ##
-The dark brown leaves bouncing up and down the street, glittering, hitting the windshield while it rains.
-In autumn, the golden-orange brightens everything.
-There is a harvest so perfect.
-The leaves fall off later in the season so that the branches are light grey.
-Death, decay, leading to new life.
-
-<br>
-
-**Word Associations:** autumn, orange, foliage, harvest, leaves, bramches, cornucopia, death
-
-## Heroism ##
-Heroism - as it goes, "everywhere, life is filled with it."
-It is the courage to rise up and shine for another day to help someone.
-It is making a sacrifice by stopping what one wants, doing what is right, forgoing the wrong desire.
-It is expressing unflinching strength in times of darkness.
-It is being bold and daring to meet a need.
-It is sharing valiance and strength of spirit.
-
-<br>
-
-**Word Associations:** courage, sacrifice, unflinching, strength, valiant, gallant, bold, daring
-
-## Chance ##
-By chance, I meet these new people.
-Random encounters point me to my lifelong fate.
-Good luck points me to my lifelong destiny.
-I am grateful for the good fortune, and gamble with what to do, knowing that something larger than myself is synchronizing situations to lead to divine providence.
-
-<br>
-
-**Word Associations:** luck, fortune, random, fate, remote, providence, gamble, destiny
-
-## Ecology ##
-Everyone, everything working together harmoniously for good.
-Preserving one another through kind, and patient actions.
-Conserving the best of humanity, and the animal kingdom through our thoughts and deeds.
-We are all part of a constantly evolving ecosystem with diverse ideas feeding each other and renewing each other.
-In the natural environment belonging to animals and man, there's constant circuity and motion.
-In the Science of the Earth, naturally Life goes on and on so that everyone and everything pushes everyone and everything to grow and make the planet grow infinitely better, greater, greener, brighter, and lighter.
-
-<br>
-
-**Word Associations:** preservation, conservation, ecosystem, environment, science, nature, Earth, planet
-
-## Tradition ##
-Traditionally, values of loyalty, hard work, cheerfulness, and musicality guide our thinking and lives.
-It is the custom to show up, appreciate people, and stick to it.
-The heritage of everyone in the human race adds value, and rich is the ancestry and the legend in Soul.
-With each individual expression, our culture expands infinitely.
-Nothing is lost from cultural diveristy.
-Folktale passes down lessons, and exists in every culture.
-What was the convention yesterday may not be the convention today.
-
-<br>
-
-**Word Associations:** values, custom, heritage, legend, fable, culture, folklore, convention
-
-## A Walk ##
-I take a walk down memory lane.
-I stroll, and see all the good people and beautiful images that have touched my life.
-I feel the fresh air of good thoughts that cause me to breathe.
-The goodness of God is the pulse to my life that brings beauty to take photos of and a song to sing in my heart.
-I trace my footsteps back to the true thoughts and the ways God has moved me.
-The path ahead is wide open with the breeze in the background sounding like chimebells.
-I wander with love for the good, clear thinking and love coming out of every human's expression.
-I know there is infinitely more to love and learn during the next phase of the walk.
-
-<br>
-
-**Word Associations:** stroll, fresh air, pulse, footsteps, path, promenade, breeze, wander
-
-## Opportunities ##
-There's a new horizon ahead.
-There's a wide scope of opportunities.
-Dreams live within me to be fulfilled.
-A vision activates how I love and choose to live, act, and be.
-There are great prospects ahead to love someone, learn about humanity, and grow an enlargened sphere of purpose.
-Seize the day, there's good luck.
-Carpe Diem.
-
-<br>
-
-**Word Associations:** horizon, scope, dreams, visions, prospect, seize, carpe diem, luck
-
-## Equality ##
-I am equal to him riding his bike.
-I am equal to her walking down the street.
-I am equal to them driving in the cars.
-I am equal to him selling the fruit.
-I am equal to her dancing.
-All of man is standing in equally balanced relationships to the Creator.
-Accepted under the same Sun, with fairness in judgment of the light in someone, and leveled in engagements.
-Our Creator endows each man the ability to be creative even when working through the most mundane tasks.
-All of mankind working together, collaborating, and tolerating each other in one brotherhood.
-
-<br>
-
-**Word Associations:** parity, tolerance, balance, acceptance, fair, level, right, brotherhood
-
-## Independence ##
-The freedom within that supports standing alone.
-The sovereign grace within that supports being at peace.
-The self-reliance to know the right ideas.
-The autonomy that supports governing one's self with these ideas.
-The strength within to stop what is wrong.
-The confidence within to love and be happy for others, and feel self-fulfilled.
-THe assuredness within that something good will work out.
-The determination within to keep going.
-
-<br>
-
-**Word Associations:** freedom, sovereignty, self-reliance, autonomy, strength, confidence, assuredness, determination
-
-## Patience ##
-Wanting to react, but choosing to pause.
-Experiencing anxiety, dividedness, but finding the peace within.
-Feeling agitated, but staying calm.
-Losing composure, bu having the humility get back up, and try again.
-Falling and stumbling, but expressing the patience to confront the challenge face-to-face.
-Amidst the noise, going placidly like the river.
-Staying stock and smiling while making mistakes.
-Being pulled by the stir, but experiencing the gentleness within.
-
-<br>
-
-**Word Associations:** stoic, serene, calm, peace, composure, humility, gentleness, placidly
-
-## Silence ##
-The beauty of silence, of quiet.
-It hushes the noise all around.
-It's the peace in the storm, the calm, uplifted thought above the sea of troubles.
-In quietude is the grace of a still heart.
-It's the whisper of good ideas among evil suggestions, and thoughts.
-It's the profound mystery of grace underlying everything.
-It's the lull in the darkness.
-
-<br>
-
-**Word Associations:** hush, lull, peace, calm, quietude, stillness, whisper, profound
-
-## Forgiveness ##
-The return to one's self.
-The change involved when letting go of false beliefs.
-The grace given to move forward and let the past go and be behind.
-The charity involved in seeing and assuming the best in people.
-The leniency in relationships that gives people room to grow and learn from mistakes.
-The mercy shared so that the ray of sun in one's heart can fully shine and enlighten.
-God moving the sinner with compassion that heals and lights through the obstructions.
-
-<br>
-
-**Word Associations:** clemency, compassion, mercy, absolution, leniency, charity, grace, repent
-
-## Humility ##
-Having the humility to own up to the things done wrong,
-respect rebukes and boundaries, and love someone who seems better.
-Expressing the modesty to know when to back down from a fight, and recognize the strength and power reflected in all of the people alike.
-Showing the reserve not to lash out, demonstrating the meekness to do the right thing.
-Being gentle when a temper comes up.
-Showing docility in the face of adversity.
-Realizing the opposite of bashfulness.
-Expressing contrition for wrong-doing, and knowing ones mistakes.
-
-<br>
-
-**Word Associations:** reserve, bashfulness, docile, meek, fawn, modesty, contrition, gentle
-
-## Imagination ##
-An invention of the human mind.
-A vivid vision inside that's not fully reality.
-It's an invention to cope with something causing pain inside.
-It's fantastically providing a false sense of condidence to cover something up.
-The inner stimulus, enterprising with fictitious ideas.
-Images seen through the eye originally are romanticized, not see in the full light, distored, and reversed into artistry that's like make-believe.
-
-<br>
-
-**Word Associations:** vivid, invention, fantatstic, stimulating, vision, enterprise, originality, artistry
-
-## A Mystery ##
-Why are events happening the way they are? I do not know.
-It's a mystery, an enigma to me.
-It puzzles me daily. It baffles me hourly.
-I want to be fascinated by it.
-It tries to possess me, take me over, overpower me.
-I learn to not get stuck in the pickle, and in a conundrum. 
-I learn to not be run over by the quandary.
-The enigma being presented is a charade.
-I choose to walk over the crux trying to entrap, and ensare me.
-
-<br>
-
-**Word Associations:** conundrum, pickle, quandary, crux, enigma, puzzlement, charade, baffle
-
-## Soul Mate ##
-In Soul, the source of our souls and hearts, we may find multiple kindred spirits.
-I can see aspects in everyone that feel like me, or feel like home, or feel like family in some way. I can trust in them and treat them like a confidante.
-We all share the same source of companionship that blesses and uplifts homes, communities, and activities united on Earth.
-True love is always pointing us to something greater, grander, and more symphonious about ourselves, and the sweet heart within.
-True love is always uncovering the Truth that we need to know about mankind.
-It's good to commit to one partner, or spouse, or lover, but there are partners everywhere when God is partnering with us to weave His story, and His Song, and His Soul to higher heights and views.
-
-<br>
-
-**Word Associations:** partner, lover, spouse, kindred, confidante, companion, true love, sweetheart
-
-## Strength ##
-When everything goes awry, I go within to find the strength to move forward.
-When I feel anger and hatred all around, and want to lash out, I see how loving a neighbor as myself is vital to living another minute, another hour, another day.
-When I don't know how to arise another day out of bed, I find health from God within.
-This source within is powerful.
-One small intuition can grow and grow into potency.
-One small seed can be the muscle for a long, entire life.
-One choice to think differently can become the sinew for many more thoughts and actions to come.
-
-<br>
-
-**Word Associations:** vitality, fortitude, health, power, muscle, sinew, pith, potency
-
-## A Sunset ##
-The sun sets another day over the mountains.
-The orange, and the gold meet the nightfall.
-The day declines at eventide, and the night is gloaming with peace.
-At twilight, I love to find the still, small voice, sharing what I need to know another day.
-
-<br>
-
-**Word Associations:** eventide, gloaming, nightfall, dusk, orange, gold, decline, twilight
-
-## Growing Older ##
-Another year has past.
-I have grown older, seen everything evolve, and perfected the imperfect ideas.
-Lessons have been gained, immature ways have been let go of and destroyed.
-The golden years that belong to the sun have yet to come.
-As I grow older, I pass by those elders who are more mature and venerable.
-
-<br>
-
-**Word Associations:** golden years, mature, dotage, decline, elder, venerable, evolved, perfected
-
-## Jealousy ##
-The strife from wanting what someone else has and feeling the need to compete.
-Envying them because they express something fully that seems incompletely expressed in me.
-Feeling antagonism beceause they are perfect, and I seem to lack.
-I have it within already, but it seems like I am just a copy, and animosity drives anger and a grudge.
-They have the authority, and the power.
-I had some of these ideas too, but I feel driven to spitefulness.
-
-<br>
-
-**Word Associations:** rivalry, envy, antagonism, animosity, spite, grudge, covetous, strife
-
-## Fear ##
-There's so much tightness within.
-It's a living nightmare.
-Trapped in the dread of getting up out of bed another day to make known.
-Paralyzed by the wrongs done.
-Creeped out by the mystery of life.
-Taken over by the angst of what needs to be done and the tremors on the Earth.
-
-<br>
-
-**Word Associations:** dread, tremor, paralyzed, foreboding, nightmare, creeps, jitters, angst
-
-## A Shadow ##
-A dark side underlying the light.
-The false, fake, sham part of the two-faced being.
-It's unreal, a mimic.
-It obscures the light, the true being.
-It obfuscates humanity's reality.
-It blackens the human experience and leads to pain.
-It's the dark undercurrents of humanity waiting to arouse in agitation.
-It extinguishes the part within that lights us up.
-It's a shadow because it's not the full reflected self.
-It's the self hidden by the lightlessness, waiting to evolve from shadow to light.
-
-<br>
-
-**Word Associations:** two-faced, dark side, lightless, mimic, obfuscate, blacken, obscure, extinguish
-
-## Regret ##
-Wow. That was such a big mistake.
-I should not have done that in the land of bitterness, and in my self-defeat.
-Lamenting over what could have been, what should have been, what was done wrong.
-Bemoaning over the past, and with a strong conscience, living in penitence with strong self-reproach.
-Repining for rue.
-
-<br>
-
-**Word Associations:** penitence, self-reproach, repine, bitterness, lament, bemoan, rue, defeat
-
-## Insanity ##
-Falling to pieces mentally,
-losing control,
-letting a person, place, or thing control me.
-Heading into delirium, expressing incoherent thoughts, making irrational decisions, feeling lost in the delusion.
-Running around like a madwoman in a state of mania.
-Appearing like a lunatic.
-Working hastily and showing folly.
-
-<br>
-
-**Word Associations:** delirium, lunacy, mania, irrational incoherent, delusion, neurosis, folly
-
-## Swallow ##
-The truth is hard to swallow.
-The truth of the flight, the rejection, the reaction, the pain.
-The pride of the serpent is hard to take in.
-It's poison, shaming, a potion.
-It's grimacing.
-There's a popping reflex.
-The danger.
-Be patient. This will all pass.
-Everything will pass.
-
-<br>
-
-**Word Associations:** poison, flight, draught, serpent, pride, potion, reflex, patient, pop, grimace
-
-## A Seed in the Ground ##
-There's a seed in the ground, buried.
-It contains the treasures of ancestors, our family's past.
-It grows and grows through the ground to wake the heart up, and support a true becoming.
-With the nourishment of water, it becomes something lives and flourishes with wider roots.
-
-**Word Associations:** seed, buried, growth, ground, heart, life, flourish, nourish, water, become
-
-## Letter ##
-Your song is a secret letter speaking to the deepest darkness and lightest light of my heart.
-Your song is like a note in an envelope holding up a mirror to the ghost of the past and the truth of the Christ.
-The intent is unknown, there's a cryptic healing for a cryptic pen from the past.
-By law you help me, your will is good, it almost feels like it comes straight out of a book.
-
-<br>
-
-**Word Associations:** missive, diary, pen, will, intent, law, note, forge, figure, envelope
-
-## Mystery ##
-In the mystery of it all, unexpected wonders come out of left field.
-A surprise, a wonder, a riddle.
-How does God know all of our deepest, darkest secrets?
-It's suspect in his woven mystery.
-It's curious how he leads us to clues, and pieces of his larger puzzle.
-No question about it, in God's mysterious workings and intuitions, he connects our dots to wholeness, greatness, life, and healing.
-
-<br>
-
-**Word Associations:** surprise, unexpected, curiosity, wonder, clue, suspect, question, riddle, darkness, secret
-
-## Forbidden ##
-The forbidden forest.
-The place where one cannot go.
-The people that one cannot talk to.
-The place, the people are too good.
-The one forbidden is too sinful.
-The sin, dangerous, is in danger zone.
-A ban on the sin keeps it constrained.
-A rule for how to go and how to live.
-It's shaky, that's why a rule through religion keeps the fruit contained and untouchable.
-
-<br>
-
-**Word Associations:** fruit, taboo, danger, ban, rule, sin, untouchable, snake, religion, zone
-
-## Music ##
-The metaphor of music in life has lied, echoed, and resounded since the beginning of time.
-Everyone living in harmony, people working to harmonize.
-Everyone like notes, musical instruments of their own, part of a melody.
-An idea, a song, and intuition, a remark, a signal strikes a chord, and gets someone out of a funk.
-Some words become a lyric in line with the rest of the band.
-
-<br>
-
-**Word Associations:** lyric, funk, rap, melody, harmony, chord, note, line, lute, band
-
-## Honor ##
-The loss of honor, the loss of the pledge to mankind and society,
-the loss of the value, and the trust.
-The denigration of one as someone with ideas, thoughts, and a voice.
-The loss of a legacy fo doing good for society, the state.
-The loss of a state where one is respected or known as being attentive.
-The loss of the king within, the armor of good.
-
-<br>
-
-**Word Associations:** war, ceremony, legacy, dignity, state, pledge, king, armor, value, trust
-
-## Bottom ##
-It got to the bottom of it,
-the place where there's a hole,
-the most anger,
-the most insecurity,
-it got to the layer that needs to be healed, made whole,
-where there's a cultural and societal split over who man and woman and people are,
-where the erring senses manipulate, distort, judge, corrupt, fantasize, romanticize, sexualize life.
-It got to the point of the lowest low, the decomposing sne of who people are, the fall, the point of despair in the human heart that is ridiculed and satirized and made fun of and dramatized,
-the part of humanity that leads to immaturity and immorality, and a sinking ship within.
-
-<br>
-
-**Word Associations:** hole, layer, sense, fall, sink, cargo, low, despair, plug, decompose
-
-## Movement ##
-A step taken closer to the Truth that operates through a dance, both collective and individual through the universe that changes and moves forward, only through the lens of the illusions of change.
-A complete reversal, a 180 degree revolution.
-The graceful leadership from One True idea to another true idea.
-The graceful shifting of perception from wrong to right.
-
-<br>
-
-**Word Associations:** motion, revolution, resistance, forward, progress, grace, dance, trend, change, illusion
-
-## Coming Full Circle ##
-It all began like this.
-It's coming back home to restore not break.
-It's reminding you where you came from, not where you are going.
-It's showing you who you can become.
-
-<br>
-
-**Word Associations:** none
-
-## Noise ##
-The noise vs. the sound.
-The noise is everywhere.
-My being drowns in it, frantics in it, reacts to it.
-Everything is so loud.
-There's so much outside chatter, banter, and commotion.
-There's no place for quiet.
-It's hard to filter everything out.
-The sound. 
-The deep echoings of the resounding sense of harmony, the resounding prayers, the roaring Truth.
-My being dwells in it, loves it, heals in it, bathes in it.
-It's the opposite of noise, the music to the ears.
-With observation, the noise can become sound.
-
-<br>
-
-**Word Associations:** roar, sound, click, rumor, commotion, complaint, music, crash, filter, drown
-
-## Touch ##
-The touch of a stranger who turns a life around in a different direction.
-The feeling of something familiar, and close to heart.
-The sense of good hugging someone.
-The power within to transform and be effected by heartfelt notions.
-
-<br>
-
-**Word Associations:** feel, glove, bare, sense, contact, disturb, land, effect, power, manipulate
-
-## Lines ##
-The lines on the road that guard, draw boundaries, and protect.
-The markings, clear.
-They support the commute.
-Figures and shapes directing the traffic.
-Colors and signs communicating the rules.
-The borders provide a rule for whether to continue in line or stop.
-The lines and shapes draw a dimension around a geography of movement for people.
-
-<br>
-
-**Word Associations:** mark, continue, dimension, commute, figure, geography, rope, communication, border, ancestor
-
-## Smoke ##
-The smoke coming up from a truck captures my eyes.
-It's swirling and vaporous, and wispy.
-There's an interesting, curious smell, and it flows to the rooftop chimneys.
-An illusion, a mirror.
-
-<br>
-
-**Word Associations:** chimney, flame, swirl, wisp, stale, smell, vapor, illusion, mirror, haz
 
 
 ----------
@@ -1735,7 +1185,46 @@ Adventure
 I forever wil hold you in my heart
 I wake up to see your smile
 You make me want to smile all day long
-The best pplace in the world
+The best place in the world
+
+This everlasting love between your heart and mine
+It runs deep
+It runs wide
+A lifetime of moments
+Together we are what we can't be alone
+There's nothing like the two of us
+
+There's a new seed for me and you
+For two hearts that are so true
+It's ready to grow within this earth
+And add to the old wisdom tree
+
+For two hearts so true that are so true
+To grow within this earth
+To grow like the old wisdom tree
+
+With you in my heart I'm hopin to live
+With you in my heart I'm hopin to live and love every day
+
+There's a long road ahead of us
+And I'm with you for every step
+There's a lifetime ahead of us
+
+Day by day and night by night I am with you through to the end
+Through the highs and lows
+Through day and night
+Through the rise and fall
+I am here with you
+Through the beginnings and the ends
+Through the ups and downs
+Through the waxes and wanes
+Through laughs and cries
+I am here with you
+I learn with you
+I grow with you
+I embrace all of life with you
+It's a lifetime with you
+I got you by my side
 
 <br>
 
@@ -2238,22 +1727,6 @@ The rivers are flowing in both.
 
 <br>
 
-## It is Ok ##
-It's ok to cry.
-It's ok to let the heart tear inside.
-It's ok to let the tears flow.
-It's ok to let it break inside.
-It's ok to let the heart ache.
-It's ok to feel.
-Let it out.
-It's ok to express emotions and thoughts.
-Sometimes the anger and other emotions mask the need to cry and to feel.
-It is ok.
-
-It's ok to cry.
-It's ok to feel.
-It should feel good to sing.
-
 ## Thank You ##
 Thank you for holding the door and making me feel like a lady.
 Thank you for touching my heart and making me remember home.
@@ -2746,28 +2219,12 @@ All of us rising stronger and wiser.
 
 
 ## This Experience ##
-This is good for you.
-This experience is good for you.
-This experience is teaching you how to trust.
-This experience is showing you a part of you.
-THis experience is shining a light on something to learn.
-This experience is revealing something about humanity.
-This experience is showing you how to love.
-This experience is helping you learn to be alone and be alone with confidence and joy.
-This experience is encouraging you to be yourself more.
-This experience is pushing you to put thoughts on other things, other deeper things.
-This is good for you. This is not bad.
-This experience is good for you. It's drawing you closer to who you are down deep. You're here for a reason. 
+This is good for you. This experience is good for you.
 
 <br>
 
 ## Your Enemy Is Your Friend ##
-You thought you had an enemy
-You really had a friend in disguise
-You thought you were being laughed at 
-You reall were being taught a powerful lesson
-The light in the darkness, it's so strong and true
-This experience is good for you
+You thought you had an enemy. You really had a friend in disguise. You thought you were being laughed at. You really were being taught a powerful lesson. The light in the darkness, it's so strong and true. This experience is good for you.
 
 <br>
 
@@ -2775,28 +2232,6 @@ This experience is good for you
 You can stand on your own two feet.
 You can give it a whirl.
 You can rise back up and forgive yourself.
-
-<br>
-
-## In A Sea of Voices ##
-I am a voice in a sea of voices, a sea of sound.
-Why do I play music and keep the ringing of harmony in my heart?
-Why do I sing and keep on singing?
-Why do I mix in with the sea of voices if I am part of the crowd?
-I am one and the same with you all.
-
-Like a leaf in a sea of leaves, I am a voice in a sea of voices.
-Like a wave in a sea of waves, I am a voice in a sea of voices.
-Like a ray of light in a sea of rays, I am a voice in a sea of voices.
-Like a blade of grass in blades of grass, I am a note in a sea of notes.
-
-We are all one in the same.
-We all have hearts that love music and harmony because it's innate.
-I sing with my heart, not my voice, however, because I am part of the sea.
-I let the others sing, and I play second fiddle, and I let them crowd me out.
-I let my voice be quiet, subdued, so they can be someone, something.
-
-One home in a row of homes.
 
 <br>
 
