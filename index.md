@@ -9,9 +9,12 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, a graduate of the University of Virginia. Over the course of a career, I would love to learn more about teaching and education, workplace architecture, the circular economy, financial principles, and nonprofit management. As a classically educated historian, I care most about going back to the primary origin of ideas.
+I am **Margaret Furr**, a graduate of the University of Virginia. Over the course of a career, I would love to learn more about teaching and education, workplace architecture, the circular economy, financial principles, and nonprofit management. As a college educated historian, I care most about going back to the primary origin of ideas.
 
-**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Mi sueño de trabajo es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
+**Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Durante de una carrera, me encantaría para aprender más acerca de enseñando y 
+educación, arquitectura del lugar de trabajo, la economía circular, principios financieros, y gestión sin fines de lucro. Como una historiadora educada en la universidad, lo que más me importa es volver al origen principal de las ideas.**
+
+Mi trabajo soñado es un rol como una investigadora de diseña, y quiero aprender mas sobre los edificios de oficinas, la economía circular, los principios financieros. Como una historiadora educada, tengo cuidado a mayoría de regresando al origen primario de las ideas.**
 
 Previously, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places.
 
