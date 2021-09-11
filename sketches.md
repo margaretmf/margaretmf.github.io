@@ -37,5 +37,14 @@
 
 <img class="profile-picture" src="sketches/sketch28.jpg">
 
-<img class="profile-picture" src="sketches/sketch29.jpg">
+<img class="profile-picture" src="sketches/sketch30.jpg">
+
+<img class="profile-picture" src="sketches/sketch31.jpg">
+
+<img class="profile-picture" src="sketches/sketch32.jpg">
+
+<img class="profile-picture" src="sketches/sketch33.jpg">
+
+<img class="profile-picture" src="sketches/sketch34.jpg">
+
 
