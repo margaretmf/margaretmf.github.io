@@ -6186,19 +6186,13 @@ Everyone in our country are like blades of grass.
 Growing like a seed.
 Becoming individual and original through the source breathing in through them.
 
-## The City We All Call Home ##
-This is the city we all call home.
-From the east to the west, from the north to the south we come here to sing.
-Each with our own song, our own story.
-
-<br>
 
 ## My Hand on My Heart ##
 I put my hand on my heart and love this land.
 This land is for everyone.
 I'm putting the shadows behind.
 
-The wind has echoes through for ages.
+The wind has echoed through for ages.
 It's now speaking in a new way.
 It hears our every need.
 
