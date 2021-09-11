@@ -655,6 +655,11 @@ I pick it up, and I throw it away. <br>
 
 <br>
 
+## Bird's Eye View ##
+Wouldn't it be nice to fly high in the sky, and look at life like a bird? In my mind, I take on the view of a bird, and I see the big, wide, aerial view. In my mind, my vision of everything soars up high into the sky and looks down at all the life down below. It is beautiful.
+
+<br>
+
 ## Boots ##
 These boots of mine. They've really been everywhere. <br>
 They've walked down many roads. <br>
