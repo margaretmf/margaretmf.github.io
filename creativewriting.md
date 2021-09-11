@@ -589,6 +589,9 @@ where the flowers are waiting to be smelled
 where the peaches are so sweet
 where the peanuts are so tasty
 where the breeze cools my neck
+Home sweet home
+to where my family is from
+to where the summers were spent
 
 <br>
 
@@ -1509,6 +1512,8 @@ Back on the highway again
 These are the roads that heal
 Where the sounds are so good
 On I 40 where the music resounds
+
+Way back when on this old coach road to the west
 
 <br>
 
