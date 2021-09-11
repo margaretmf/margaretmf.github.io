@@ -107,6 +107,7 @@ layout: default
 * It's a Long Story: My Life
 * Me and Sister Bobbie: True Tales of the Family Band
 * Willie Nelson: An Epic Life
+* Race and the Wild West: Sarah Bickford, the Montana Vigilantes, and the Tourism of Decline, 1870–1930 
 * Boom and Bust: A Global History of Financial Bubbles
 * The New Possible: Visions of Our World beyond Crisis 
 * Shakespeare: The Complete Collection
