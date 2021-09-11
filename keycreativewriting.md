@@ -188,6 +188,11 @@ This is a country of freedom fighters, daily fighting for another day to live.
 
 <br>
 
+## Music State, Music Cities ##
+This is the place we all call home. From the east to the west, from the north to the south we come here to sing. Each with our own song, and our own story, too.
+
+<br>
+
 ## A World That Is Always Moving ##
 We live in a world that is always moving. Three hundred and sixty-five days per year, the world rotates around the Sun. Since the beginning of time, the world has moved, and it has never stopped. The world is always moving.
 
