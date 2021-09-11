@@ -1289,10 +1289,10 @@ He had a secret admirer but he didn't know her name. Every day, she came home an
 
 ## New Day - Rough Draft ##
 Oh it's a new day for the sun to shine. <br>
-From the east to the west the rays light up the way. <br>
+I love the warmth of the sun's rays both on you and on me. <br>
 
-I love to feel (the warmth of) the sun's rays both on you and on me. <br>
-Every day's a new day for me and for you. <br>
+Every day's a new day. The day is yours, and it's mine.
+From the east to the west, te sun rises and shines.
 
 It's a new day for the birds to chirp. <br>
 Flying high through the trees these birds really sing. <br>
@@ -1497,7 +1497,7 @@ It's ok to let the tears flow. <br>
 It's ok to let it break inside. <br>
 It's ok to let the heart ache. <br>
 It's ok to feel. <br>
-Let it out. <br>
+It's ok. Let it out. <br>
 It's ok to express emotions and thoughts. <br>
 Sometimes the anger and other emotions mask the need to cry and to feel. <br>
 It is ok. <br>
