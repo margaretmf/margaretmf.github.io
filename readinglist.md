@@ -77,6 +77,7 @@ layout: default
 * [Writing Ethnographic Fieldnotes](https://www.amazon.com/Writing-Ethnographic-Fieldnotes-Chicago-Publishing/dp/0226206831/ref=sr_1_1?dchild=1&keywords=writing+ethnographic+fieldnotes&qid=1629657558&sr=8-1) by Robert M. Emerson, Rachel I. Fretz, & Linda L. Shaw
 * [Pop Sonnets: Shakespearean Spins on Your Favorite Songs](https://www.amazon.com/Pop-Sonnets-Shakespearean-Spins-Favorite/dp/1594748284/ref=sr_1_3?dchild=1&keywords=pop+sonnets+Shakespeare&qid=1629657708&sr=8-3) by Erik Didriksen
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) by Harry M. Caudill
+* [Welcome to Your World: How the Built Environment Shapes Our Lives](https://www.amazon.com/Welcome-Your-World-Environment-Shapes/dp/0062996045/ref=sr_1_1?dchild=1&keywords=welcome+to+your+world+how+the+built+environment+shapes+our+lives&qid=1631489358&sr=8-1) by Sarah Williams Goldhagen
  
 #### Reading
 * Cervantes
@@ -113,6 +114,7 @@ layout: default
 * Shakespeare: The Complete Collection
 * Willie: An Autobiography
 * Outlaw: Waylon, Willie, Kris, and the Renegades of Nashville
+* Patterns in Nature: Why the Natural World Looks the Way It Does
 * Chasing Fireflies: A Novel of Discovery
 * Waylon: Tales of My Outlaw Dad 
 * Robinson Cruesoe
