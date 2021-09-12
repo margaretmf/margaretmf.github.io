@@ -3,9 +3,9 @@ layout: default
 ---
 
 ## PROFILE 
-At the University of Virginia, a public university founded by the author of the Declaration of Independence, I received a dual degrees in the liberal arts. I am most passionate about communications in the field of technology and the liberal arts perspective in the real world. I believe in the core values of lifelong learning and a renaissance education that the founder of the University of Virginia taught and shared not only with students but also the country.
+At the University of Virginia, a public university founded by the author of the Declaration of Independence, I received dual degrees in the liberal arts (and sciences). I am most passionate about communications in the field of technology and the liberal arts perspective in the real world. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared, not only with students, but also the country.
 
-I am a versatile creative and content writer, sketcher, interviewer, programmer, and data analyst, with an interest in writing, teaching, the business world, STEAM education, liberal arts education, and current events. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
+I am a versatile professional, creative and content writer, sketcher, interviewer, programmer, and data analyst, with an interest in writing, teaching, the business world, STEAM education, liberal arts education, and current events. I am enthusiastic about helping people and standing witness to the innate goodness in our world.
 
 [Resume](Bain_SeniorResearchAssociate_Resume)
 
