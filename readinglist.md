@@ -78,6 +78,7 @@ layout: default
 * [Pop Sonnets: Shakespearean Spins on Your Favorite Songs](https://www.amazon.com/Pop-Sonnets-Shakespearean-Spins-Favorite/dp/1594748284/ref=sr_1_3?dchild=1&keywords=pop+sonnets+Shakespeare&qid=1629657708&sr=8-3) by Erik Didriksen
 * [Night Comes to the Cumberlands](https://www.amazon.com/Night-Comes-Cumberlands-Biography-Depressed-ebook/dp/B0774XHYT3/ref=sr_1_6?dchild=1&keywords=night+in+the+cumberlands&qid=1621383525&sr=8-6) by Harry M. Caudill
 * [Welcome to Your World: How the Built Environment Shapes Our Lives](https://www.amazon.com/Welcome-Your-World-Environment-Shapes/dp/0062996045/ref=sr_1_1?dchild=1&keywords=welcome+to+your+world+how+the+built+environment+shapes+our+lives&qid=1631489358&sr=8-1) by Sarah Williams Goldhagen
+* [Dream More: Celebrate the Dreamer in You](https://www.amazon.com/Parton-Dolly-Dream-More-Celebrate/dp/B00LI5L726/ref=sr_1_2?dchild=1&keywords=dream+more+dolly+parton&qid=1631661609&sr=8-2) by Dolly Parton
  
 #### Reading
 * Cervantes
@@ -127,7 +128,6 @@ layout: default
 * Broken Horses: A Memoir
 * Appalachian Magazine's Mountain Superstitions, Ghost Stories & Haint Tales: A Collection of Memories & Commentaries from the Mountains of Appalachia
 * Beeswing: Losing My Way and Finding My Voice 1967-1975
-* Dream More: Celebrate the Dreamer in You
 * Appalachia: A History
 * The Skeletons in God's Closet
 * Bobby Braddock: A Life on Nashville’s Music Row (Co-published with the Country Music Foundation Press) 
