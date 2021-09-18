@@ -10,8 +10,8 @@
 - name: "Portfolio"
   link: "portfolio"
   
-- name: "Education"
-  link: "education"
+- name: "Reading List"
+  link: "readinglist"
     
 - name: "Photography"
   link: "photography"
