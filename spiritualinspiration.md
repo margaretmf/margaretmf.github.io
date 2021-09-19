@@ -274,6 +274,42 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people where I am
 * Grateful or purity
 * Grateful for cheerful people in the residency
+* Grateful for all the musical people 
+* Grateful for peace 
+* Grateful for the drumming 
+* Grateful for new friends from therapy
+* Grateful for all the people in Washington, DC
+* Grateful for people praying football 
+* Grateful for people from the improv class
+* Grateful for the attitude of gratitude on Charlotte 
+* Grateful for the strength of my cousin
+* Grateful for all the people in PHP
+* Grateful for all the people living another day
+* Grateful that I am a really thoughtful woman 
+* Grateful for the people I went out with in Norfolk
+* Grateful for the friends I have met 
+* Grateful for friends from Norfolk Academy
+* Grateful for interracial friendships 
+* Grateful for a good place that I’ve been in in the past 
+* Grateful for people where I am
+* Grateful for people I’ve met and embraced in the past 
+* Grateful for Tennessee that used to be the west 
+* Grateful for an enlightened country and state 
+* Grateful for all the leaders in our country
+* Grateful for math teachers 
+* Grateful for cooking lessons
+* Grateful for God’s spirit within everyone 
+* Grateful for the people going to school today
+* Grateful for people’s love for our country 
+* Grateful for all the people from camp in Nashville 
+* Grateful for people from church
+* Grateful for all the people in Norfolk
+* Grateful for all the good people everywhere 
+* Grateful for peacefulness and cheerfulness 
+* Grateful for youthfulness
+* Grateful for people I met in Norfolk
+* Grateful for all the people the practitioner helped 
+* Grateful for Spanish speaking people
 * Grateful for positive sounding voices
 * Grateful for clarity from God
 * Grateful for the beauty within everyone
