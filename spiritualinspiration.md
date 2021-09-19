@@ -599,6 +599,42 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people starting families 
 * Grateful for kind and compassionate people 
 * Grateful for people from other countries who love other folk tales 
+*  Grateful for African countries 
+* Grateful for friends from Norfolk Academy
+* Grateful for friends here at Hopeway
+* Grateful for people at City Year 
+* Grateful for people who enjoyed their work 
+* Grateful for cheerful and focused people 
+* Grateful for people who love young children 
+* Grateful for good interactions today
+* Grateful for good people everywhere 
+* Grateful for kind people on the street
+* Grateful for people thriving in banking 
+* Grateful for thinking challenged 
+* Grateful for people working 
+* Grateful for people singing
+* Grateful for the light in the house 
+* Grateful for fall weather and fall sounds 
+* Grateful for the good going on today
+* Grateful for friends from UVA
+* Grateful for people from UVA who are connected 
+* Grateful for all the people in Kansas
+* Grateful for all the races 
+* Grateful for the work in Norfolk
+* Grateful for the experiences of driving across bridges 
+* Grateful to learn more about the country 
+* Grateful for people in hotels 
+* Grateful for good conversations on the phone
+* Grateful for the therapist 
+* Grateful for people from Africa 
+* Grateful for Spanish speakers at Hopeway
+* Grateful for the Spanish language 
+* Grateful for the nursing staff 
+* Grateful for people who love people in our country
+* Grateful for people who encouraged 
+* Grateful for the love people have for people
+* Grateful for the love people have for music 
+* Grateful for the Arab world 
 * Grateful for all the loving people where I am
 * Grateful for Christian music
 * Grateful for people visiting 
