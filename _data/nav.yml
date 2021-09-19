@@ -6,13 +6,7 @@
 
 - name: "Shaping the Future"
   link: "futureshaping" 
-  
-- name: "Portfolio"
-  link: "portfolio"
-  
-- name: "Reading List"
-  link: "readinglist"
-    
+
 - name: "Photography"
   link: "photography"
   
@@ -21,6 +15,12 @@
   
 - name: "Paintings"
   link: "paintings"
+  
+- name: "Reading List"
+  link: "readinglist"
+    
+- name: "Portfolio"
+  link: "portfolio"
   
 - name: "Innovation & Mindfulness"
   link: "innovation&mindfulness"
