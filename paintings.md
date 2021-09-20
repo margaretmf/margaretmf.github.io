@@ -26,6 +26,10 @@
 
 
 
+<img class="profile-picture" src="paintings/painting6.jpg">
+
+
+
 <br>
 
 <br>
