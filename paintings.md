@@ -30,6 +30,10 @@
 
 
 
+<img class="profile-picture" src="paintings/painting7.jpg">
+
+
+
 <br>
 
 <br>
