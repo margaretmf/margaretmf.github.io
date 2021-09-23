@@ -80,6 +80,7 @@ layout: default
 * [Welcome to Your World: How the Built Environment Shapes Our Lives](https://www.amazon.com/Welcome-Your-World-Environment-Shapes/dp/0062996045/ref=sr_1_1?dchild=1&keywords=welcome+to+your+world+how+the+built+environment+shapes+our+lives&qid=1631489358&sr=8-1) by Sarah Williams Goldhagen
 * [Dream More: Celebrate the Dreamer in You](https://www.amazon.com/Parton-Dolly-Dream-More-Celebrate/dp/B00LI5L726/ref=sr_1_2?dchild=1&keywords=dream+more+dolly+parton&qid=1631661609&sr=8-2) by Dolly Parton
 * [The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart](https://www.amazon.com/Faith-Dolly-Parton-Lessons-Heart/dp/0310352924/ref=sr_1_1?dchild=1&keywords=the+faith+of+dolly+parton&qid=1632005909&sr=8-1) by Dudley Delffs
+* [See No Stranger](See No Stranger: A Memoir and Manifesto of Revolutionary Love) by Valarie Kaur
 
 
 #### Reading
@@ -292,6 +293,7 @@ layout: default
 * The Age of Wood
 * Remarkable Diaries
 * Hidden in the Mix: The African American Presence in Country Music
+* My Grandmother's Hands: Racialized Trauma and the Pathway to Mending Our Hearts and Bodies
 * The African-American Century: How Black Americans Have Shaped Our Country
 * Black Power and Palestine: Transnational Countries of Color (Stanford Studies in Comparative Race and Ethnicity)
 * The Hero with a Thousand Faces (The Collected Works of Joseph Campbell)
