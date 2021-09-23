@@ -199,9 +199,11 @@ layout: default
 * The Book of Circles: Visualizing Spheres of Knowledge: (with over 300 beautiful circular artworks, infographics and illustrations from across history) by Manuel Lima
 * Favorite African Folktales by Nelson Mandela
 * Rails across the Mississippi: A HISTORY OF THE ST. LOUIS BRIDGE by Robert W. Jackson
+* Patterns in Nature: Why the Natural World Looks the Way It Does 
 * Accidentally Wes Anderson
 * Long-Ago Stories of the Eastern Cherokee (American Heritage)
 * Exemplary Stories (Oxford World's Classics)Exemplary Stories by Cervantes
+* Where the Light Fell: A Memoir
 * The History of Banking: The History of Banking and How the World of Finance Became What it is Today by K. Connors
 * Celtic Fairy Tales
 * The Golden Thread
