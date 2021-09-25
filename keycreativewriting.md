@@ -204,8 +204,13 @@ Tennessee used to be the west, and the state of the frontier, not just the south
 <br>
 
 ## A Letter ##
-There's a letter for you in the mail. It's kissed sealed with a heart. It's addressed to where you live. It's signed with love
+There's a letter for you in the mail. It's kissed sealed with a heart. It's addressed to where you live. It's signed with love.
 This letter for you is going to travel for miles and miles. My heart is traveling with it. My pen has touched the parchment, and now it's for you to read.
+
+<br>
+
+## Out in the Town ##
+She's out and about. This town she loves. Everyone knows her name. The smiles shared tell it all.
 
 <br>
 
