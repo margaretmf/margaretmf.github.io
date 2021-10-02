@@ -282,6 +282,8 @@ layout: default
 * Adele: The Biography by Chas Newkey-Burden
 * Taylor Swift: The Platinum Edition by Liv Spencer
 * Girl Behind the Smile
+* Ramp Hollow: The Ordeal of Appalachia by Stephen Stoll
+* The One You Want to Marry (And Other Identities I've Had): A Memoir by Sophie Santos and Joey Soloway
 * Made for Hope: Discovering Unexpected Gifts in Brokenness
 * How the Wild West Was Won: A Celebration of Cowboys, Gunfighters, Buffalo Soldiers, Sodbusters, Moonshiners, and the American Frontier 
 * A Recipe for Bad Lemons: Ingredients for Success from Life's Sour Moments
