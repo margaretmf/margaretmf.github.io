@@ -1440,6 +1440,11 @@ the American dream felt out of reach to people. The American dream is not lost. 
 
 <br>
 
+## A Revolution ##
+There's a revolution going on of loving strangers. There's a revolution going on of loving the earth and being a steward. There's a revolution going on where everyone can sing and dance, or create art and write. There's a revolution going on where people see the truth in each other's faiths and religions. There's a revolution going on from the ground up, through books, through media, through one act towards change at a time.
+
+<br>
+
 ## Traditional Southern Life ##
 My mom was a traditional Southern mom, but she encouraged me to become a career woman. I became more of a career woman because I felt angry about feeling "too simple" like some people from the rural south do, too dependent on men, and incapable of understanding everything I read in the political economy; I also felt critical of aspects of the domestic economy because of how I heard my mom share opinions and her perspective, and since then, I have felt cut off from the sense of Southern home, even though I feel *home* as the *consciousness of good* ([Christian Science Hymn](https://hymnary.org/text/home_is_the_consciousness_of_good)). I learn to bring my work in the political economy into the domestic economy, recultivate my love of home, and use skills in the home.
 
