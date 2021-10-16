@@ -221,10 +221,100 @@ As I explore spiritual healing, multiple faiths, and learn to appreciate broader
 * Grateful for people who have helped me along the way
 * Grateful for the post office and the people working for the post office
 * Grateful for friends from camp
+* Grateful for new friends at Hopeway
+* Grateful for the right place at the right time
+* Grateful for healing 
+* Grateful for someone playing guitar 
+* Grateful for people I’ve met 
+* Grateful for people’s faith
+* Grateful for people’s stories 
+* Grateful for what people learn in school 
+* Grateful for lives that people create
+* Grateful for preschool centers 
+* Grateful for all the people in Memphis
+* Grateful for people I met in the children’s literature class
+* Grateful for people in Tennessee
+* Grateful for cousins and family members 
+* Grateful for all the people in places 
+* Grateful for people I’ve met from other countries 
+* Grateful for the new age for outer space 
+* Grateful for a good therapy session
+* Grateful for the people who aren’t the right people for me
+* Grateful for the people
+* Grateful for all the people
+* Grateful for the tutoring opportunity 
+* Grateful for all the people receiving things they need 
+* Grateful for the therapist 
+* Grateful for healthy people
+* Grateful for the good going on in schools
+* Grateful for ways I’ve succeeded
+* Grateful for family members 
+* Grateful for Appalachian region
+* Grateful for West Virginia
+* Grateful for Charlottesville
+* Grateful for North Carolina
+* Grateful for Tennessee
+* Grateful for Kentucky
+* Grateful that it’s not the right relationship
+* Grateful for the people in these places 
+* Grateful for renewal 
+* Grateful for expansion
+* Grateful for positive things going on in schools
+* Grateful for a new school year 
+* Grateful for good going on everywhere
+* Grateful for people’s cooking 
+* Grateful for the Serenity prayer 
+* Grateful for friends from church
+* Grateful for supply for people and myself 
+* Grateful for all the people in the room 
+* Grateful for all the people at EVERFI
+* Grateful for the CSOrg home 
+* Grateful for all the people at UVa
+* Grateful for friends from UVa
+* Grateful for time off social media 
+* Grateful for the intelligence of babies 
+* Grateful for babysitting
+* Grateful for the goodness of God going on 
+* Grateful for the Christian Science Practitioners
+* Grateful for the therapists 
+* Grateful for the life of little kids 
+* Grateful for joy that comes from God
+* Grateful for style
+* Grateful for everyone I’ve met 
+* Grateful for everyone coming together for the olympics 
+* Grateful for other people online sharing design and photography
+* Grateful for the faith of Dolly Parton
+* Grateful for the help of practitioners on a road trip
+* Grateful for the energy of uncles and aunts 
+* Grateful for a phone call with my sister 
+* Grateful for the people in NYC
+* Grateful for the people I met at UVA
+* Grateful for new life
+* Grateful for life being born 
+* Grateful for the freedom that comes with being single 
+* Grateful for the yoga instructor 
+* Grateful for family members 
+* Grateful for people in coffee shops 
+* Grateful that it’s not the right relationship 
+* Grateful for family members
+* Grateful for tea shops
+* Grateful for people from India
+* Grateful for the people in Scotland 
+* Grateful for the Gaelic language 
+* Grateful for people from swimming
+* Grateful for music about the stars 
+* Grateful for people from EVERFI and UVA
+* Grateful for middle schoolers 
+* Grateful for the experiences in Washington,DC
 * Grateful for how much people in our country love our country
 * Grateful for the childlike innocence in people
 * Grateful to see people fully for who they are and what they love
 * Grateful for the people who wrote the books I’m reading
+* Grateful for the sustaining infinite, all of humanity 
+* Grateful for people from other countries
+* Grateful for where all the clothes went 
+* Grateful for God’s endless supply of ideas 
+* Grateful for renewal daily 
 * Grateful for leaders in our country
 * Grateful for the sun shining
 * Grateful for my sister and parents
