@@ -1,11 +1,11 @@
 
-## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature and music. I love creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled *Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again* (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
+## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature, art, and music. I love how creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled *Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again* (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
 
 ## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. Creative writing stems from asking interesting questions and imagining. ##
 
 ## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. This journey of writing music and setting poetry to music continues. ##
 
-## In the Creative Writing class, I remember writing down goals to explore how children's books and the media help to teach children concepts. I compared Disney to PBS Kids, and I wrote down goals of writing children's books. An exploration of best practices of writing books for children continues. ##
+## In the Creative Writing class, I remember writing down goals to explore how children's books and the media help to teach children concepts. I compared Disney to PBS Kids, and I wrote down goals of writing children's books. I continue an exploration of best practices of writing books for children. ##
 
 ## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically. ##
 
@@ -32,7 +32,7 @@ I find nature to be calming, and refreshing. I particulary enjoyed nature in Cha
 **I believe** "God is all and God is good" [2009, 2010]
 
 **Do I still believe this?** 
-I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others. I have found that I can see God's expression everyone through compassion, intelligence, joy, peace. I have also found God to be at my right hand in situations, voicing the Truth, and uplifting with the right ideas. I believe that I, We are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future. [2021]
+I have found evidence that God is always leading me to what I need to know, and is always somehow connecting more deeply to something true about myself or others. I have found that I can see God's expression in everyone through compassion, intelligence, joy, peace. I have also found God to be at my right hand in situations, voicing the Truth, and uplifting me with the right ideas. I believe that we are all growing more conscious and can make decisions and chooses that help us to grow more aware and conscious. I believe that anything done in the past can expand and anyone can learn something new in the future. [2021]
 
 ### Individual/Society ###
 **I believe** "each individual is a link in the chain - if that link fell, the chain would break." I also believe in the power of religious liberty and that we are all ultimately reaching the same goal. [2009, 2010, 2011]
@@ -1288,7 +1288,7 @@ He had a secret admirer but he didn't know her name. Every day, she came home an
 (2) Wishing Well <br>
 (3) Tossing It Out to Sea <br>
 (4) My Hand on My Heart <br>
-(5) In the Hands of Time
+(5) In the Hands of Time <br>
 (6) A Childlike Heart <br>
 (7) I Want to Hold Your Hand <br>
 (8) The Long Road Ahead <br>
