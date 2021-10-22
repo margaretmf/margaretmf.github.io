@@ -822,13 +822,6 @@ It sings my praises. <br>
 
 <br>
 
-## Not Today ##
-I’ve been crying, crying, crying <br>
-But not today <br>
-Learning to leave it in yesterday 
-
-<br>
-
 ---------------------------------------------------------------------------------------------------------------------
 
 ## E Pluribus Unum ##
