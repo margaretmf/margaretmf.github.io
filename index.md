@@ -9,7 +9,7 @@ layout: default
 <img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
-I am **Margaret Furr**, a graduate of the University of Virginia. Over the course of a career, I would love to learn more about teaching and education, workplace architecture, the circular economy, financial principles, and nonprofit management. As a college educated historian, I care most about going back to the primary origin of ideas.
+I am **Margaret Furr**, a graduate of the University of Virginia. Over the course of a career, I would love to learn more about teaching and education, workplace architecture, the circular economy, financial principles, and nonprofit management. As someone with an undergraduate degree in history, I love learning about the origin and evolution of ideas.
 
 **Me llamo Margarita, y estoy una graduada de la Universidad de Virginia. Durante de una carrera, me encantaría para aprender más acerca de enseñando y 
 educación, arquitectura del lugar de trabajo, la economía circular, principios financieros, y gestión sin fines de lucro. Como una historiadora educada en la universidad, lo que más me importa es regresando al origen principal de las ideas.**
@@ -42,7 +42,7 @@ With a love for writing and reading, I have been continuing the work on the Amer
 
 **Con amor por la escritura y la lectura, ha estado continuando el trabaja en el proyecto del credo Americano que los estudiantes comenzó en el 11° grado a la academia de Norfolk. El proyecto consiste en escribiendo creativamente, examinando creencias, entendiendo el país y el mundo, y creando arte. Mi pasión verdadera es la escritura sobe la Ingenieria, STEAM, y contenido pedagógico; y sueño con escribir un libro sobre cómo trabajan las personas con títulos en artes liberales en el mundo o emprendimiento espiritual. Me encantan los libros para niños y cómo la gente los convierte en películas. Mi otra verdadera pasión es conectarme con las personas a través de conversaciones auténticas y reuniones cara a cara. Estoy trabajando para comprender a todos los líderes del gobierno leyendo sobre ellos, y estoy interesado en cómo la poesía apoya la codificación y la codificación apoya la poesía. Finalmente, estoy investigando temas en libros como la unidad, la unidad, la fe en la política, el papel de las mujeres en las elecciones, la historia de Estados Unidos, los roles de las vidas de los negros, la dinámica de los partidos republicano-democráticos y lo que son los Estados estadounidenses. También me encanta explorar cómo la gente crea música.**
 
-Little children are healing, organizing things gives me life, and expressing good cheer in the Post Office, in the Fed Ex Building, and on the Construction Streets keeps people vivacious, humble, and singing inside.
+Little children are healing, organizing things gives me life, and expressing good cheer in the Post Office and the Fed Ex is fun.
 
 **Niños pequeños y niñas son cicatrización, organizando es mi pasión, y expresando buen animo en la Oficina Correo, en el edificio de Federal Rápida, y en las calles construcciónes mantiene la gente vivaz, humilde, y cantando por dentro.** 
 
