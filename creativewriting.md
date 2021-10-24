@@ -19,7 +19,7 @@ is_contact: true
 * Realized that art shares the same idioms, language, or concepts from that other art uses but spins off it to share an original viewpoint or filter, and multiple artists may look to the same object in different ways, and there's harmony since we all belong to the same universe
 
 ## Relationship to Nature ##
-* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (58 days)
+* Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (59 days)
 * Appreciate the lessons learned at Camp near and around the Appalachian Mountains and the Cumberland Plateau, as well as a love for the geese
 * Take photos of leaves and share interest in how water flows through the Earth
 * Learn about endangered species near and around the Smoky Mountains and Tennessee, the Old West
