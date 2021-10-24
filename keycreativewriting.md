@@ -117,7 +117,7 @@ Everything you thought you knew falls off like the dead leaves on trees.
 <br>
 
 ## Trees ##
-The branches lift up, and reach for the sky.
+The branches lift up, and they reach for the sky.
 
 <br>
 
