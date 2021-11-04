@@ -569,7 +569,7 @@ If all the world were a tree we'd be two leaves on a tree that change with the s
 
 If all the world were a book we'd be two pages in the book sharing parts of the grand story with each other.
 
-If all the world were a song we'd be two notes swinging and singing as parts of a harmony
+If all the world were a song we'd be two notes swinging and singing as parts of a harmony.
 
 If all the world were a puzzle we'd be two pieces fitting together, joining together, perfectly fit for each other and showing the world the picture that it's born to become.
 
@@ -618,7 +618,7 @@ I am Margaret Furr, it rhymes with concur. <br>
 I am a writer, and I aspire to write a book over a lifetime. <br>
 I am musical, and I love looking at different angles to articulate a balance between the feminine and masculine perspectives in songs. <br>
 I am an engineer, who loves methods to the madness. <br>
-I am a dancer, like my grandmother, who smiled, glistened, and glow. <br>
+I am a dancer, like my grandmother, who smiled, glistened, and glowed. <br>
 I am an educator, who loves STEAM. <br>
 I dare to believe again, dream again, and smile that winning smile after the storm. <br>
 
@@ -792,7 +792,7 @@ Sweet nothings you put in my ear. <br>
 You're telling me things I've never heard before. <br>
 You're repeating the things that just aren't true. <br>
 You're sharing in vain words and angry statements. <br>
-You are airing them, and out I hear. <br>
+You are airing them out, and I hear. <br>
 
 <br>
 
@@ -914,20 +914,7 @@ Eisenhower was a fantastic leader. He wouldn't have become this great leader wit
 <br>
 
 ## The Democratic Republic and the Debate Inside My Head ##
-Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with
-order, and a set of ways to handle collective challenges. No party has absolute control. The party in control has representative power over a set of people and
-over the collective whole. The party not in control also represents another set of people. The governmental structure builds in a space for dialogue, or a debate
-that gives room for disagreement that can yield to agreement. Not everyone has to agree, but everyone should point their thought to the greater good that supports
-the life, love, and soul that exists within people's hearts and minds. New ideas can evolve out of conflict and disagreement, leading to something better than
-before. A new nation is built everytime conflict erupts so destructively. A republic (government is a "public matter"): "a state in which supreme power is held
-by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire
-region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives
-decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the
-representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the inherent rights of the people. A
-democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through
-elected representatives." The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and
-voices make the laws through their votes. Everyone has inherent rights. The debate over which set of ideas, or system of government runs in my head. I feel
-like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy](https://www.thoughtco.com/republic-vs-democracy-4169936)
+Two parties of people govern the nation. Each party represents a set of ideas for how to represent the people, a set of philosophies for how to govern people with order, and a set of ways to handle collective challenges. No party has absolute control. The party in control has representative power over a set of people and over the collective whole. The party not in control also represents another set of people. The governmental structure builds in a space for dialogue, or a debate that gives room for disagreement that can yield to agreement. Not everyone has to agree, but everyone should point their thought to the greater good that supports the life, love, and soul that exists within people's hearts and minds. New ideas can evolve out of conflict and disagreement, leading to something better than before. A new nation is built everytime conflict erupts so destructively. A republic (government is a "public matter"): "a state in which supreme power is held by the people and their elected representatives, and which has an elected or nominated president rather than a monarch". The republic constitutes the entire region. The national government represents each state's government, which should represent the people, including the minority, in each state. Representatives decide the rules and make the laws. Education helps to provide people with liberty, life, happiness, health, and purpose. Everyone has a piece of the representation, and a right to function and to live well. The majority rules, and the minority is represented to protect the inherent rights of the people. A democracy (government is ruled "by the people"): "a system of government by the whole population or all the eligible members of a state, typically through elected representatives." The government supports everyone having an informed voice, the government represents the majority of the voice to meet their needs, and voices make the laws through their votes. Everyone has inherent rights. The debate over which set of ideas, or system of government runs in my head. I feel like I can understand both sides, I can see from both perspectives, I may not understand enough to make a firm judgment, I may not know all of the details to voice a strong opinion. The United States of America is a Democratic Republic in that the Government is ruled by an elected group, hears and supports the minority's voice, and expresses the needs of the majority. The United States of America is a representational democracy. [Citing Republic vs. Democracy](https://www.thoughtco.com/republic-vs-democracy-4169936)
 
 <br>
 
