@@ -204,7 +204,6 @@ layout: default
 * Long-Ago Stories of the Eastern Cherokee (American Heritage)
 * Exemplary Stories (Oxford World's Classics)Exemplary Stories by Cervantes
 * Where the Light Fell: A Memoir
-* The History of Banking: The History of Banking and How the World of Finance Became What it is Today by K. Connors
 * Celtic Fairy Tales
 * The Golden Thread
 * Shiloh (children's book)
