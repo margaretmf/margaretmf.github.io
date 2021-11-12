@@ -81,6 +81,7 @@ layout: default
 * [Dream More: Celebrate the Dreamer in You](https://www.amazon.com/Parton-Dolly-Dream-More-Celebrate/dp/B00LI5L726/ref=sr_1_2?dchild=1&keywords=dream+more+dolly+parton&qid=1631661609&sr=8-2) by Dolly Parton
 * [The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart](https://www.amazon.com/Faith-Dolly-Parton-Lessons-Heart/dp/0310352924/ref=sr_1_1?dchild=1&keywords=the+faith+of+dolly+parton&qid=1632005909&sr=8-1) by Dudley Delffs
 * [See No Stranger: A Memoir and Manifesto of Revolutionary Love](https://www.amazon.com/See-No-Stranger-Manifesto-Revolutionary/dp/0525509119/ref=sr_1_1?crid=3J9LZ4A9I7NC1&dchild=1&keywords=see+no+stranger+valerie+kaur&qid=1632436334&sprefix=see+no+st%2Caps%2C161&sr=8-1) by Valarie Kaur
+* [Traffic: Why We Drive the Way We Do ](https://www.amazon.com/Traffic-Drive-What-Says-About/dp/0307277194/ref=sr_1_1?keywords=traffic+tom+vanderbilt&qid=1636730527&sr=8-1) by Tom Vanderbilt
 
 
 #### Reading
@@ -88,7 +89,6 @@ layout: default
 * Jorge Louis Borges
 * Shakespeare
 * Cash: The Autobiography by Johnny Cash
-* traffic by tom vanderbilt
 * The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
 * The Art of Songwriting by Ed Bell
 * Great Songwriting Techniques by Jack Perricone
