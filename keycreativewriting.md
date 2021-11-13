@@ -296,14 +296,15 @@ and modernity created. <br>
 
 ## Color ##
 All of the colors of the rainbow reflected through everything in our world. <br>
-Many shades - red, green, pink, orange, yellow, purple. <br>
+Many shades - red, orange, yellow, green, purple, pink, and black. <br>
 A vision that includes: <br>
 red apples, trucks, <br>
-pink gums, <br>
 orange crayons, <br>
-black window frames, <br>
+yellow leaves, <br>
+green vegetables, <br>
 purple TVs, <br>
-yellow dentures. <br>
+pink gum, <br>
+and black window frames. <br>
 All the race, many nationalities, and countries. <br>
 Colors and tones, all original. <br>
 Such great contrast in everything we do with the light bouncing off of us in original ways. <br>
