@@ -466,7 +466,7 @@ Pray is gratitude and a heart singing within for the logic of the universe. <br>
 What is done is done. <br>
 What is complete is complete. <br>
 The joys of yesterday exist forever. <br>
-The mistakes of the past are indeed, just that, the past, what's behind me, and events to learn from. <br>
+The mistakes of the past are indeed, just that, the past, what's behind, and events to learn from. <br>
 In the words of the poet, 'let bygones be bygones.' <br>
 The wisdom from the ancients, recorded in annals, chronicles, and stories will live for eternity. <br>
 His story from antiquity is continuous, ever-renewing and cyclical. <br>
