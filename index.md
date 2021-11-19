@@ -196,6 +196,7 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 * A Study on political storms (1960s, 2020s)
 * A Study on How to Use Art to Share History
 * A Study on how Christianity influences music
+* A Global Study on Civil Wars in Countries in an Era of Globalization
 
 <br>
 
