@@ -97,17 +97,17 @@ She looked me straight in the eye and said "I love you".
 <br>
 
 ## Open Windows ##
-Open windows, open to the air with the fresh paint on the wall drying and the sun shining through.
+Open windows, open to both the air with the fresh paint on the wall drying and the sun shining through.
 
 <br>
 
 ## Old Farm Road ##
-An old farm road with a fence that goes up for miles, mailboxes, and rusted wire.
+An old farm road sits still with a fence that goes up for miles, mailboxes, and rusted wire.
 
 <br>
 
 ## Rivers ##
-Rivers, forward coarse, rivers in the United States.
+River with forward coarse move in the United States.
 
 <br>
 
@@ -219,7 +219,7 @@ Use your voice, <br>
 cherish the silence, <br>
 speak your truth, <br>
 express your heart, <br>
-accent your strengths, <br>
+accentuate your strengths, <br>
 articulate your opinion, <br>
 narrate stories - your story and others' stories, <br>
 echo another's, <br>
@@ -257,8 +257,8 @@ There's no stranger to God. <br>
 The night sky sings with holiness and peace. <br>
 The stars shine infinitely. <br>
 The blackness is so dark and the pitch of the night silences everyone to sleep. <br>
-THe glimmer of the stars give hope and point people to inncocence, hope, and home. <br>
-The wakeful individuality share the love for all mankind with a heart at rest for all the holy light. <br>
+THe glimmer of the stars give hope and point people to innocence and home. <br>
+The individuals share the love for all mankind with a heart at rest for all the holy light. <br>
 
 **Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
 
@@ -277,18 +277,18 @@ The lunar eclipse shines also.  <br>
 
 ## History ##
 Across time and space,  <br>
-records stored,  <br>
-mistakes made, <br>
-lessons learned, <br>
-empires built, <br>
-folklore shared, <br>
-records stored, <br>
-maps used, <br>
-globes loved, <br>
-humanity moved, <br>
-life repeated, <br>
-truth expressed, <br>
-and modernity created. <br>
+records are stored,  <br>
+mistakes are made, <br>
+lessons are learned, <br>
+empires are built, <br>
+folklore are shared, <br>
+records are stored, <br>
+maps are used, <br>
+globes are loved, <br>
+humanity are moved, <br>
+life are repeated, <br>
+truth are expressed, <br>
+and modernity are created. <br>
 
 **Word Associations:** maps, folklore, time, modern, globe, empire, mistakes, lessons, record, memory
 
@@ -467,7 +467,7 @@ His story from antiquity is continuous, ever-renewing and cyclical. <br>
 
 ## Nighttime ##
 At nighttime, when I can't sleep in the darkness, I turn to the stars. <br>
-The stars represent light. <br>
+The stars are light. <br>
 During these sleepless nights, I am wakeful, <br>
 I pray for mankind, <br>
 I let go of the shadows of mortal sense. <br>
@@ -552,7 +552,7 @@ that supplies all our needs, <br>
 with the rivers and the sea, <br>
 and the grass and the dirt. <br>
 
-It circles, round and round and round the earth goes, <br>
+It circles. Round and round and round the earth goes, <br>
 with all these wondrous people. <br>
 
 Married to the earth, I am. <br>
