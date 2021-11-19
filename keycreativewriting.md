@@ -1571,7 +1571,7 @@ Learning to leave it in yesterday <br>
 ---------------------------------------------------------------------------------------------------------------------
 
 ## What is the best thing you have ever been given? ##
-While roaming the streets of Wahshington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
+While roaming the streets of Washington, DC, I met three people from the Muslim faith. The best thing I've been given is the gift of Muslim prayers. knowledge of the Moors, and an understanding of Cairo, Egypt and Spain. The best thing I was given was the chance to help a man in DC and meet a new friend, Bilal.
 
 <br>
 
