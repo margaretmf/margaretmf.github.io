@@ -396,7 +396,6 @@ layout: default
 * Stories Of Georgia by Joel Chandler Harris
 * The True Flag: Theodore Roosevelt, Mark Twain, and the Birth of American Empire by Stephen Kinzer
 * Our Time Is Now
-* Traffic Sign: Traffic Sign, Icon, Symbol coloring and activity books for kids ages 4-8
 * Mathematical Principles of Signal Processing: Fourier and Wavelet Analysis
 * Begin Again: James Baldwin's America and Its Urgent Lessons for Our Own
 * Into the Wild Paperback by Jon Krakauer  (Author)
