@@ -1292,8 +1292,8 @@ He had a secret admirer but he didn't know her name. Every day, she came home an
 Oh it's a new day for the sun to shine. <br>
 I love the warmth of the sun's rays both on you and on me. <br>
 
-Every day's a new day. The day is yours, and it's mine.
-From the east to the west, te sun rises and shines.
+Every day's a new day. The day is yours, and it's mine. <br>
+From the east to the west, te sun rises and shines. <br>
 
 It's a new day for the birds to chirp. <br>
 Flying high through the trees these birds really sing. <br>
