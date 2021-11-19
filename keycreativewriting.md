@@ -151,6 +151,11 @@ The old dream dying is a new dream awakening.
 
 <br>
 
+## The World's Smile ##
+Open your eyes because there's a whole world smiling outside.
+
+<br>
+
 ## The Fire ##
 Through the fire I saw it all burn, become nothing, become pure, become refined, become golden, and become glowing with grace.
 
@@ -163,6 +168,11 @@ You thought you had an enemy, but you really found a friend in disguse.
 
 ## The Devil on My Shoulders ##
 The devil on my back is yanking and pulling, and pushing and shoving.
+
+<br>
+
+## Save Your Kisses ##
+Save your kisses for the one.
 
 <br>
 
@@ -1225,7 +1235,7 @@ In Washington, DC, I attended the event at the Chapel with Martin Luther King, J
 
 ## Flickering Lights ##
 The flickering lights shine brightly in the hearts of all the people like golden balls throughout the nation and the earth. <br>
-The flickering lights glow in the homes and office buildings united that windows provide and entrance to. <br>
+The flickering lights glow in the homes and office buildings united that windows provide glimpse of. <br>
 The flickering lights twinkle in the night sky that reach other galaxies. <br>
 The flickering lights mark the course in the middle of sea. <br>
 The flickering lights reflect through the water. <br>
@@ -1490,6 +1500,23 @@ It is yours to share. <br>
 It is yours to wear. <br>
 
 <br>
+
+## Girl, Stop ##
+Girl, stop, and take a look.
+You got a smile to wear.
+You got a style to share.
+Please take a hard look.
+
+You are wonderful.
+You are beautiful.
+So mirror, mirror,
+and see a little clearer.
+
+You got it all going,
+more than you can know.
+You got a light that shines.
+You got eyes that glow.
+Girl, stop, and take a look.
 
 ## It is Ok ##
 It's ok to cry. <br>
