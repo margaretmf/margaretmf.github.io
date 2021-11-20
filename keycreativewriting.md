@@ -1258,20 +1258,25 @@ The flickering lights reflect through the water. <br>
 <br>
 
 ## City Lights ##
-City lights. <br>
-
-The lights at night are on. <br>
+The city lights at night have turned on. <br>
 A hard day at work is done. <br>
-
 The day is done. <br>
-The night is on. <br>
-
-The people have left work. <br>
-The light supports their action. <br>
-
+The night is here. <br>
 It's loud and silent at the same time. <br>
-
 All the rooms twinkle like the stars in the night sky. <br>
+
+<br>
+
+## Tossing It Out to Sea, The Ocean ##
+The ocean crashes every day upon the shore. <br>
+The deep waters of God are where the sin is stirred out. <br>
+The holiness of God can cleanse what is wrong away. <br>
+
+Let it go. <br>
+Let it shatter into pieces. <br>
+Let it flee into the ocean. <br>
+Let it fly across the sea. <br>
+Let it fall to the floor. <br>
 
 <br>
 
@@ -1459,21 +1464,6 @@ The lone bird skates on the ice. <br>
 The shadow of the lone bird is beautiful in the grass. <br>
 The bird alone on the city map, she knows her city and she loves the water. <br>
 The lone bird knows her place on the wire. <br>
-
-<br>
-
-## Tossing It Out to Sea, The Ocean - Rough Draft ##
-The ocean crashes every day upon the shore. <br>
-The deep waters of God are where the sin is stirred out. <br>
-The holiness of God can cleanse what is wrong away. <br>
-
-Let it go. <br>
-Let it shatter into pieces. <br>
-Let it flee into the ocean. <br>
-Let it fly across the sea. <br>
-Let it fall to the floor. <br>
-
-**[Biblical Reference](https://truthintheword.wordpress.com/2011/01/28/your-sins-are-at-the-bottom-of-the-ocean/)**
 
 <br>
 
