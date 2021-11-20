@@ -121,8 +121,23 @@ The branches lift up, and they reach for the sky.
 
 <br>
 
+## A Seed Underground ##
+There's a seed underground.
+
+<br>
+
 ## Memories ##
 Everything that once existed still exists in thought.
+
+<br>
+
+## Love ##
+There's a sweet, sweet thing called love in my heart. There's a sweet, sweet thing called love that I feel for you.
+
+<br>
+
+## Fields ##
+Running through fields like a child again, I blow on flowers and make wishes for the earth.
 
 <br>
 
