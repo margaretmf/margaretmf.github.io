@@ -288,6 +288,24 @@ Shadows of birds.
 
 <br>
 
+## Girl, Stop ##
+Girl, stop, and take a look.
+You got a smile to wear.
+You got a style to share.
+Please take a hard look.
+
+You are wonderful.
+You are beautiful.
+So mirror, mirror,
+please see a little clearer.
+
+You got it all going,
+more than you can know.
+You got a light that shines.
+You got eyes that glow.
+Girl, stop, and take a look.
+
+<br>
 
 ## Heart to Heart - Bells ##
 Through the heart to heart I can hear the bells ringing
