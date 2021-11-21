@@ -1495,8 +1495,8 @@ Smile like you mean it. <br>
 In the pain, and the tears, and the fight within, smile like you mean it. <br>
 In the loss for words, and the heartbreak, smile that winning smile. <br>
 You smile like a ray of light. <br>
-It lights up the whole room. <br>
-It brightens up someone's day. <br>
+Your face lights up the whole room. <br>
+Itbrightens up someone's day. <br>
 It makes someone feel at ease. <br>
 It cheers someone's heart. <br>
 So, smile like you mean it. <br>
@@ -1515,13 +1515,7 @@ Please take a hard look.
 You are wonderful.
 You are beautiful.
 So mirror, mirror,
-and see a little clearer.
-
-You got it all going,
-more than you can know.
-You got a light that shines.
-You got eyes that glow.
-Girl, stop, and take a look.
+please see a little clearer.
 
 ## It is Ok ##
 It's ok to cry. <br>
