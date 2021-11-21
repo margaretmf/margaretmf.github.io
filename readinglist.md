@@ -82,6 +82,7 @@ layout: default
 * [The Faith of Dolly Parton: Lessons from Her Life to Lift Your Heart](https://www.amazon.com/Faith-Dolly-Parton-Lessons-Heart/dp/0310352924/ref=sr_1_1?dchild=1&keywords=the+faith+of+dolly+parton&qid=1632005909&sr=8-1) by Dudley Delffs
 * [See No Stranger: A Memoir and Manifesto of Revolutionary Love](https://www.amazon.com/See-No-Stranger-Manifesto-Revolutionary/dp/0525509119/ref=sr_1_1?crid=3J9LZ4A9I7NC1&dchild=1&keywords=see+no+stranger+valerie+kaur&qid=1632436334&sprefix=see+no+st%2Caps%2C161&sr=8-1) by Valarie Kaur
 * [Traffic: Why We Drive the Way We Do ](https://www.amazon.com/Traffic-Drive-What-Says-About/dp/0307277194/ref=sr_1_1?keywords=traffic+tom+vanderbilt&qid=1636730527&sr=8-1) by Tom Vanderbilt
+* [The Great Divorce](https://www.amazon.com/Great-Divorce-C-S-Lewis/dp/0060652950/ref=sr_1_1?crid=31WJP8IFDQ3PL&keywords=the+great+divorce&qid=1637495906&sprefix=the+great+divorce%2Caps%2C189&sr=8-1) by C.S. Lewis
 
 
 #### Reading
@@ -213,7 +214,6 @@ layout: default
 * Boone: A Biography
 * A Place for Everything
 * Thank You for Arguing, Fourth
-* An English Medieval and Renaissance Song Book: Part Songs and Sacred Music for One to Six Voices
 * Paper Trails: The US Post and the Making of the American West
 * How the Post Office Created America: A History
 * I've Been Here All the While: Black Freedom on Native Land (America in the Nineteenth Century) 
