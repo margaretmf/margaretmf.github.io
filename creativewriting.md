@@ -288,6 +288,11 @@ Shadows of birds.
 
 <br>
 
+## Christianity, Middle East ##
+I love that Christianity is a religion from the middle eastern world.
+
+<br>
+
 ## Girl, Stop ##
 Girl, stop, and take a look.
 You got a smile to wear.
