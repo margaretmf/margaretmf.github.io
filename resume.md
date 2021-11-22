@@ -28,12 +28,6 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
 * Studied and worked in Ireland
 
-### CONTINUING
-* Human-Centered Design & Systems Practice | September-May 2019
-* Ongoing Student of the Liberal Arts | January 2019 - Present
-* Religious Studies - Spanish version of Christianity, Islam, Christianity | January 2019-Present
-* 21-Day Race Equity | June 2019-Present
-
 <br>
  
 ## RELEVANT WORK EXPERIENCE
