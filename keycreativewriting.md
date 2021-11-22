@@ -141,6 +141,11 @@ There's a sweet, sweet thing called love in my heart; and there's a sweet, sweet
 
 <br>
 
+## You're Brilliant ##
+Oh, how you're more than brilliant, like a star in the night sky.
+
+<br>
+
 ## Fields ##
 Running through fields like a child again, I blow on flowers and make wishes for the earth.
 
