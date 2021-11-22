@@ -22,8 +22,6 @@ BA in [History](http://as.virginia.edu) | August 2010 - May 2014
 * Studied and worked in Argentina, Scotland, and the Dominican Republic
 * Completed final undergraduate work with straight As
 
-## CONTINUING EDUCATION
-### UNIVERSITY OF VIRGINIA
 MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Capstone Advisor: Laura Barnes  
 * GPA: 3.91
@@ -32,7 +30,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
 * Studied and worked in Ireland
 
-### INDEPENDENT EDUCATION
+### CONTINUING
 * Human-Centered Design & Systems Practice - Acumen Plus, September | May 2019
 * Ongoing Student of the Liberal Arts | January 2019 - Present
 * Religious Studies - Spanish version of Christianity, Islam, Christianity | January 2019-Present
