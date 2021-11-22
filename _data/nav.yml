@@ -27,9 +27,6 @@
   
 - name: "Creative Writing"
   link: "keycreativewriting"
- 
-- name: "Coding Concepts"
-  link: "codingconcepts"
   
 - name: "Calendar"
   link: "calendar"
