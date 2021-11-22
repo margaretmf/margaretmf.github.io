@@ -1,5 +1,6 @@
 
 
+## Creative writing is a way to practice observation and use words articulately. See my creative writing below. ##
 
 ---------------------------------------------------------------------------------------------------------------------
 
