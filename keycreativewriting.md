@@ -1,17 +1,5 @@
 
-## An English teacher who taught creative writing to students in high school inspired students to write down observations creatively. Another English teacher in high school who taught the American Credo Project empowered students to discover a passion for literature, art, and music. I love how creative writing supports expressing feelings and thoughts. The author Rachel Held Evans shares the fact that some people have discovered that The Psalmist serves as a great psychologist in her book entitled *Inspired: Slaying Giants, Walking on Water, and Loving the Bible Again* (p. 109). I agree with this discovery, and I am experimenting with writing poetry. I write a little bit each day and edit a little bit each day. It would be fun to teach youth in my life and help them learn to use their voice. ##
 
-## Creative writing starts with observation and articulation. Creative writing comes from verbalizing visual and auditory observations and articulating feelings and experiences. Creative writing stems from asking interesting questions and imagining. ##
-
-## In the American Credo project, I remember composing a song on the piano, and taking photos of music and water. This journey of writing music and setting poetry to music continues. ##
-
-## In the Creative Writing class, I remember writing down goals to explore how children's books and the media help to teach children concepts. I compared Disney to PBS Kids, and I wrote down goals of writing children's books. I continue an exploration of best practices of writing books for children. ##
-
-## People encourage engineers to write poetry as well. In engineering, people write snippets of code, structure code logically and creatively, and think in and about systems. In poetry, people write snippets of words, and learn to structure words and code creatively and logically. ##
-
-## Through a career, I hope to work as a liberal engineer, bringing together culture, social sciences, history, literature, and engineering. I also hope to explore teaching students at the elementary, high school, or college levels. ##
-
-<br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
