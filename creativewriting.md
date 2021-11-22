@@ -288,6 +288,13 @@ Shadows of birds.
 
 <br>
 
+## On the Road ##
+My heart has been on the road again with highway sounds and heartbreak hotel nights.
+I'm heading straight towards Memphis, my home sweet home, where trains whistle and birds chirp.
+I'm ready to rock, and I'm ready to roll.
+
+<br>
+
 ## Christianity, Middle East ##
 I love that Christianity is a religion from the middle eastern world.
 
