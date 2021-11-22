@@ -33,58 +33,21 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Studied and worked in Ireland
 
 ### INDEPENDENT EDUCATION
-* Human-Centered Design & Systems Practice - Acumen Plus, September - May 2019
-* Ongoing Student of the Liberal Arts, January 2019 - Present
-* Religious Studies - Spanish version of Christianity, Islam, Christianity, Sustained Dialogue Facilitation, & 21-Day Race Equity - Religious Freedom Center, Soliya, & Myers Park Presbyterian Church, January 2019
+* Human-Centered Design & Systems Practice - Acumen Plus, September | May 2019
+* Ongoing Student of the Liberal Arts | January 2019 - Present
+* Religious Studies - Spanish version of Christianity, Islam, Christianity | January 2019-Present
+* Antiracism - 21-Day Race Equity | June 2019
 
 <br>
  
 ## RELEVANT WORK EXPERIENCE
 
 ### VIBRANT WORLD
-Freelance Consultant and Ongoing Student of the Liberal Arts | January 2019 - Present
-* Engaged with articles from multiple news sources, curate news on Twitter, develop a data-driven way to develop insights on trends, and create art to reveal trends in the news
-* Analyzed and wrote about trends in current and future world affairs and write reviews about 10-35 books read per year in blog posts
-* Managed over 120 sets of photographs on Instagram to share beauty in the community and quotes from books
-* Researched trends and organized design and systems research meetup groups to understand patterns, problems, and solutions
-
-* Project: Open Source Software Usage in the Social Sector - interviewed stakeholders to understand how they use and fund open source software, created a survey to share with people in the social sector to gather information on software usage, and analyzed data to understand trends and patterns; work supported the development of a [written report](https://socialimpact.github.com/#report)
-
-* Participated in 100 Days of Peace
-* Participated in 21-day Race Equity Challenge
-* Participated in 100-day Trash Pickup Challenge
-
-* Taught myself to sketch in a notebook and see beauty in the world
-* Recorded scraps from books in field notebooks for art ideas
-* Researched the automobile, trucking, and music industries
-* Composed music on the piano
-* Wrote song lyrics
-* Learned about urban design
-
-<br>
-
-American Credo Project
-* Reviewed all work from 11th grade Credo project and compared where my beliefs were in 11th grade from where they are now
-* Picked up trash as a citizen across neighborhoods in Norfolk, Charlottesville, and Richmond
-* Drove through 12 states in the United States of America and learned about the highway system, gas stations, the hotel industry, nature, music, and American citizens
-* Composed 2 songs on the piano - one, "A New Day", inspired by "What A Wonderful World" and "Here Comes the Sun", the other, "Flying Like The Lone Bird" and the beauty of flying solo and flying freely
-* Developed a dream album or list of songs to compose if anything were possible
-* Worked on four series of photos - "Light in the Darkness", "American Flags", "Leaves", and "Engineering Scenery"
-* Researched themes in books and document them on Github
-* Wrote poetry to explore observations, thoughts, and feelings
-
-<br>
-
-Children's Book Analyst
-* [Read 14 children's books, analyze the 14 books, and create outlines to guide how to critically think about them to explore a teaching career.](https://margaretmf.github.io/teaching) 
-* Developed an interest in how filmmakers turn children's books into films
-
-<br>
-
-Innovator
-* Wrote down 5 images and 5 sounds that inspire new channels of thinking every day
-
-<br>
+Freelance Researcher Consultant | August-December 2019
+* Interviewed stakeholders to understand how they use and fund open source software
+* Created a survey to share with people in the social sector to gather information on software usage
+* Analyzed data to understand trends and patterns
+* Produced work that supported the development of a [written report](https://socialimpact.github.com/#report)
 
 ### EVERFI
 Data Analyst | April 2016 - January 2019
