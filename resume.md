@@ -29,10 +29,10 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Studied and worked in Ireland
 
 ### CONTINUING
-* Human-Centered Design & Systems Practice - Acumen Plus, September | May 2019
+* Human-Centered Design & Systems Practice | September-May 2019
 * Ongoing Student of the Liberal Arts | January 2019 - Present
 * Religious Studies - Spanish version of Christianity, Islam, Christianity | January 2019-Present
-* Antiracism - 21-Day Race Equity | June 2019
+* 21-Day Race Equity | June 2019-Present
 
 <br>
  
