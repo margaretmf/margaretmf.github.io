@@ -131,8 +131,13 @@ Everything that once existed still exists in thought.
 
 <br>
 
+## Some Thing Last Forever ##
+Some things last forever like moments that we share and memories.
+
+<br>
+
 ## Love ##
-There's a sweet, sweet thing called love in my heart. There's a sweet, sweet thing called love that I feel for you.
+There's a sweet, sweet thing called love in my heart; and there's a sweet, sweet thing called love that I feel for you.
 
 <br>
 
@@ -185,9 +190,6 @@ You thought you had an enemy, but you really found a friend in disguse.
 The devil on my back is yanking and pulling, and pushing and shoving.
 
 <br>
-
-## Save Your Kisses ##
-Save your kisses for the one.
 
 <br>
 
