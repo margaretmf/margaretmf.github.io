@@ -1,4 +1,4 @@
-# I explore painting what I capture and see. Check out my favorite paintings below.
+## I explore painting what I capture and see. Check out my favorite paintings below. ##
 
 
 
