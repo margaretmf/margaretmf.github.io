@@ -45,7 +45,7 @@ Freelance Researcher Consultant | August-December 2019
 * Interviewed stakeholders to understand how they use and fund open source software
 * Created a survey to share with people in the social sector to gather information on software usage
 * Analyzed data to understand trends and patterns
-* Produced work that supported the development of a [written report](https://socialimpact.github.com/#report)
+* Produced work to support the development of a [written report](https://socialimpact.github.com/#report)
 
 ### EVERFI
 Data Analyst | April 2016 - January 2019
@@ -108,7 +108,7 @@ Project Management Systems Analyst and Chatbot Designer Intern | December 2015 -
 ## LEADERSHIP, VOLUNTEER, AND EXTRACURRICULAR EXPERIENCE
  
 ### America India Foundation
-Event Particpant and Committee Member | March 2018 - Present
+Event Particpant and Committee Member | March 2018 - June 2019
 
 ### UVA
 5 Year Giving Committee | July 2018 - July 2019
