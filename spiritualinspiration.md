@@ -223,6 +223,19 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for the next generation
 * Grateful for the love that fills a space that feels void
 * Grateful to be ethical in life
+* Grateful for African countries
+* Grateful for the nobility of people
+* Grateful for princes and princesses in other countries and cultures
+* Grateful for African music
+* Grateful for Nam's and Faf's friends
+* Grateful for dominion and lasting peace
+* Grateful for all the people at Hopeway
+* Grateful for the apartment
+* Grateful for the peopel working in the tutoring business
+* Grateful for memories in Charlottesville and the scenery
+* Grateful for the sounds of the trains
+* Grateful for people being active today
+* Grateful for intensity
 * Grateful for Truth’s and Love’s sons and daughters
 * Grateful for the rustle of the leaves
 * Grateful for all the people working where I’m working
