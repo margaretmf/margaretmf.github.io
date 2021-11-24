@@ -83,6 +83,7 @@ layout: default
 * [See No Stranger: A Memoir and Manifesto of Revolutionary Love](https://www.amazon.com/See-No-Stranger-Manifesto-Revolutionary/dp/0525509119/ref=sr_1_1?crid=3J9LZ4A9I7NC1&dchild=1&keywords=see+no+stranger+valerie+kaur&qid=1632436334&sprefix=see+no+st%2Caps%2C161&sr=8-1) by Valarie Kaur
 * [Traffic: Why We Drive the Way We Do ](https://www.amazon.com/Traffic-Drive-What-Says-About/dp/0307277194/ref=sr_1_1?keywords=traffic+tom+vanderbilt&qid=1636730527&sr=8-1) by Tom Vanderbilt
 * [The Great Divorce](https://www.amazon.com/Great-Divorce-C-S-Lewis/dp/0060652950/ref=sr_1_1?crid=31WJP8IFDQ3PL&keywords=the+great+divorce&qid=1637495906&sprefix=the+great+divorce%2Caps%2C189&sr=8-1) by C.S. Lewis
+* [The Awakened Brain: The New Science of Spirituality and Our Quest for an Inspired Life](https://www.amazon.com/Awakened-Brain-Science-Spirituality-Inspired/dp/198485562X/ref=sr_1_1?keywords=the+awakened+brain&qid=1637769608&sr=8-1) by Lisa Miller
 
 
 #### Reading
