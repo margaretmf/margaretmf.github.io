@@ -87,22 +87,8 @@ layout: default
 
 
 #### Reading
-* Cervantes
-* Jorge Louis Borges
-* Shakespeare
-* Cash: The Autobiography by Johnny Cash
-* The 30-Day Lyric Writing Challenge: Transform Your Lyric Writing Skills in Only 30 Days (The Song Foundry 30-Day Challenges) by Ed Bell
-* The Art of Songwriting by Ed Bell
-* Great Songwriting Techniques by Jack Perricone
-* The Craft of Lyric Writing by Sheila Davis
-* Signs: The Secret Language of the Universe
-* Popular Lyric Writing: 10 Steps to Effective Storytelling by Andrea Stolpe
-* Nashville Songwriter: The Inside Stories Behind Country Music's Greatest Hits
-* Cherokee Myths and Legends: Thirty Tales Retold by Terry L. Norton
-* All You Need to Know About the Music Business: 10th Edition by Donald S. Passman
-* Trail of Tears: The Rise and Fall of the Cherokee Nation by John Ehle
-* Spanish Novels: Pasaje de Ida
-* Respect Yourself: Stax Records and the Soul Explosion
+* Voices from the Pandemic: Americans Tell Their Stories of Crisis, Courage and Resilience by Eli Saslow
+* Awakening: #MeToo and the Global Fight for Women's Rights by Rachel Vogelstein and Meighan Stone
 
 
 ## 2020
