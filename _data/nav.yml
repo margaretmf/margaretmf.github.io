@@ -22,20 +22,21 @@
 - name: "Portfolio"
   link: "portfolio"
   
-- name: "Innovation & Mindfulness"
-  link: "innovation&mindfulness"
-  
-- name: "Creative Writing"
-  link: "keycreativewriting"
-  
-- name: "Calendar"
-  link: "calendar"
+- name: "Resume"
+  link: "resume"
   
 - name: "Contact"
   link: "contact"
   
-- name: "Resume"
-  link: "resume"
+- name: "Calendar"
+  link: "calendar"
+  
+- name: "Innovation & Mindfulness"
+  link: "innovation&mindfulness"
+
+- name: "Creative Writing"
+  link: "keycreativewriting"
+  
  
   
 
