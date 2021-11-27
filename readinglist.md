@@ -84,10 +84,10 @@ layout: default
 * [Traffic: Why We Drive the Way We Do ](https://www.amazon.com/Traffic-Drive-What-Says-About/dp/0307277194/ref=sr_1_1?keywords=traffic+tom+vanderbilt&qid=1636730527&sr=8-1) by Tom Vanderbilt
 * [The Great Divorce](https://www.amazon.com/Great-Divorce-C-S-Lewis/dp/0060652950/ref=sr_1_1?crid=31WJP8IFDQ3PL&keywords=the+great+divorce&qid=1637495906&sprefix=the+great+divorce%2Caps%2C189&sr=8-1) by C.S. Lewis
 * [The Awakened Brain: The New Science of Spirituality and Our Quest for an Inspired Life](https://www.amazon.com/Awakened-Brain-Science-Spirituality-Inspired/dp/198485562X/ref=sr_1_1?keywords=the+awakened+brain&qid=1637769608&sr=8-1) by Lisa Miller
+* [Voices from the Pandemic: Americans Tell Their Stories of Crisis, Courage and Resilience](https://www.amazon.com/Voices-Pandemic-Americans-Stories-Resilience/dp/0385547005/ref=sr_1_1?keywords=voices+from+the+pandemic&qid=1638019171&sr=8-1) by Eli Saslow
 
 
 #### Reading
-* Voices from the Pandemic: Americans Tell Their Stories of Crisis, Courage and Resilience by Eli Saslow
 * Awakening: #MeToo and the Global Fight for Women's Rights by Rachel Vogelstein and Meighan Stone
 
 
