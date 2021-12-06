@@ -85,10 +85,10 @@ layout: default
 * [The Great Divorce](https://www.amazon.com/Great-Divorce-C-S-Lewis/dp/0060652950/ref=sr_1_1?crid=31WJP8IFDQ3PL&keywords=the+great+divorce&qid=1637495906&sprefix=the+great+divorce%2Caps%2C189&sr=8-1) by C.S. Lewis
 * [The Awakened Brain: The New Science of Spirituality and Our Quest for an Inspired Life](https://www.amazon.com/Awakened-Brain-Science-Spirituality-Inspired/dp/198485562X/ref=sr_1_1?keywords=the+awakened+brain&qid=1637769608&sr=8-1) by Lisa Miller
 * [Voices from the Pandemic: Americans Tell Their Stories of Crisis, Courage and Resilience](https://www.amazon.com/Voices-Pandemic-Americans-Stories-Resilience/dp/0385547005/ref=sr_1_1?keywords=voices+from+the+pandemic&qid=1638019171&sr=8-1) by Eli Saslow
+* [Awakening: #MeToo and the Global Fight for Women's Rights](https://www.amazon.com/Awakening-MeToo-Global-Womens-Rights/dp/1541758625/ref=sr_1_3?keywords=awakening+%23metoo&qid=1638800120&sr=8-3) by Rachel Vogelstein and Meighan Stone
 
 
 #### Reading
-* Awakening: #MeToo and the Global Fight for Women's Rights by Rachel Vogelstein and Meighan Stone
 
 
 ## 2020
