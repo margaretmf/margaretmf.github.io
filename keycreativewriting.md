@@ -65,7 +65,7 @@ An old farm road sits still with a fence that goes up for miles, mailboxes, and 
 <br>
 
 ## Rivers ##
-River with forward coarse move in the United States.
+Rivers with forward coarses move through the United States.
 
 <br>
 
@@ -75,7 +75,7 @@ Everything you thought you knew falls off like the dead leaves on trees.
 <br>
 
 ## Trees ##
-The branches lift up, and they reach for the sky.
+The branches lift up, they reach for the sky, and they hold all the stories of the city.
 
 <br>
 
@@ -90,7 +90,7 @@ Everything that once existed still exists in thought.
 <br>
 
 ## Some Thing Last Forever ##
-Some things last forever like moments that we share and memories.
+Some things last forever like moments that we share.
 
 <br>
 
@@ -125,7 +125,7 @@ It's amazing that someone is six hours behind me somewhere doing the same activi
 <br>
 
 ## She's the Rock n' Roll Girl ##
-She's the kind of girl that knows how to rock and knows how to roll. She's a sweet lover of the world.
+She's the kind of girl that knows how to rock and knows how to roll; she's a sweet lover of the world.
 
 <br>
 
