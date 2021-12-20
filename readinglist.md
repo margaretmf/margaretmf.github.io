@@ -86,6 +86,7 @@ layout: default
 * [The Awakened Brain: The New Science of Spirituality and Our Quest for an Inspired Life](https://www.amazon.com/Awakened-Brain-Science-Spirituality-Inspired/dp/198485562X/ref=sr_1_1?keywords=the+awakened+brain&qid=1637769608&sr=8-1) by Lisa Miller
 * [Voices from the Pandemic: Americans Tell Their Stories of Crisis, Courage and Resilience](https://www.amazon.com/Voices-Pandemic-Americans-Stories-Resilience/dp/0385547005/ref=sr_1_1?keywords=voices+from+the+pandemic&qid=1638019171&sr=8-1) by Eli Saslow
 * [Awakening: #MeToo and the Global Fight for Women's Rights](https://www.amazon.com/Awakening-MeToo-Global-Womens-Rights/dp/1541758625/ref=sr_1_3?keywords=awakening+%23metoo&qid=1638800120&sr=8-3) by Rachel Vogelstein and Meighan Stone
+* [Life Isn't Binary: On Being Both, Beyond, and In-Between](https://www.amazon.com/Life-Isnt-Binary-Beyond-Between/dp/1785924796/ref=sr_1_2?crid=1809KPAIMJAHW&keywords=life+isn%27t+binary+on+being+both%2C+beyond%2C+and+in-between&qid=1640013787&sprefix=life+isn%27t+binary%2Caps%2C160&sr=8-2) by Meg-John Barker and Ale Iantaffi
 
 
 #### Reading
