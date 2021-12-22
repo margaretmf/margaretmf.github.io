@@ -162,7 +162,7 @@ While a student at UVA, I helped kickstart a larger university initiative to hel
 
 ## TOM(TOMRA) - Sustainable/Alternative Investing
 
-Before committing to a liberal arts program at UVA, I considered applying to UVA's Commerce School. While considering applying to the business school, I applied through a rigorous process to the Sustainable Investment group and pitched a cool stock, TOM(TMRAY). Tomra, the company, creates sensor-based solutions for optimal resource productivity. Below is the research report I wrote before the pitch.
+Before committing to a liberal arts program at UVA, I considered applying to UVA's Commerce School. While considering applying to the business school, I applied through a rigorous process to the Sustainable Investment group and pitched a stock, TOM(TMRAY). Tomra, the company, creates sensor-based solutions for optimal resource productivity. Below is the research report I wrote before the pitch.
 
 <img class="picture" src="TOM(TMRAY)-ResearchReport_1.jpg">
 
