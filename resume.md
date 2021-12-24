@@ -12,7 +12,7 @@ I am a versatile professional, interested in writing to support technology and b
 ## EDUCATION
 ### UNIVERSITY OF VIRGINIA
 BA in [History](http://as.virginia.edu) | August 2010 - May 2014
-* Advisors: Sophia Rosenfeld
+* Advisor: Sophia Rosenfeld
 * Navigated a university founded in 1819 with 17,011 students enrolled and connected the dots between liberal arts and science classes
 * Major Papers: History of Children's Play in the Victorian Era, History of Musicology during the Scientific Revolution
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
