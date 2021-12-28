@@ -261,7 +261,7 @@ How is folk music created in America in comparison to other countries?
 # Creative Writing - Independent Writing #
 # Maps, History, Tennessee, Imagery, Stories, Professionalization, Bridges, A Spanish Lense, Culture, The Country, and Democracy #
 ## E Pluribus Unum ##
-I am a voice in a sea of voices yearning to be say the right thing.
+I am a voice in a sea of voices yearning to say the right thing.
 I am a conscience in a sea of consciences desiring to do the right thing.
 I am a body in a sea of bodies wanting to be free.
 I am a heart in a sea of hearts crying out to love more.
