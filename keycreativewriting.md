@@ -272,7 +272,6 @@ mistakes are made, <br>
 lessons are learned, <br>
 empires are built, <br>
 folklore are shared, <br>
-records are stored, <br>
 maps are used, <br>
 globes are loved, <br>
 humanity are moved, <br>
