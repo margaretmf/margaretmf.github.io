@@ -143,9 +143,25 @@ There's a lot of talk right now in our culture about gun violence and crime. As 
 
 <br>
 
+## Keep on Going ##
+Keep on going
+You are growing
+
+Keep on singing
+You are being
+
+Everything's going to be ok
+Everything will fall into place
+There is going to be a way
+
+<br>
+
 ### Interfaith, and Renewal of Faith and Understanding 
 #### Background
 I have grown up around **multiple faiths and religions**: **[Catholic](https://www.catholic.org/)**, **[Presbyterian](https://www.presbyterianmission.org/)**, **[Episcopalian](https://www.episcopalchurch.org/library/topics/worldwide)**, **[Christian Science](https://www.marybakereddylibrary.org/)**, **[Orthopaedics](https://www.aaos.org/Default.aspx?ssopc=1)**, **[Jungian Psychiatry](http://jungiansociety.org/)**, **[Judaism](http://www.worldjewishcongress.org/en)** and I have desired to understand **[Buddhism](http://www.buddhanet.net/)**. I interned one summer with the **[Christian Science Mother Church](https://www.christianscience.com/find-us/visit-the-mother-church)**, even if peers, or my inner critic thought that "Christian Science is weird", "not a real Science", or "not powerful enough to heal truly". Since entering the workforce outside the church, I have wrestled with **what is true** in sciences, faiths, religions, and socially intractable problems.
+
+## Recognizing People for Who They Are ##
+It's good to be able to recognize people for who they fully are. It's good to be able to check assumptions, unconscious biases, etc. Martin Luther King, Jr., systems analysis
 
 #### Healing Testimony
 During and outside work, I have meditated and watched thoughts with inspiration, though sometimes it feels like I am struggling to find **breath** and **full health**. In situations when it feels like **death's shadow** controls me, I have slowly turned to **God, or ["God Consciousness"](https://articles.plainfieldcs.com/early-workers/bicknell-young/consciousness-where-art-thou/)**, where there might exist hope to free oneself from human cycles and finite senses power; when I discover with God's help that I dwell within His loving consciousness, I see more of Divine Life's infinitely expanding expression. 
@@ -236,6 +252,118 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for the sounds of the trains
 * Grateful for people being active today
 * Grateful for intensity
+* Grateful for all the students at UVA
+* Grateful for nature in Charlottesville
+* Grateful for the child of God in everyone
+* Grateful for the stories and ancestors of African Americans
+* Grateful for therapists
+* Grateful for the CHristian Science practitioner
+* Grateful for people who have lost weight
+* Grateful for friends in Charlottesville
+* Grateful for women worldwide
+* Grateful for people around the whole world
+* Grateful for people celebrating Thanksgiving
+* Grateful for family members
+* Grateful for family members coming together
+* Grateful for interracial couples
+* Grateful for all the people in my Association
+* Grateful for people from China
+* Grateful for newness at UVA
+* Grateful for the construction workers
+* Grateful for the people playing sports
+* Grateful for the home of others
+* Grateful for nurses in our world
+* Grateful for a society filled with appreciation for nurses
+* Grateful for the faith of everyone
+* Grateful for what God is doing through everyone
+* Grateful for God who gives Life
+* Grateful for colors and the prism
+* Grateful for awakening
+* Grateful for my sister
+* Grateful for all the expressions of love and life
+* Grateful for religious freedom in our country
+* Grateful for people from church
+* Grateful that nothing has been lost
+* Grateful for expressions of demcoracy
+* Grateful for everyone singing through their work
+* Grateful for people from Asia
+* Grateful for friends from UVA
+* Grateful for the good that was going on while I was a student at UVA
+* Grateful for all the good people in the world
+* Grateufl that God has led me to the right employment options
+* Grateful for children playing
+* Grateful for all the people in rural VA and rural America
+* Grateful for God's economy
+* Grateful for God's government
+* Grateful for all the innocence of people
+* Grateful for the trucks on the highway
+* Grateful that all talent comes from God
+* Grateful for people from China and Asian countries
+* Grateful for the man evangelizing on the street
+* Grateful for the love that makes the world go around
+* Grateufl for the light refelcted by people
+* Grateful for little children
+* Grateful for overcoming
+* Grateful for the time baking
+* Grateful for all the people in Charlotte
+* Grateful for all the little kids
+* Grateful for all the people in South Korea
+* Grateful for all the people in Africa
+* Grateful for the African roots of Christianity
+* Grateful for the Jewish community
+* Grateful for little kids and their love of God
+* Grateful for Chinese calligraphy
+* Grateful for heaven on earth
+* Grateful for all the people with loving hearts on earth
+* Grateful for the soloist
+* Grateful for the words "heaven" and "eternity" in other languages
+* Grateful for balance reflected through architecture
+* Grateful for my sister
+* Grateful for the 91st psalm
+* Grateful for no fear for the terror by night
+* Grateful for mutual prayers at midnight
+* Grateful for Christian Science hymns that reference the 91st spalm
+* Grateful for all the people in Tennessee and Kentucky
+* Grateful for all the people in Memphis
+* Grateful for the therapists in Tennessee
+* Grateful for all the people I met in therapy in Tennessee
+* Grateful for the people responding to the needs in Kentucky
+* Grateful that God stills the storm
+* Grateful for all of God's people
+* Grateful for African American history in the South
+* Grateful for the African American sororities and fraternities at UVA
+* Grateful for the guy from middle school (Aaron?)
+* Grateful for the girl from soccer as a kid
+* Grateful for friends from Norfolk Academy
+* Grateful for people I met in the Data Science program
+* Grateful for the good going on today
+* Grateful for the light in the children in the airport
+* Grateful for music from Afghanistan culture
+* Grateful for Afrobeats
+* Grateful for a good day with healthy conversations with family members
+* Grateful for the good going on today
+* Grateful for the light in the children in the airport
+* Grateful for the woman sitting next to me
+* Grateful for Tasha at the Engels
+* Grateful for American flags at construction sites
+* Grateful for people form Sig Delt
+* Grateful for all the people moving the country forward
+* Grateful for all the people doing something to live in NYC
+* Grateful forall my family members
+* Grateful for light
+* Grateful for all the people from other countries and cultures
+* Grateful for the beauty in everyone I meet
+* Grateful for spiritual rebirth
+* Grateful for new ways of seeing
+* Grateful for a niche to fill
+* Grateful for a place set out
+* Grateful for faith all over the country
+* Grateful for all the good people everywhere
+* Grateful for people from Norfolk Academy
+* Grateful for interracial relationships
+* Grateful for the fruits of the spirit I see in everyone
+* Grateful for movement
+* Grateful for all God's people
 * Grateful for Truth’s and Love’s sons and daughters
 * Grateful for the rustle of the leaves
 * Grateful for all the people working where I’m working
