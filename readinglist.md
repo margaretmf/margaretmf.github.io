@@ -89,14 +89,15 @@ layout: default
 * [Life Isn't Binary: On Being Both, Beyond, and In-Between](https://www.amazon.com/Life-Isnt-Binary-Beyond-Between/dp/1785924796/ref=sr_1_2?crid=1809KPAIMJAHW&keywords=life+isn%27t+binary+on+being+both%2C+beyond%2C+and+in-between&qid=1640013787&sprefix=life+isn%27t+binary%2Caps%2C160&sr=8-2) by Meg-John Barker and Ale Iantaffi
 * [How Africa Shaped the Christian Mind: Rediscovering the African Seedbed of Western Christianity](https://www.amazon.com/Africa-Shaped-Christian-Mind-Rediscovering/dp/0830837051/ref=sr_1_1?keywords=how+africa+shaped+the+christian+mind&qid=1640274800&sprefix=how+Africa+shaped%2Caps%2C52&sr=8-1) by Thomas Oden 
 * [They/Them/Their: A Guide to Nonbinary & Genderqueer Identities](https://www.amazon.com/They-Them-Their-Genderqueer-Identities/dp/1785924834/ref=sr_1_1?crid=3OOFFGQEO8V1W&keywords=they%2Fthem%2Ftheir+eris+young&qid=1640274750&sprefix=they%2Fthem%2Ftheir+eris+young%2Caps%2C56&sr=8-1) by Eris Young
+* [The Slave Ship: A Human History](https://www.amazon.com/Slave-Ship-Human-History/dp/0143114255/ref=sr_1_1?crid=1GRVX0L85Q2CS&keywords=the+slave+ship+a+human+history&qid=1640274763&sprefix=the+slave+ship+a+human+history%2Caps%2C51&sr=8-1) by Marcus Rediker
 
 
 #### Reading
-* [The Slave Ship: A Human History](https://www.amazon.com/Slave-Ship-Human-History/dp/0143114255/ref=sr_1_1?crid=1GRVX0L85Q2CS&keywords=the+slave+ship+a+human+history&qid=1640274763&sprefix=the+slave+ship+a+human+history%2Caps%2C51&sr=8-1) by Marcus Rediker
 * [Dreams of Africa in Alabama: The Slave Ship Clotilda and the Story of the Last Africans Brought to America](https://www.amazon.com/Dreams-Africa-Alabama-Clotilda-Africans/dp/0195382935/ref=sr_1_1?crid=5VEOIXOV8KCW&keywords=dreams+of+Africa+in+Alabama+sylviane+a.+diouf&qid=1640354336&sprefix=dreams+of+africa+in+alabama+sylviane+a.+diouf%2Caps%2C57&sr=8-1) by Sylviane A. Diouf
 * Trans Love: An Anthology of Transgender and Non-Binary Voices by Freiya enson
 * Trans Power: Own Your Gender by Juno Roche
 * Transgressive: A Trans Woman on Gender, FEminism, and Politics by Rachel Anne Williams
+* Rigged: America, Russia, and One Hundred Years of Covert Electoral Interference by David Shimer
 
 ## 2020
 
