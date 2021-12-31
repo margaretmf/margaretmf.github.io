@@ -637,6 +637,117 @@ A day for rest, for community, and homework
 
 <br>
 
+## New Day ##
+Oh it's a new day for the sun to shine. <br>
+I love the warmth of the sun's rays both on you and on me. <br>
+
+Every day's a new day. The day is yours, and it's mine. <br>
+From the east to the west, the sun rises and shines. <br>
+
+It's a new day for the birds to chirp. <br>
+Flying high through the trees these birds really sing. <br>
+
+I love to sing with the birds and hear their songs ringaling. <br>
+Every day's a new day. Every day's a new day. <br>
+
+Oh it's a new day for the sky to be blue. <br>
+Bright blue the sky is with the birds sailing high. <br>
+
+I love to look up at the sky and dream big in the clouds. <br>
+Every day's a new day to dream something new. <br>
+
+Oh it's a new day for the people to move. <br>
+I love that the sun is what the earth spins us around. <br>
+
+Oh how I love to wake up to this new day. <br>
+and feel the people and the earth move around as one. <br>
+
+Every day's a new day, every day's a new day. <br>
+Every day's a new day to feel the earth move. <br>
+
+It's a new day for the green grass to grow. <br>
+Where the grass is so green is where I long to go. <br>
+
+I love to run and skip outside and feel a rebirth. <br>
+Every day's a new day to love this green earth. <br>
+
+It's a new day for the trees to talk. <br>
+I love to hear them and talk to them too. <br>
+
+Every day's a new day for me and for you. <br>
+Every day's a new day. Every day's a new day. <br>
+
+It's a new day for the bees to buzz. <br>
+How I love the sweet honey these black and gold things make. <br>
+
+Every day's a day to try something new. <br>
+Every day's a new day. Every day's a new day. <br>
+
+It's a new day for the flowers to bloom. <br>
+I love to grow like them and smell them too. <br>
+
+I want to live each day like it's the first and the last. <br>
+Every day's a new day, every day's a new day. <br>
+
+Oh it's a new day for our hearts to beat with love. <br>
+I love to feel the hearts all over beating within everywhere. <br>
+
+Every day's a new day for me and for you. <br>
+I love when smiles shine through all the people everywhere. <br>
+
+Oh it's a new day to seize that day. <br>
+I love to see neighbors wave and hear children laugh and play.  <br>
+
+Every day's a day to be someone new. <br>
+Every day's a new day. Every day's a new day. <br>
+Everyone of life's days are brand new days. <br>
+
+<br>
+
+## Wishing Well - Rough Draft ##
+Today I found a handful of coins. <br>
+I threw them in the wishing well, <br>
+and I made some wishes. <br>
+
+a penny for kindness in school <br>
+a nickel for the South to live <br>
+a quarter to wish well the people looking for change <br>
+
+a penny for a smile on my parents' faces <br>
+a nickel for my sister and brother <br>
+a penny for the people's freedom <br>
+
+a nickel for the couple's harmony <br>
+a quarter for the love for a neighbor <br>
+a penny for the love that fills the earth <br>
+
+a nickel for the love that moves mountains <br>
+a quarter for the hugging of two friends <br>
+a penny for the love that smiles at a strangers <br> 
+
+a quarter for the love that forgives at first sight <br> 
+a nickel for the love that keeps people young <br>
+a penny for the love that <br>
+
+a quarter for the love that heals an illness <br>
+a penny for the love that builds bridges <br>
+a nickel for the life that frees <br>
+
+a quarter for the life that shares joy and happiness <br>
+a penny for a song to sing in a mother's heart <br>
+a quarter for a laugh to come out of a father's mouth <br>
+
+a penny for a story of a grandmother to be remembered <br>
+a penny for a joke of a grandfather to be thankful for <br>
+a penny for the peace with the universe <br>
+
+with these coins I wished people well <br>
+with these coins I wanted the best for people <br>
+with these coins I cared for people <br>
+with these coins I sent a heart filled with love 
+
+<br>
+
 ## Home Sweet Home ##
 Home sweet home
 where screen doors are wide open
