@@ -775,20 +775,11 @@ When in a gymn looking to the ceiling, I think of looking to gymn ceilings in tw
 
 ## Clothes Laying Around ##
 A hat on a fence, <br>
-A shirt on the ground, <br>
-A sweatshirt on the tree with a leaf on it, <br>
-A mask on the ground, <br>
-A shoelace on the sidwalk, <br>
+a shirt on the ground, <br>
+a sweatshirt on the tree with a leaf on it, <br>
+a mask on the ground, <br>
+a shoelace on the sidwalk, <br>
 and shoes on an electric wire.
-
-<br>
-
-## Sweet Nothings ##
-Sweet nothings you put in my ear. <br>
-You're telling me things I've never heard before. <br>
-You're repeating the things that just aren't true. <br>
-You're sharing in vain words and angry statements. <br>
-You are airing them out, and I hear. <br>
 
 <br>
 
