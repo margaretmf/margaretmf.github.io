@@ -90,6 +90,7 @@ layout: default
 * [How Africa Shaped the Christian Mind: Rediscovering the African Seedbed of Western Christianity](https://www.amazon.com/Africa-Shaped-Christian-Mind-Rediscovering/dp/0830837051/ref=sr_1_1?keywords=how+africa+shaped+the+christian+mind&qid=1640274800&sprefix=how+Africa+shaped%2Caps%2C52&sr=8-1) by Thomas Oden 
 * [They/Them/Their: A Guide to Nonbinary & Genderqueer Identities](https://www.amazon.com/They-Them-Their-Genderqueer-Identities/dp/1785924834/ref=sr_1_1?crid=3OOFFGQEO8V1W&keywords=they%2Fthem%2Ftheir+eris+young&qid=1640274750&sprefix=they%2Fthem%2Ftheir+eris+young%2Caps%2C56&sr=8-1) by Eris Young
 * [The Slave Ship: A Human History](https://www.amazon.com/Slave-Ship-Human-History/dp/0143114255/ref=sr_1_1?crid=1GRVX0L85Q2CS&keywords=the+slave+ship+a+human+history&qid=1640274763&sprefix=the+slave+ship+a+human+history%2Caps%2C51&sr=8-1) by Marcus Rediker
+* [Confederates in Montana Territory: In the Shadow of Price's Army](https://www.amazon.com/Confederates-Montana-Territory-Shadow-Prices/dp/1626196036) by Ken Robison
 
 
 #### Reading
