@@ -202,6 +202,11 @@ She's out and about. This town she loves. Everyone knows her name. The smiles sh
 
 <br>
 
+## From Shore to Shore ##
+From shore to shore there's a whole world to explore.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
