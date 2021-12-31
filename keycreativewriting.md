@@ -1524,7 +1524,7 @@ The truth can be tough to bear. <br>
 
 <br>
 
-## My Own Way (co-wrote 4 lines with Grace Askew) ##
+## My Own Way ##
 Momma’s never left Shelby County <br>
 And don’t want nobody telling her what to do <br>
 But I got faraway dreams, ain’t no townie <br>
@@ -1532,7 +1532,7 @@ This place is just for passing through <br>
 
 <br>
 
-## But Not Today (co-wrote the chorus with Grace Askew) ##
+## But Not Today ##
 I’ve been crying, crying, crying <br>
 But not today <br>
 Learning to leave it in yesterday <br>
