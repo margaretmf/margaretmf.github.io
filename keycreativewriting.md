@@ -1430,27 +1430,6 @@ The lone bird knows her place on the wire. <br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
-## It's A New Day #
-It's a new day for the sun to shine <br>
-for the birds to chirp <br>
-for me to meet a new friend. <br>
-
-I love to sing out loud <br>
-and let go all of the doubt <br>
-and feel love in my heart <br>
-for everyone. <br>
-
-It's a new day for the flowers to bloom <br>
-for the rain to fall <br>
-for the neighbors to wave. <br>
-
-I love to skip out side <br>
-and run to the park <br>
-and feel joy in my heart <br>
-with everyone. <br>
-
-<br>
-
 ## Smile Like You Mean It ##
 Smile like you mean it. <br>
 In the pain, and the tears, and the fight within, smile like you mean it. <br>
