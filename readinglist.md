@@ -98,7 +98,7 @@ layout: default
 * [Dreams of Africa in Alabama: The Slave Ship Clotilda and the Story of the Last Africans Brought to America](https://www.amazon.com/Dreams-Africa-Alabama-Clotilda-Africans/dp/0195382935/ref=sr_1_1?crid=5VEOIXOV8KCW&keywords=dreams+of+Africa+in+Alabama+sylviane+a.+diouf&qid=1640354336&sprefix=dreams+of+africa+in+alabama+sylviane+a.+diouf%2Caps%2C57&sr=8-1) by Sylviane A. Diouf
 * Trans Love: An Anthology of Transgender and Non-Binary Voices by Freiya enson
 * Trans Power: Own Your Gender by Juno Roche
-* Transgressive: A Trans Woman on Gender, FEminism, and Politics by Rachel Anne Williams
+* Transgressive: A Trans Woman on Gender, Feminism, and Politics by Rachel Anne Williams
 * Rigged: America, Russia, and One Hundred Years of Covert Electoral Interference by David Shimer
 
 ## 2020
