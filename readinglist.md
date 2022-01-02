@@ -2,6 +2,19 @@
 layout: default
 ---
 
+## 2022
+
+#### Reading
+* [Dreams of Africa in Alabama: The Slave Ship Clotilda and the Story of the Last Africans Brought to America](https://www.amazon.com/Dreams-Africa-Alabama-Clotilda-Africans/dp/0195382935/ref=sr_1_1?crid=5VEOIXOV8KCW&keywords=dreams+of+Africa+in+Alabama+sylviane+a.+diouf&qid=1640354336&sprefix=dreams+of+africa+in+alabama+sylviane+a.+diouf%2Caps%2C57&sr=8-1) by Sylviane A. Diouf
+* [Anthro-Vision: A New Way to See in Business and Life](https://www.amazon.com/Anthro-Vision-New-Way-Business-Life/dp/1982140968/ref=sr_1_2?crid=2TMYH1C43ICEQ&keywords=Gillian+Tett&qid=1641085951&s=books&sprefix=gillian+tet%2Cstripbooks%2C104&sr=1-2) by Gillian Tett
+* [A Trucker's Tale: Wit, Wisdom, and True Stories from 60 Years on the Road](https://www.amazon.com/Truckers-Tale-Wisdom-Stories-Years/dp/1948062380/ref=asc_df_1948062380/?tag=hyprod-20&linkCode=df0&hvadid=416644102551&hvpos=&hvnetw=g&hvrand=995296048081490844&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9009985&hvtargid=pla-902183328706&psc=1&tag=&ref=&adgrpid=95590145924&hvpone=&hvptwo=&hvadid=416644102551&hvpos=&hvnetw=g&hvrand=995296048081490844&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9009985&hvtargid=pla-902183328706) by Ed Miller
+* [Rigged: America, Russia, and One Hundred Years of Covert Electoral Interference](https://www.amazon.com/Rigged-America-Hundred-Electoral-Interference/dp/0525659005/ref=sr_1_1?crid=2G8D2T72FG8KB&keywords=Rigged+America%2C+Russia%2C+and+One+Hundred+Years+of+Covert+Electoral+Interference&qid=1641085995&s=books&sprefix=rigged+america%2C+russia%2C+and+one+hundred+years+of+covert+electoral+interference%2Cstripbooks%2C59&sr=1-1) by David Shimer
+* [We Real Cool: Black Men and Masculinity](https://www.amazon.com/We-Real-Cool-Black-Masculinity/dp/0415969271/ref=sr_1_1?crid=2NWCZZJ3GLVPQ&keywords=black+men+and+masculinity&qid=1641086026&s=books&sprefix=black+men+and+masculinity%2Cstripbooks%2C72&sr=1-1) by Bell Hooks
+* Trans Love: An Anthology of Transgender and Non-Binary Voices by Freiya enson
+* Trans Power: Own Your Gender by Juno Roche
+* Transgressive: A Trans Woman on Gender, Feminism, and Politics by Rachel Anne Williams
+
+
 ## 2021
 
 ### Books
@@ -93,13 +106,6 @@ layout: default
 * [Confederates in Montana Territory: In the Shadow of Price's Army](https://www.amazon.com/Confederates-Montana-Territory-Shadow-Prices/dp/1626196036) by Ken Robison
 * [Habari Gani: The Kwanzaa Experience](https://www.amazon.com/HABARI-GANI-EXPERIENCE-KOFA-BIRD/dp/1549851152) by Kofa Bird
 
-
-#### Reading
-* [Dreams of Africa in Alabama: The Slave Ship Clotilda and the Story of the Last Africans Brought to America](https://www.amazon.com/Dreams-Africa-Alabama-Clotilda-Africans/dp/0195382935/ref=sr_1_1?crid=5VEOIXOV8KCW&keywords=dreams+of+Africa+in+Alabama+sylviane+a.+diouf&qid=1640354336&sprefix=dreams+of+africa+in+alabama+sylviane+a.+diouf%2Caps%2C57&sr=8-1) by Sylviane A. Diouf
-* Trans Love: An Anthology of Transgender and Non-Binary Voices by Freiya enson
-* Trans Power: Own Your Gender by Juno Roche
-* Transgressive: A Trans Woman on Gender, Feminism, and Politics by Rachel Anne Williams
-* Rigged: America, Russia, and One Hundred Years of Covert Electoral Interference by David Shimer
 
 ## 2020
 
