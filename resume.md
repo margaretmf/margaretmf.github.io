@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-I am a versatile professional, interested in writing to support technology and business development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, where I received dual degrees in the liberal arts (and sciences). I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared, not only with students, but also the country.
+I am a versatile professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. 
 
 [Resume](Bain_SeniorResearchAssociate_Resume)
 
@@ -13,7 +13,7 @@ I am a versatile professional, interested in writing to support technology and b
 ### UNIVERSITY OF VIRGINIA
 BA in [History](http://as.virginia.edu) | August 2010 - May 2014
 * Advisor: Sophia Rosenfeld
-* Navigated a university founded in 1819 with 17,011 students enrolled and connected the dots between liberal arts and science classes
+* Navigated a university founded in 1819 with 17,011 enrolled students and connected the dots between liberal arts and science classes
 * Major Papers: History of Children's Play in the Victorian Era, History of Musicology during the Scientific Revolution
 * Relevant Classwork: Computer Science I, Statistics I, Linear Algebra, Calculus II, Digital Information Studies, History of Scientific Revolution, History of Entrepreneurship, Humanity and Technology in 2035
 * Award: International Residential College Leadership
@@ -27,6 +27,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Relevant Classwork: Systems Engineering 101
 * Award: Best Paper at 2015 SEIDS Conference in the Healthy and Safety Track for ["Predictive models for severe sepsis in adult ICU patients"](http://ieeexplore.ieee.org/document/7116970/), a paper that presents results of 8 machine learning models for predicting severe sepsis
 * Studied and worked in Ireland
+* Received straight As
 
 <br>
  
