@@ -207,6 +207,11 @@ From shore to shore there's a whole world to explore.
 
 <br>
 
+## The Stars Align and Shine ##
+Up high in the sky the stars align, and oh, how bright they shine!
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
