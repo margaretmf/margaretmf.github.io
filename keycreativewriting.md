@@ -154,8 +154,6 @@ The devil on my back is yanking and pulling, and pushing and shoving.
 
 <br>
 
-<br>
-
 ## Same Thing, Two Different Ways ##
 We're saying the same thing in two different ways.
 
