@@ -13,9 +13,12 @@ layout: default
 
 #### Reading
 * [Rigged: America, Russia, and One Hundred Years of Covert Electoral Interference](https://www.amazon.com/Rigged-America-Hundred-Electoral-Interference/dp/0525659005/ref=sr_1_1?crid=2G8D2T72FG8KB&keywords=Rigged+America%2C+Russia%2C+and+One+Hundred+Years+of+Covert+Electoral+Interference&qid=1641085995&s=books&sprefix=rigged+america%2C+russia%2C+and+one+hundred+years+of+covert+electoral+interference%2Cstripbooks%2C59&sr=1-1) by David Shimer
-* Trans Love: An Anthology of Transgender and Non-Binary Voices by Freiya enson
-* Trans Power: Own Your Gender by Juno Roche
-* Transgressive: A Trans Woman on Gender, Feminism, and Politics by Rachel Anne Williams
+* [Critical Race Theory](https://www.amazon.com/Critical-Race-Theory-Third-Introduction/dp/147980276X/ref=sr_1_4?crid=2XYY13A2S2CLD&keywords=critical+race+theory&qid=1641570476&sprefix=critical+race+theory%2Caps%2C120&sr=8-4) by Richard Delgado and Jean Stefancic
+* [The Vanishing Half](https://www.amazon.com/Vanishing-Half-Novel-Brit-Bennett/dp/0525536299/ref=sr_1_1?crid=WXJC0F52S747&keywords=the+vanishing+half&qid=1641570527&sprefix=the+vanishing+half%2Caps%2C80&sr=8-1) by Brit Bennett
+* [La Mitad Evanescente](https://www.amazon.com/evanescente-Vanishing-Literatura-Random-Spanish/dp/8439738641/ref=sr_1_1?crid=1RVJDMYAYFMLQ&keywords=la+mitad+evanescente&qid=1641570561&sprefix=la+mitad+evanescente%2Caps%2C277&sr=8-1) by Brit Bennett
+* [Trans Love: An Anthology of Transgender and Non-Binary Voices](https://www.amazon.com/Trans-Love-Anthology-Transgender-Non-Binary/dp/178592432X/ref=sr_1_1?crid=EOVFK2ZYN554&keywords=Trans+Love%3A+An+Anthology+of+Transgender+and+Non-Binary+Voices&qid=1641570580&sprefix=trans+love+an+anthology+of+transgender+and+non-binary+voices%2Caps%2C56&sr=8-1) by Freiya Benson
+* [Trans Power: Own Your Gender](https://www.amazon.com/Trans-Power-Own-Your-Gender/dp/1787750191/ref=sr_1_2?crid=220NK4BWS0X26&keywords=Trans+Power%3A+Own+Your+Gender&qid=1641570607&sprefix=trans+power+own+your+gender%2Caps%2C60&sr=8-2) by Juno Roche
+* [Transgressive: A Trans Woman on Gender, Feminism, and Politics](https://www.amazon.com/Transgressive-Trans-Gender-Feminism-Politics/dp/1785926470/ref=sr_1_1?crid=LFPSOTO701E5&keywords=Transgressive%3A+A+Trans+Woman+on+Gender%2C+Feminism%2C+and+Politics&qid=1641570627&sprefix=transgressive+a+trans+woman+on+gender%2C+feminism%2C+and+politics%2Caps%2C73&sr=8-1) by Rachel Anne Williams
 
 
 ## 2021
