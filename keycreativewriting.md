@@ -210,6 +210,11 @@ Up high in the sky the stars align, and oh, how bright they shine!
 
 <br>
 
+## Love Makes the World Move Around ##
+With two feet on the ground, Lila watches love move the world around.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
@@ -780,7 +785,7 @@ When in a gymn looking to the ceiling, I think of looking to gymn ceilings in tw
 A hat on a fence, <br>
 a shirt on the ground, <br>
 a sweatshirt on the tree with a leaf on it, <br>
-a mask on the ground, <br>
+a mask on the street, <br>
 a shoelace on the sidwalk, <br>
 and shoes on an electric wire.
 
