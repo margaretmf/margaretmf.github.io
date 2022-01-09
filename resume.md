@@ -39,20 +39,6 @@ Freelance Researcher Consultant | August-December 2019
 * Created a survey to share with people in the social sector to gather information on software usage
 * Analyzed data to understand trends and patterns
 * Produced work to support the development of a [written report](https://socialimpact.github.com/#report)
-
-### EVERFI
-Data Analyst | April 2016 - January 2019
-* Owned data-driven white paper writing, educational impact evaluation management framework development, exploratory data analysis, initial product requirements discussion, project tracking, and cross-functional teamwork
-* Wrote two-three white papers per year covering trends in digital education and insights from survey analysis to support partner education and company-wide thought leadership ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
-* Developed a technical framework to streamline the process of reporting 2,000 survey and assessment data points
-* Developed and presented eight product KPIs to develop standards around measuring the success of product initiatives
-* Clustered survey and assessment data, and perform principal component analysis on assessments to support efficacy research
-* Gathered and synthesized information from sales and support teams to develop research services solutions proposals
-* Partnered with product stakeholders and software engineers to support generating initial platform vision and requirements
-* Delivered knowledge management documents to support teamwork and deliver epics, user stories, feature specification documents, and acceptance criteria to articulate platform and dashboard requirements
-* Tracked tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
-* Participated in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
-* Collaborated with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
  
 ### Breastfeeding Center for Greater Washington
 Systems Researcher | January 2019 - May 2019
@@ -81,6 +67,20 @@ Data Analyst, Data Ambassador, Project Manager | July 2016 - May 2019
 * Clients: Earth Challenge 2020, Google for AI Impact Challenge, Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
 * Collaborated to develop maps, machine learning features, a foster care case complexity score, and more on teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
 * Reviewed over 25 project proposals to support Google's AI Impact Challenge in partnership with DataKind
+
+### EVERFI
+Data Analyst | April 2016 - January 2019
+* Owned data-driven white paper writing, educational impact evaluation management framework development, exploratory data analysis, initial product requirements discussion, project tracking, and cross-functional teamwork
+* Wrote two-three white papers per year covering trends in digital education and insights from survey analysis to support partner education and company-wide thought leadership ([digital literacy white paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/WatchWhereYouStep_StudentsAttitudesTowardsDigitalFootprints.pdf), [impact report paper](https://github.com/margaretmf/margaretmf.github.io/blob/master/DigitalToolsforSocialandEmotionalLearningInstruction.pdf), [paper on K12 students' sense of belonging](https://github.com/margaretmf/margaretmf.github.io/blob/master/TheImportanceofBelonging_ANationwideLookAtStudentsSenseofBelonging.pdf))
+* Developed a technical framework to streamline the process of reporting 2,000 survey and assessment data points
+* Developed and presented eight product KPIs to develop standards around measuring the success of product initiatives
+* Clustered survey and assessment data, and perform principal component analysis on assessments to support efficacy research
+* Gathered and synthesized information from sales and support teams to develop research services solutions proposals
+* Partnered with product stakeholders and software engineers to support generating initial platform vision and requirements
+* Delivered knowledge management documents to support teamwork and deliver epics, user stories, feature specification documents, and acceptance criteria to articulate platform and dashboard requirements
+* Tracked tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
+* Participated in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
+* Collaborated with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
 
 ### Clarity Campaign Labs
 Analyst Fellow | January 2016 - April 2016
