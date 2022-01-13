@@ -200,6 +200,8 @@ She's out and about. This town she loves. Everyone knows her name. The smiles sh
 
 <br>
 
+---------------------------------------------------------------------------------------------------------------------
+
 ## From Shore to Shore ##
 From shore to shore there's a whole world to explore.
 
@@ -212,6 +214,11 @@ Up high in the sky the stars align, and oh, how bright they shine!
 
 ## Love Makes the World Move Around ##
 With two feet on the ground, Lila watches love move the world around.
+
+<br>
+
+## There's A Whole World to Love ##
+From high up above, there's a whole world below to lvoe.
 
 <br>
 
