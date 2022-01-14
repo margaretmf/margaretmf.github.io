@@ -53,6 +53,13 @@
 
 <img class="profile-picture" src="sketches/sketch37.jpg">
 
+<img class="profile-picture" src="sketches/sketch38.jpg">
+
+<img class="profile-picture" src="sketches/sketch39.jpg">
+
+<img class="profile-picture" src="sketches/sketch40.jpg">
+
+
 
 
 
