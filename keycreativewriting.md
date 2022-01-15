@@ -773,7 +773,7 @@ When walking by the flowers I think of how someone else has observed them, loved
 
 When running up steps in neighborhoods in Washington, DC I think of running up steps in neighborhoods in Glasgow, Scotland. 
 
-When looking to the shipyard in Norfolk I think of the shipyard in memphis and the shipping in another country. 
+When looking to the shipyard in Norfolk I think of the shipyard in Memphis and the shipping in another country. 
 
 When I set down to ask a question about a word, other people have asked the same question.
 
