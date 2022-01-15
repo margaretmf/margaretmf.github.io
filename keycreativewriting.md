@@ -104,6 +104,11 @@ Oh, how you're more than brilliant, like a star in the night sky.
 
 <br>
 
+## I See You Winking ##
+I see you winking at me with a twinkle in your eye.
+
+<br>
+
 ## Fields ##
 Running through fields like a child again, I blow on flowers and make wishes for the earth.
 
@@ -219,6 +224,10 @@ With two feet on the ground, Lila watches love move the world around.
 
 ## There's A Whole World to Love ##
 From high up above, there's a whole world below to lvoe.
+
+<br>
+
+There are cities, and there are towns. There are so many places to be found!
 
 <br>
 
