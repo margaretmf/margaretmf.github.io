@@ -61,6 +61,8 @@
 
 <img class="profile-picture" src="sketches/sketch41.jpg">
 
+<img class="profile-picture" src="sketches/sketch42.jpg">
+
 
 
 
