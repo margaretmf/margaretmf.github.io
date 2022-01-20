@@ -26,9 +26,9 @@ The values that Thomas Jefferson and other founders shared in the Declaration of
 
 **Los valores que Thomas Jefferson y otros descrubridores compartieron en la Declaración de Independiencia y la búsqueda de La Vida, La Libertad, y La Felicidad me inspiran.**
 
-Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to 'push the boundary of what's possible', hopefully 'in the name of the greater good' (Thomas Jefferson). It's great to cultivate latent talents and play around like little kids and amateurs, and I seek to do work scientifically, applying best practices.
+Every day I seek to learn something new to stay alive. It's amazing how all humanity works together for good in small ways and big ways. I am grateful to "push the boundary of what's possible', hopefully 'in the name of the greater good" (Thomas Jefferson). It's great to cultivate latent talents and play around like little kids and amateurs, and I seek to do work scientifically, applying best practices.
 
-**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para 'la emprendedora de los límites de que posible', con esperanza que es 'en el nombre de la mayor bien' (Thomas Jefferson). Es excelente cultivar talentos latentes y jugar como niñas pequeñas, y busco trabajar científicamente, aplicando mejores prácticas.**
+**Todos los días, busco aprender alguna cosa nueva para vivir. Es asombrosa que toda de la humanidad trabaja juntos para bien en caminos pequeños y caminos grandes. Tengo gratitude para "la emprendedora de los límites de que posible", con esperanza que es "en el nombre de la mayor bien" (Thomas Jefferson). Es excelente cultivar talentos latentes y jugar como niñas pequeñas, y busco trabajar científicamente, aplicando mejores prácticas.**
 
 I am exploring how to sketch and how to use visual arts to share history and culture, and also use visual sketching to support the field of engineering.
 
