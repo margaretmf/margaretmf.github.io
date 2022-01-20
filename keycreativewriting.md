@@ -222,8 +222,7 @@ With two feet on the ground, Lila watches love move the world around.
 
 <br>
 
-## There's A Whole World to Love ##
-From high up above, there's a whole world below to lvoe.
+From high up above, Ayley can see the world move around with love.
 
 <br>
 
