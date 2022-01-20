@@ -1601,6 +1601,55 @@ I love the Black women singing "We Are Family"
 I love the Black Power Movement
 The birds are in Southern Gospel Music in Kentucky
 
+As a student at a secular university, I worked with the Christian Science Mother Church. Towards the end of my four years as the university, the suggestion that Christian Science is not a real science became more loud in my thinking and my experience. 
+
+
+I believe, I believe, I believe. I believe, I believe, I believe.
+I believe that I can see the best in a guy and see the common spirit that is in my brother.
+It’s still harsh to feel harassed or bullied, however, enemies can encourage people to grow into better people and do things better. 
+The greatest enemy in a world where there’s divisiveness, diversity, micro aggressions is shutting someone down, the silent treatment, and an unwillingness to speak when something comes up.
+There’s the saying “talk things up to talk it down”
+It’s important to be able to be willing to have a conversation about tough challenges.
+I appreciate people who are willing to write or have a conversation.
+Writing is a form of expressions that supports democracy.
+So is having conversations in healthy ways about touchy, uncomfortable topics.
+I believe that I am able to speak, use my words, write, and communicate.
+I live in a country born for people to believe in broader horizons, a new frontier, 
+White men are innocent, I see the beauty of white men after talking to Dani. Attractions and perceptions shift, so I may be attracted to black men and then shift and be attracted to white men again. 
+Martin Luther King III encouraged people to step outside their bubble and speak to people who are different. Going out with black men and women is a good way to start reconciling differences and understanding people who are different. Going out with white people not in your own social circle to break down barriers.
+I had a good conversation with a friend 
+Knowledge, science - there’s an inner knowing, there’s an inner spirit 
+
+Shortly after some of the gun shootings, I prayed with some of the prayers from African American/Black women, and I expanded my thinking to perceive the perspective of Black mothers. Then,a after praying, the best gift a black man gave me was say to me “you’d be a good man” during one of the lowest points in my life when seeing many of my friends starting families. This man was an angel in disguise and blessed my life.
+
+People can come close to capturing someone’s heart and feelings through music, but no one can walk a mile in another’s shoes. Until one walks a mile in another’s shoes, they can’t understand the perspective of someone else. Until one has a hard conversation with someone, they can’t understand where someone is coming from.
+
+The darkest dark gives way to the lightest light.
+
+At Martin Luther King day events we’re all called prophets. We have the ability to envision or foresee a better world, higher heights that humankind to reach, a wider universe, a fuller earth
+
+Church is the mouthpiece of Truth. Truth is available to everyone. Truth is timeless. Truth resonates.
+
+A best friend can be a book.
+
+When the Black Lives Matter was gaining traction in police shootings I was working on unconscious bias and D&I training. 
+
+I’ve also had people call the cops on me for suicide, threat of murder, and property damage in my own home
+
+As I grapple with my mistakes, ways I have retailed, sins, limitations, I humble myself to work in a service job and be grateful for all those on a daily basis.
+
+It’s not about degrees.
+It’s about the love of learning.
+It’s about the love of people.
+It’s about the shift in perceptions.
+
+
+I saw someone being teargased once in Norfolk
+People have to take responsibility for their crime, but not all black men are criminals.
+
+There are icons in our culture of cowboys with guns.
+They used to use them for hunting.
+
 ## Women and Engineering ##
 I remember working in the field of engineering as the only women and feeling really really uncomfortable and fearful and like I didn't belong
 I am grateful for the other men in the engineering classes
