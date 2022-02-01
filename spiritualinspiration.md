@@ -231,6 +231,10 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for everyone at Roaring Gap
 * Grateful for little kids sharing lessons with adults
 * Grateful for my sister singing
+* Grateful for the video my Korean friend sent of Korean marines dancing off with American marines
+* Grateful for my friend inviting me to New Mexico for her party
+* Grateful for the 5 year old of the family who I babysit telling me she was excited to go to the bus stop with me
+* Grateful for dreams of little kids hugging me
 * Grateful for people enjoying vacations
 * Grateful for the intelligence of people where I am
 * Grateful for a great aunt
@@ -247,7 +251,9 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for dominion and lasting peace
 * Grateful for all the people at Hopeway
 * Grateful for the apartment
-* Grateful for the peopel working in the tutoring business
+* Grateful for the people working in the tutoring business
+* Grateful for the African American / Black children I babysit
+* Grateful for the Spanish churches I've found
 * Grateful for memories in Charlottesville and the scenery
 * Grateful for the sounds of the trains
 * Grateful for people being active today
