@@ -4492,7 +4492,7 @@ your union eternal exists
 in a house undivided.
 
 In weddedness to God,
-I am grateful to share
+I am   to share
 happiness with Mary for 
 3 generations of Furr women.
 
