@@ -231,6 +231,16 @@ There are cities, and there are towns. There are so many places to be found!
 
 <br>
 
+## Imagine A Day ##
+Imagine a day when all the people on the earth smile as one. Wouldn't our world have really won?
+
+<br>
+
+## Unique View, Unique You ##
+You have a unique view. So please be true to you!
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
