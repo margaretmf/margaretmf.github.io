@@ -93,7 +93,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 **Diaria, trabajo para mover fuera de mi zona de confort.**
 
 * Daily, I work to commit to people who I already know.
-**Diaria, trabajo para comprometerse con la gente que conozco.***
+**Diaria, trabajo para comprometerse con la gente que conozco.**
 
 * Daily, I work to appreciate and expand upon the work already completed.
 **Diaria, trabajo para agredecer y expandir sobre el trabajo ya terminado.**
