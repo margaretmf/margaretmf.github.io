@@ -223,6 +223,11 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for Hotel Indigo
 * Grateful for Thornton Wilder
 * Grateful for Thornton Burgess
+* Grateful for the woman working in the post office
+* Grateful for the history of the postal service
+* Grateful for the people working in the grocery store
+* Grateful that at times there are people from three or four ethnicities in the same room
+* Grateful for global education
 * Grateful for folklore from other countries and cultures
 * Grateful for roots
 * Grateful for rising higher
