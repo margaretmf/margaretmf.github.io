@@ -333,7 +333,8 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for the 91st psalm
 * Grateful for no fear for the terror by night
 * Grateful for mutual prayers at midnight
-* Grateful for Christian Science hymns that reference the 91st spalm
+* Grateful for Christian Science hymns that reference the 91st psalm
+* Grateful for car rides in the morning
 * Grateful for all the people in Tennessee and Kentucky
 * Grateful for all the people in Memphis
 * Grateful for the therapists in Tennessee
