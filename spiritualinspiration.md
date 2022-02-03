@@ -229,6 +229,8 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful that at times there are people from three or four ethnicities in the same room
 * Grateful for global education
 * Grateful for folklore from other countries and cultures
+* Grateful for leaders in our country's government
+* Grateful for the progress of women leaders and African American leaders
 * Grateful for roots
 * Grateful for rising higher
 * Grateful for pen on paper
