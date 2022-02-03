@@ -245,6 +245,8 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful to be ethical in life
 * Grateful for African countries
 * Grateful for the nobility of people
+* Grateful for the Korean language and how "Black Lives Matter" in the Korean language means "Black lives are precious"
+* Grateful for my African American and Korean American friends
 * Grateful for princes and princesses in other countries and cultures
 * Grateful for African music
 * Grateful for Nam's and Faf's friends
@@ -278,6 +280,9 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for the construction workers
 * Grateful for the people playing sports
 * Grateful for the home of others
+* Grateful for the history of American-Korean relations
+* Grateful for the history of American-Chinese relations
+* Grateful to learn about African-Chinese relations
 * Grateful for nurses in our world
 * Grateful for a society filled with appreciation for nurses
 * Grateful for the faith of everyone
