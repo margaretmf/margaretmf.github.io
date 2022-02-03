@@ -325,6 +325,19 @@ I'm ready to rock, and I'm ready to roll.
 
 <br>
 
+## Universal Dance ##
+I had a dream of a big universal colorfol rainbow, a vision of people stretching and dancing with the universe, which symbolically represents the universe's movement
+With other planets, fishes in the sea, stars, sky
+Dancing and stretching aren't bad
+Dancing and stretching belong to everyone
+
+<br>
+
+## English Language ##
+I had a dream of the history of English language, medieval history incorporated into dance and choreography
+
+<br>
+
 ## Christianity, Middle East ##
 I love that Christianity is a religion from the middle eastern world.
 
