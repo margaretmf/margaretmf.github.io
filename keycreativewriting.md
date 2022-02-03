@@ -274,24 +274,12 @@ get things off your chest. <br>
 
 <br>
 
-## Mountains ##
-Through the mountains, the Earth is singing. <br>
-The peaks of green, blue in summer - orange, red, yellow in fall - <br>
-White in winter, pink in spring, touching the horizion. <br>
-It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird. <br>
-The ascent is freeing, and walking down the slope is humbling. <br>
-Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one. <br>
-
-**Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
-
-<br>
-
 ## Stranger ##
-Someone new on the street who I have never met. <br>
-A visitor on Earth, who looks familiar, yet so different, like a stranger. <br>
-A mysterious voice speaks through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity. <br>
-Friend or foe, it's right to be compassionate, listening, understanding, and stranger can become a friend through tranformation. <br>
-There's no stranger to God. <br>
+I see someone new on the street who I have never met. <br>
+I meet a visitor on Earth, who looks familiar, yet so different, like a stranger. <br>
+I hear a mysterious voice speak through this quest on Earth and shows me the similiarty, the message in disguise, the strangeness of humanity. <br>
+Whether they are friend or foe, it's right to be compassionate, listening, understanding.
+A stranger can become a friend. There's no stranger to God. <br>
 
 **Word Associations:** friend or foe, sojourner, mysterious, guest, newcomer, migrant, visitor, acquaintance
 
@@ -300,22 +288,11 @@ There's no stranger to God. <br>
 ## The Night Sky ##
 The night sky sings with holiness and peace. <br>
 The stars shine infinitely. <br>
-The blackness is so dark and the pitch of the night silences everyone to sleep. <br>
+The blackness is so dark, and the pitch of the night silences everyone to sleep. <br>
 THe glimmer of the stars give hope and point people to innocence and home. <br>
 The individuals share the love for all mankind with a heart at rest for all the holy light. <br>
 
 **Word Associations:** stars, blackness, moonlight, midnight, pitch, constellations, glimmer, wakeful
-
-<br>
-
-## The Moon ##
-The moon is shining in the darkness. <br>
-In the darkness, there is still light. <br>
-It stands in the sphere, the orb of the Earth. <br>
-Good tidings fall, wane, wax, upon it. <br>
-The lunar eclipse shines also.  <br>
-
-**Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
 
 <br>
 
