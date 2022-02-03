@@ -133,6 +133,29 @@ Expressing gratitude for every ounce of good turns around the monstrous storm.
 
 **Word Associations:** acrimony, ire, enmity, indignation, vexation, choler, rage, malice
 
+## Mountains ##
+Through the mountains, the Earth is singing. <br>
+The peaks of green and blue in summer - orange, red, brown, and yellow in fall - <br>
+White in winter - and pink in spring, touching the horizion. <br>
+It's a joy, a challenge to climb up the summit and feel like you're touching the sky, like the lone bird. <br>
+The ascent is freeing, and walking down the slope is humbling. <br>
+Mountains cover the Earth, and as love smiles within through the mountains with humanity emnbracing it, all the Earth sings as one. <br>
+
+**Word Associations:** peak, summit, climb, valley, slope, ascent, crag, precipice
+
+<br>
+
+## The Moon ##
+The moon is shining in the darkness. <br>
+In the darkness, there is still light. <br>
+It stands in the sphere, the orb of the Earth. <br>
+Good tidings wax and wane upon it. <br>
+The lunar eclipse shines also.  <br>
+
+**Word Associations:** crescent, sphere, orb, silver, tide, wane, lunar, Apollo
+
+<br>
+
 ## Sadness ##
 It's a huge nightmare, a shock to the whole bodily system.
 Heartache, grief, woe, bleekness, and wanting to yell out of sadness.
