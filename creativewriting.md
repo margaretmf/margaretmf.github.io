@@ -272,6 +272,13 @@ I am one in a million. There are a million ways to say and do the same thing.
 
 <br>
 
+## God, The Sustainer ##
+God is the sustainer of human relationships. Mortal mind is not the sustainer.
+God is harmonizing, enlightening, illuminating, broadening, freshening.
+The Lord is the giver.
+
+<br>
+
 ## Maps ##
 A map, a tool, used in engineering that expresses natural phenomenon, physical relationships, and cultural and historical aspects of our world.
 
