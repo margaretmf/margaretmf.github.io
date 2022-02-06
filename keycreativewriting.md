@@ -340,7 +340,7 @@ What's with the clamor, and the uproar of the people talking? <br>
 Noise. It is the crescendo of the day. <br>
 The day is starting. <br>
 The human experiences are rising. <br>
-Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sound of chewing and typing on the keyboard. <br>
+Noise. It wakes me up. It is the lawn mower at 6am, the clamor of the dishes, the phone buzzing at 7am, and the annoying sounds of chewing and typing on the keyboard. <br>
 
 **Word Associations:** bustle, din, clamor, tumult, uproar, thunder, crescendo, cacophony
 
@@ -1305,11 +1305,38 @@ He had a secret admirer but he didn't know her name. Every day, she came home an
 
 <br>
 
+## A New Day ##
+It's a new day for the sun to shine.
+Wake up, and be free. The day is yours, and the day is mine.
+
+It's a really great day for the sky to be blue.
+Look up high! See the birds soaring too.
+
+On this new day the birds sing.
+It's fun to sing with the birds and hear their songs ringaling.
+
+It's a new day for the earth to move.
+It's amazing how all the people really get into a groove.
+
+On this new day I've got two feet on the ground.
+It's love that makes the world go around.
+
+It's a really great day to go out and seize the day.
+Neighbors wave, and people laugh and play.
+
+It's a new day to run and skip outside.
+It's more wonderful to do this with friends by my side.
+
+On this new day I wear a smile on my face.
+I do all that I need to do with a heart filled with grace.
+
+<br>
+
 ## Flying Solo - Rough Draft ##
 There's a bird sitting on the fence alone. <br>
 She lifts her wings so gracefully. <br>
-How I long to be like this lone bird. <br>
-Peacefully knowing who she is. <br>
+How I long to be like this lone bird, <br>
+Peacefully knowing who I am. <br>
 
 <br>
 
@@ -1349,9 +1376,9 @@ In the loss for words, and the heartbreak, smile that winning smile. <br>
 You smile like a ray of light. <br>
 Your face lights up the whole room and brightens someone's day. <br>
 Your face makes someone feel at ease and cheers someone's heart. <br>
-So, smile like you mean it. <br>
+Smile like you mean it. <br>
 Let the glow shine. <br>
-Your is yours to share, and it is yours to wear. <br>
+Your smile is yours to share, and it is yours to wear. <br>
 
 <br>
 
