@@ -246,6 +246,13 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for the intelligence of people where I am
 * Grateful for a great aunt
 * Grateful for activities that express joy and goodness
+* Grateful for people from my grandfather's family who went to the Wednesday night testimony meetings
+* Grateful for the medical world and a faith in God
+* Grateful for people starting families later in life
+* Grateful for people from all nations
+* Grateful for people's love of the earth
+* Grateful for Sundays and drives on Sunday
+* Grateful for progress in the world today
 * Grateful for good people in Washington, DC
 * Grateful for the next generation
 * Grateful for the love that fills a space that feels void
@@ -864,6 +871,9 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for Grandmama and Dattee
 * Grateful for their friends 
 * Grateful for people at the IRC
+* Grateful for the innocence and purity of little children who I have babysit
+* Grateful for kind mothers who love their chidlren
+* Grateful for cool home design
 * Grateful for people from church
 * Grateful for people where I am today
 * Grateful for family members 
