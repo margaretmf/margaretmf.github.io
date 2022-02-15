@@ -219,6 +219,9 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for traffic signs and roadmarks
 * Grateful for trucks, ports, trains, and ships
 * Grateful for interconnectedness
+* Grateful for people sharing how gratitude journals help them
+* Grateful for art that the homeless community creates
+* Grateful for art in peole's homes by people of other races
 * Grateful for farmland
 * Grateful for Hotel Indigo
 * Grateful for Thornton Wilder
