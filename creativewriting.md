@@ -915,6 +915,15 @@ Reading books.
 
 <br>
 
+## You're A Work of Art ## 
+You're a work of art.
+There's a song in your heart for you to sing.
+
+You're a masterpiece.
+There's an image in your mind for you to pain.
+
+<br>
+
 ## Manic Mondays, Magic Mondays ##
 Monday, my favorite days.
 Monday mornings.
@@ -3658,6 +3667,13 @@ All throughout the Earth, there is a Democracy I am walking through.
 We are walking in a gigantic demcoracy.
 All of the world is a democracy.
 I am walking through a gigantic democracy.
+
+<br>
+
+## Demcoratization ##
+It's a process
+Conflict can lead to higher ground
+There's a reason for two parties, and differing views
 
 <br>
 
@@ -6881,6 +6897,8 @@ Meeting someone at each one.
 Reaching the destination or the series of stones and destinations.
 Destination by destination, life expands.
 There's no final destination, there's a series of destinations.
+
+I am on a journey with you
 
 ***On the Road Again* by Willie Nelson***
 
