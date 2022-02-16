@@ -29,7 +29,7 @@ With the company of a friend.
 <br>
 
 ## Children's Play ##
-Playing on the keys without words,
+Playing music without words on the keys,
 She discovers a joy and a light in the sound that reminds her of little children on a playground.
 
 The sound alone tells a colorful story of the youthfulness that bounces with joy.
