@@ -641,7 +641,7 @@ I am musical, and I love looking at different angles to articulate a balance bet
 I am an engineer, who loves methods to the madness. <br>
 I am a dancer, like my grandmother, who smiled, glistened, and glowed. <br>
 I am an educator, who loves STEAM. <br>
-I dare to believe again, dream again, and smile that 
+I dare to believe again, dream again, and wear that beautiful smile
 and share that beautiful style after the storm. <br>
 
 <br>
