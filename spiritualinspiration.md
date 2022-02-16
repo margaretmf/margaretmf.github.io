@@ -183,6 +183,20 @@ The study of Buddhism helps me understand Christian Science. The study of other 
 
 <br>
 
+### Good Work 
+I not only had doubts about my ability to find a first job but I also felt intimidated by what seems like a male-driven and surveillance data-driven workplace. Something bigger than myself, however, included me in a perfectly coordinated plan where I could share my interests and skills to serve mankind in an uplifting and healthy way.
+
+In Christian Science, there exists something that spiritual followers call "angel thoughts". Mary Baker Eddy defines "angels: as “God’s thoughts passing to man. spiritual intuitions, pure and perfect; the inspiration of goodness, purity, and immortality, counteracting all evil, sensuality and mortality” with the function of uplifting, inspiring, guiding, or correcting (Science and Health, p.581). At a moment when I had no idea where I would find a job and not only experienced temptations to commit suicide out of a feeling hopeless but actually did attempt suicide for the third time in my life, I felt an intuition from the omnipotent source of intelligence, God, nudging me to look up a job that had opened up online at a business with which a family member had been wanting to connect me. I was so grateful for this good idea coming to me; and despite attempting suicide around the same time I had applied to the job, the business offered me a job. 
+
+The job was not humanly perfect in every way - there were challenges and opportunities for growth; but as a Christian Science practitioner helped me to acknowledge daily, God placed me there for His perfect reason, and the reason was good. For a little over two and a half years, I worked in what to me felt like a designated place to support diversity and inclusion, the teaching of African American history, digital literacy, and the human prevention of alcohol abuse, other substance like opioid abuse, sexual assault and harassment, and later suicide with my skills in writing and data analytics. Also for a little over two and half years, I prayed with a Christian Science practitioner daily to overcome depression and suicide attempts. 
+
+There were mornings when I did not want to get out of bed, and I remember texting the Christian Science practitioner how I was praying so that I could overcome the depression and suicidal thinking. I remember praying to recognize that every morning I woke up, got out of bed, and went to work, I not only was overcoming suicide and depression for myself, but I was overcoming suicide and depression for a world of people battling similar challenges. Besides "angel thoughts", my other favorite idea in Christian Science is that I can "rise up and walk", so every morning I would "rise, get out of my bed and walk" despite the depression with hope for myself, the people around me, and the people in the world. I was grateful I could commit to the job for over two and a half years.
+
+To be honest, I still face depression and suicidal thoughts today, and for three years after working in this job, I have been unemployed. I also reacted and retaliated to Christian Science practitioners in criminal ways after seeing the exact same hymns I prayed with in my job shared in a JSH article and after feeling frustrated by unsolicited advice and being called the wrong name
+
+
+<br>
+
 ### 2019: Year of Peace
 The holiday season ideally reflects light, community, and celebration. This December, I felt much of our country’s distress and chaos. The common buzz, #Stress and #GovernmentInstability, flew around like a mosquito sucking traces of life out of everyone, and leaving marks on those who noticed. Moving into 2019, something shifted within me, and the new year brought new insights on Jesus Christ's words, **"Pease, be still"**. The "demons" - anxiety, distress, and chaos - don't have to reign; peace can reign in 2019 in our hearts and minds (see **[Cleanse the Lepers](https://journal.christianscience.com/issues/2007/1/125-1/cleanse-the-lepers)**, **[Casting out 'demons'](https://journal.christianscience.com/issues/2016/2/134-02/casting-out-demons)**).
 
@@ -427,6 +441,8 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for music playing
 * Grateful for guitar playing
 * Grateful for the light
+* Grateful for people driving trucks today
+* Grateful for people on the road seeing about people and doing their job
 * Grateful for friends
 * Grateful for everyone living today
 * Grateful for stories of people from all over the world
