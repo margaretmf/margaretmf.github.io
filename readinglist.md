@@ -17,6 +17,7 @@ layout: default
 * [Blood in My Eye](https://www.amazon.com/Blood-My-Eye-George-Jackson/dp/0933121237/ref=sr_1_1?keywords=blood+in+my+eye+george+jackson&qid=1642215666&s=books&sprefix=blood+in+my+eye%2Cstripbooks%2C69&sr=1-1) by George L. Jackson
 * [Cool Pose: The Dilemmas of Black Manhood in America](https://www.amazon.com/Cool-Pose-Dilemmas-Manhood-America/dp/0671865722/ref=sr_1_1?crid=3FHHCQK0RR2HI&keywords=cool+pose+the+dilemmas+of+black+manhood+in+america&qid=1642692409&sprefix=cool+pose+the+the+dil%2Caps%2C65&sr=8-1) by Richard Majors and Janet Mancini Billson
 * [Social Justice: How to Raise Compassionate, Anti-Racist, Justice-Minded Kids in an Unjust World](https://www.amazon.com/Social-Justice-Parenting-Compassionate-Justice-Minded/dp/0063082365/ref=sr_1_1?crid=1OLLOY2TVZ0H1&keywords=social+justice+parenting+how+to+raise+compassionate%2C+anti-racist+justice-minded+kids&qid=1643923412&s=books&sprefix=social+justice+parenting+how+to+raise+compassionate%2C+anti-racist+justice-minded+kids%2Cstripbooks%2C53&sr=1-1) by Dr. Traci Baxley 
+* [I Am Not Your Negro](https://www.amazon.com/I-Am-Not-Your-Negro/dp/0525434690/ref=sr_1_2?crid=S0PIY36ZA8Y7&keywords=I+am+not+your+negro&qid=1645185535&sprefix=i+am+not+your+negro%2Caps%2C76&sr=8-2) by James Baldwin and Raoul Peck
 
 #### Reading
 * [The Vanishing Half](https://www.amazon.com/Vanishing-Half-Novel-Brit-Bennett/dp/0525536299/ref=sr_1_1?crid=WXJC0F52S747&keywords=the+vanishing+half&qid=1641570527&sprefix=the+vanishing+half%2Caps%2C80&sr=8-1) by Brit Bennett
