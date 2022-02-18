@@ -34,6 +34,11 @@
 
 
 
+<img class="profile-picture" src="paintings/painting8.jpg">
+
+
+
+
 <br>
 
 <br>
