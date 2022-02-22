@@ -671,6 +671,33 @@ garden, nourish, kitchen, fill, healthy, grow, planted
 
 <br>
 
+## The South is My Home ##
+The south is my home
+it's the land I love to roam
+
+
+It's the friendly people, the country music, the radio tunes, the red white and blue, the good ole barbecue
+
+<br>
+
+# Running Wild ##
+I'm running wild
+like a child I'm running wild
+
+<br>
+
+# A Whole Lotta People ##
+There' a whole lotta people in this world
+There's always someone else to love
+
+<br> 
+
+## Towards the West ##
+Towards the west for freedom 
+Is where I love to head
+
+<br>
+
 ## Sunday Vibes ##
 Dancing on a Sunday
 Eating chips and a sandwich
@@ -7379,4 +7406,6 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 * A Global Study on Civil Wars in Countries in an Era of Globalization
 
 <br>
+
+Being in an interracial relationship is progressive, but it's nothing to be proud of. Being single and being confident i oneself throughout life is progressive. Being in a white couple after letting go of prejudices and racism is progressive.
 
