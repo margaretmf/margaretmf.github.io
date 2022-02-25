@@ -7409,3 +7409,13 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 
 Being in an interracial relationship is progressive, but it's nothing to be proud of. Being single and being confident i oneself throughout life is progressive. Being in a white couple after letting go of prejudices and racism is progressive.
 
+
+## Divine Love ##
+Divine Love is not infantilzied, patronized, defeated, mocked, abandoned, condescended.
+Divine Love has the victory.
+Divine Love is supreme.
+Divine Love has the glory.
+Divine Love is the king.
+Divine Love is the Christ.
+Divine Love is the power.
+
