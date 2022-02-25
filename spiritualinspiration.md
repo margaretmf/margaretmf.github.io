@@ -3888,6 +3888,7 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for thoughts of love I've had towards little children and older children
 * Grateful for my new friends from Norfolk
 * Grateful for the single women in Tennessee
+* Grateful for new startups in Virginia
 * Grateful that human opinions can't reach
 * Grateful to love all the interests and faith of people around
 * Grateful for the conversation with the woman in the grocery store
@@ -4228,6 +4229,9 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for my car
 * Grateful for Johnny Cash's work in prisons helping people on the margins
 * Grateful for Dolly Parton's work to help those in the shadows
+* Grateful to feel inspired to dance in the coffeeshop
+* Grateful for the city of Charlotte
+* Grateful for new people in the city of Charlotte
 * Grateful for innovative ways to use trash and love the people
 * Grateful for the power of the people
 * Grateful for the Bible quote on "strangers" in former president's, Barack Obama's book "For we are strangers before thee, and sojourners, as were all our fathers." -1 Chronicles 29:15
