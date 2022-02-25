@@ -892,6 +892,20 @@ In the hands of time
 I'm right where I'm supposed to be
 I'm at the right place
 
+In the hands of time
+I'm in the right place
+
+When I'm late
+Something has gotta give
+So that I'm on point
+
+When I'm on point
+The two hands are ticking
+And I'm right where I need to be
+
+Two hands ticking through the earth
+There's a right place for everything
+
 **Literary Allusion to Shakespeare**
 
 
