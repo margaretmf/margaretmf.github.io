@@ -531,6 +531,7 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for the pumpkin patch
 * Grateful that everyone gets to be exactly who they were born to be, free, fun, and joyful 
 * Grateful for family in Charlottesville 
+* Grateful for the people from Principia studying and learning about entrepreneurship and intrapreneurship and market share
 * Grateful for the people with their dogs
 * Grateful that everyone is valued 
 * Grateful for where I am in life 
