@@ -261,6 +261,24 @@ Don't give up on love; it's what we're all born of.
 
 <br>
 
+## Rock and Roll ##
+You know how to rock, and you know how to rool.
+So be who you are, and stay true to your soul.
+
+<br>
+
+## A Whole Lot ##
+You got a whole lot to give,
+and you got a whole lot of life to live. 
+
+<br>
+
+## This Home on the Hill ##
+I'd like to live with you in this home on the hill
+and watch with you this bird on the windowsill.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
