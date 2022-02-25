@@ -7405,7 +7405,7 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 * A Study on Interracial Homes
 * A Study on Democracy and Church
 * A Study on Shays' Rebellion in Relationship to the Trump Election
-* A Study on Revolution
+* A Study on Revolution vs. Reformation
 * A Study on Cultures that Influence and Shape Engineering
 * A Study on the Dark Web
 * A Study on What People Listen to While Driving
@@ -7418,6 +7418,7 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 * A Study on How to Use Art to Share History
 * A Study on how Christianity influences music
 * A Global Study on Civil Wars in Countries in an Era of Globalization
+* A Study on the History of Maps
 
 <br>
 
