@@ -1335,7 +1335,7 @@ Wake up, and be free. The day is yours, and the day is mine.
 It's a really great day for the sky to be blue.
 Look up high! See the birds soaring too.
 
-On this new day the birds sing.
+On this new day the birds really sing.
 It's fun to sing with the birds and hear their songs ringaling.
 
 It's a new day for the earth to move.
