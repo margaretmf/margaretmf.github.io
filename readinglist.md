@@ -18,6 +18,7 @@ layout: default
 * [Cool Pose: The Dilemmas of Black Manhood in America](https://www.amazon.com/Cool-Pose-Dilemmas-Manhood-America/dp/0671865722/ref=sr_1_1?crid=3FHHCQK0RR2HI&keywords=cool+pose+the+dilemmas+of+black+manhood+in+america&qid=1642692409&sprefix=cool+pose+the+the+dil%2Caps%2C65&sr=8-1) by Richard Majors and Janet Mancini Billson
 * [Social Justice: How to Raise Compassionate, Anti-Racist, Justice-Minded Kids in an Unjust World](https://www.amazon.com/Social-Justice-Parenting-Compassionate-Justice-Minded/dp/0063082365/ref=sr_1_1?crid=1OLLOY2TVZ0H1&keywords=social+justice+parenting+how+to+raise+compassionate%2C+anti-racist+justice-minded+kids&qid=1643923412&s=books&sprefix=social+justice+parenting+how+to+raise+compassionate%2C+anti-racist+justice-minded+kids%2Cstripbooks%2C53&sr=1-1) by Dr. Traci Baxley 
 * [I Am Not Your Negro](https://www.amazon.com/I-Am-Not-Your-Negro/dp/0525434690/ref=sr_1_2?crid=S0PIY36ZA8Y7&keywords=I+am+not+your+negro&qid=1645185535&sprefix=i+am+not+your+negro%2Caps%2C76&sr=8-2) by James Baldwin and Raoul Peck
+* [Say Their Names: How Black Lives Came to Matter in America](https://www.amazon.com/Say-Their-Names-Matter-America/dp/1538737825/ref=sr_1_1?crid=2R4EHHRZBWYZ9&keywords=say+their+names+how+black+lives+came+to+matter+in+america&qid=1643923349&s=books&sprefix=say+their+names+how+black+lives+came+to+matter+in+america%2Cstripbooks%2C53&sr=1-1) by Michael H. Cottman
 
 #### Reading
 * [The Vanishing Half](https://www.amazon.com/Vanishing-Half-Novel-Brit-Bennett/dp/0525536299/ref=sr_1_1?crid=WXJC0F52S747&keywords=the+vanishing+half&qid=1641570527&sprefix=the+vanishing+half%2Caps%2C80&sr=8-1) by Brit Bennett
@@ -25,7 +26,7 @@ layout: default
 * [Trans Love: An Anthology of Transgender and Non-Binary Voices](https://www.amazon.com/Trans-Love-Anthology-Transgender-Non-Binary/dp/178592432X/ref=sr_1_1?crid=EOVFK2ZYN554&keywords=Trans+Love%3A+An+Anthology+of+Transgender+and+Non-Binary+Voices&qid=1641570580&sprefix=trans+love+an+anthology+of+transgender+and+non-binary+voices%2Caps%2C56&sr=8-1) by Freiya Benson
 * [Trans Power: Own Your Gender](https://www.amazon.com/Trans-Power-Own-Your-Gender/dp/1787750191/ref=sr_1_2?crid=220NK4BWS0X26&keywords=Trans+Power%3A+Own+Your+Gender&qid=1641570607&sprefix=trans+power+own+your+gender%2Caps%2C60&sr=8-2) by Juno Roche
 * [Transgressive: A Trans Woman on Gender, Feminism, and Politics](https://www.amazon.com/Transgressive-Trans-Gender-Feminism-Politics/dp/1785926470/ref=sr_1_1?crid=LFPSOTO701E5&keywords=Transgressive%3A+A+Trans+Woman+on+Gender%2C+Feminism%2C+and+Politics&qid=1641570627&sprefix=transgressive+a+trans+woman+on+gender%2C+feminism%2C+and+politics%2Caps%2C73&sr=8-1) by Rachel Anne Williams
-* [Say Their Names: How Black Lives Came to Matter in America](https://www.amazon.com/Say-Their-Names-Matter-America/dp/1538737825/ref=sr_1_1?crid=2R4EHHRZBWYZ9&keywords=say+their+names+how+black+lives+came+to+matter+in+america&qid=1643923349&s=books&sprefix=say+their+names+how+black+lives+came+to+matter+in+america%2Cstripbooks%2C53&sr=1-1) by Michael H. Cottman
+* [Shutdown: How Covid Shook the World's Economy](https://www.amazon.com/Shutdown-Covid-Shook-Worlds-Economy/dp/0593297555/ref=sr_1_1?crid=2S0GUR2R78Y0Y&keywords=shutdown+Adam+tooze&qid=1645992851&sprefix=shutdown+adam+tooz%2Caps%2C183&sr=8-1) by Adam Tooze
 
 
 ## 2021
