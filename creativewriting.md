@@ -7436,3 +7436,11 @@ Divine Love is the king.
 Divine Love is the Christ.
 Divine Love is the power.
 
+## Unconditional Love
+Unconditional love, seeing my value
+Recognizing I can help people move forward
+Recognizing that it's not a good diea to harm myself
+Recognizing that suicidal thoughts are a negation of Divine Life's expression
+Recognizing all the unconditional love in the world
+Recognizing eternal life in Christ
+
