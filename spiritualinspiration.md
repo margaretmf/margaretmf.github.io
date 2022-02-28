@@ -608,6 +608,14 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for women working in PE and entrepreneurship 
 * Grateful for a friend at Hopeway
 * Grateful for the woman speaking on the radio 
+* Grateful for the woman in the coffee shop sitting next to me
+* Grateful for my roommate
+* Grateful for inspiration in the middle of the night
+* Grateful for all the African American history
+* Grateful for people in the world everywhere today being active
+* Grateful for all the Christian Scientists in the world and in my association
+* Grateful for all the people in Memphis and Charlotte
+* Grateful for my grandparents
 * Grateful for opportunities in Charlotte 
 * Grateful for new life for everyone 
 * Grateful for God’s communication goes everyone 
