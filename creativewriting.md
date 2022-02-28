@@ -7461,3 +7461,36 @@ It goes round and round and round
 
 <br>
 
+## Breath ##
+The pulsating force in the universe giving peopel life
+angel wings
+animation
+
+I want to feel my heart beat with yours today
+I want to feel the blood rushing through our veins
+
+<br>
+
+
+## Nothing More than the Best ##
+It's great to head ehre out west
+I expect nothing more than th ebest
+
+<br>
+
+## Porch Swinging ##
+Swinging on this porch is what I lvoe to do
+There's nothing like hanging with hearts so true
+
+<br>
+
+## Traveling West ##
+I've been traveling from the East into this sweet town
+With these country boots on I know that something will go down
+
+<br>
+
+## This World ##
+This world is a beautiful place
+with all the people on this earth
+there's a whole world to know
