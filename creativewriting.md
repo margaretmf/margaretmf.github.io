@@ -17,6 +17,7 @@ is_contact: true
 * Appreciate the way multiple people turn to the same things in nature to photograph, sketch, paint, or appreciate
 * Apreciate how music expresses feelings that multiple people have
 * Realized that art shares the same idioms, language, or concepts from that other art uses but spins off it to share an original viewpoint or filter, and multiple artists may look to the same object in different ways, and there's harmony since we all belong to the same universe
+* The audience of art is whoever resonates with the art in some way (this is what I've been taught)
 
 ## Relationship to Nature ##
 * Throw pieces of trash up when I see them on the ground outside to be a steward of the Earth (59 days)
@@ -27,7 +28,8 @@ is_contact: true
 ## Relationship to Spirituality ##
 * Appreciate the architecture of all the churches in the community
 * Learn about a dual language church
-* Love Religioius Liberty
+* Love Religious Liberty
+* There are children of God everywhere, a new perception everywhere
 
 ## Relationship to Individual and Society ##
 * Started learning a new language more deeply that part of the country speaks. Appreciated working in a diversity and inclusion business in Washington, DC. Learning to relate to technology better
