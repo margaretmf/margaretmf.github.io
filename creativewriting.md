@@ -4,6 +4,9 @@ is_contact: true
 ---
 
 
+## Belief ##
+A belief is a tiny seed within one's heart that points to someone's core values.
+
 ## Relationship to Art ##
 * Learned about history through a song and learned about gender stereotyping through music that reminded me of listening to song lyrics to interpret deep things about relationships and literature
 * Developed a heart for my favorite groups, The Wailin' Jennys, Ruth Moody, The Riverside Group, and Corinne Bailey Rae
