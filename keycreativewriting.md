@@ -262,7 +262,7 @@ Don't give up on love; it's what we're all born of.
 <br>
 
 ## Rock and Roll ##
-You know how to rock, and you know how to rool.
+You know how to rock, and you know how to roll.
 So be who you are, and stay true to your soul.
 
 <br>
@@ -276,6 +276,24 @@ and you got a whole lot of life to live.
 ## This Home on the Hill ##
 I'd like to live with you in this home on the hill
 and watch with you this bird on the windowsill.
+
+<br>
+
+## Gone with the Blues ##
+I'm saying goodbye to the blues.
+I've got on my sweet dancing shoes.
+
+<br>
+
+## Dance Alone ##
+I'm not afraid to dance alone.
+My life is mine to own.
+
+<br>
+
+## Born to Be Free ##
+I'm born to be free.
+I'm born to be me.
 
 <br>
 
