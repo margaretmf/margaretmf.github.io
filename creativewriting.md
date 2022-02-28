@@ -7429,6 +7429,7 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 
 Being in an interracial relationship is progressive, but it's nothing to be proud of. Being single and being confident i oneself throughout life is progressive. Being in a white couple after letting go of prejudices and racism is progressive.
 
+<br>
 
 ## Divine Love ##
 Divine Love is not infantilzied, patronized, defeated, mocked, abandoned, condescended.
@@ -7439,11 +7440,24 @@ Divine Love is the king.
 Divine Love is the Christ.
 Divine Love is the power.
 
-## Unconditional Love
+<br>
+
+## Unconditional Love ##
 Unconditional love, seeing my value
 Recognizing I can help people move forward
 Recognizing that it's not a good diea to harm myself
 Recognizing that suicidal thoughts are a negation of Divine Life's expression
 Recognizing all the unconditional love in the world
 Recognizing eternal life in Christ
+
+<br>
+
+## Life Goes On ##
+Life goes on
+It goes on and on
+
+The world still moves
+It goes round and round and round
+
+<br>
 
