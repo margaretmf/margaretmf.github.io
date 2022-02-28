@@ -297,6 +297,11 @@ I'm born to be me.
 
 <br>
 
+## You're the One ##
+You're the one who makes me smile, and you're the one with whom I want to spend a little while.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
