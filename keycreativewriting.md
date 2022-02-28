@@ -6,25 +6,25 @@
 
 ## The Friend ##
 Sitting in a dark room, she sits alone
-With a heart yearning to express itself.
-
-In another dark room nearby, a piano sits alone
-With ivory yearning to be tickled.
-
-'Why cannot the piano be my friend?' she thinks.
-With stiff legs she introduces herself to Steinway,
-and in return she receives a great gift.
-
-Her body is no longer stiff, no longer limited.
-Her eyes no longer shed tears.
-Her fingers dance across the black and white keys.
-Her ears open up and hear the sound of music.
-Her soul spreads its wings and flies.
-Her heart has found freedom.
-And her mind has found relief.
-
-She is now content
-With the company of a friend.
+<br> with a heart yearning to express itself.
+<br>
+<br> In another dark room nearby, a piano sits alone
+<br> with ivory yearning to be tickled.
+<br>
+<br>'Why cannot the piano be my friend?' she thinks.
+<br> with stiff legs she introduces herself to Steinway,
+<br> and in return she receives a great gift.
+<br>
+<br>Her body is no longer stiff, no longer limited.
+<br> Her eyes no longer shed tears.
+<br> Her fingers dance across the black and white keys.
+<br> Her ears open up and hear the sound of music.
+<br> Her soul spreads its wings and flies.
+<br> Her heart has found freedom.
+<br> And her mind has found relief.
+<br>
+<br> She is now content
+<br> with the company of a friend.
 
 <br>
 
