@@ -611,7 +611,7 @@ He's self-complete and wedded to the author of the univese. <br>
 <br>
 
 ## Married to the Earth ##
-Married to the Earth, I am. <br>
+Married to the Earth I am. <br>
 
 What I love is this green and blue and brown earth  <br>
 that supplies all our needs, <br>
@@ -621,7 +621,7 @@ and the grass and the dirt. <br>
 It circles. Round and round and round the earth goes, <br>
 with all these wondrous people. <br>
 
-Married to the earth, I am. <br>
+Married to the earth I am. <br>
 
 This place for adventure and beauty <br>
 with wonders to see is what I love. <br>
@@ -728,6 +728,15 @@ It's going too fast. <br>
 I need to stop it. <br>
 I finally reach for it. <br>
 I pick it up, and I throw it away. <br>
+
+<br>
+
+## You and Me ##
+Right now, right here, you and me meet.
+You've gone down your path,
+and I've gone down mine;
+And we both arrive here, right now.
+We've got something to share.
 
 <br>
 
