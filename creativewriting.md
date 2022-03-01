@@ -7424,6 +7424,7 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 * A Study on how Christianity influences music
 * A Global Study on Civil Wars in Countries in an Era of Globalization
 * A Study on the History of Maps
+* A Study on How People Teach and Nurse Differently in Different Cultures and Countries
 
 <br>
 
@@ -7474,7 +7475,7 @@ I want to feel the blood rushing through our veins
 
 ## Nothing More than the Best ##
 It's great to head ehre out west
-I expect nothing more than th ebest
+I expect nothing more than the best
 
 <br>
 
@@ -7494,3 +7495,39 @@ With these country boots on I know that something will go down
 This world is a beautiful place
 with all the people on this earth
 there's a whole world to know
+
+## With Wings I Would Fly ##
+With wings I would fly up high into the sky
+I'd fly up above and love this whole earth
+
+<br>
+
+## Shining Light ##
+This shinging light falls down today
+It comes down right on me
+It shines a light on what I need and where I need to grow
+
+<br>
+
+## Country Exploration ##
+I've got my hat and my boots on
+And I'm writing you a song
+
+I'm going westward to roam
+I hope I'm one step closer towards home
+
+<br>
+
+## What You've GOt ##
+You don't know what you've got
+You've really got a lot
+
+<br>
+
+## Dancing Alone ##
+I'm doing a little dance alone
+I'm seeing what I can do on my own
+
+<br>
+
+
