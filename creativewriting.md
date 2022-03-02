@@ -741,7 +741,7 @@ Every day's a new day, every day's a new day. <br>
 Every day's a new day to feel the earth move. <br>
 
 It's a new day for the green grass to grow. <br>
-Where the grass is so green is where I long to go. <br>
+Where the grass fields are so wide is where I long to go. <br>
 
 I love to run and skip outside and feel a rebirth. <br>
 Every day's a new day to love this green earth. <br>
@@ -765,6 +765,7 @@ I want to live each day like it's the first and the last. <br>
 Every day's a new day, every day's a new day. <br>
 
 Oh it's a new day for our hearts to beat with love. <br>
+Isn't it great that love is what we're all born of?
 I love to feel the hearts all over beating within everywhere. <br>
 
 Every day's a new day for me and for you. <br>
@@ -1029,7 +1030,6 @@ Art that shows where the same object or idom or phrase comes from - the unity, t
 <br>
 
 ## From the East to the West ##
-The sun rises in the East and sets in the west.
 From the rising to the setting.
 There's one day and one night.
 The stars dance and sing their songs, individually and collectively.
@@ -7530,4 +7530,8 @@ I'm seeing what I can do on my own
 
 <br>
 
+## Dreams Come True ##
+Dreams come true with you 
+
+<br>
 
