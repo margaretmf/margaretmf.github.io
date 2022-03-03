@@ -50,7 +50,7 @@ Hope.
 ---------------------------------------------------------------------------------------------------------------------
 
 ## I Love You ##
-She looked me straight in the eye and said "I love you".
+She looked me straight in the eye, and she said "I love you".
 
 <br>
 
@@ -709,13 +709,9 @@ One person sketched it.
 
 Another took a video of it.
 
-Three people painted it, one on a fence, and another saw the harmony of looking at all eight, saying, "wow, collectively this is God's handiwork art!"
+Three people painted it.a
 
-A painting of everyone looking to the same flower with different tools and eyes - I've seen these types of flowers in 2-3 places, and other people see them too.
-
-Someone else is looking to this same flower.
-
-3-8 people appreciating it in different ways.
+And another saw the harmony of looking at all eight, saying, "wow, collectively this is God's handiwork art!"
 
 <br>
 
