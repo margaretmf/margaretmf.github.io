@@ -7518,7 +7518,7 @@ I hope I'm one step closer towards home
 
 <br>
 
-## What You've GOt ##
+## What You've Got ##
 You don't know what you've got
 You've really got a lot
 
@@ -7534,4 +7534,34 @@ I'm seeing what I can do on my own
 Dreams come true with you 
 
 <br>
+
+## A Reason to Dance ##
+The world is not born by chance, and there's a reason to dance.
+
+<br>
+
+
+Drive / alive
+Memphis / this
+Deed / seed/ feed
+Flower / power
+Worth / earth
+Kind / bind / mind
+Grateful / hateful 
+
+## Saying Goodbye to the Blues ##
+I've got two feet on the ground
+and nothing to lose
+I'm saying goodbye to the blues
+with my sweet dancing shoes
+
+I'm ready to rock and I'm ready to roll
+I'm doing everything to stay true to my soul
+
+There's nothing like dancing a little dance while alone
+My life is mine; it's mine to own
+
+There's a reason to dance, there's a reason to dance
+The world is not born by chance
+
 
