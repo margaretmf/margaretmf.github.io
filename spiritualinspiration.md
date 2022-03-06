@@ -217,6 +217,7 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 * Grateful for a poem shared
 * Grateful spiritual and cultural entrepreneurship with EVERFI, Altar'd States, and the Assemblage
 * Grateful for time glasses
+* Grateful for the chalk in the neighborhood
 * Grateful for friendship taught about in class
 * Grateful for themes, colors, metaphors, similes, grammar
 * Grateful for country music themes, including home, the Bible, relationships, stars, and nature
