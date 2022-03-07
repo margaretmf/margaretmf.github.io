@@ -7564,4 +7564,54 @@ My life is mine; it's mine to own
 There's a reason to dance, there's a reason to dance
 The world is not born by chance
 
+## Love's Debut, Love's Marriage ##
+She's gentle, <br>
+She's humble, <br>
+She's light-hearted, and smiling. <br>
+
+She's musical, <br>
+She's forgiving, <br>
+She's dancing, and modest. <br>
+
+She's inclusive, <br>
+She's articulate, <br>
+She's thoughtful, and wise. <br>
+
+She's all-embracing, <br>
+She's resilient, <br>
+She's grateful, and at home. <br>
+
+She's merciful, <br>
+She's modest, <br>
+She's open-mind, and mindful. <br>
+
+She's a searcher for humanity in the darkest areas of the world. <br>
+She's a lover of Jesus and Mary Baker Eddy. <br>
+She knows that Love has the throne and that Love is Life's true crown and glory. <br>
+She uses Truth's double-edged sword to end human strife. <br>
+
+He's thankful, <br>
+He's gracious, <br>
+He's joyful, and kind. <br>
+
+He's trustworthy, <br>
+He's satisfied, <br>
+He's helpful, and strong. <br>
+
+He's embracive, <br>
+He's courageous, <br>
+He's free, and aware. <br>
+
+He's adventurous, <br>
+He's ordered, <br>
+He's hard-working, and secure. <br>
+
+He's a lover of mankind, and inclusive of all. <br>
+With a passion for Church, He's a seeker of Truth in all aspects of Life. <br>
+He knows that Divine Mind is in control and that reflecting Principle is the Way. <br>
+He's self-complete and wedded to the author of the univese. <br>
+
+
+<br>
+
 
