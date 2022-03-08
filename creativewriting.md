@@ -7625,4 +7625,25 @@ It makes the world go around
 It causes the people to sing
 It's expressed through everything
 
+<br>
+
+## The Wind ##
+The wind knows my name. <br>
+It carries me home. <br>
+It calls me to where I belong. <br>
+
+The wind blows my hair. <br>
+It touches my face. <br>
+It pushes me along. <br>
+
+The wind has my back. <br>
+It runs with me. <br>
+It spreads my truth. <br>
+
+The wind comes sweeping through, <br>
+and I know its sound. <br>
+It sings my praises. <br>
+
+<br>
+
 
