@@ -7614,4 +7614,15 @@ He's self-complete and wedded to the author of the univese. <br>
 
 <br>
 
+## A Sweet Thing Called Love ##
+There's a sweet thing called love
+It's what we're all born of
+It's the thing I feel for you
+It's what binds our hearts so true
+
+There's a sweet thing called love
+It makes the world go around
+It causes the people to sing
+It's expressed through everything
+
 
