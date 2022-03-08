@@ -879,6 +879,12 @@ It sings my praises. <br>
 
 <br>
 
+## This Earth ##
+Look at this earth.
+It keeps on moving, with peole all around looking to the same sky, sun, moon, and stars.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## E Pluribus Unum ##
