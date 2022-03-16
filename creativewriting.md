@@ -7646,4 +7646,13 @@ It sings my praises. <br>
 
 <br>
 
+## Two Birds ##
+Two birds, enjoying the day, peck at each other, and sing songs from the heart.
+
+My heart calling and beating for you is like two birds calling out for one another high in the sky.
+
+Two birds flying around in synch with the rhythm of the universe.
+Telling each other they love each other and all the other birds.
+
+<br>
 
