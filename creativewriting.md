@@ -7695,3 +7695,9 @@ The Virginia state flag is such a beautiful blue symbol, representing freedom fr
 
 <br>
 
+## Daily Conversations ##
+Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles. Learning and reading supports healthier communication and conversation. How a conversation starts expresses democracy, and I am grateful for daily conversations in the neighborhood.
+
+<br>
+
+
