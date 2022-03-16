@@ -7685,4 +7685,13 @@ I will let my mother tell her own story. I write my story.
 
 <br>
 
+## Exploring The Controversy ##
+A flag is a sign, and a symbol. I can understand how people feel like the Confederate flag represents good things about Southern culture, Southern heritage, and the birth of the American Country. The people waving the Confederate flag or wearing Confederate symbols are not bad. They express joy, they express light-heartedness, they express innocence, they express a love of people, and they express a desire to learn, grow, and improve. The Civil War, however, was a war over an enslaved race, not just a war over land and economy. It offends people because it represents also dark things like slavery, Southern patriarchy, a false sense of dependency which leads to "benevolent racism, and benevolent sexism", and systemic violence and oppression. The traumatic memories of a past of enslavement have still come up, waiting to be shared to inform and educate people on what's not right in our country's past, and what's not right in human relations. Land and economy are part of the South, but land and economy expand to the North and the West.
+
+<br>
+
+## The Virginia Flag ##
+The Virginia state flag is such a beautiful blue symbol, representing freedom from tyranny and the reign of Virtue, with signs for Liberty, Eternity, and Agriculture.
+
+<br>
 
