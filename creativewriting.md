@@ -7676,3 +7676,13 @@ and a love for the wonder in everyone's eyes is what I seek. <br>
 
 <br>
 
+Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
+
+<br>
+
+
+I will let my mother tell her own story. I write my story.
+
+<br>
+
+
