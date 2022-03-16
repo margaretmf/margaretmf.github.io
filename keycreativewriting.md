@@ -1121,10 +1121,6 @@ America is a story of many and oneness.
 
 <br>
 
-Everyone I see while walking down the street includes everything that belongs to America, all of the people that have gone before us, all of the love expressed by the people that have gone before us, all of the beliefs of the people that have gone before us. When I see people online or walking down the street they include everything that belongs to America.
-
-<br>
-
 ## Beliefs in America ##
 Americans believe in silver linings.
 
