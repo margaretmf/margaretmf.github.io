@@ -918,11 +918,6 @@ Two parties of people govern the nation. Each party represents a set of ideas fo
 
 <br>
 
-## Daily Conversations ##
-Daily conversations are democratic. Daily conversations support democracy. Daily communication expresses democratic principles. Learning and reading supports healthier communication and conversation. How a conversation starts expresses democracy, and I am grateful for daily conversations in the neighborhood.
-
-<br>
-
 ## The People Behind the Work ##
 There's someone, there are people behind the gas station, and they have thoughts and a story, and a culture. 
 
