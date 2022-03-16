@@ -635,18 +635,6 @@ If all the world were a puzzle we'd be two pieces fitting together, joining toge
 
 <br>
 
-## Two Birds ##
-Two birds enjoying the day.
-Pecking at each other.
-Singing songs from the heart.
-
-My heart calling and beating for you is like two birds calling out high in the sky.
-
-Two birds flying around in synch with the rhythm of the universe.
-Telling each other they love each other and all the other birds.
-
-<br>
-
 ## Wedding ##
 It's a weddedness to love like the sun shining down midday.
 
