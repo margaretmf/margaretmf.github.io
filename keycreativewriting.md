@@ -690,7 +690,7 @@ One person sketched it.
 
 Another took a video of it.
 
-Three people painted it.a
+Three people painted it.
 
 And another saw the harmony of looking at all eight, saying, "wow, collectively this is God's handiwork art!"
 
@@ -752,7 +752,7 @@ Can't you see? There's some pep in every step with them. <br>
 
 ## Just Live ##
 Just live. <br>
-It's all you got to do. <br>
+It's all you have got to do. <br>
 Truly live. <br>
 Take it all in. <br>
 Do something new. <br>
@@ -850,7 +850,7 @@ He showed me the world, and I became more aware of how beautiful it is. <br>
 
 ## This Earth ##
 Look at this earth.
-It keeps on moving, with peole all around looking to the same sky, sun, moon, and stars.
+It keeps on moving, with people all around looking to the same sky, sun, moon, and stars.
 
 <br>
 
@@ -876,8 +876,7 @@ I am one in a million. There are a million ways to say and do the same thing.
 <br>
 
 ## America Reborn ##
-I once had a vision, or a dream of American reborn. I love that women are behind the rebirth of the American dream and that black men can lead the country well.
-Women are behind the rebirth of the American dream through the work in the postal office and the elections. A sense of America reborn actually came a live in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
+I once had a vision, or a dream of American reborn. I love that women are behind the rebirth of the American dream and that black men can lead the country well. A sense of America reborn actually came alive in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
 
 <br>
 
