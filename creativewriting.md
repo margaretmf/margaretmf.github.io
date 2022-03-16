@@ -7656,5 +7656,23 @@ Telling each other they love each other and all the other birds.
 
 <br>
 
+## Married to the Earth ##
+In a marriage to the earth, <br>
+what I love is this green and blue and brown earth  <br>
+that supplies all our needs, <br>
+with the rivers and the sea, <br>
+and the grass and the dirt. <br>
 
+It circles. 
+Round and round and round the earth goes, <br>
+with all these wondrous people. <br>
+
+In a marriage to the earth,. <br>
+there's a place for adventure and beauty <br>
+with wonders to see is what I love. <br>
+
+A union with all the people <br>
+and a love for the wonder in everyone's eyes is what I seek. <br>
+
+<br>
 
