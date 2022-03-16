@@ -603,27 +603,6 @@ He knows that Divine Mind is in control and that reflecting Principle is the Way
 
 <br>
 
-## Married to the Earth ##
-Married to the Earth I am. <br>
-
-What I love is this green and blue and brown earth  <br>
-that supplies all our needs, <br>
-with the rivers and the sea, <br>
-and the grass and the dirt. <br>
-
-It circles. Round and round and round the earth goes, <br>
-with all these wondrous people. <br>
-
-Married to the earth I am. <br>
-
-This place for adventure and beauty <br>
-with wonders to see is what I love. <br>
-
-A union with all the people <br>
-and a love for the wonder in everyone's eyes is what I seek. <br>
-
-<br>
-
 ## Pairs ##
 If all the world were a tree we'd be two leaves on a tree that change with the seasons. 
 
