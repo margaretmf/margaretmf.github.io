@@ -7700,4 +7700,49 @@ Daily conversations are democratic. Daily conversations support democracy. Daily
 
 <br>
 
+Between your heart and mine
+We got this good thing going
+This thing is alled love
+It's an everlasting thing
+
+This love of ours lives
+It brings us together
+It makes us stronger
+It builds life and blesses all those around
+
+Between your soul and mine
+There's ane cho that lasts
+This echo is the deepest truth
+It goes on forever
+
+Just your soul and mine
+Going on and on and on
+It's vibrating through the universe
+And it's for you and me and us to share
+
+Between your eyes and mine
+There's a special thing talking
+This thing is called truth
+It's an everlasting trust
+
+It's power is in the silence
+It's the most powerful thing in the world
+It's the grace of the knowing
+And it runs well with two smiles
+
+Between your hands and mine
+There's something good warming us up
+It causes the blood to rush through
+This thing is called spirit
+
+Two hearts beating for life
+There's a whole life to live
+
+It brings us together
+It makes us stronger
+It builds a life and blesses all those around
+
+<br>
+
+
 
