@@ -7744,5 +7744,11 @@ It builds a life and blesses all those around
 
 <br>
 
+## It All Started in Virginia ##
+It all started in Virginia, the home of the virgin, native land. Some people chose liberty, traveled across the seas, and landed in Virginia. They had no idea what they would discover, but they discovered some new land for freedom's mark. Not everything was perfect when they discovered this new land. There were hypocrites, and there was violent behavior. ...But the sail they had set launched the way for some pioneering people.
+
+<br>
+
+
 
 
