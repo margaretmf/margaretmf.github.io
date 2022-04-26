@@ -7749,6 +7749,19 @@ It all started in Virginia, the home of the virgin, native land. Some people cho
 
 <br>
 
+## Favorite Places ##
+Two of my favorite places to go to when I need a space for healing are bookstores and libraries. They both provide a healing space. I love local book shops, Barnes and Noble, and public libraries. I find friends in and through books.
 
+<br>
+
+## Melting Pot, Culture Shock ##
+I think it's beautiful that I can experience culture shock in my own country, a country known and believed by some people to be a melting pot. It shows me how much I don't know and can learn through a lifetime of relationships with people all around me at home in America and abroad in other countries.
+
+<br>
+
+## Teaching about Race ##
+Maybe teaching people about race isn't teaching that white people are inherently bad but that behaviors in the past that linger on in the present are bad and that some people from another race have overcome a lot. Separating the behavior from the person. One race isn't better than another. 
+
+<br>
 
 
