@@ -302,6 +302,11 @@ You're the one who makes me smile, and you're the one with whom I want to spend 
 
 <br>
 
+## People, people are Everywhere ##
+People, people are everywhere. Every individual is so beautiful and so fair.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Voice ##
