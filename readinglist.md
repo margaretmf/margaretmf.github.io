@@ -21,6 +21,7 @@ layout: default
 * [Say Their Names: How Black Lives Came to Matter in America](https://www.amazon.com/Say-Their-Names-Matter-America/dp/1538737825/ref=sr_1_1?crid=2R4EHHRZBWYZ9&keywords=say+their+names+how+black+lives+came+to+matter+in+america&qid=1643923349&s=books&sprefix=say+their+names+how+black+lives+came+to+matter+in+america%2Cstripbooks%2C53&sr=1-1) by Michael H. Cottman
 * [Shiloh](https://www.amazon.com/Shiloh-A-Newbery-Award-Book/dp/141693684X/ref=sr_1_8?crid=13FAOTXI49L7O&keywords=shiloh+phyllis+reynolds+naylor&qid=1649187783&s=books&sprefix=shiloh+phyllis+reynolds+naylor%2Cstripbooks%2C66&sr=1-8) by Phyllis Reynolds Naylor
 * [Hidden in Plain View: A Secret Story of Quilts and the Underground Railroad](https://www.amazon.com/Hidden-Plain-View-Underground-Railroad/dp/0385497679/ref=asc_df_0385497679/?tag=hyprod-20&linkCode=df0&hvadid=312021455910&hvpos=&hvnetw=g&hvrand=3863240645021533496&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9009979&hvtargid=pla-561430306456&psc=1) by Jacqueline L. Tobin & Raymond G. Dobard 
+* [The Heavens Might Crack: The Death and Legacy of Martin Luther King Jr.](https://www.amazon.com/Heavens-Might-Crack-Legacy-Martin/dp/0465055915) by Jason Sokol
 
 #### Reading
 * [The Vanishing Half](https://www.amazon.com/Vanishing-Half-Novel-Brit-Bennett/dp/0525536299/ref=sr_1_1?crid=WXJC0F52S747&keywords=the+vanishing+half&qid=1641570527&sprefix=the+vanishing+half%2Caps%2C80&sr=8-1) by Brit Bennett
