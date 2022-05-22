@@ -1434,7 +1434,7 @@ Learning to leave it in yesterday <br>
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Children's Book Ideas (if I were to write a book) ##
-(1) A book about an eagle flying across mountains, showing how love moves mountains, and neigbhors can see each other cross countries and continents
+(1) A book about an eagle flying across mountains, showing how love moves mountains, and neigbhors can see each other across countries and continents
 
 (2) A book about a symphony in the night sky
 
