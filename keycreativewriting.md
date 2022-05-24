@@ -302,8 +302,13 @@ You're the one who makes me smile, and you're the one with whom I want to spend 
 
 <br>
 
-## People, people are Everywhere ##
+## People, People are Everywhere ##
 People, people are everywhere. Every individual is so beautiful and so fair.
+
+<br>
+
+## You Matter ##
+You in the world matter, so don't let your dreams shatter.
 
 <br>
 
