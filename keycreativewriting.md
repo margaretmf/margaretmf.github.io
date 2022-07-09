@@ -1192,7 +1192,7 @@ Americans believe in a melting pot is the manifest destiny.
 <br>
 
 ## The Purpose of Studying History ##
-The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime. No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day. History is an expression of experiences, individual and collective. The study of history is the study of what has always and already been there and is the uncovering of stories. Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing. In the Newseum, "journalism is the first draft of history."
+The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime. No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day. History is an expression of experiences, individual and collective. The study of history is the study of what has always and already been there and is the uncovering of stories. Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing. The Newseum quoted Washington Post President and Publisher Philip L. Graham with the statement, "journalism is the first draft of history."
 
 <br>
 
