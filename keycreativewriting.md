@@ -651,7 +651,7 @@ The reality is that it's you who I care for, a mind so great, even on the lowest
 ---------------------------------------------------------------------------------------------------------------------
 
 ## In My Own Words ##
-I am Margaret Furr, it rhymes with concur. <br>
+I am Margaret Furr. My last name rhymes with concur. <br>
 I am a writer, and I aspire to write a book over a lifetime. <br>
 I am musical, and I love looking at different angles to articulate a balance between the feminine and masculine perspectives in songs. <br>
 I am an engineer, who loves methods to the madness. <br>
