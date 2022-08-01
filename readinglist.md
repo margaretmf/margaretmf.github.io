@@ -24,6 +24,7 @@ layout: default
 * [The Heavens Might Crack: The Death and Legacy of Martin Luther King Jr.](https://www.amazon.com/Heavens-Might-Crack-Legacy-Martin/dp/0465055915) by Jason Sokol
 * [Shutdown: How Covid Shook the World's Economy](https://www.amazon.com/Shutdown-Covid-Shook-Worlds-Economy/dp/0593297555/ref=sr_1_1?crid=2S0GUR2R78Y0Y&keywords=shutdown+Adam+tooze&qid=1645992851&sprefix=shutdown+adam+tooz%2Caps%2C183&sr=8-1) by Adam Tooze
 * [A Southerner's Reckoning with the Myth of the Lost Cause](https://www.amazon.com/Robert-Lee-Me-Southerners-Reckoning/dp/1250239265/ref=sr_1_1?crid=2GEZA0794SJ6N&keywords=a+southerner%27s+reckoning+with+the+myth+of+the+lost+cause&qid=1653062370&sprefix=a+southerner%27s+reckoning+with+the+myth+of+the+lost+cause%2Caps%2C74&sr=8-1) bu Ty Seidule
+* [The Birth of Korean Cool: How One Nation Is Conquering the World Through Pop Culture](https://www.amazon.com/Birth-Korean-Cool-Conquering-Through/dp/1250045118) by Euny Hong
 
 #### Reading
 * [The Vanishing Half](https://www.amazon.com/Vanishing-Half-Novel-Brit-Bennett/dp/0525536299/ref=sr_1_1?crid=WXJC0F52S747&keywords=the+vanishing+half&qid=1641570527&sprefix=the+vanishing+half%2Caps%2C80&sr=8-1) by Brit Bennett
