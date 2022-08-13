@@ -374,7 +374,7 @@ I am a body in a sea of bodies learning to be free.
 
 I am a heart in a sea of hearts crying out to love more.
 
-I am a set of eyes in a set of eyes looking to see the good.
+I am a set of eyes in a sea of eyes looking to see the good.
 
 <br>
 
