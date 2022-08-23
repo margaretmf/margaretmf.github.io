@@ -7428,7 +7428,7 @@ As someone with an undergraduate degree in History, I aspire to write at least o
 
 <br>
 
-Being in an interracial relationship is progressive, but it's nothing to be proud of. Being single and being confident i oneself throughout life is progressive. Being in a white couple after letting go of prejudices and racism is progressive.
+Being in an interracial relationship is progressive, but it's nothing to be proud of. Being single and being confident in oneself throughout life is progressive. Being in a white couple after letting go of prejudices and racism is progressive.
 
 <br>
 
