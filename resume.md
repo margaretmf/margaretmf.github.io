@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-I am a versatile professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. 
+I am a versatile education and nonprofit professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. 
 
 [Resume](Bain_SeniorResearchAssociate_Resume)
 
@@ -32,6 +32,12 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 <br>
  
 ## RELEVANT WORK EXPERIENCE
+
+### THE LITERACY LAB
+Literacy Tutor | August 2022-Present
+* Conduct one-on-one tutoring sessions with students using evidence-based literacy interventions to support successful reading
+* Assist children in improving their reading skills and abilities to help them reach grade level expectations
+* Maintain a daily caseload of 15-17 students and data management of all current and exited students to contribute to a data-driven approach
 
 ### VIBRANT WORLD
 Freelance Researcher Consultant | August-December 2019
