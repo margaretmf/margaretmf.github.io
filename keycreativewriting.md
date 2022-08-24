@@ -762,8 +762,7 @@ I do all that I need to do with a heart filled with grace.
 ## Flying Solo - Rough Draft ##
 There's a bird sitting on the fence alone. <br>
 She lifts her wings so gracefully. <br>
-How I long to be like this lone bird, <br>
-Peacefully knowing who I am. <br>
+How I long to be like this lone bird, peacefully knowing who I am. <br>
 
 <br>
 
