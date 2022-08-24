@@ -442,21 +442,6 @@ Two parties of people govern the nation. Each party represents a set of ideas fo
 
 <br>
 
-## The Purpose of Studying History ##
-The purpose of studying history and the humanities is to learn to become a morally and spiritually engaged individual who has free agency, engages ethically with humanity, learns and discovers new things about life for a lifetime. No one needs to know everything. I believe it's life-fulling to aspire to learn at least one new thing every day. History is an expression of experiences, individual and collective. The study of history is the study of what has always and already been there and is the uncovering of stories. Some believe history is objective. Some believe history is subjective. There exist different viewpoints on the same thing. The Newseum quoted Washington Post President and Publisher Philip L. Graham with the statement, "journalism is the first draft of history."
-
-<br>
-
-## Thinking Above Political Lines ##
-Every individual is God's son or daughter, and his or her thought has the freedom to rest above the political lines and social statuses drawn in the country or the world through loving each individual. Leaning on the divine substance, women can express feminine and masculine qualities, men can express masculine and feminine qualities; buoyantly, women and men can fluidly work in different spheres of the economy and depend wholly on God, the *consciousness of good*, not any false beliefs about mankind.
-
-<br>
-
-## Miseducated ##
-Miseducated. Lifelong learning. You are what you know. You are what you don't know. What you don't know is who you can become.
-
-<br>
-
 ## Vocabulary Usage ##
 There was once a beautiful, *roan* horse. He was not only the prettiest horse; but also the fastest horse. In the fields by the *purling* river, the horses enjoyed racing each other. The *cohesive* pack of horses continued to love to have races desptie the fact that Rapido would win everytime. In fact, the winner of the race was given *farina*. It became a routine to give this prize of farina to Rapido upon finishing the race. One day during the races, an *incoherent* group of bay hourses suddenly attacked the roan horses. The roan horses decided that they needed a reader for the battle against the bay horses. Because of Rapido's *renown* for his *inherent* speed, they *denominated* him as their leader. Upon being chosen, Rapido *hesitated*. He did not believe he would serve as a good leader and claimed that it had to be a *misnomer*. Rapido began to pray to the magical spirit, his fetish, and decided to take on the task of leading his pack of roan horses. Unlike the bay horses, Marido's horses *adhered* to each other. Their *adhesion* made them stronger. After a very close battle, the roan horses won.
 
