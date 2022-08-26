@@ -220,7 +220,7 @@ You have a unique view. So please be true to you!
 
 <br>
 
-## Dont Give Up on Love ##
+## Don't Give Up on Love ##
 Don't give up on love; it's what we're all born of.
 
 <br>
