@@ -421,7 +421,7 @@ There was once a boy who was visiting his relatives and was outside playing when
 
 At first, Eisenhower wasn't planning on going to college until after his brother went for two years. Then he found out about West Point giving scholarships. Eisenhower wasn't sure about being a soldier. He decided to go and afterwards he came back wanting to be a soldier. He didn't know what his parents would say, but they ended up letting him.
 
-Eisenhower went to West Point for college to traint o be in the Army. he wa a planner of D-Day which took pace on June 6, 1944. D-Day was a very successful battle. Eisenhower was also the thirty-fourth president of the United States. However, eh was forced into the presidency rather than choosing to be president. He served as president for two terms. Eisenhower died from a series of strokes on March 28, 1969.
+Eisenhower went to West Point for college to train to be in the Army. He was a planner of D-Day which took pace on June 6, 1944. D-Day was a very successful battle. Eisenhower was also the thirty-fourth president of the United States. However, eh was forced into the presidency rather than choosing to be president. He served as president for two terms. Eisenhower died from a series of strokes on March 28, 1969.
 
 Many people saw Eisenhower as a great leader. He became such a great leader through three special qualties during the presidency and while he was in the army. he was hard-working, creative, and popular.
 
@@ -488,7 +488,7 @@ How I long to be like this lone bird, peacefully knowing who I am. <br>
 
 <br>
 
-## The Lone Bird - Rough Draft ##
+## The Lone Bird ##
 The lone bird flies high through the spring trees. <br>
 The lone bird sits still on the ground. <br>
 The lone bird sails gracefully on the yellow driving sign. <br>
@@ -501,18 +501,15 @@ The lone bird mounts on the street sign. <br>
 The lone bird glides with the wind. <br>
 The lone bird pecks at the lead.  <br>
 The lone bird flaps his wings just above the ground. <br>
-The lone red bird finds her spot on a machine outside. <br>
-The lone blue jay stands on a fence. <br>
+The lone bird stands on a fence. <br>
 The lone bird explores her freedom. <br>
 The lone bird finds her support on the power line. <br>
 The lone bird scurries through the grass. <br>
-The lone grey bird expands her wings. <br>
+The lone bird expands her wings. <br>
 The lone bird swoops down to hover the river. <br>
 The lone bird feathers her wings above the water. <br>
-The big lone bird stands on the grass near the farm holding her poise. <br>
+The lone bird stands on the grass near the farm holding her poise. <br>
 The lone bird skates on the ice. <br>
-The shadow of the lone bird is beautiful in the grass. <br>
-The bird alone on the city map, she knows her city and she loves the water. <br>
 The lone bird knows her place on the wire. <br>
 
 <br>
