@@ -365,7 +365,7 @@ Really live. <br>
 
 ---------------------------------------------------------------------------------------------------------------------
 
-## E Pluribus Unum ##
+## I Am One in A Sea ##
 I am a voice in a sea of voices yearning to say the right thing.
 
 I am a conscience in a sea of consciences desiring to do the right thing.
