@@ -25,13 +25,7 @@ layout: default
 * [Shutdown: How Covid Shook the World's Economy](https://www.amazon.com/Shutdown-Covid-Shook-Worlds-Economy/dp/0593297555/ref=sr_1_1?crid=2S0GUR2R78Y0Y&keywords=shutdown+Adam+tooze&qid=1645992851&sprefix=shutdown+adam+tooz%2Caps%2C183&sr=8-1) by Adam Tooze
 * [A Southerner's Reckoning with the Myth of the Lost Cause](https://www.amazon.com/Robert-Lee-Me-Southerners-Reckoning/dp/1250239265/ref=sr_1_1?crid=2GEZA0794SJ6N&keywords=a+southerner%27s+reckoning+with+the+myth+of+the+lost+cause&qid=1653062370&sprefix=a+southerner%27s+reckoning+with+the+myth+of+the+lost+cause%2Caps%2C74&sr=8-1) bu Ty Seidule
 * [The Birth of Korean Cool: How One Nation Is Conquering the World Through Pop Culture](https://www.amazon.com/Birth-Korean-Cool-Conquering-Through/dp/1250045118) by Euny Hong
-
-#### Reading
-* [The Vanishing Half](https://www.amazon.com/Vanishing-Half-Novel-Brit-Bennett/dp/0525536299/ref=sr_1_1?crid=WXJC0F52S747&keywords=the+vanishing+half&qid=1641570527&sprefix=the+vanishing+half%2Caps%2C80&sr=8-1) by Brit Bennett
-* [La Mitad Evanescente](https://www.amazon.com/evanescente-Vanishing-Literatura-Random-Spanish/dp/8439738641/ref=sr_1_1?crid=1RVJDMYAYFMLQ&keywords=la+mitad+evanescente&qid=1641570561&sprefix=la+mitad+evanescente%2Caps%2C277&sr=8-1) by Brit Bennett
-* [Trans Love: An Anthology of Transgender and Non-Binary Voices](https://www.amazon.com/Trans-Love-Anthology-Transgender-Non-Binary/dp/178592432X/ref=sr_1_1?crid=EOVFK2ZYN554&keywords=Trans+Love%3A+An+Anthology+of+Transgender+and+Non-Binary+Voices&qid=1641570580&sprefix=trans+love+an+anthology+of+transgender+and+non-binary+voices%2Caps%2C56&sr=8-1) by Freiya Benson
-* [Trans Power: Own Your Gender](https://www.amazon.com/Trans-Power-Own-Your-Gender/dp/1787750191/ref=sr_1_2?crid=220NK4BWS0X26&keywords=Trans+Power%3A+Own+Your+Gender&qid=1641570607&sprefix=trans+power+own+your+gender%2Caps%2C60&sr=8-2) by Juno Roche
-* [Transgressive: A Trans Woman on Gender, Feminism, and Politics](https://www.amazon.com/Transgressive-Trans-Gender-Feminism-Politics/dp/1785926470/ref=sr_1_1?crid=LFPSOTO701E5&keywords=Transgressive%3A+A+Trans+Woman+on+Gender%2C+Feminism%2C+and+Politics&qid=1641570627&sprefix=transgressive+a+trans+woman+on+gender%2C+feminism%2C+and+politics%2Caps%2C73&sr=8-1) by Rachel Anne Williams
+* [American Schism: How the Two Enlightenments Hold the Secret to Healing our Nation](https://www.amazon.com/American-Schism-Enlightenments-Secret-Healing/dp/1626348618/ref=sr_1_1?crid=ZTWAJK0G6YH8&keywords=American+Schism&qid=1662677400&sprefix=american+schism%2Caps%2C307&sr=8-1) by Seth Radwell
 
 
 ## 2021
