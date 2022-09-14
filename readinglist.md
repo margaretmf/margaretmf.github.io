@@ -26,6 +26,7 @@ layout: default
 * [A Southerner's Reckoning with the Myth of the Lost Cause](https://www.amazon.com/Robert-Lee-Me-Southerners-Reckoning/dp/1250239265/ref=sr_1_1?crid=2GEZA0794SJ6N&keywords=a+southerner%27s+reckoning+with+the+myth+of+the+lost+cause&qid=1653062370&sprefix=a+southerner%27s+reckoning+with+the+myth+of+the+lost+cause%2Caps%2C74&sr=8-1) bu Ty Seidule
 * [The Birth of Korean Cool: How One Nation Is Conquering the World Through Pop Culture](https://www.amazon.com/Birth-Korean-Cool-Conquering-Through/dp/1250045118) by Euny Hong
 * [American Schism: How the Two Enlightenments Hold the Secret to Healing our Nation](https://www.amazon.com/American-Schism-Enlightenments-Secret-Healing/dp/1626348618/ref=sr_1_1?crid=ZTWAJK0G6YH8&keywords=American+Schism&qid=1662677400&sprefix=american+schism%2Caps%2C307&sr=8-1) by Seth Radwell
+* [The Mis-Education of the Negro](https://www.amazon.com/s?k=the+miseducation+of+the+negro&crid=3FTOPPEU7264N&sprefix=the+miseducating%2Caps%2C87&ref=nb_sb_ss_ts-doa-p_2_11) by Carter Godwin Woodson
 
 
 ## 2021
