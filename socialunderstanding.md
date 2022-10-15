@@ -9,14 +9,6 @@ in relation to daily observations.
 
 <br>
 
-### Topics Up Next
-* [Social Solidarity Theory](http://routledgesoc.com/category/profile-tags/social-solidarity) in Community Building
-* [Conflict Theory and Social Fragmentation](https://www.thoughtco.com/sociology-research-and-statistics-s2-3026650) in [Public Discourse](https://www.aspeninstitute.org/blog-posts/its-important-to-speak-to-people-you-dont-agree-with/) and the [Workplace](https://www.shrm.org/hr-today/news/hr-magazine/Pages/070815-conflict-management.aspx)
-
-<br>
-
-<br>
-
 
 ### [Structural Strain Theory](https://www.thoughtco.com/structural-strain-theory-3026632) in Education and Innovation as a Positive Deviation
 
