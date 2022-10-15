@@ -8,17 +8,6 @@ Currently, as we live through a time of [accelerations](https://www.youtube.com/
 <br>
 
 
-### Topics Up Next
-* Home and [The Future of Housing](https://www.fastcompany.com/90342219/the-future-of-housing-looks-nothing-like-todays?utm_source=pocket-newtab)
-* Meditation, Prayer, and Worship (see [They Tried to Start a Church Without God. For a While, It Worked](https://www.theatlantic.com/ideas/archive/2019/07/secular-churches-rethink-their-sales-pitch/594109/?utm_term=2019-07-21T10%3A00%3A13&utm_medium=social&utm_campaign=the-atlantic&utm_source=twitter&utm_content=edit-promo))
-* Medicine, Technology, and Healthcare
-
-
-<br>
-
-<br>
-
-
 ### School Turnarounds and Art
 Traditionally schools have followed strict curriculum guides, but as schools in the 21st century realize they need to turnaround, incorporating art and embracing innovative teaching practices helps them to modernize. I envision a public school system in which providing ways for students to think outside the box and engage in creative activities becomes normalized. I envision these creative activities supporting students' test scores and longer-term careers as well.
 
