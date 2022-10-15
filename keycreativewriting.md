@@ -276,6 +276,12 @@ You in the world matter, so don't let your dreams shatter.
 
 <br>
 
+## Life Works Out ##
+Life has a way of always working out.
+So I'm smilingtoday; there's no reason to pout.
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut, Love's Marriage ##
