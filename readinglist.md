@@ -28,6 +28,7 @@ layout: default
 * [American Schism: How the Two Enlightenments Hold the Secret to Healing our Nation](https://www.amazon.com/American-Schism-Enlightenments-Secret-Healing/dp/1626348618/ref=sr_1_1?crid=ZTWAJK0G6YH8&keywords=American+Schism&qid=1662677400&sprefix=american+schism%2Caps%2C307&sr=8-1) by Seth Radwell
 * [The Mis-Education of the Negro](https://www.amazon.com/s?k=the+miseducation+of+the+negro&crid=3FTOPPEU7264N&sprefix=the+miseducating%2Caps%2C87&ref=nb_sb_ss_ts-doa-p_2_11) by Carter Godwin Woodson
 * [The Life of Josiah Henson](https://www.amazon.com/Life-Josiah-Henson-Inspiration-Editions/dp/0486800458/ref=sr_1_1?crid=3CVTD55T7ZMI7&keywords=the+life+of+Josiah+henson&qid=1664046428&qu=eyJxc2MiOiIyLjQwIiwicXNhIjoiMS44NCIsInFzcCI6IjEuOTUifQ%3D%3D&sprefix=the+life+of+josiah+henson%2Caps%2C76&sr=8-1) by Josiah Henson
+* [Between the World and Me](https://www.amazon.com/Between-World-Me-Ta-Nehisi-Coates/dp/0812993543/ref=sr_1_1?keywords=between+the+world+and+me&qid=1667934429&sprefix=Between+the+w%2Caps%2C120&sr=8-1) by Ta-Nehisi Coates
 
 
 ## 2021
