@@ -30,6 +30,9 @@ layout: default
 * [The Life of Josiah Henson](https://www.amazon.com/Life-Josiah-Henson-Inspiration-Editions/dp/0486800458/ref=sr_1_1?crid=3CVTD55T7ZMI7&keywords=the+life+of+Josiah+henson&qid=1664046428&qu=eyJxc2MiOiIyLjQwIiwicXNhIjoiMS44NCIsInFzcCI6IjEuOTUifQ%3D%3D&sprefix=the+life+of+josiah+henson%2Caps%2C76&sr=8-1) by Josiah Henson
 * [Between the World and Me](https://www.amazon.com/Between-World-Me-Ta-Nehisi-Coates/dp/0812993543/ref=sr_1_1?keywords=between+the+world+and+me&qid=1667934429&sprefix=Between+the+w%2Caps%2C120&sr=8-1) by Ta-Nehisi Coates
 
+#### Reading
+* [How the Word Is Passed](https://www.amazon.com/How-Word-Passed-Reckoning-History/dp/0316492930/ref=sr_1_1?keywords=how+the+word+is+passed+clint+smith&qid=1668970890&sprefix=how+the+word+is+pa%2Caps%2C75&sr=8-1) by Clint Smith
+
 
 ## 2021
 
