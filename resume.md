@@ -5,7 +5,7 @@ layout: default
 ## PROFILE 
 I am a versatile education and nonprofit professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. 
 
-[Resume](Bain_SeniorResearchAssociate_Resume)
+[Resume](InstituteofInternationalEducation_Resume_MargaretFurr.pdf)
 
 <br>
 
