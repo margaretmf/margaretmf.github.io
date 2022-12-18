@@ -138,7 +138,9 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 
 ## Skills
 
-**Writing:** news reviews, book reviews, white paper writing, blog writing, user story writing, historical writing; learning about solutions journalism
+**Educating:** tutoring
+
+**Writing:** white paper writing, blog writing, user story writing, historical writing
 
 **Media Management:** Twitter, Instagram; Photography, Videography
 
