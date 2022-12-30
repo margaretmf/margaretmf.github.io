@@ -152,6 +152,15 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/lightinthedarkness3.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness4.jpg">
+
+
+
+
 <b>
 
 <b>
