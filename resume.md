@@ -37,7 +37,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 Literacy Tutor | August 2022-Present
 * Conduct one-on-one tutoring sessions with students using evidence-based literacy interventions to support successful reading
 * Assist children in improving their reading skills and abilities to help them reach grade level expectations
-* Maintain a daily caseload of 15-17 students and data management of all current and exited students to contribute to a data-driven approach
+* Maintain a daily caseload of 12 students and data management of all current and exited students to contribute to a data-driven approach
 
 ### VIBRANT WORLD
 Freelance Researcher Consultant | August-December 2019
