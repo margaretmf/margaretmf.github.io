@@ -2,6 +2,13 @@
 layout: default
 ---
 
+## 2023
+
+### Books
+#### Completed
+* [South to America: A Journey Below the Mason-Dixon to Understand the Soul of a Nation](https://www.amazon.com/s?k=south+to+america+by+imani+perry&sprefix=south+to+america%2Caps%2C89&ref=nb_sb_ss_ts-doa-p_1_16) by Imani Perry
+
+
 ## 2022
 
 ### Books 
