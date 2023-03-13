@@ -10,6 +10,7 @@ layout: default
 
 #### Reading
 * [Asian American Histories of the United States](https://www.amazon.com/American-Histories-United-REVISIONING-HISTORY/dp/0807050792/ref=sr_1_1?keywords=asian+american+histories+of+the+united+states&qid=1678055179&sprefix=Asian+Ameri%2Caps%2C87&sr=8-1) by Catherine Ceniza Choy
+* [Metadata](https://www.amazon.com/Metadata-MIT-Press-Essential-Knowledge/dp/0262528517/ref=sr_1_1?crid=1BW2VGJS3OJQS&keywords=metadata&qid=1678709872&sprefix=metadata%2Caps%2C79&sr=8-1) by Jeffrey Pomerantz
 
 
 ## 2022
