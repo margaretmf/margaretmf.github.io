@@ -8,9 +8,11 @@ layout: default
 #### Completed
 * [South to America: A Journey Below the Mason-Dixon to Understand the Soul of a Nation](https://www.amazon.com/s?k=south+to+america+by+imani+perry&sprefix=south+to+america%2Caps%2C89&ref=nb_sb_ss_ts-doa-p_1_16) by Imani Perry
 * [Metadata](https://www.amazon.com/Metadata-MIT-Press-Essential-Knowledge/dp/0262528517/ref=sr_1_1?crid=1BW2VGJS3OJQS&keywords=metadata&qid=1678709872&sprefix=metadata%2Caps%2C79&sr=8-1) by Jeffrey Pomerantz
+* [Asian American Histories of the United States](https://www.amazon.com/American-Histories-United-REVISIONING-HISTORY/dp/0807050792/ref=sr_1_1?keywords=asian+american+histories+of+the+united+states&qid=1678055179&sprefix=Asian+Ameri%2Caps%2C87&sr=8-1) by Catherine Ceniza Choy
 
 #### Reading
-* [Asian American Histories of the United States](https://www.amazon.com/American-Histories-United-REVISIONING-HISTORY/dp/0807050792/ref=sr_1_1?keywords=asian+american+histories+of+the+united+states&qid=1678055179&sprefix=Asian+Ameri%2Caps%2C87&sr=8-1) by Catherine Ceniza Choy
+* [The Light We Carry](https://www.amazon.com/the-light-we-carry/dp/0593237463/ref=sr_1_1?keywords=the+light+we+carry+michelle+obama&qid=1680045751&sprefix=the+light+we+car%2Caps%2C159&sr=8-1) by Michelle Obama
+* [Memphis and the Paradox of Place: Globalization in the American South](https://www.amazon.com/Memphis-Paradox-Place-Globalization-Directions/dp/0807859524/ref=sr_1_1?crid=KCFLNTEZ9CUY&keywords=memphis+globalization&qid=1680045770&sprefix=memphis+globalization%2Caps%2C86&sr=8-1) by Wanda Rushing
 
 
 ## 2022
