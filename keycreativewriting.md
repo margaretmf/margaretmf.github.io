@@ -255,19 +255,8 @@ My life is mine to own.
 
 <br>
 
-## Born to Be Free ##
-I'm born to be free.
-I'm born to be me.
-
-<br>
-
 ## You're the One ##
 You're the one who makes me smile, and you're the one with whom I want to spend a little while.
-
-<br>
-
-## People, People are Everywhere ##
-People, people are everywhere. Every individual is so beautiful and so fair.
 
 <br>
 
@@ -278,7 +267,7 @@ You in the world matter, so don't let your dreams shatter.
 
 ## Life Works Out ##
 Life has a way of always working out.
-So I'm smilingtoday; there's no reason to pout.
+So I'm smiling today; there's no reason to pout.
 
 <br>
 
