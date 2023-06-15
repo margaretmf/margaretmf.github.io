@@ -133,8 +133,6 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 
 ## Skills
 
-**Educating:** tutoring
-
 **Writing:** white paper writing, blog writing, user story writing, historical writing
 
 **Media Management:** Twitter, Instagram; Photography, Videography
@@ -150,6 +148,8 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 **Soft:** cross-functional teamwork, international teamwork; familiar with Spanish language and gaining exposure to India
 
 **Training:** ISO 9001 Quality Management Systems, SCRUMstudy Scrum Master, Human-Centric Leading, Systems Practice, Civil Dialogues
+
+**Educating:** tutoring
 
 <br>
 
