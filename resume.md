@@ -55,13 +55,13 @@ Freelance Researcher Consultant | August-December 2019
 * Produced work to support the development of a [written report](https://socialimpact.github.com/#report)
  
 ### Breastfeeding Center for Greater Washington
-Systems Researcher | January 2019 - May 2019
+Systems Researcher | January-May 2019
 * Interviewed 10 system actors to understand how organizations play a role in helping breastfeeding mothers
 * Led secondary research to paint a systems picture of how organizations influence the breastfeeding rate in DC
 * Completed 6 online classes to learn how to guide the community with systems goals, maps, and narratives
 
 ### Design for the Homeless
-Design Researcher | February 2019 - May 2019
+Design Researcher | February-May 2019
 * Organized 5 interviews with community members to understand experiences of people facing homelessness
 * Practiced photography to capture observations of the needs of people experiencing homelessness visually
 * Developed a user persona to summarize the profile, goals, frustrations, and needs of people interviewed 
