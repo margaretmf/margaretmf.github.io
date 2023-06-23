@@ -208,6 +208,14 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 <br>
 
 ### Gratitude List - Creative Writing
+* Grateful for the sound of the crickets
+* Grateful for the people in Richmond I saw
+* Grateful for the work on diversity and inclusion in the Capital One Cafe
+* Grateful for my friend from South Korea and his kindness
+* Grateful for my friend from UVA, Nabil
+* Grateful for the love that is all-in-all
+* Grateful for the love people exude
+* Grateful for all the students I tutored this year
 * Grateful for someone's big smile
 * Grateful for people in a city in Virginia
 * Grateful for the morning sounds
