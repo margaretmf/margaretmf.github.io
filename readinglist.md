@@ -13,7 +13,7 @@ layout: default
 * [The Light We Carry](https://www.amazon.com/the-light-we-carry/dp/0593237463/ref=sr_1_1?keywords=the+light+we+carry+michelle+obama&qid=1680045751&sprefix=the+light+we+car%2Caps%2C159&sr=8-1) by Michelle Obama
 
 #### Reading
-* [Memphis and the Paradox of Place: Globalization in the American South](https://www.amazon.com/Memphis-Paradox-Place-Globalization-Directions/dp/0807859524/ref=sr_1_1?crid=KCFLNTEZ9CUY&keywords=memphis+globalization&qid=1680045770&sprefix=memphis+globalization%2Caps%2C86&sr=8-1) by Wanda Rushing
+* [The 1619 Project: A New American Origin Story](https://www.amazon.com/s?k=1619+project&sprefix=1619%2Caps%2C132&ref=nb_sb_ss_ts-doa-p_1_4) by Nikole Hannah-Jones and The New York Times Magazine 
 
 
 ## 2022
