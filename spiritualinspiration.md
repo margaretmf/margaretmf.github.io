@@ -209,6 +209,7 @@ With 2018 ending, after thinking about Christ's words, I began to renew apprecia
 
 ### Gratitude List - Creative Writing
 * Grateful for the sound of the crickets
+* Grateful for the divine economy of exchanges of love and soul and life and mind and truth
 * Grateful for the people in Richmond I saw
 * Grateful for the work on diversity and inclusion in the Capital One Cafe
 * Grateful for my friend from South Korea and his kindness
