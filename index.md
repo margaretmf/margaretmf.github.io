@@ -133,13 +133,11 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 
 ## Skills
 
-**Writing:** white paper writing, blog writing, user story writing, historical writing
-
-**Media Management:** Twitter, Instagram; Photography, Videography
+**Data Analytics**: data-driven storytelling, analytical dashboard development, data wrangling and management framework development, advanced statistical modeling (regression, clustering, principal components, association rules, random forest), geospatial analysis, survey analysis; familiar with machine learning concepts (neural networks, training and testing datasets, cross-fold validation), and social network analysis
 
 **Systems Practice, Design Research, and Mission-Driven Consulting**: systems analysis, systems practice and design for social justice, ethnographic interviewing and focus groups, systems mapping and systems narrative development, requirements facilitation, user story and requirements writing, chatbot systems design; nonprofit strategic alignment 
 
-**Data Analytics**: data-driven storytelling, analytical dashboard development, data wrangling and management framework development, advanced statistical modeling (regression, clustering, principal components, association rules, random forest), geospatial analysis, survey analysis; familiar with machine learning concepts (neural networks, training and testing datasets, cross-fold validation), and social network analysis
+**Writing:** white paper writing, blog writing, user story writing, historical writing
 
 **Project Management**: project proposal review, project scope analysis, project roadmapping, and project progress reporting
 
@@ -150,6 +148,8 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 **Training:** ISO 9001 Quality Management Systems, SCRUMstudy Scrum Master, Human-Centric Leading, Systems Practice, Civil Dialogues
 
 **Educating:** tutoring
+
+**Media Management:** Twitter, Instagram; Photography, Videography
 
 <br>
 
