@@ -6,7 +6,7 @@ layout: default
 
 ## Hello! Welcome to Margaret Furr's site. 
 
-<img class="profile-picture" src="margaret_furr.jpg">
+<img class="profile-picture" src="me.jpg">
 
 ## Short Biography, **La Biografía** ##
 I am **Margaret Furr**, a graduate of the University of Virginia. Currently, I am working as a **Literacy Tutor** as part of an **AmeriCorps service year** with **The Literacy Lab**, gaining experience directly in a school with K-12 students. Previously, I worked as a **Data Analyst** with **EVERFI**, an expanding, educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships; EVERFI is really good at expanding people's cultural awareness and sense of compassion, and bringing people to first-hand experiences of culture in places. I then worked as a freelance researcher for the social sector.
