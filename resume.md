@@ -34,7 +34,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 ## RELEVANT WORK EXPERIENCE
 
 ### THE LITERACY LAB
-Literacy Tutor | August 2022-Present
+Literacy Tutor | August 2022-June 2023
 * Completed an AmeriCorps service year as a literacy tutor in a school.
 * Assisted classroom teachers to help maintain order in the class.
 * Administered assessments to benchmark students.
