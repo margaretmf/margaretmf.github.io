@@ -11,11 +11,12 @@ layout: default
 * [Asian American Histories of the United States](https://www.amazon.com/American-Histories-United-REVISIONING-HISTORY/dp/0807050792/ref=sr_1_1?keywords=asian+american+histories+of+the+united+states&qid=1678055179&sprefix=Asian+Ameri%2Caps%2C87&sr=8-1) by Catherine Ceniza Choy
 * [Pushout: The Criminalization of Black Girls in School](https://www.amazon.com/s?k=pushout+the+criminalization+of+black+girls+in+school&sprefix=pushout%2Caps%2C77&ref=nb_sb_ss_ts-doa-p_1_7) by Monique Morris
 * [The Light We Carry](https://www.amazon.com/the-light-we-carry/dp/0593237463/ref=sr_1_1?keywords=the+light+we+carry+michelle+obama&qid=1680045751&sprefix=the+light+we+car%2Caps%2C159&sr=8-1) by Michelle Obama
-* [The 1619 Project: A New American Origin Story](https://www.amazon.com/s?k=1619+project&sprefix=1619%2Caps%2C132&ref=nb_sb_ss_ts-doa-p_1_4) by Nikole Hannah-Jones and The New York Times Magazine 
+* [The 1619 Project: A New American Origin Story](https://www.amazon.com/s?k=1619+project&sprefix=1619%2Caps%2C132&ref=nb_sb_ss_ts-doa-p_1_4) by Nikole Hannah-Jones and The New York Times Magazine
+* [I Won't Shut Up: Finding Your Voice When the World Tries to Silence You](https://www.amazon.com/Wont-Shut-Up-Finding-Silence-ebook/dp/B0BLW7JW4X/ref=sr_1_1_sspa?keywords=i+won%27t+shut+up+ally+henny&qid=1688941613&sprefix=I+Won%27t+Shut+Up%2Caps%2C111&sr=8-1-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9hdGY&psc=1) by Ally Henry 
 
 #### Reading
 * [Above Ground](https://www.amazon.com/s?k=clint+smith+above+ground&sprefix=Clint+Smith%2Caps%2C102&ref=nb_sb_ss_ts-doa-p_1_11) by Clint Smith
-* [I Won't Shut Up: Finding Your Voice When the World Tries to Silence You](https://www.amazon.com/Wont-Shut-Up-Finding-Silence-ebook/dp/B0BLW7JW4X/ref=sr_1_1_sspa?keywords=i+won%27t+shut+up+ally+henny&qid=1688941613&sprefix=I+Won%27t+Shut+Up%2Caps%2C111&sr=8-1-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9hdGY&psc=1) by Ally Henry 
+
 
 ## 2022
 
