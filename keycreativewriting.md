@@ -273,7 +273,7 @@ So I'm smiling today; there's no reason to pout.
 
 ---------------------------------------------------------------------------------------------------------------------
 
-## Love's Debut, Love's Marriage ##
+## Love's Debut ##
 She's gentle, <br>
 She's humble, <br>
 She's light-hearted, and smiling. <br>
@@ -290,10 +290,6 @@ She's all-embracing, <br>
 She's resilient, <br>
 She's grateful, and at home. <br>
 
-She's a searcher for humanity in the darkest areas of the world. <br>
-She's a lover of Jesus and Mary Baker Eddy. <br>
-She knows that Love has the throne, and she uses Truth's double-edged sword to end human strife. <br>
-
 He's thankful, <br>
 He's gracious, <br>
 He's joyful, and kind. <br>
@@ -309,6 +305,13 @@ He's free, and aware. <br>
 He's adventurous, <br>
 He's ordered, <br>
 He's hard-working, and secure. <br>
+
+<br>
+
+## Christitan Science ## 
+She's a searcher for humanity in the darkest areas of the world. <br>
+She's a lover of Jesus and Mary Baker Eddy. <br>
+She knows that Love has the throne, and she uses Truth's double-edged sword to end human strife. <br>
 
 He's a lover of mankind, and inclusive of all. <br>
 With a passion for Church, He's a seeker of Truth in all aspects of Life. <br>
