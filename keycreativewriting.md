@@ -271,6 +271,12 @@ So I'm smiling today; there's no reason to pout.
 
 <br>
 
+## Ways to Say Hello ##
+All around the world there's a way to say hello
+From hola to bonjour to annyeonghaseyo
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## Love's Debut ##
