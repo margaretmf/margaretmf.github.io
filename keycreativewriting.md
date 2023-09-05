@@ -89,7 +89,7 @@ Everything that once existed still exists in thought.
 
 <br>
 
-## Some Thing Last Forever ##
+## Some Things Last Forever ##
 Some things last forever like moments that we share.
 
 <br>
