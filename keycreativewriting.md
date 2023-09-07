@@ -485,6 +485,45 @@ I do all that I need to do with a heart filled with grace.
 
 <br>
 
+## Gabby's Gratitude List ##
+Mama encourages Gabby to have an attitude of gratitude.
+"Be thankful", she tells Gabby, "because that will help you have a joyful mood!"
+
+So each new day Gabby goes around and counts her blessings.
+And each night with mama she remembers all of the little things.
+
+One night, Gabby lists things like the warm sun that is bright.
+And she lists things like her favorite dress with a bow, which is blue and white.
+
+"There's so much", Gabby says, "to be grateful for!"
+"I am going to think of more and more and more!"
+
+"I am grateful for the bus ride to school when I sat by Lucy, my new friend.
+THe windows were down on the bus today, and we could feel the coolness of the wind.
+
+I am grateful for my teacher who teaches us how to read.
+Today we read a book by Jory John, which is called 'The Bad Seed'.
+
+I am grateful fo rhte lunch server who always smiles at my classmates and me.
+She's always wearing a pretty bracelet that says 'Be Free'.
+
+I am grateful for recess when we went to the playground.
+Today we played basketball, and I got the reboudn.
+
+I am grateful for the time to have fun after school.
+Today I got to go to practice swimming at the pool.
+
+I am grateful for hte speghetti my brother and I ate for dinner.
+The pasta was go good because it was thinner."
+
+"Good job on being grateful", says mama. "This list is yours to keep.
+And now that you've developed this list, you can sweetly sleep".
+
+"Good night", says Gabby to mama, as they share a kiss.
+"Tomorrow night I will share another list."
+
+<br>
+
 ## Flying Solo - Rough Draft ##
 There's a bird sitting on the fence alone. <br>
 She lifts her wings so gracefully. <br>
