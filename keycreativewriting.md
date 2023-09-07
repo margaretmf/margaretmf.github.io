@@ -47,6 +47,72 @@ Hope.
 
 <br>
 
+## A New Day ##
+It's a new day for the sun to shine.
+Wake up, and be free. The day is yours, and the day is mine.
+
+It's a really great day for the sky to be blue.
+Look up high! And see the birds soaring too!
+
+On this new day the birds really sing.
+It's fun to sing with the birds and hear their songs ringaling.
+
+It's a new day for the earth to move.
+It's amazing how all the people really get into a groove.
+
+On this new day I've got two feet on the ground.
+It's love that makes the world go around.
+
+It's a really great day to go out and seize the day.
+Neighbors wave, and people laugh and play.
+
+It's a new day to run and skip outside.
+It's more wonderful to do this with friends by my side.
+
+On this new day I wear a smile on my face.
+I do all that I need to do with a heart filled with grace.
+
+<br>
+
+## Gabby's Gratitude List ##
+Mama encourages Gabby to have an attitude of gratitude.
+"Be thankful", she tells Gabby, "because that will help you have a joyful mood!"
+
+So each new day Gabby goes around and counts her blessings.
+And each night with mama she remembers all of the little things.
+
+One night, Gabby lists things like the warm sun that is bright.
+And she lists things like her favorite dress with a bow, which is blue and white.
+
+"There's so much", Gabby says, "to be grateful for!"
+"I am going to think of more and more and more!"
+
+"I am grateful for the bus ride to school when I sat by Lucy, my new friend.
+THe windows were down on the bus today, and we could feel the coolness of the wind.
+
+I am grateful for my teacher who teaches us how to read.
+Today we read a book by Jory John, which is called 'The Bad Seed'.
+
+I am grateful fo rhte lunch server who always smiles at my classmates and me.
+She's always wearing a pretty bracelet that says 'Be Free'.
+
+I am grateful for recess when we went to the playground.
+Today we played basketball, and I got the reboudn.
+
+I am grateful for the time to have fun after school.
+Today I got to go to practice swimming at the pool.
+
+I am grateful for hte speghetti my brother and I ate for dinner.
+The pasta was go good because it was thinner."
+
+"Good job on being grateful", says mama. "This list is yours to keep.
+And now that you've developed this list, you can sweetly sleep".
+
+"Good night", says Gabby to mama, as they share a kiss.
+"Tomorrow night I will share another list."
+
+<br>
+
 ---------------------------------------------------------------------------------------------------------------------
 
 ## I Love You ##
@@ -457,72 +523,6 @@ In Washington, DC, I attended the event at the Chapel with Martin Luther King, J
 <br>
 
 ---------------------------------------------------------------------------------------------------------------------
-
-## A New Day ##
-It's a new day for the sun to shine.
-Wake up, and be free. The day is yours, and the day is mine.
-
-It's a really great day for the sky to be blue.
-Look up high! And see the birds soaring too!
-
-On this new day the birds really sing.
-It's fun to sing with the birds and hear their songs ringaling.
-
-It's a new day for the earth to move.
-It's amazing how all the people really get into a groove.
-
-On this new day I've got two feet on the ground.
-It's love that makes the world go around.
-
-It's a really great day to go out and seize the day.
-Neighbors wave, and people laugh and play.
-
-It's a new day to run and skip outside.
-It's more wonderful to do this with friends by my side.
-
-On this new day I wear a smile on my face.
-I do all that I need to do with a heart filled with grace.
-
-<br>
-
-## Gabby's Gratitude List ##
-Mama encourages Gabby to have an attitude of gratitude.
-"Be thankful", she tells Gabby, "because that will help you have a joyful mood!"
-
-So each new day Gabby goes around and counts her blessings.
-And each night with mama she remembers all of the little things.
-
-One night, Gabby lists things like the warm sun that is bright.
-And she lists things like her favorite dress with a bow, which is blue and white.
-
-"There's so much", Gabby says, "to be grateful for!"
-"I am going to think of more and more and more!"
-
-"I am grateful for the bus ride to school when I sat by Lucy, my new friend.
-THe windows were down on the bus today, and we could feel the coolness of the wind.
-
-I am grateful for my teacher who teaches us how to read.
-Today we read a book by Jory John, which is called 'The Bad Seed'.
-
-I am grateful fo rhte lunch server who always smiles at my classmates and me.
-She's always wearing a pretty bracelet that says 'Be Free'.
-
-I am grateful for recess when we went to the playground.
-Today we played basketball, and I got the reboudn.
-
-I am grateful for the time to have fun after school.
-Today I got to go to practice swimming at the pool.
-
-I am grateful for hte speghetti my brother and I ate for dinner.
-The pasta was go good because it was thinner."
-
-"Good job on being grateful", says mama. "This list is yours to keep.
-And now that you've developed this list, you can sweetly sleep".
-
-"Good night", says Gabby to mama, as they share a kiss.
-"Tomorrow night I will share another list."
-
-<br>
 
 ## Flying Solo - Rough Draft ##
 There's a bird sitting on the fence alone. <br>
