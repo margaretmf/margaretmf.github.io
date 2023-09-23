@@ -14,10 +14,10 @@ layout: default
 * [The 1619 Project: A New American Origin Story](https://www.amazon.com/s?k=1619+project&sprefix=1619%2Caps%2C132&ref=nb_sb_ss_ts-doa-p_1_4) by Nikole Hannah-Jones and The New York Times Magazine
 * [I Won't Shut Up: Finding Your Voice When the World Tries to Silence You](https://www.amazon.com/Wont-Shut-Up-Finding-Silence-ebook/dp/B0BLW7JW4X/ref=sr_1_1_sspa?keywords=i+won%27t+shut+up+ally+henny&qid=1688941613&sprefix=I+Won%27t+Shut+Up%2Caps%2C111&sr=8-1-spons&sp_csd=d2lkZ2V0TmFtZT1zcF9hdGY&psc=1) by Ally Henry
 * [Women Rising: Learning to Listen, Reclaiming Our Voice](https://www.amazon.com/Women-Rising-Learning-Listen-Reclaiming/dp/0830847782/ref=sr_1_1?crid=22BMW0FASABZP&keywords=women+rising+learning+to+listen%2C+reclaiming+our+voice&qid=1690043031&sprefix=learning+to+listen%2C+reclaimin%2Caps%2C230&sr=8-1) by Meghan Tschanz
-
-#### Reading
 * [Above Ground](https://www.amazon.com/s?k=clint+smith+above+ground&sprefix=Clint+Smith%2Caps%2C102&ref=nb_sb_ss_ts-doa-p_1_11) by Clint Smith
 
+#### Reading
+* [The Systems Work of Social Change: How to Harness Connection, Context, and Power to Cultivate Deep and Enduring Change](https://www.amazon.com/Systems-Work-Social-Change-Connection/dp/0198857454/ref=sr_1_4?crid=3291ADG4SONJ3&keywords=systems+change&qid=1695492611&sprefix=systems+change%2Caps%2C86&sr=8-4) by  Cynthia Rayner & François Bonnici 
 
 ## 2022
 
