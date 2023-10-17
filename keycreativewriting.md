@@ -75,8 +75,11 @@ I do all that I need to do with a heart filled with grace.
 <br>
 
 ## Gabby's Gratitude List ##
-Mama encourages Gabby to have an attitude of gratitude.
-"Be thankful", she tells Gabby, "because that will help you have a joyful mood!"
+One night, Gabby complianed to mama, "I had a terrible day today".
+She then said, "nothing at all went my way!"
+
+Mama responded and encouraged Gabby to have an attitude of gratitude.
+"Be thankful", she told Gabby, "because that will help you have a joyful mood!"
 
 So each new day Gabby goes around and counts her blessings.
 And each night with mama she remembers all of the little things.
@@ -102,7 +105,7 @@ Today we played basketball, and I got the reboudn.
 I am grateful for the time to have fun after school.
 Today I got to go to practice swimming at the pool.
 
-I am grateful for hte speghetti my brother and I ate for dinner.
+I am grateful for the speghetti my brother and I ate for dinner.
 The pasta was go good because it was thinner."
 
 "Good job on being grateful", says mama. "This list is yours to keep.
