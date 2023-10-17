@@ -96,7 +96,7 @@ THe windows were down on the bus today, and we could feel the coolness of the wi
 I am grateful for my teacher who teaches us how to read.
 Today we read a book by Jory John, which is called 'The Bad Seed'.
 
-I am grateful fo rhte lunch server who always smiles at my classmates and me.
+I am grateful for the lunch server who always smiles at my classmates and me.
 She's always wearing a pretty bracelet that says 'Be Free'.
 
 I am grateful for recess when we went to the playground.
