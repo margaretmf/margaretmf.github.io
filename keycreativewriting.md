@@ -76,13 +76,13 @@ I do all that I need to do with a heart filled with grace.
 
 ## Gabby's Gratitude List ##
 One night, Gabby complianed to mama, "I had a terrible day today".
-She then said, "nothing at all went my way!"
+Gabby then said, "nothing at all went my way!"
 
-Mama responded and encouraged Gabby to have an attitude of gratitude.
+Mama responded with understanding but encouraged Gabby to have an attitude of gratitude.
 "Be thankful", she told Gabby, "because that will help you have a joyful mood!"
 
-So each new day Gabby goes around and counts her blessings.
-And each night with mama she remembers all of the little things.
+So each new day Gabby started going around and counting her blessings.
+And each night with mama she started remembering all of the little things.
 
 One night, Gabby lists things like the warm sun that is bright.
 And she lists things like her favorite dress with a bow, which is blue and white.
@@ -91,7 +91,7 @@ And she lists things like her favorite dress with a bow, which is blue and white
 "I am going to think of more and more and more!"
 
 "I am grateful for the bus ride to school when I sat by Lucy, my new friend.
-THe windows were down on the bus today, and we could feel the coolness of the wind.
+The windows were down on the bus today, and we could feel the coolness of the wind.
 
 I am grateful for my teacher who teaches us how to read.
 Today we read a book by Jory John, which is called 'The Bad Seed'.
