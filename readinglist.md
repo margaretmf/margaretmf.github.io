@@ -16,8 +16,6 @@ layout: default
 * [Women Rising: Learning to Listen, Reclaiming Our Voice](https://www.amazon.com/Women-Rising-Learning-Listen-Reclaiming/dp/0830847782/ref=sr_1_1?crid=22BMW0FASABZP&keywords=women+rising+learning+to+listen%2C+reclaiming+our+voice&qid=1690043031&sprefix=learning+to+listen%2C+reclaimin%2Caps%2C230&sr=8-1) by Meghan Tschanz
 * [Above Ground](https://www.amazon.com/s?k=clint+smith+above+ground&sprefix=Clint+Smith%2Caps%2C102&ref=nb_sb_ss_ts-doa-p_1_11) by Clint Smith
 * [The Systems Work of Social Change: How to Harness Connection, Context, and Power to Cultivate Deep and Enduring Change](https://www.amazon.com/Systems-Work-Social-Change-Connection/dp/0198857454/ref=sr_1_4?crid=3291ADG4SONJ3&keywords=systems+change&qid=1695492611&sprefix=systems+change%2Caps%2C86&sr=8-4) by  Cynthia Rayner & François Bonnici
-
-#### Reading
 * [I Am a Bacha Posh: My Life as a Woman Living as a Man in Afghanistan](https://www.amazon.com/Am-Bacha-Posh-Living-Afghanistan/dp/1629146811/ref=sr_1_1?crid=3N5LTD2SRL9AJ&keywords=i+am+a+bacha+posh&qid=1697605930&sprefix=I+am+a+bacha+posh%2Caps%2C68&sr=8-1) by Ukmina Manoori with Stephanie Lebrun
 
 ## 2022
