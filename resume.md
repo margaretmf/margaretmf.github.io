@@ -34,14 +34,14 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 ## RELEVANT WORK EXPERIENCE
 
 ### THE LITERACY LAB
-Literacy Tutor | August 2022-June 2023
-* Completed an AmeriCorps service year as a literacy tutor in a school.
-* Assisted classroom teachers to help maintain order in the class.
-* Administered assessments to benchmark students.
-* Conducted one-on-one tutoring sessions with 12 K-2 students per day using evidence-based literacy interventions to support successful reading.
-* Helped children improve their reading skills 	and abilities to support them reaching grade level expectations.
-* Entered data for all current and exited students into a system to contribute to a data-driven approach.
-* Received training on topics related to diversity, equity, and inclusion to contribute a more inclusive school system.
+Literacy Tutor | August 2022-June 2024
+* Completing two AmeriCorps service years as a literacy tutor in a school.
+* Assist classroom teachers to help maintain order in the class.
+* Administer assessments to benchmark students.
+* Conduct one-on-one tutoring sessions with 12 K-2 students per day using evidence-based literacy interventions to support successful reading.
+* Help children improve their reading skills 	and abilities to support them reaching grade level expectations.
+* Enter data for all current and exited students into a system to contribute to a data-driven approach.
+* Receive training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system.
 
 ### HARNESS MAGAZINE
 Contributing Writer | August 2022
