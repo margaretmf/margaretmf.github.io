@@ -75,7 +75,7 @@ I do all that I need to do with a heart filled with grace.
 <br>
 
 ## Gabby's Gratitude List ##
-One night, Gabby complianed to mama, "I had a terrible day today".
+One night, Gabby complained to mama, "I had a terrible day today".
 Gabby then said, "nothing at all went my way!"
 
 Mama responded, "that's ok" but encouraged Gabby to have an attitude of gratitude.
@@ -84,10 +84,10 @@ Mama responded, "that's ok" but encouraged Gabby to have an attitude of gratitud
 So each new day Gabby started going around and counting her blessings.
 And each night with mama she started remembering all of the little things.
 
-One night, Gabby lists things like the warm sun that is bright.
-And she lists things like her favorite dress with a bow, which is blue and white.
+One night, Gabby listed things like the warm sun that was bright.
+And she listed things like her favorite dress with a bow, which was blue and white.
 
-"There's so much", Gabby says, "to be grateful for!"
+"There's so much", Gabby said, "to be grateful for!"
 "I am going to think of more and more and more!"
 
 "I am grateful for the bus ride to school when I sat by Lucy, my new friend.
@@ -108,10 +108,10 @@ Today I got to go to practice swimming at the pool.
 I am grateful for the spaghetti my brother and I ate for dinner.
 The pasta was so good because it was thinner."
 
-"Good job on being grateful", says mama. "This list is yours to keep.
+"Good job on being grateful", said mama. "This list is yours to keep.
 And now that you've developed this list, you can sweetly sleep".
 
-"Good night", says Gabby to mama, as they share a kiss.
+"Good night", said Gabby to mama, as they shared a kiss.
 "Tomorrow night I will share another list."
 
 <br>
