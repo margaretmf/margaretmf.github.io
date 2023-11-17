@@ -578,8 +578,9 @@ It's like the water droplets after a heavy rain. <br>
 
 ## Truth ##
 The truth can be ugly. <br>
-The truth is hard to hide. <br>
+The truth can be tough to bear. <br>
 The truth cannot be lied about. <br>
+The truth is hard to hide. <br>
 The truth can be uncovered. <br>
 The truth is real. <br>
 The truth is just. <br>
@@ -594,7 +595,6 @@ The truth is at the center. <br>
 The truth is within everyone's hearts. <br>
 The truth raises her voice. <br>
 The truth shares her wisdom. <br>
-The truth can be tough to bear. <br>
 
 <br>
 
