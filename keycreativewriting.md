@@ -29,7 +29,7 @@ Sitting in a dark room, she sits alone
 <br>
 
 ## Children's Play ##
-Playing music without words on the keys,
+Playing music on the keys,
 she discovers a joy and a light in the sound that reminds her of little children on a playground.
 
 The sound alone tells a colorful story of the youthfulness that bounces with joy.
