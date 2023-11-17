@@ -451,11 +451,6 @@ I am a set of eyes in a sea of eyes looking to see the good.
 
 <br>
 
-## America Reborn ##
-I once had a vision, or a dream of American reborn. I love that women are behind the rebirth of the American dream and that black men can lead the country well. A sense of America reborn actually came alive in 2021, but this great American dream was alive all the time with all the people that have gone before expressing freedom, marching towards the light, overcoming, and freeing other people from bondage.
-
-<br>
-
 ## The American Chain, Written in 2010 ##
 As a child, I grew up singing "I Am Proud To Be an American" like many of my peers. I never knew what it mean to be an American though. In the past campaign and election of President Barack Obama, I gained a stronger sense of the meaning of America. The American society consists of unique individuals expressing freedom through their voices, their words, their clothes, and their activities, despite one's gender or race. As Crevecoeur explains Americans, "we have no princes for whom we toil, starve, and bleed...Here man is free as he ought to be, nor is this pleasing equality so transitory as many others are". The American country gives a sense of opportunity to every unique individual. The American people volunteer their time to help other American people. If these characteristics of America are not fully true, they are a common goal for what our country will become; we continue to work towards these goals constantly. Lazarus illustrates that America welcomes even "the tired, the poor, and the huddled masses yearning to breathe free" (pp. 11-12, 329).
 
