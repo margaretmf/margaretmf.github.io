@@ -164,6 +164,9 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/lightinthedarkness6.jpg">
+
+
 
 
 <b>
