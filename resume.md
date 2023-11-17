@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-I am a versatile education and nonprofit professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. 
+I am a versatile education, nonprofit, and social entrepreneurship professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. I also recognize that there have been injustices in our history, and I work daily to contribute to a more equitable world.
 
 [Resume](InstituteofInternationalEducation_Resume_MargaretFurr.pdf)
 
@@ -35,13 +35,13 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 ### THE LITERACY LAB
 Literacy Tutor | August 2022-June 2024
-* Completing two AmeriCorps service years as a literacy tutor in a school.
-* Assist classroom teachers to help maintain order in the class.
-* Administer assessments to benchmark students.
-* Conduct one-on-one tutoring sessions with 12 K-2 students per day using evidence-based literacy interventions to support successful reading.
-* Help children improve their reading skills 	and abilities to support them reaching grade level expectations.
-* Enter data for all current and exited students into a system to contribute to a data-driven approach.
-* Receive training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system.
+* Completing two AmeriCorps service years as a literacy tutor in a school
+* Assisting classroom teachers to help maintain order in the class
+* Administering assessments to benchmark students
+* Conducting one-on-one tutoring sessions with 12 K-2 students per day using evidence-based literacy interventions to support successful reading
+* Helping children improve their reading skills 	and abilities to support them reaching grade level expectations
+* Entering data for all current and exited students into a system to contribute to a data-driven approach
+* Receiving training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system
 
 ### HARNESS MAGAZINE
 Contributing Writer | August 2022
