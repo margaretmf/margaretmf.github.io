@@ -38,6 +38,14 @@
 
 
 
+<img class="profile-picture" src="paintings/painting9.jpg">
+
+
+
+<img class="profile-picture" src="paintings/painting10.jpg">
+
+
+
 
 <br>
 
