@@ -18,6 +18,7 @@ layout: default
 * [The Systems Work of Social Change: How to Harness Connection, Context, and Power to Cultivate Deep and Enduring Change](https://www.amazon.com/Systems-Work-Social-Change-Connection/dp/0198857454/ref=sr_1_4?crid=3291ADG4SONJ3&keywords=systems+change&qid=1695492611&sprefix=systems+change%2Caps%2C86&sr=8-4) by  Cynthia Rayner & François Bonnici
 * [I Am a Bacha Posh: My Life as a Woman Living as a Man in Afghanistan](https://www.amazon.com/Am-Bacha-Posh-Living-Afghanistan/dp/1629146811/ref=sr_1_1?crid=3N5LTD2SRL9AJ&keywords=i+am+a+bacha+posh&qid=1697605930&sprefix=I+am+a+bacha+posh%2Caps%2C68&sr=8-1) by Ukmina Manoori with Stephanie Lebrun
 * [A History of the Index: A Bookish Adventure from Medieval Manuscripts to the Digital Age](https://www.amazon.com/Index-History-Adventure-Medieval-Manuscripts/dp/1324050519/ref=asc_df_1324050519/?tag=hyprod-20&linkCode=df0&hvadid=598283043565&hvpos=&hvnetw=g&hvrand=16374941290423159407&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9060358&hvtargid=pla-1680240604972&psc=1&mcid=83abd662533431cf982075d4cbb53ba1&gclid=Cj0KCQiAmNeqBhD4ARIsADsYfTfdbzb659Ns6cPm0MeimVrJ_K3NLvis27iZivdgnzRd056zFaNnsf0aAn-REALw_wcB) by Dennis Duncan
+* [How Creativity Rules the World: The Art and Business of Turning Your Ideas into Gold](https://www.amazon.com/How-Creativity-Rules-World-Business/dp/1400235383/ref=sr_1_1?crid=3PRCJSGULNRCP&keywords=how+creativity+rules+the+world&qid=1702415116&sprefix=how+creativi%2Caps%2C95&sr=8-1) by Maria Brito
 
 ## 2022
 
