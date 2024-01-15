@@ -2,6 +2,12 @@
 layout: default
 ---
 
+## 2024
+
+### Books 
+#### Completed
+* [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918/ref=sr_1_1?crid=26I4AVPE16E0S&keywords=a+testament+of+hope&qid=1705362358&sprefix=a+testament+of+hope%2Caps%2C84&sr=8-1) by Martin Luther King Jr.
+
 ## 2023
 
 ### Books
