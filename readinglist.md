@@ -7,6 +7,7 @@ layout: default
 ### Books 
 #### Completed
 * [A Testament of Hope: The Essential Writings and Speeches](https://www.amazon.com/Testament-Hope-Essential-Writings-Speeches/dp/0060646918/ref=sr_1_1?crid=26I4AVPE16E0S&keywords=a+testament+of+hope&qid=1705362358&sprefix=a+testament+of+hope%2Caps%2C84&sr=8-1) by Martin Luther King Jr.
+* [No One Is a Stranger: Finding Love, Connection, and a Brilliant Life](https://www.amazon.com/No-One-Stranger-Connection-Brilliant/dp/1544542313/ref=sr_1_1?crid=7313LTKH1U75&dib=eyJ2IjoiMSJ9.lVurbxZhgmFKK-L67Wbn1bAJL8_B-m7IfLdqj0h5nqbBZliZMaOGGV0kly34mwDwVWRR5fBK162eAzvBh6waWMzlqbmxffkDJSvCgnDzSFBPVO2LMAaCnaoIze91q2ealaHEfPdK9WrBE181ssAEsXn0KKy5gN5LbtXtN0nND1RvPlBxmxtFMvKcgJVdopC881y4DKUlbA7P51Dg31BdURfoR6Q1bjbV6sHC3KYo3c4.XgOEHc-YvLjjHc-UjcbsSJ-lyPJciaBMCkjXwkc-Si4&dib_tag=se&keywords=no+one+is+a+stranger&qid=1710621961&sprefix=no+one+is+a+stranger%2Caps%2C87&sr=8-1) by Monty Moran
 
 ## 2023
 
