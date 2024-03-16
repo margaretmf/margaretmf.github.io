@@ -4,6 +4,13 @@ layout: default
 
 <br>
 
+## Affordable Housing Units in Hampton Roads
+
+I worked as a volunteer to support ForKids in Hampton Roads, VA. As a volunteer, I gathered geospatial data on affordable housing in the area, and I created a map with the data.
+
+<img class="picture" src="AffordableHousingUnitsinHamptonRoads.jpg">
+<br> 
+
 ## UVA Health Care System - Predicting Severe Sepsis
 
 I worked on a team of 4 using data coming from UVA's Health Care System. Severe sepsis is the leading cause of deaths in adult ICUs. Severe sepsis is defined as a syndrome of organ dysfunction in the setting of infection (blood culture acquisition) and high lactate (>4 mmol/L). Early intervention can lead to better patient outcomes, so we worked to predict which patients would experience severe sepsis using 4 modeling approaches: 
