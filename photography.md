@@ -19,11 +19,6 @@ layout: default
 
 
 
-<br>
-<br>
-
-
-
 <img class="profile-picture" src="photography/coloredwall1.jpg">
 
 
@@ -166,6 +161,9 @@ layout: default
 
 <img class="profile-picture" src="photography/lightinthedarkness6.jpg">
 
+
+
+<img class="profile-picture" src="photography/lightinthedarkness7.jpg">
 
 
 
