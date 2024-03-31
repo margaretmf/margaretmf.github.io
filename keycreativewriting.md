@@ -384,28 +384,28 @@ He's hard-working, and secure. <br>
 <br>
 
 ## Boots ##
-These boots of mine. They've really been everywhere. <br>
+These boots of mine that I love. They've really been everywhere. <br>
 They've walked down many roads. <br>
 They've dug their heels into the dirt. <br>
 Can't you see? They've really been worn. <br>
 
-These worn-down boots. They've traveled the world. <br>
+These worn-down boots that I love. They've traveled the world. <br>
 They've stepped on rocks. <br>
 They've run through grass. <br>
 Can't you see? They have some holes in the soles. <br>
 
-These beloved boots. They've been my best friend. <br>
+These beloved boots are mine. They've been my best friend. <br>
 They've gone down lonely pathways. <br>
 They've skipped across sidewalks. <br>
 Can't you see? They've become sturdy and strong. <br>
 
-These wonderful boots. I keep them tied real tight. <br>
+These wonderful boots that I love. I keep them tied real tight. <br>
 They've kept me feeling snug. <br>
 They're as comfortable as can be. <br>
 Can't you see? They're my favorite. <br>
 
-These boots of mine. They've really gone the extra mile. <br>
-They've done more than I could've asked. <br>
+These boots of mine that I love. They've really gone the extra mile. <br>
+They've done more than I could've asked for. <br>
 They've survived the hard work. <br>
 Can't you see? There's some pep in every step with them. <br>
 
