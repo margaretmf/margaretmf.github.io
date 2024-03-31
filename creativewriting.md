@@ -8890,6 +8890,41 @@ America is a story of many and oneness.
 
 <br>
 
+## Love's Debut ##
+She's gentle, <br>
+She's humble, <br>
+She's light-hearted, and smiling. <br>
+
+She's musical, <br>
+She's forgiving, <br>
+She's dancing, and modest. <br>
+
+She's inclusive, <br>
+She's articulate, <br>
+She's thoughtful, and wise. <br>
+
+She's all-embracing, <br>
+She's resilient, <br>
+She's grateful, and at home. <br>
+
+He's thankful, <br>
+He's gracious, <br>
+He's joyful, and kind. <br>
+
+He's trustworthy, <br>
+He's satisfied, <br>
+He's helpful, and strong. <br>
+
+He's embracive, <br>
+He's courageous, <br>
+He's free, and aware. <br>
+
+He's adventurous, <br>
+He's ordered, <br>
+He's hard-working, and secure. <br>
+
+<br>
+
 ## Beliefs in America ##
 Americans believe in silver linings.
 
