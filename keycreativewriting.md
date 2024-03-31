@@ -70,7 +70,7 @@ It's a new day to run and skip outside.
 It's more wonderful to do this with friends by my side.
 
 On this new day I wear a smile on my face.
-I do all that I need to do with a heart filled with grace.f
+I do all that I need to do with a heart filled with grace.
 
 <br>
 
