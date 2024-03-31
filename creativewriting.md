@@ -1548,6 +1548,18 @@ Your kisses are your to keep
 
 <br>
 
+
+## Christitan Science ## 
+She's a searcher for humanity in the darkest areas of the world. <br>
+She's a lover of Jesus and Mary Baker Eddy. <br>
+She knows that Love has the throne, and she uses Truth's double-edged sword to end human strife. <br>
+
+He's a lover of mankind, and inclusive of all. <br>
+With a passion for Church, He's a seeker of Truth in all aspects of Life. <br>
+He knows that Divine Mind is in control and that reflecting Principle is the Way. <br>
+
+<br>
+
 ## Two Sides of the Same World ##
 I'll love you until you die
 The two of us come from two sides of the same world
@@ -1577,11 +1589,6 @@ How can I learn something new?
 What ideas am I or others thinking about?
 How am I letting go of something false?
 How can I understand a passage in the rear light?
-
-<br>
-
-## Interracial Couples ##
-The love between interracial couples is like the white keys and the black keys on the piano coming together in harmony.
 
 <br>
 
