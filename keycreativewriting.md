@@ -70,7 +70,7 @@ It's a new day to run and skip outside.
 It's more wonderful to do this with friends by my side.
 
 On this new day I wear a smile on my face.
-I do all that I need to do with a heart filled with grace.
+I do all that I need to do with a heart filled with grace.f
 
 <br>
 
@@ -380,17 +380,6 @@ He's free, and aware. <br>
 He's adventurous, <br>
 He's ordered, <br>
 He's hard-working, and secure. <br>
-
-<br>
-
-## Christitan Science ## 
-She's a searcher for humanity in the darkest areas of the world. <br>
-She's a lover of Jesus and Mary Baker Eddy. <br>
-She knows that Love has the throne, and she uses Truth's double-edged sword to end human strife. <br>
-
-He's a lover of mankind, and inclusive of all. <br>
-With a passion for Church, He's a seeker of Truth in all aspects of Life. <br>
-He knows that Divine Mind is in control and that reflecting Principle is the Way. <br>
 
 <br>
 
