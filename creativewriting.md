@@ -9813,6 +9813,51 @@ From hola to bonjour to annyeonghaseyo
 
 ---------------------------------------------------------------------------------------------------------------------
 
+## It is Ok ##
+It's ok to cry. <br>
+It's ok to let the heart tear inside. <br>
+It's ok to let the tears flow. <br>
+It's ok to let it break inside. <br>
+It's ok to let the heart ache. <br>
+It's ok to feel. <br>
+It's ok. Let it out. <br>
+It's ok to express emotions and thoughts. <br>
+Sometimes the anger and other emotions mask the need to cry and to feel. <br>
+It is ok. <br>
+
+It's ok to cry. <br>
+It's ok to feel. <br> 
+It should feel good to sing. <br>
+
+It's ok to cry. <br>
+It's ok to let the tears flow. <br>
+It's ok to cry. <br>
+It's like the water droplets after a heavy rain. <br>
+
+<br>
+
+## Truth ##
+The truth can be ugly. <br>
+The truth can be tough to bear. <br>
+The truth cannot be lied about. <br>
+The truth is hard to hide. <br>
+The truth can be uncovered. <br>
+The truth is real. <br>
+The truth is just. <br>
+The truth is beautiful. <br>
+The truth is within. <br>
+The truth is there. <br>
+The truth is free. <br>
+The truth is light. <br>
+The truth lifts her wings in a world full of colors. <br>
+The truth lives on. <br>
+The truth is at the center. <br>
+The truth is within everyone's hearts. <br>
+The truth raises her voice. <br>
+The truth shares her wisdom. <br>
+
+<br>
+
 
 <br>
 
