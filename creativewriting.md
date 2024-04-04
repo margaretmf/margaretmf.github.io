@@ -9581,6 +9581,239 @@ There was once a beautiful, *roan* horse. He was not only the prettiest horse; b
 
 <br>
 
+---------------------------------------------------------------------------------------------------------------------
+
+## I Love You ##
+She looked me straight in the eye, and she said "I love you".
+
+<br>
+
+## Open Windows ##
+Open windows, open to both the air with the fresh paint on the wall drying and the sun shining through.
+
+<br>
+
+## Old Farm Road ##
+An old farm road sits still with a fence that goes up for miles, mailboxes, and rusted wire.
+
+<br>
+
+## Rivers ##
+Rivers with forward coarses move through the United States.
+
+<br>
+
+## Leaves ##
+Everything you thought you knew falls off like the dead leaves on trees.
+
+<br>
+
+## Trees ##
+The branches lift up, they reach for the sky, and they hold all the stories of the city.
+
+<br>
+
+## A Seed Underground ##
+There's a seed underground.
+
+<br>
+
+## Memories ##
+Everything that once existed still exists in thought.
+
+<br>
+
+## Some Things Last Forever ##
+Some things last forever like moments that we share.
+
+<br>
+
+## Love ##
+There's a sweet, sweet thing called love in my heart; and there's a sweet, sweet thing called love that I feel for you.
+
+<br>
+
+## You're Brilliant ##
+Oh, how you're more than brilliant, like a star in the night sky.
+
+<br>
+
+## I See You Winking ##
+I see you winking at me with a twinkle in your eye.
+
+<br>
+
+## Fields ##
+Running through fields like a child again, I blow on flowers and make wishes for the earth.
+
+<br>
+
+## The Wind ##
+The wind knows my name.
+
+<br>
+
+## The Wind Before the Rain ##
+The wind is blowing like it's about to rain.
+
+<br>
+
+## Time Distance ##
+It's amazing that someone is six hours behind me somewhere doing the same activities.
+
+<br>
+
+## She's the Rock n' Roll Girl ##
+She's the kind of girl that knows how to rock and knows how to roll; she's a sweet lover of the world.
+
+<br>
+
+## Old Dream Dying, New Dream Awakening ##
+The old dream dying is a new dream awakening.
+
+<br>
+
+## The World's Smile ##
+Open your eyes because there's a whole world smiling outside.
+
+<br>
+
+## This Old Town ##
+There's nothing like the sounds of this old town.
+
+<br>
+
+## The Fire ##
+Through the fire I saw it all burn, become nothing, become pure, become refined, become golden, and become glowing with grace.
+
+<br>
+
+## An Enemy is a Friend ## 
+You thought you had an enemy, but you really found a friend in disguse.
+
+<br>
+
+## The Devil on My Shoulders ##
+The devil on my back is yanking and pulling, and pushing and shoving.
+
+<br>
+
+## Same Thing, Two Different Ways ##
+We're saying the same thing in two different ways.
+
+<br>
+
+## Spiritual Imagery ##
+My favorite images are the rose in the desert surrounded by drops of water, a flower with water droplets on it, a flower with snow on it, and green weeds.
+
+<br>
+
+---------------------------------------------------------------------------------------------------------------------
+
+## From Shore to Shore ##
+From shore to shore there's a whole world to explore.
+
+<br>
+
+## Helping Hands ##
+All over the land people lend their helping hands.
+
+<br>
+
+## Kind Deeds ##
+Each kind deed is like a little seed.
+
+<br>
+
+## The Stars Align and Shine ##
+Up high in the sky the stars align, and oh, how bright they shine!
+
+<br>
+
+## Love Makes the World Move Around ##
+With two feet on the ground, Lila watches love move the world around.
+
+<br>
+
+From high up above, Ayley can see the world move around with love.
+
+<br>
+
+## Places to Be Found ##
+There are cities, and there are towns. There are so many places to be found!
+
+<br>
+
+## Imagine A Day ##
+Imagine a day when all the people on the earth smile as one. Wouldn't our world have really won?
+
+<br>
+
+## Unique View, Unique You ##
+You have a unique view. So please be true to you!
+
+<br>
+
+## Don't Give Up on Love ##
+Don't give up on love; it's what we're all born of.
+
+<br>
+
+## Rock and Roll ##
+You know how to rock, and you know how to roll.
+So be who you are, and stay true to your soul.
+
+<br>
+
+## A Whole Lot ##
+You got a whole lot to give,
+and you got a whole lot of life to live. 
+
+<br>
+
+## This Home on the Hill ##
+I'd like to live with you in this home on the hill
+and watch with you this bird on the windowsill.
+
+<br>
+
+## Gone with the Blues ##
+I'm saying goodbye to the blues.
+I've got on my sweet dancing shoes.
+
+<br>
+
+## Dance Alone ##
+I'm not afraid to dance alone.
+My life is mine to own.
+
+<br>
+
+## You're the One ##
+You're the one who makes me smile, and you're the one with whom I want to spend a little while.
+
+<br>
+
+## You Matter ##
+You in the world matter, so don't let your dreams shatter.
+
+<br>
+
+## Life Works Out ##
+Life has a way of always working out.
+So I'm smiling today; there's no reason to pout.
+
+<br>
+
+## Ways to Say Hello ##
+All around the world there's a way to say hello
+From hola to bonjour to annyeonghaseyo
+
+<br>
+
+---------------------------------------------------------------------------------------------------------------------
+
+
 <br>
 
 
