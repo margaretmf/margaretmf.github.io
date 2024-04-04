@@ -158,8 +158,6 @@ Really live. <br>
 
 <br>
 
----------------------------------------------------------------------------------------------------------------------
-
 ## I Am One in A Sea ##
 I am a voice in a sea of voices yearning to say something kind.
 
