@@ -7,6 +7,10 @@ layout: default
 <br>
 
 
+<img class="profile-picture" src="photography/american-flag-in-a-tree.jpg">
+
+
+
 <img class="profile-picture" src="photography/america-truck.jpg">
 
 
