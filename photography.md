@@ -139,7 +139,6 @@ layout: default
 
 
 
-
 <img class="profile-picture" src="photography/leaves.jpg">
 
 
