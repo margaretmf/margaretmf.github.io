@@ -19,15 +19,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/american-flag.jpg">
-
-
-
 <img class="profile-picture" src="photography/coloredwall1.jpg">
 
 
 
 <img class="profile-picture" src="photography/coloredwall2.jpg">
+
+
+
+<img class="profile-picture" src="photography/american-flag.jpg">
 
 
 
