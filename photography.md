@@ -115,6 +115,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/whiteflowers.jpg">
+
+
+
 <img class="profile-picture" src="photography/fountain1.jpg">
 
 
