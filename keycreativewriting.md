@@ -165,7 +165,7 @@ I am a conscience in a sea of consciences desiring to do the right thing.
 
 I am a body in a sea of bodies learning to be free.
 
-I am a heart in a sea of hearts crying out to love more.
+I am a heart in a sea of hearts seeking to love more.
 
 I am a set of eyes in a sea of eyes looking to see the good.
 
