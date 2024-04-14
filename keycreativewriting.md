@@ -187,7 +187,6 @@ The lone bird launches and lands onto a brown tree branch.  <br>
 The lone bird flutters with the wind amongst the green leaves. <br>
 The lone bird rises high in the sky. <br>
 The lone bird perches on the electric wire. <br>
-The lone bird mounts on the street sign. <br>
 The lone bird glides with the wind. <br>
 The lone bird pecks at the lead.  <br>
 The lone bird flaps his wings just above the ground. <br>
