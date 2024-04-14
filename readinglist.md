@@ -10,6 +10,7 @@ layout: default
 * [No One Is a Stranger: Finding Love, Connection, and a Brilliant Life](https://www.amazon.com/No-One-Stranger-Connection-Brilliant/dp/1544542313/ref=sr_1_1?crid=7313LTKH1U75&dib=eyJ2IjoiMSJ9.lVurbxZhgmFKK-L67Wbn1bAJL8_B-m7IfLdqj0h5nqbBZliZMaOGGV0kly34mwDwVWRR5fBK162eAzvBh6waWMzlqbmxffkDJSvCgnDzSFBPVO2LMAaCnaoIze91q2ealaHEfPdK9WrBE181ssAEsXn0KKy5gN5LbtXtN0nND1RvPlBxmxtFMvKcgJVdopC881y4DKUlbA7P51Dg31BdURfoR6Q1bjbV6sHC3KYo3c4.XgOEHc-YvLjjHc-UjcbsSJ-lyPJciaBMCkjXwkc-Si4&dib_tag=se&keywords=no+one+is+a+stranger&qid=1710621961&sprefix=no+one+is+a+stranger%2Caps%2C87&sr=8-1) by Monty Moran
 * [Start with Hello: (And Other Simple Ways to Live as Neighbors)](https://www.amazon.com/s?k=start+with+hello+shannan+martin&crid=3SQ11W5OE20OC&sprefix=shannan+martin%2Caps%2C72&ref=nb_sb_ss_ts-doa-p_3_14) by Shannan Martin
 * [The Color Purple](https://www.amazon.com/Color-Purple-Novel-Alice-Walker/dp/0143135694/ref=sr_1_2?crid=2P27L8RRPLGUP&dib=eyJ2IjoiMSJ9.kaB5DmInt84GE060YMOHn4sFICgI-puz0r81INKEC2wee5TTJYVXGMbAkNdqKcI4eA1cKzbkYBGCgvankIGVmFIfBg7MUU5k3--vZREsV1AbJs9WGAir4G1YT93A1zvd1zd5R1kuo80rhd5s9DksPgirJKpE00AmbwyJH-_mdzgs0TV1IthCWlpZ7mV53DL1U-lOwTylL-rDZeXbPuf_RAY7mmDDyD_zggUZg0fiRRo.uiFjB5EMs8z7Rf_loEmHesQfzXjbe54mqwpHM8gU15M&dib_tag=se&keywords=the+color+purple&qid=1711834045&sprefix=the+color+purple%2Caps%2C75&sr=8-2) by Alice Walker
+* [The Night Trilogy: Night, Dawn, Day](https://www.amazon.com/s?k=night+trilogy+wiesel&crid=XZQET97FGOFH&sprefix=night+trilogy%2Caps%2C84&ref=nb_sb_ss_ts-doa-p_1_13) by Elie Wiesel 
 
 ## 2023
 
