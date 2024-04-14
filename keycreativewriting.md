@@ -191,15 +191,13 @@ The lone bird glides with the wind. <br>
 The lone bird pecks at the lead.  <br>
 The lone bird flaps his wings just above the ground. <br>
 The lone bird stands on a fence. <br>
-The lone bird explores her freedom. <br>
 The lone bird finds her support on the power line. <br>
 The lone bird scurries through the grass. <br>
 The lone bird expands her wings. <br>
-The lone bird swoops down to hover the river. <br>
+The lone bird swoops down to hover over the river. <br>
 The lone bird feathers her wings above the water. <br>
-The lone bird stands on the grass near the farm holding her poise. <br>
+The lone bird stands on the grass. <br>
 The lone bird skates on the ice. <br>
-The lone bird knows her place on the wire. <br>
 
 <br>
 
