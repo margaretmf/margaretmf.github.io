@@ -13,6 +13,9 @@ layout: default
 * [The Night Trilogy: Night, Dawn, Day](https://www.amazon.com/s?k=night+trilogy+wiesel&crid=XZQET97FGOFH&sprefix=night+trilogy%2Caps%2C84&ref=nb_sb_ss_ts-doa-p_1_13) by Elie Wiesel
 * [Freedom Is a Constant Struggle: Ferguson, Palestine, and the Foundations of a Movement](https://www.amazon.com/Freedom-Constant-Struggle-Palestine-Foundations/dp/1608465640/ref=sr_1_4?crid=L80U22JWC0FM&dib=eyJ2IjoiMSJ9.RnYBxshLVA3mLsYlr8Y4XWgv1sH8MIbeynudGJ6k7HlcgIa-pde954MvKU492rgk8p7iIXWBsBq-6yIoa8CW037jxxkh37RDGzl5hPP-NQE4D6ngQac1DkRiUoFFo1rIz9Q_IvkUAHmhKWdo0OMMpeYpTo6GByd9K9FWgAHo0KdHxUJw7I4sLRiWIH6qxR-cpgNCDWtdaMqz6ZKLBzSM87DNM4-6R4Fu6ZYjiVjT-TwGaZa9AOIvZWcjMmaBnuk2WQDu1DuOUGca_OAnxI8lJqZPVfsFQjEFBNNWxhyeEEY.Ech1navZ8YLU8XN_qnQhC2Bw7DNOUIsxQzqtYwjvJ4U&dib_tag=se&keywords=angela+davis&qid=1714088892&sprefix=angela+davis%2Caps%2C77&sr=8-4) by Angela Davis
 
+#### Reading
+* [If Beale Street Could Talk](https://www.amazon.com/If-Beale-Street-Could-Talk/dp/0307275930/ref=sr_1_1?crid=25QF4T4MUW0FV&dib=eyJ2IjoiMSJ9.4XyhinB1pO75Ok39g_pwvw4MN8ckdB6q_-zO9GCsOtye48khMbgU3yus-pOV0dznc0I1dIsxr9SUqM4DBrGVwvWwZ18seNe3gUqcuiYgtos7EJkPAaGPkaWJ2mHwaKC9yJuwOMKwFQkmFMhWKe9rkyMdOJnMz7QV_y4z5FEYgWj9_16iCHBS7psQJMH7eBwLX6XAoe0uWxu1Evt_h7lOeF_icgtgci0XX0K0JIq7p-8.NwcjnzW58Fvk5oSxeXk7TuZ4UTxCtAWL7ZBwPAYtxQA&dib_tag=se&keywords=if+beale+street+could+talk+by+james+baldwin&qid=1714089006&sprefix=if+beal%2Caps%2C187&sr=8-1) by James Baldwin
+
 ## 2023
 
 ### Books
