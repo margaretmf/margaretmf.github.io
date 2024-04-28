@@ -108,7 +108,7 @@ Today I got to go to practice swimming at the pool.
 I am grateful for the spaghetti my brother and I ate for dinner.
 The pasta was so good because it was thinner."
 
-Then Gabby said, "Thinking of all these things sure is a mood enhancer
+Then Gabby said, "Thinking of all these things sure is a mood enhancer.
 Now I know that feeling grateful for everything is indeed the answer!"
 
 "Good job on being grateful", said mama. "This list is yours to keep.
