@@ -983,6 +983,7 @@ She's so perfect, I'm not
 
 <br>
 
+
 ## Favorite Time of Day ##
 Favorite time of day.
 Midday and afternoon.
@@ -999,7 +1000,7 @@ You're a work of art.
 There's a song in your heart for you to sing.
 
 You're a masterpiece.
-There's an image in your mind for you to pain.
+There's an image in your mind for you to paint.
 
 <br>
 
@@ -2789,7 +2790,17 @@ Hey lovely woman
 You know what you're doing
 You're really fine
 You got it all within
-You are free and whole
+You are free and whol## Stop girl, don't be jealous ##
+Stop girl; don't be jealous
+You've got it all too
+Take a hard look
+She is so loved, and so are you
+
+So girl, stop; stop comparing 
+You've got much more than you think
+Take a hard look
+You spring from the same source
+So count your blessingse
 You're more able than you realize
 You have the whole world inside of you
 You're free to love
@@ -9897,5 +9908,17 @@ Two parties of people govern the nation. Each party represents a set of ideas fo
 
 
 <br>
+
+## Stop girl, don't be jealous ##
+Stop girl; don't be jealous
+You've got it all too
+Take a hard look
+She is so loved, and so are you
+
+So girl, stop; stop comparing 
+You've got much more than you think
+Take a hard look
+You spring from the same source
+So count your blessings
 
 
