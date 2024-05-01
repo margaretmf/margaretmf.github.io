@@ -3,6 +3,7 @@ layout: default
 is_contact: true
 ---
 
+diamante poem 
 
 ## Belief ##
 A belief is a tiny seed within one's heart that points to someone's core values.
