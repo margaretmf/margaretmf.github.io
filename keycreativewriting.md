@@ -74,7 +74,7 @@ I do all that I need to do with a heart filled with grace.
 
 <br>
 
-## Gabby's Gratitude List ##
+## Gabby's Gratitude List - version 1 ##
 One night, Gabby complained to mama, "I had a terrible day today".
 Gabby then said, "nothing at all went my way!"
 
@@ -116,6 +116,89 @@ And now that you've developed this list, you can sweetly sleep".
 
 "Good night", said Gabby to mama, as they shared a kiss.
 "Tomorrow night I will share another list."
+
+<br>
+
+## Gabby's Gratitude List - version 2 ##
+Every night Gabby snuggled in bed with mama. 
+And every night Gabby and mama talked about how the day went in their pajamas. 
+
+One night, before bed, Gabby complained to mama, “I had a terrible day today”. 
+Gabby then said, “nothing at all went my way!”
+
+“I’m so sorry,” said mama, “what happened?”
+“What has made you feel so saddened and maddened?”
+
+“I forgot to set my alarm clock last night,” said Gabby, “and that led me to miss the bus.
+Then, when I got to school late, my teacher made a big fuss. 
+
+When we had coloring time I did not get to use my favorite crayon. 
+When I looked in the box for my favorite purple one it was gone. 
+
+Someone in my class spilled juice on me, and it got on my shirt. 
+Unfortunately it also stained my new skirt!
+
+There was a leak in the roof, and I got wet.
+Getting wet made me feel so upset. 
+
+At recess, while running and playing tag, I slipped. 
+Because I fell on the ground, my tshirt ripped.
+
+And tonight for dinner we ate a disgusting meal. 
+It was a grownup dish that had in it salmon and eel.” 
+
+Mama responded, “I understand. That all sounds terrible.” 
+“I’m sure right now life feels really unbearable.”
+
+“But,” mama said “I encourage you to keep an attitude of gratitude.
+Being thankful will help you stay in a joyful mood!
+
+You can pay attention to all the good things that happen too. 
+And when you think of these things, you won’t feel as blue.”
+
+So each new day Gabby started going around and counting her blessings. 
+And each night with mama she started remembering all of the little things.
+
+One night, Gabby listed things like the warm sun that was bright. 
+And she listed things like her favorite dress with a bow, which was blue and white.
+
+“There’s so much”, Gabby said, “to be grateful for!” 
+“I am going to think of more and more and more!”
+
+“I am grateful for the bus ride to school when I sat by Lucy, my new friend. 
+The windows were down on the bus today, and we could feel the coolness of the wind.
+
+I am grateful for my teacher who teaches us how to read. 
+Today we read a book by Jory John, which is called ‘The Bad Seed’.
+
+I am grateful for the lunch server who always smiles at my classmates and me. 
+She’s always wearing a pretty bracelet that says ‘Be Free’.
+
+I am grateful for recess when we went to the playground. 
+Today we played basketball, and I got the rebound.
+
+I am grateful for the time to have fun after school. 
+Today I got to go to practice swimming at the pool.
+
+(I am grateful for my brother’s and my dinner: Mac and cheese. 
+I also tried the vegetables and liked the peas.”
+
+OR 
+
+I am grateful for the spaghetti my brother and I ate for dinner. 
+I liked the noodles because they were thinner.”)
+
+Then Gabby said, “Thinking of all these things sure is a mood enhancer. 
+Now I know that feeling grateful for everything is the answer!”
+
+“Sometimes life does not always go my way.”
+“But if I remember the good things that happen, it brightens the day.”
+
+“Good job on being grateful”, said mama. “This list is yours to keep. 
+And now that you’ve developed this list, you can sweetly sleep”.
+
+“Good night”, said Gabby to mama, as they shared a kiss. 
+“Tomorrow night I will share another list.”
 
 <br>
 
