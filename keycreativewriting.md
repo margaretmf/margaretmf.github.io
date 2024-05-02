@@ -180,13 +180,8 @@ Today we played basketball, and I got the rebound.
 I am grateful for the time to have fun after school. 
 Today I got to go to practice swimming at the pool.
 
-(I am grateful for my brother’s and my dinner: Mac and cheese. 
-I also tried the vegetables and liked the peas.”
-
-OR 
-
-I am grateful for the spaghetti my brother and I ate for dinner. 
-I liked the noodles because they were thinner.”)
+I am grateful for my brother’s and my dinner, which was macaroni and cheese. 
+I even tried the vegetables my dad made and liked the peas.”
 
 Then Gabby said, “Thinking of all these things sure is a mood enhancer. 
 Now I know that feeling grateful for everything is the answer!”
