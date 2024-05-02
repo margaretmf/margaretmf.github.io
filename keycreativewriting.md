@@ -233,6 +233,43 @@ For love is what we’re all truly born of.
 
 <br> 
 
+## Good Going On Today #
+I wake up and make the bed
+I make sure that I am fed 
+I put on my boots and walk out the door 
+I am ready to see what this day has in store 
+
+I get in my car, and I put in the keys 
+I’ve got my window down, and I’m feeling the breeze 
+The radio is on; I’m listening to the news 
+There are stories of people creating new products to use  
+
+I arrive at my workplace and walk in and say hello
+It’s a new day on the grind; this I know 
+So I turn on my laptop and I get to work 
+I put my mind on my projects and refuse to shirk
+
+Someone comes over and invites me to lunch
+I say of course I’ll go and enjoy a munch 
+We talk about work and how the day is 
+The day is going well, gee-whiz 
+
+In the pm I leave work and go for a walk
+I get on the phone with my mom for a talk 
+Outside I see someone doing something kind 
+He’s helping someone who appears to be blind   
+
+After the walk I get home, and I rest 
+I remember all the good things that make me feel blessed 
+
+Chorus: 
+There’s good going on today, so why don’t I sing
+I am glad about all the things that the good Lord brings 
+The sun is shining, the birds are chirping 
+The world is moving,  the people are smiling 
+
+<br> 
+
 ## Boots ##
 These boots of mine that I love. They've really been everywhere. <br>
 They've walked down many roads. <br>
