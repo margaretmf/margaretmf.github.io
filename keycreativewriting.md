@@ -76,197 +76,197 @@ I do all that I need to do with a heart filled with grace.
 
 ## Gabby's Gratitude List - version 1 ##
 One night, Gabby complained to mama, "I had a terrible day today".
-Gabby then said, "nothing at all went my way!"
+<br> Gabby then said, "nothing at all went my way!"
 
 Mama responded, "that's ok" but encouraged Gabby to have an attitude of gratitude.
-"But be thankful", she told Gabby, "because that will help you have a joyful mood!"
+<br> "But be thankful", she told Gabby, "because that will help you have a joyful mood!"
 
 So each new day Gabby started going around and counting her blessings.
-And each night with mama she started remembering all of the little things.
+<br> And each night with mama she started remembering all of the little things.
 
 One night, Gabby listed things like the warm sun that was bright.
-And she listed things like her favorite dress with a bow, which was blue and white.
+<br> And she listed things like her favorite dress with a bow, which was blue and white.
 
 "There's so much", Gabby said, "to be grateful for!"
-"I am going to think of more and more and more!"
+<br> "I am going to think of more and more and more!"
 
 "I am grateful for the bus ride to school when I sat by Lucy, my new friend.
-The windows were down on the bus today, and we could feel the coolness of the wind.
+<br> The windows were down on the bus today, and we could feel the coolness of the wind.
 
 I am grateful for my teacher who teaches us how to read.
-Today we read a book by Jory John, which is called 'The Bad Seed'.
+<br> Today we read a book by Jory John, which is called 'The Bad Seed'.
 
 I am grateful for the lunch server who always smiles at my classmates and me.
-She's always wearing a pretty bracelet that says 'Be Free'.
+<br> She's always wearing a pretty bracelet that says 'Be Free'.
 
 I am grateful for recess when we went to the playground.
-Today we played basketball, and I got the rebound.
+<br> Today we played basketball, and I got the rebound.
 
 I am grateful for the time to have fun after school.
-Today I got to go to practice swimming at the pool.
+<br> Today I got to go to practice swimming at the pool.
 
 I am grateful for the spaghetti my brother and I ate for dinner.
-The pasta was so good because it was thinner."
+<br> The pasta was so good because it was thinner."
 
 Then Gabby said, "Thinking of all these things sure is a mood enhancer.
-Now I know that feeling grateful for everything is indeed the answer!"
+<br> Now I know that feeling grateful for everything is indeed the answer!"
 
 "Good job on being grateful", said mama. "This list is yours to keep.
-And now that you've developed this list, you can sweetly sleep".
+<br> And now that you've developed this list, you can sweetly sleep".
 
 "Good night", said Gabby to mama, as they shared a kiss.
-"Tomorrow night I will share another list."
+<br> "Tomorrow night I will share another list."
 
 <br>
 
 ## Gabby's Gratitude List - version 2 ##
 Every night Gabby snuggled in bed with mama. 
-And every night Gabby and mama talked about how the day went in their pajamas. 
+<br> And every night Gabby and mama talked about how the day went in their pajamas. 
 
 One night, before bed, Gabby complained to mama, “I had a terrible day today”. 
-Gabby then said, “nothing at all went my way!”
+<br> Gabby then said, “nothing at all went my way!”
 
-“I’m so sorry,” said mama, “what happened?”
-“What has made you feel so saddened and maddened?”
+“I’m so sorry,” said mama, “what happened?
+<br> What has made you feel so saddened and maddened?”
 
 “I forgot to set my alarm clock last night,” said Gabby, “and that led me to miss the bus.
-Then, when I got to school late, my teacher made a big fuss. 
+<br> Then, when I got to school late, my teacher made a big fuss. 
 
 When we had coloring time I did not get to use my favorite crayon. 
-When I looked in the box for my favorite purple one it was gone. 
+<br> When I looked in the box for my favorite purple one it was gone. 
 
 Someone in my class spilled juice on me, and it got on my shirt. 
-Unfortunately it also stained my new skirt!
+<br> Unfortunately it also stained my new skirt!
 
 There was a leak in the roof, and I got wet.
-Getting wet made me feel so upset. 
+<br> Getting wet made me feel so upset. 
 
 At recess, while running and playing tag, I slipped. 
-Because I fell on the ground, my tshirt ripped.
+<br> Because I fell on the ground, my tshirt ripped.
 
 And tonight for dinner we ate a disgusting meal. 
-It was a grownup dish that had in it salmon and eel.” 
+<br> It was a grownup dish that had in it salmon and eel.” 
 
-Mama responded, “I understand. That all sounds terrible.” 
-“I’m sure right now life feels really unbearable.”
+Mama responded, “I understand. That all sounds terrible.
+<br> I’m sure right now life feels really unbearable.”
 
 “But,” mama said “I encourage you to keep an attitude of gratitude.
-Being thankful will help you stay in a joyful mood!
+<br> Being thankful will help you stay in a joyful mood!
 
 You can pay attention to all the good things that happen too. 
-And when you think of these things, you won’t feel as blue.”
+<br> And when you think of these things, you won’t feel as blue.”
 
 So each new day Gabby started going around and counting her blessings. 
-And each night with mama she started remembering all of the little things.
+<br> And each night with mama she started remembering all of the little things.
 
 One night, Gabby listed things like the warm sun that was bright. 
-And she listed things like her favorite dress with a bow, which was blue and white.
+<br> And she listed things like her favorite dress with a bow, which was blue and white.
 
-“There’s so much”, Gabby said, “to be grateful for!” 
-“I am going to think of more and more and more!”
+“There’s so much”, Gabby said, “to be grateful for!
+<br> I am going to think of more and more and more!
 
-“I am grateful for the bus ride to school when I sat by Lucy, my new friend. 
-The windows were down on the bus today, and we could feel the coolness of the wind.
+I am grateful for the bus ride to school when I sat by Lucy, my new friend. 
+<br> The windows were down on the bus today, and we could feel the coolness of the wind.
 
 I am grateful for my teacher who teaches us how to read. 
-Today we read a book by Jory John, which is called ‘The Bad Seed’.
+<br> Today we read a book by Jory John, which is called ‘The Bad Seed’.
 
 I am grateful for the lunch server who always smiles at my classmates and me. 
-She’s always wearing a pretty bracelet that says ‘Be Free’.
+<br> She’s always wearing a pretty bracelet that says ‘Be Free’.
 
 I am grateful for recess when we went to the playground. 
-Today we played basketball, and I got the rebound.
+<br> Today we played basketball, and I got the rebound.
 
 I am grateful for the time to have fun after school. 
-Today I got to go to practice swimming at the pool.
+<br> Today I got to go to practice swimming at the pool.
 
 I am grateful for my brother’s and my dinner, which was macaroni and cheese. 
-I even tried the vegetables my dad made and liked the peas.”
+<br> I even tried the vegetables my dad made and liked the peas.”
 
 Then Gabby said, “Thinking of all these things sure is a mood enhancer. 
-Now I know that feeling grateful for everything is the answer!”
+<br> Now I know that feeling grateful for everything is the answer!”
 
-“Sometimes life does not always go my way.”
-“But if I remember the good things that happen, it brightens the day.”
+“Sometimes life does not always go my way.
+<br> But if I remember the good things that happen, it brightens the day.”
 
 “Good job on being grateful”, said mama. “This list is yours to keep. 
-And now that you’ve developed this list, you can sweetly sleep”.
+<br> And now that you’ve developed this list, you can sweetly sleep”.
 
 “Good night”, said Gabby to mama, as they shared a kiss. 
-“Tomorrow night I will share another list.”
+<br> “Tomorrow night I will share another list.”
 
 <br>
 
 ## A World Filled with Love ##
 All over the world everything was going wrong. 
-Nobody anywhere was getting along!
+<br> Nobody anywhere was getting along!
 
 A daughter woke up and hit her brother. 
-Her brother then yelled some awful words at their mother. 
+<br> Her brother then yelled some awful words at their mother. 
 
 Their mother cut off a driver in traffic.
-The driver, at work, made fun of a colleague’s graphic. 
+<br> The driver, at work, made fun of a colleague’s graphic. 
 
 The colleague ignored a man that shared a smile. 
-And the man with his neighbor became hostile.
+<br> And the man with his neighbor became hostile.
 
 The neighbor noticed that all the world was being filled with hate.
-He decided the world must have another fate.
+<br> He decided the world must have another fate.
 
 So the neighbor decided to start turning things around.
-He chose to give money to a stranger in town.
+<br> He chose to give money to a stranger in town.
 
 The stranger helped a child with his homework after school.
-The child told his friend that he thought she was really cool.
+<br> The child told his friend that he thought she was really cool.
 
 The friend gave her teacher a big, sweet hug.
-The teacher gave the principal a new mug.
+<br> The teacher gave the principal a new mug.
 
 People kept passing on love to another.
-And as a result less people began to suffer. 
+<br> And as a result less people began to suffer. 
 
 So the lesson is that love can spread.
-One small deed can paint the whole world red. 
+<br> One small deed can paint the whole world red. 
 
 One small thing can lead to a world filled with love.
-For love is what we’re all truly born of. 
+<br> For love is what we’re all truly born of. 
 
 <br> 
 
 ## Good Going On Today #
 I wake up and make the bed
-I make sure that I am fed 
-I put on my boots and walk out the door 
-I am ready to see what this day has in store 
+<br> I make sure that I am fed 
+<br> I put on my boots and walk out the door 
+<br> I am ready to see what this day has in store 
 
 I get in my car, and I put in the keys 
-I’ve got my window down, and I’m feeling the breeze 
-The radio is on; I’m listening to the news 
-There are stories of people creating new products to use  
+<br> I’ve got my window down, and I’m feeling the breeze 
+<br> The radio is on; I’m listening to the news 
+<br> There are stories of people creating new products to use  
 
 I arrive at my workplace and walk in and say hello
-It’s a new day on the grind; this I know 
-So I turn on my laptop and I get to work 
-I put my mind on my projects and refuse to shirk
+<br> It’s a new day on the grind; this I know 
+<br> So I turn on my laptop and I get to work 
+<br> I put my mind on my projects and refuse to shirk
 
 Someone comes over and invites me to lunch
-I say of course I’ll go and enjoy a munch 
-We talk about work and how the day is 
-The day is going well, gee-whiz 
+<br> I say of course I’ll go and enjoy a munch 
+<br> We talk about work and how the day is 
+<br> The day is going well, gee-whiz 
 
 In the pm I leave work and go for a walk
-I get on the phone with my mom for a talk 
-Outside I see someone doing something kind 
-He’s helping someone who appears to be blind   
+<br> I get on the phone with my mom for a talk 
+<br> Outside I see someone doing something kind 
+<br> He’s helping someone who appears to be blind   
 
 After the walk I get home, and I rest 
-I remember all the good things that make me feel blessed 
+<br> I remember all the good things that make me feel blessed 
 
 Chorus: 
 There’s good going on today, so why don’t I sing
-I am glad about all the things that the good Lord brings 
-The sun is shining, the birds are chirping 
-The world is moving,  the people are smiling 
+<br> I am glad about all the things that the good Lord brings 
+<br> The sun is shining, the birds are chirping 
+<br> The world is moving,  the people are smiling 
 
 <br> 
 
