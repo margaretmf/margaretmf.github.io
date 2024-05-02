@@ -197,6 +197,42 @@ And now that you’ve developed this list, you can sweetly sleep”.
 
 <br>
 
+## A World Filled with Love ##
+All over the world everything was going wrong. 
+Nobody anywhere was getting along!
+
+A daughter woke up and hit her brother. 
+Her brother then yelled some awful words at their mother. 
+
+Their mother cut off a driver in traffic.
+The driver, at work, made fun of a colleague’s graphic. 
+
+The colleague ignored a man that shared a smile. 
+And the man with his neighbor became hostile.
+
+The neighbor noticed that all the world was being filled with hate.
+He decided the world must have another fate.
+
+So the neighbor decided to start turning things around.
+He chose to give money to a stranger in town.
+
+The stranger helped a child with his homework after school.
+The child told his friend that he thought she was really cool.
+
+The friend gave her teacher a big, sweet hug.
+The teacher gave the principal a new mug.
+
+People kept passing on love to another.
+And as a result less people began to suffer. 
+
+So the lesson is that love can spread.
+One small deed can paint the whole world red. 
+
+One small thing can lead to a world filled with love.
+For love is what we’re all truly born of. 
+
+<br> 
+
 ## Boots ##
 These boots of mine that I love. They've really been everywhere. <br>
 They've walked down many roads. <br>
