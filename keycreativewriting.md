@@ -123,10 +123,10 @@ Then Gabby said, "Thinking of all these things sure is a mood enhancer.
 Every night Gabby snuggled in bed with mama. 
 <br> And every night Gabby and mama talked about how the day went in their pajamas. 
 
-One night, before bed, Gabby complained to mama, “I had a terrible day today”. 
+One night before bedtime, Gabby complained to mama, “I had a terrible day today”. 
 <br> Gabby then said, “nothing at all went my way!”
 
-“I’m so sorry,” said mama, “what happened?
+“I’m so sorry”, said mama, “what happened?
 <br> What has made you feel so saddened and maddened?”
 
 “I forgot to set my alarm clock last night,” said Gabby, “and that led me to miss the bus.
@@ -142,7 +142,7 @@ There was a leak in the roof, and I got wet.
 <br> Getting wet made me feel so upset. 
 
 At recess, while running and playing tag, I slipped. 
-<br> Because I fell on the ground, my tshirt ripped.
+<br> Because I fell on the ground, my t-shirt ripped.
 
 And tonight for dinner we ate a disgusting meal. 
 <br> It was a grownup dish that had in it salmon and eel.” 
