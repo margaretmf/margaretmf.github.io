@@ -256,8 +256,8 @@ Someone comes over and invites me to lunch
 
 In the pm I leave work and go for a walk
 <br> I get on the phone with my mom for a talk 
-<br> Outside I see someone doing something kind 
-<br> He’s helping someone who appears to be blind   
+<br> Outside I see someone doing a kind deed
+<br> My grandma always said every kind deed is a little seed
 
 After the walk I get home, and I rest 
 <br> I remember all the good things that make me feel blessed 
