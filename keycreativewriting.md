@@ -233,6 +233,40 @@ One small thing can lead to a world filled with love.
 
 <br> 
 
+## A World Filled with Love - version 2 ##
+A mailman takes letters to each house in town. 
+<br> While walking he smiles at a woman with a frown. 
+
+The woman then began to smile too. 
+<br> When she got home she made her sick neighbor some stew. 
+
+When eating the stew the neighbor began to feel better. 
+<br> When she got out of bed she knitted her friend a sweater. 
+
+The friend loved feeling cozy and warm. 
+<br> To give back, she provided shelter to a family caught in a storm. 
+
+The family was grateful that they had a place to stay dry. 
+<br> While in shelter the family made their teacher a pie. 
+
+The teacher was happy to have a sweet treat to eat. 
+<br> She gave out clothes to people in need on the street. 
+
+The people were glad to have something to wear. 
+<br> The people wrote thank you notes to a preacher with a prayer. 
+
+The preacher rejoiced that people were thinking of him. 
+<br> He rolled the wheelchair of a man with a broken limb. 
+
+The man appreciated he could go to the park. 
+<br> To another man there he shared a kind remark. 
+
+The other man was delighted with what the man said. 
+<br> The other man continued to share love, and throughout the town the love spread. 
+
+So the lesson is that one small thing can lead to a world filled with love.
+<br> For love is what we’re all truly born of.
+
 ## Good Going On Today #
 I wake up and make the bed
 <br> I make sure that I am fed 
