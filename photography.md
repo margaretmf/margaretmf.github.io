@@ -143,6 +143,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/treebranch.jpg">
+
+
+
 <img class="profile-picture" src="photography/lightinthedarkness1.jpg">
 
 
