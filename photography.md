@@ -178,11 +178,16 @@ layout: default
 <img class="profile-picture" src="photography/lightinthedarkness7.jpg">
 
 
+
 <img class="profile-picture" src="photography/constructionsite1.jpg">
+
 
 
 <img class="profile-picture" src="photography/constructionsite2.jpg">
 
+
+
+<img class="profile-picture" src="photography/constructionsite3.jpg">
 
 
 <b>
