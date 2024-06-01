@@ -190,6 +190,10 @@ layout: default
 <img class="profile-picture" src="photography/constructionsite3.jpg">
 
 
+
+<img class="profile-picture" src="photography/constructionsite4.jpg">
+
+
 <b>
 
 <b>
