@@ -59,10 +59,6 @@ layout: default
 
 
 
-<br>
-
-
-
 <img class="profile-picture" src="photography/christmas-flowers-against-wall.jpg">
 
 
@@ -192,6 +188,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/constructionsite4.jpg">
+
+
+
+<img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
 
 
 <b>
