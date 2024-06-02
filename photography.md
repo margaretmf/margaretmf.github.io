@@ -23,11 +23,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/coloredwall2.jpg">
+<img class="profile-picture" src="photography/american-flag-in-a-building.jpg">
 
 
 
 <img class="profile-picture" src="photography/american-flag.jpg">
+
+
+
+<img class="profile-picture" src="photography/coloredwall2.jpg">
 
 
 
