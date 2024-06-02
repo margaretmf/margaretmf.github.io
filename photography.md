@@ -211,7 +211,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/trafficlights.jpg">
+<img class="profile-picture" src="photography/horse-in-thewinter.jpg">
 
 
 
