@@ -195,6 +195,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/constructionsite5.jpg">
+
+
+
 <img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
 
 
