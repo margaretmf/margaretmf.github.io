@@ -199,7 +199,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/constructionsite5.jpg">
+<img class="profile-picture" src="photography/driving.jpg">
 
 
 
@@ -207,7 +207,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/driving.jpg">
+<img class="profile-picture" src="photography/constructionsite5.jpg">
 
 
 
