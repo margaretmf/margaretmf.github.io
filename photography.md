@@ -55,7 +55,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/masks.jpg">
+<img class="profile-picture" src="photography/christmas-flowers-against-wall.jpg">
 
 
 
@@ -63,7 +63,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/christmas-flowers-against-wall.jpg">
+<img class="profile-picture" src="photography/masks.jpg">
 
 
 
