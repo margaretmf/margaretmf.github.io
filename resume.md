@@ -35,17 +35,17 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 ### THE LITERACY LAB
 Literacy Tutor | August 2022-June 2024
-* Completing two AmeriCorps service years as a literacy tutor in a school
-* Assisting classroom teachers to help maintain order in the class
-* Administering assessments to benchmark students
-* Conducting one-on-one tutoring sessions with 12 K-2 students per day using evidence-based literacy interventions to support successful reading
-* Helping children improve their reading skills 	and abilities to support them reaching grade level expectations
-* Entering data for all current and exited students into a system to contribute to a data-driven approach
-* Receiving training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system
+* Completed two AmeriCorps service years as a literacy tutor in a school
+* Assisted classroom teachers to help maintain order in the class
+* Administered assessments to benchmark students
+* Conducted one-on-one tutoring sessions with 12 K-2 students per day using evidence-based literacy interventions to support successful reading
+* Helped children improve their reading skills and abilities to support them reaching grade level expectations
+* Entered data for all current and exited students into a system to contribute to a data-driven approach
+* Received training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system
 
 ### HARNESS MAGAZINE
 Contributing Writer | August 2022
-* Submitted and had approved [two poems](https://www.harnessmagazine.com/a-new-day/) for publication to share with a community of women
+* Submitted and had approved [three poems](https://www.harnessmagazine.com/a-new-day/) for publication to share with a community of women
 
 ### VIBRANT WORLD
 Freelance Researcher Consultant | August-December 2019
