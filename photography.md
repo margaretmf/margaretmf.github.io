@@ -214,6 +214,9 @@ layout: default
 <img class="profile-picture" src="photography/horse-in-thewinter.jpg">
 
 
+<img class="profile-picture" src="photography/historytour.jpg">
+
+
 
 <b>
 
