@@ -3,7 +3,7 @@ layout: default
 ---
 
 ## PROFILE 
-I am a versatile education, nonprofit, and social entrepreneurship professional interested in writing, technological development, interviewing people, and analyzing data. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. I also recognize that there have been injustices in our history, and I work daily to contribute to a more equitable world.
+I am a versatile education, nonprofit, and social entrepreneurship professional interested in reading and writing, technological development, interviewing people, analyzing data, tutoring, and taking photos. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. I also recognize that there have been injustices in our history, and I work daily to contribute to a more equitable world.
 
 [Resume](InstituteofInternationalEducation_Resume_MargaretFurr.pdf)
 
@@ -31,7 +31,7 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 
 <br>
  
-## RELEVANT WORK EXPERIENCE
+## WORK EXPERIENCE
 
 ### HORIZONS HAMPTON ROADS
 Teacher Assistant | June-July 2024
@@ -52,6 +52,18 @@ Literacy Tutor | August 2022-June 2024
 * Helped children improve their reading skills and abilities to support them reaching grade level expectations
 * Entered data for all current and exited students into a system to contribute to a data-driven approach
 * Received training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system
+
+###	FORKIDS
+Volunteer Data Analyst | August-December 2023
+* Gathered data online from public sources on affordable housing in Hampton Roads to prepare for data analysis.
+* Converted addresses to geographic coordinates and analyzed data to prepare for mapping the data.
+* Created a map of affordable housing to help the organization understand how to serve families.
+
+### HORIZONS HAMPTON ROADS
+Substitute Teacher Assistant | June-August 2023
+* Assisted 3rd, 5th, 7th grade, and 8th grade teachers in the classroom to help maintain order.
+* Co-taught for a part of the day to lead class through worksheets and material they were learning.
+* Built relationships with students in the classroom to support them socially, emotionally, and academically. 
 
 ### HARNESS MAGAZINE
 Contributing Writer | August 2022
