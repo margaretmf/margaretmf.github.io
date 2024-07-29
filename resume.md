@@ -33,6 +33,16 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
  
 ## RELEVANT WORK EXPERIENCE
 
+### HORIZONS HAMPTON ROADS
+Teacher Assistant | June-July 2024
+* Assisted a 1st grade teacher in the classroom to help maintain order.
+* Graded classwork to help students 		understand what they did correctly or incorrectly.
+* Led small group reading activities with up to 4 students at a time.
+* Built relationships with students in the classroom to support them socially, emotionally, and academically.
+* Received and applied training on positive discipline to engage students in the learning process while disciplining them.
+* Taught students to be responsible stewards of the earth by exposing them to science concepts related to sustainability and helping them create an upcycled art project throughout the summer.
+* Took photos of students engaging in activities to support the organization’s communications.
+
 ### THE LITERACY LAB
 Literacy Tutor | August 2022-June 2024
 * Completed two AmeriCorps service years as a literacy tutor in a school
