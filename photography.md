@@ -199,15 +199,19 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
+<img class="profile-picture" src="photography/constructionsite7.jpg">
 
 
 
-<img class="profile-picture" src="photogrpahy/constructionsite6.jpg">
+<img class="profile-picture" src="photography/constructionsite6.jpg">
 
 
 
 <img class="profile-picture" src="photography/constructionsite5.jpg">
+
+
+
+<img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
 
 
 
