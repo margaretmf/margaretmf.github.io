@@ -199,11 +199,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/driving.jpg">
-
-
-
 <img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
+
+
+
+<img class="profile-picture" src="photogrpahy/constructionsite6.jpg">
 
 
 
@@ -211,7 +211,12 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/driving.jpg">
+
+
+
 <img class="profile-picture" src="photography/horse-in-thewinter.jpg">
+
 
 
 <img class="profile-picture" src="photography/historytour.jpg">
