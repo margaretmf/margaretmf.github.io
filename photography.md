@@ -211,7 +211,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/driving.jpg">
+<img class="profile-picture" src="photography/historytour.jpg">
 
 
 
@@ -219,8 +219,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/historytour.jpg">
+<img class="profile-picture" src="photography/driving.jpg">
 
+
+
+<img class="profile-picture" src="photography/rainonthewindow1.jpg">
 
 
 <b>
