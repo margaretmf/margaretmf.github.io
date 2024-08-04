@@ -19,7 +19,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/coloredwall1.jpg">
+<img class="profile-picture" src="photography/americanflag2.jpg">
 
 
 
@@ -28,6 +28,30 @@ layout: default
 
 
 <img class="profile-picture" src="photography/american-flag.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag3.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag4.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag5.jpg">
+
+
+
+<img class="profile-picture" src="photography/coloredwall1.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag6.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag7.jpg">
 
 
 
