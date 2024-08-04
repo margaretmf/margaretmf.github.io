@@ -211,10 +211,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/historytour.jpg">
-
-
-
 <img class="profile-picture" src="photography/horse-in-thewinter.jpg">
 
 
@@ -224,6 +220,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/rainonthewindow1.jpg">
+
+
+
+<img class="profile-picture" src="photography/historytour.jpg">
 
 
 <b>
