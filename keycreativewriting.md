@@ -197,42 +197,6 @@ Then Gabby said, “Thinking of all these things sure is a mood enhancer.
 
 <br>
 
-## A World Filled with Love ##
-All over the world everything was going wrong. 
-<br> Nobody anywhere was getting along!
-
-A daughter woke up and hit her brother. 
-<br> Her brother then yelled some awful words at their mother. 
-
-Their mother cut off a driver in traffic.
-<br> The driver, at work, made fun of a colleague’s graphic. 
-
-The colleague ignored a man that shared a smile. 
-<br> And the man with his neighbor became hostile.
-
-The neighbor noticed that all the world was being filled with hate.
-<br> He decided the world must have another fate.
-
-So the neighbor decided to start turning things around.
-<br> He chose to give money to a stranger in town.
-
-The stranger helped a child with his homework after school.
-<br> The child told his friend that he thought she was really cool.
-
-The friend gave her teacher a big, sweet hug.
-<br> The teacher gave the principal a new mug.
-
-People kept passing on love to another.
-<br> And as a result less people began to suffer. 
-
-So the lesson is that love can spread.
-<br> One small deed can paint the whole world red. 
-
-One small thing can lead to a world filled with love.
-<br> For love is what we’re all truly born of. 
-
-<br> 
-
 ## A World Filled with Love - version 2 ##
 A mailman takes letters to each house in town. 
 <br> While walking he smiles at a woman with a frown. 
