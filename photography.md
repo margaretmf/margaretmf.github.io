@@ -71,15 +71,14 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/colors1.jpg">
-
-
-
 <img class="profile-picture" src="photography/colors2.jpg">
 
 
 
 <img class="profile-picture" src="photography/colors3.jpg">
+
+
+<img class="profile-picture" src="photography/colors1.jpg">
 
 
 
