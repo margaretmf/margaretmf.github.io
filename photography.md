@@ -55,6 +55,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/americanflag13.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag14.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag16.jpg">
+
+
+
 <img class="profile-picture" src="photography/coloredwall2.jpg">
 
 
