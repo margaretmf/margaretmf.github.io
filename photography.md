@@ -43,19 +43,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/coloredwall1.jpg">
-
-
-
 <img class="profile-picture" src="photography/americanflag6.jpg">
 
 
 
 <img class="profile-picture" src="photography/americanflag7.jpg">
-
-
-
-<img class="profile-picture" src="photography/coloredwall2.jpg">
 
 
 
@@ -68,6 +60,14 @@ layout: default
 
 
 <img class="profile-picture" src="photography/americanflag16.jpg">
+
+
+
+<img class="profile-picture" src="photography/coloredwall1.jpg">
+
+
+
+<img class="profile-picture" src="photography/coloredwall2.jpg">
 
 
 
