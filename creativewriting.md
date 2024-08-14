@@ -183,6 +183,19 @@ Mountains cover the Earth, and as love smiles within through the mountains with 
 
 <br>
 
+## Smile Like You Mean It ##
+Smile like you mean it. <br>
+In the pain, and the tears, and the fight within, smile like you mean it. <br>
+In the loss for words, and the heartbreak, smile that winning smile. <br>
+You smile like a ray of light. <br>
+Your face lights up the whole room and brightens someone's day. <br>
+Your face makes someone feel at ease and cheers someone's heart. <br>
+Smile like you mean it. <br>
+Let the glow shine. <br>
+Your smile is yours to share, and it is yours to wear. <br>
+
+<br>
+
 ## The Moon ##
 The moon is shining in the darkness. <br>
 In the darkness, there is still light. <br>
