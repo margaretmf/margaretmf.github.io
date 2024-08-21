@@ -2,7 +2,7 @@
 layout: default
 ---
 
-## With strong inner vision, and with a love for color and perspective, an open eye, and a heart filled with gratitude, I capture beauty everywhere. Check out my photography below. ##
+## With strong vision, and with a love for color and perspective, an open eye, and a heart filled with gratitude, I capture beauty everywhere. Check out my photography below. ##
 
 <br>
 
