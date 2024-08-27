@@ -77,12 +77,16 @@ I do all that I need to do with a heart filled with grace.
 ## Making the Best of Each Moment ##
 How will I best use the moment?
 Will I pray?….or will I vent?
+
 Will I think about all that’s going on?
 Or will I think about all that’s going wrong?
+
 I must say that life is more joyous when I pray.
 And living in gratitude for God is the way.
+
 So I will make the most of each minute, each day.
 I will remember to love and thank God always.
+
 And I will find a way to help someone somewhere.
 I will turn to God to help me show some care.
 
