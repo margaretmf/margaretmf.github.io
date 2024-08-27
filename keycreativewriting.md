@@ -83,7 +83,7 @@ I must say that life is more joyous when I pray.
 And living in gratitude for God is the way.
 So I will make the most of each minute, each day.
 I will remember to love and thank God always.
-And I will find a way to some someone somewhere.
+And I will find a way to help someone somewhere.
 I will turn to God to help me show some care.
 
 <br> 
