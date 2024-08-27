@@ -74,7 +74,7 @@ I do all that I need to do with a heart filled with grace.
 
 <br>
 
-## Making the Best of Each Moment ##
+## How Will I Best Use the Moment? ##
 How will I best use the moment?
 Will I pray?….or will I vent?
 
