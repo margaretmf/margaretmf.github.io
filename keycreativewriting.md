@@ -47,6 +47,17 @@ Despair,
 
 <br>
 
+## From the Past to the Future ##
+Past
+fond, sentimental 
+remembering, romanticizing, reminiscing
+Letting go of the old to reign in the new
+hoping, expecting, anticipating
+promising, optimistic
+Future.
+
+<br> 
+
 ## A New Day ##
 It's a new day for the sun to shine.
 Wake up, and be free. The day is yours, and the day is mine.
