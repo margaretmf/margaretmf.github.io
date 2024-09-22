@@ -48,13 +48,13 @@ Despair,
 <br>
 
 ## From the Past to the Future ##
-Past
-fond, sentimental 
-remembering, romanticizing, reminiscing
-Letting go of the old to reign in the new
-hoping, expecting, anticipating
-promising, optimistic
-Future.
+Past,
+<br> fond, sentimental,
+<br> remembering, romanticizing, reminiscing,
+<br> Letting go of the old to reign in the new - 
+<br> hoping, expecting, anticipating,
+<br> promising, optimistic,
+<br> Future.
 
 <br> 
 
