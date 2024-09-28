@@ -103,7 +103,7 @@ Strategic Alignment Consultant | October 2016 - June 2019
 
 ### DataKind
 Data Analyst, Data Ambassador, Project Manager | July 2016 - May 2019
-* Clients: Earth Challenge 2020, Google for AI Impact Challenge, Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO, Community Based Care Florida
+* Clients: Earth Challenge 2020, Google for AI Impact Challenge, Community-Based Care Florida, Accountability Counsel, American Red Cross, Global Financial Integrity, DC Office of the CTO
 * Collaborated to develop maps, machine learning features, a foster care case complexity score, and more on teams of volunteers in-person and remotely (tools used include SQL, R, Python, Git, Trello, Amazon)
 * Reviewed over 25 project proposals to support Google's AI Impact Challenge in partnership with DataKind
 
