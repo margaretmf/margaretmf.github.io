@@ -191,11 +191,15 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/lightinthedarkness2.jpg">
+<img class="profile-picture" src="photography/fallleaveswithsunlight.jpg">
 
 
 
 <img class="profile-picture" src="photography/nature.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness2.jpg">
 
 
 
@@ -244,6 +248,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/constructionsite5.jpg">
+
+
+
+<img class="profile-picture" src="photography/constructionsite8.jpg">
 
 
 
