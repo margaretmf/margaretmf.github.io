@@ -103,6 +103,28 @@ I will turn to God to help me show some care.
 
 <br> 
 
+
+## The Barista ##
+Every morning, he comes to work right at six,
+<br> ready to fill each person's unique coffee fix.
+
+Day in and day out, he works all day long, 
+<br> making each drink, in the rhythm of a cheerful song.
+
+As each customer comes up to the cash register,
+<br> he makes each one glad for their expenditure.
+
+Good conversations with each customer he sparks,
+<br> especially when a complicated order is barked.
+
+He remembers each coffee drink's recipe by heart,
+<br> crafting each drink like he would a work of art.
+
+And at the end of the day he cleans up the store,
+<br> preparing it for tomorrow, when he walks again through the door.
+
+<br>
+
 ## Gabby's Gratitude List - version 1 ##
 One night, Gabby complained to mama, "I had a terrible day today".
 <br> Gabby then said, "nothing at all went my way!"
