@@ -60,49 +60,93 @@ Past,
 
 ## A New Day ##
 It's a new day for the sun to shine.
-Wake up, and be free. The day is yours, and the day is mine.
+<br> Wake up, and be free. The day is yours, and the day is mine.
 
 It's a really great day for the sky to be blue.
-Look up high! And see the birds soaring too!
+<br> Look up high! And see the birds soaring too!
 
 On this new day the birds really sing.
-It's fun to sing with the birds and hear their songs ringaling.
+<br> It's fun to sing with the birds and hear their songs ringaling.
 
 It's a new day for the earth to move.
-It's amazing how all the people really get into a groove.
+<br> It's amazing how all the people really get into a groove.
 
 On this new day I've got two feet on the ground.
-It's love that makes the world go around.
+<br> It's love that makes the world go around.
 
 It's a really great day to go out and seize the day.
-Neighbors wave, and people laugh and play.
+<br> Neighbors wave, and people laugh and play.
 
 It's a new day to run and skip outside.
-It's more wonderful to do this with friends by my side.
+<br> It's more wonderful to do this with friends by my side.
 
 On this new day I wear a smile on my face.
-I do all that I need to do with a heart filled with grace.
+<br> I do all that I need to do with a heart filled with grace.
 
 <br>
 
 ## How Will I Best Use the Moment? ##
 How will I best use the moment?
-Will I pray?….or will I vent?
+<br> Will I pray?….or will I vent?
 
 Will I think about all that’s going on?
-Or will I think about all that’s going wrong?
+<br> Or will I think about all that’s going wrong?
 
 I must say that life is more joyous when I pray.
-And living in gratitude for God is the way.
+<br> And living in gratitude for God is the way.
 
 So I will make the most of each minute, each day.
-I will remember to love and thank God always.
+<br> I will remember to love and thank God always.
 
 And I will find a way to help someone somewhere.
-I will turn to God to help me show some care.
+<br> I will turn to God to help me show some care.
 
 <br> 
 
+## God's Grand Story ##
+For your life, eternally to God be the glory.
+<br> So let Him conceive of and write your whole story.
+
+Your story He’s been writing since the beginning of time.
+<br> He’s been thinking you up as someone loved and divine.
+
+This story never ends; it’s always unfolding.
+<br> In His eyes you’re amazing; your character he’s molding.
+
+There’s never been a minute when you’ve been separated from Him.
+<br> God has not created you without thought on a whim.
+
+Yes, sometimes mortal lies sure do like to creep in.
+<br> Like “I’m lacking, I’ve been fired, or I’m full of sin!”.
+
+But God can reveal a world full of His plans.
+<br> For in reality everything is ordered in His hands.
+
+So choose to see you in the way God sees you.
+<br> Be part of what He’s crafting with the grand view.
+
+<br> 
+
+## The Bookseller ##
+Every morning, she comes to work right at eight,
+<br> ready to make the day in the bookstore great.
+
+Helping people find books is what she does,
+<br> with knowledge of what topics are keeping the world abuzz.
+
+After sharing a smile with each customer who walks in,
+<br> she helps people find stories to begin and then end.
+
+She also shelves, reshelves, and sorts thousands of books,
+<br> making sure not to disturb people reading in nooks.
+
+Checking people out, she takes cash and credit cards with care,
+<br> so that people can take home something to curl up with in a chair.
+
+And at the end of the day, she locks up the place,
+<br> making sure no one can break into the special space.
+
+<br>
 
 ## The Barista ##
 Every morning, he comes to work right at six,
