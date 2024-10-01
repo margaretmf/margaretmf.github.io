@@ -128,7 +128,7 @@ So choose to see you in the way God sees you.
 <br> 
 
 ## The Bookseller ##
-Every morning, she comes to work right at eight,
+Every morning, she comes to work at eight,
 <br> ready to make the day in the bookstore great.
 
 Helping people find books is what she does,
@@ -137,11 +137,11 @@ Helping people find books is what she does,
 After sharing a smile with each customer who walks in,
 <br> she helps people find stories to begin and then end.
 
-She also shelves, reshelves, and sorts thousands of books,
-<br> making sure not to disturb people reading in nooks.
+She also sorts and shelves thousands of books,
+<br> making sure not to disturb people hiding in nooks.
 
-Checking people out, she takes cash and credit cards with care,
-<br> so that people can take home something to curl up with in a chair.
+Checking people out, she takes cash and cards with care,
+<br> so that people can take home something to read in a chair.
 
 And at the end of the day, she locks up the place,
 <br> making sure no one can break into the special space.
