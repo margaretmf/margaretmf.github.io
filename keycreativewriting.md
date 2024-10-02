@@ -127,8 +127,50 @@ So choose to see you in the way God sees you.
 
 <br> 
 
+## The Truckdriver ##
+He’s a professional that works day and night; 
+<br> so sometimes he’s working when there is no light.
+
+He drives carefully on both roads and highways.
+<br> For steering the wheel he sure does deserve praise. 
+
+From state to state he transports many goods. 
+<br> Through his work he learns to know the backwoods. 
+
+He’s very needed for a productive supply chain,
+<br> driving on days and nights even when there’s rain. 
+
+When he’s not driving he maintains his truck, 
+<br> making sure it works well so he doesn’t get stuck. 
+
+Driving everywhere he really learns the land,
+<br> and gets to see new places firsthand. 
+
+<br> 
+
+## The Doctor ##
+She wakes up at six to get to work by eight.
+<br> With ten families on her caseload, there’s a lot on her plate!
+
+Every day she helps children stay healthy and well.
+<br> Sicknesses they experience she helps them to quell.
+
+Heights, weights, and eyesights every day she measures; 
+<br> little hearts and minds is what she most treasures.
+
+Shots and stickers are some of the things she provides,
+<br> making sure that kids can have the best lives.
+
+“Eat an apple a day” is what she tells kids. 
+<br> And too much sugar is what she forbids. 
+
+At the end of the day she sees the growth of young children;
+<br> the type of doctor she is is a pediatrician. 
+
+<br>
+
 ## The Teacher ##
-She begins the day early,w aking up close to four,
+She begins the day early, waking up close to four,
 <br> grading students' papers and marking their scores.
 
 She then leaves her house, arriving by eight to school.
@@ -140,7 +182,7 @@ She greets every student with a handshake or hug.
 After chapel, begins class, filled with new concepts to learn;
 <br> students study their books, one page at a time they turn.
 
-Inspriing confidence in students is her duty,
+Inspiring confidence in students is her duty,
 <br> helping them learn things like where is Djibouti.
 
 Students' love of learning she hopes to instill,
@@ -153,15 +195,15 @@ He starts each workday a little before nine,
 <br> completing projects due to meet the deadline.
 
 His job is to write about the news in the world,
-<br> shining a light on events have just unfurled.
+<br> shining a light on events that have unfurled.
 
 Talking to people to gather details about events,
 <br> he listens compassionately for new story contents.
 
 And researching records, he discovers key facts,
-<br> that validate what he learned from hsi leading contacts.
+<br> that validate what he learns from his leading contacts.
 
-Then he writes articles about what he learned,
+Then he writes articles about what he has learned,
 <br> ready to be published for citizens concerned.
 
 Each day for him is a new adventure,
@@ -170,11 +212,11 @@ Each day for him is a new adventure,
 <br>
 
 ## The Bookseller ##
-Every morning, she comes to work at eight,
+Every morning, she comes to work right at eight,
 <br> ready to make the day in the bookstore great.
 
 Helping people find books is what she does,
-<br> with knowledge of what topics keep the world abuzz.
+<br> with a knowledge of what keeps the world abuzz.
 
 After sharing a smile with each customer who walks in,
 <br> she helps people find stories to begin and then end.
@@ -186,7 +228,7 @@ Checking people out, she takes cash and cards with care,
 <br> so that people can take home something to read in a chair.
 
 And at the end of the day, she locks up the place,
-<br> making sure no one can break into the special space.
+<br> making sure no one can break into this special space.
 
 <br>
 
