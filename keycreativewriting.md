@@ -127,6 +127,48 @@ So choose to see you in the way God sees you.
 
 <br> 
 
+## The Teacher ##
+She begins the day early,w aking up close to four,
+<br> grading students' papers and marking their scores.
+
+She then leaves her house, arriving by eight to school.
+<br> The students arrive at nine; this is the rule.
+
+She greets every student with a handshake or hug.
+<br> She then collects cellphones; there's a school rule to unplug.
+
+After chapel, begins class, filled with new concepts to learn;
+<br> students study their books, one page at a time they turn.
+
+Inspriing confidence in students is her duty,
+<br> helping them learn things like where is Djibouti.
+
+Students' love of learning she hopes to instill,
+<br> for hs e hopes they can live lives that are fulfilled.
+
+<br>
+ 
+## The Journalist ##
+He starts each workday a little before nine,
+<br> completing projects due to meet the deadline.
+
+His job is to write about the news in the world,
+<br> shining a light on events have just unfurled.
+
+Talking to people to gather details about events,
+<br> he listens compassionately for new story contents.
+
+And researching records, he discovers key facts,
+<br> that validate what he learned from hsi leading contacts.
+
+Then he writes articles about what he learned,
+<br> ready to be published for citizens concerned.
+
+Each day for him is a new adventure,
+<br> where a love for the truth is at the work's center.
+
+<br>
+
 ## The Bookseller ##
 Every morning, she comes to work at eight,
 <br> ready to make the day in the bookstore great.
