@@ -132,7 +132,7 @@ Every morning, she comes to work at eight,
 <br> ready to make the day in the bookstore great.
 
 Helping people find books is what she does,
-<br> with knowledge of what topics are keeping the world abuzz.
+<br> with knowledge of what topics keep the world abuzz.
 
 After sharing a smile with each customer who walks in,
 <br> she helps people find stories to begin and then end.
