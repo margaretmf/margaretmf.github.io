@@ -153,7 +153,7 @@ Every morning, he comes to work right at six,
 <br> ready to fill each person's unique coffee fix.
 
 Day in and day out, he works all day long, 
-<br> making each drink, in the rhythm of a cheerful song.
+<br> making each drink, in the rhythm of a song.
 
 As each customer comes up to the cash register,
 <br> he makes each one glad for their expenditure.
