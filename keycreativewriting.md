@@ -448,7 +448,7 @@ There’s good going on today, so why don’t I sing
 <br> 
 
 ## Boots ##
-These boots of mine that I love. They've really been everywhere. <br>
+These boots of mine that I love. They've been everywhere. <br>
 They've walked down many roads. <br>
 They've dug their heels into the dirt. <br>
 Can't you see? They've really been worn. <br>
@@ -468,7 +468,7 @@ They've kept me feeling snug. <br>
 They're as comfortable as can be. <br>
 Can't you see? They're my favorite. <br>
 
-These boots of mine that I love. They've really gone the extra mile. <br>
+These boots of mine that I love. They've gone the extra mile. <br>
 They've done more than I could've asked for. <br>
 They've survived the hard work. <br>
 Can't you see? There's some pep in every step with them. <br>
