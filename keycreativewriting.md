@@ -135,7 +135,7 @@ In the world there are over 12,000 types of jobs.
 <br> People everywhere work because they don’t want to be slobs. 
 
 So let’s go on an adventure and learn about careers,
-<br> helping you learn what you can do in future years. 
+<br> helping you decide what you can do in future years. 
 
 From a truck driver to a teacher there’s many things you can be. 
 <br> Bringing joy and love to your work is really life’s key. 
