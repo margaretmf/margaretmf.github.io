@@ -127,6 +127,24 @@ So choose to see you in the way God sees you.
 
 <br> 
 
+## Careers Introduction ##
+Every day on the earth people everywhere work,
+<br> with some making artwork; and some working as a clerk. 
+
+In the world there are over 12,000 types of jobs. 
+<br> People everywhere work because they don’t want to be slobs. 
+
+So let’s go on an adventure and learn about careers,
+<br> helping you learn what you can do in future years. 
+
+From a truck driver to a teacher there’s many things you can be. 
+<br> Bringing joy and love to your work is really life’s key. 
+
+I’m going to introduce you to six different workers. 
+<br> They work hard every day; they surely aren’t shirkers!
+
+<br>
+
 ## The Truckdriver ##
 He’s a professional that works day and night; 
 <br> so sometimes he’s working when there is no light.
@@ -144,7 +162,7 @@ When he’s not driving he maintains his truck,
 <br> making sure it works well so he doesn’t get stuck. 
 
 Driving everywhere he really learns the land,
-<br> and gets to see new places firsthand. 
+<br> and gets to visit and see new places firsthand. 
 
 <br> 
 
@@ -159,7 +177,7 @@ Heights, weights, and eyesights every day she measures;
 <br> little hearts and minds is what she most treasures.
 
 Shots and stickers are some of the things she provides,
-<br> making sure that kids can have the best lives.
+<br> making sure that kiddos can have the best lives.
 
 “Eat an apple a day” is what she tells kids. 
 <br> And too much sugar is what she forbids. 
@@ -203,8 +221,8 @@ Talking to people to gather details about events,
 And researching records, he discovers key facts,
 <br> that validate what he learns from his leading contacts.
 
-Then he writes articles about what he has learned,
-<br> ready to be published for citizens concerned.
+Then he writes articles about what he learns,
+<br> ready to be published for citizens they concern.
 
 Each day for him is a new adventure,
 <br> where a love for the truth is at the work's center.
@@ -434,7 +452,7 @@ Someone comes over and invites me to lunch
 In the pm I leave work and go for a walk
 <br> I get on the phone with my mom for a talk 
 <br> Outside I see someone doing a kind deed
-<br> My grandma always said every kind deed is a little seed
+<br> Every kind deed is a little seed
 
 After the walk I get home, and I rest 
 <br> I remember all the good things that make me feel blessed 
