@@ -15,7 +15,7 @@ Sitting in a dark room, she sits alone
 <br> with stiff legs she introduces herself to Steinway,
 <br> and in return she receives a great gift.
 <br>
-<br>Her body is no longer stiff, no longer limited.
+<br> Her body is no longer stiff, no longer limited.
 <br> Her eyes no longer shed tears.
 <br> Her fingers dance across the black and white keys.
 <br> Her ears open up and hear the sound of music.
@@ -104,8 +104,8 @@ And I will find a way to help someone somewhere.
 <br> 
 
 ## God's Grand Story ##
-For your life, eternally to God be the glory.
-<br> So let Him conceive of and write your whole story.
+For your life, eternally to God be the glory;
+<br> so let Him conceive of and write your whole story.
 
 Your story He’s been writing since the beginning of time.
 <br> He’s been thinking you up as someone loved and divine.
@@ -126,6 +126,27 @@ So choose to see you in the way God sees you.
 <br> Be part of what He’s crafting with the grand view.
 
 <br> 
+
+## Most People are Kind ##
+When I open my eyes there’ a truth that I find.
+<br> The fact that I find is that most people are kind.
+
+Like strangers smile kindly at me in public spaces.
+<br> It’s so uplifting to connect with such welcoming faces.
+
+And strangers make room for me when I’m driving in traffic.
+<br> They help me switch lanes in ways that are empathic.
+
+And people I know make space to listen to me.
+<br> I can tell what they want for me is for me to feel free.
+
+These are just a few ways that people have been kin.
+<br> They give me hope in the goodness of mankind.
+
+So if you’re having a rough time in life, it’s ok.
+<br> But know there are many people making this day be a better day.
+
+<br>
 
 ## Careers Introduction ##
 Every day on the earth people everywhere work,
