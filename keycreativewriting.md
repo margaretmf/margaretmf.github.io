@@ -156,7 +156,7 @@ In the world there are over 12,000 types of jobs.
 <br> People everywhere work because they don’t want to be slobs. 
 
 So let’s go on an adventure and learn about careers,
-<br> helping you decide what you can do in future years. 
+<br> to help you decide what you can do in future years. 
 
 From a truck driver to a teacher there’s many things you can be. 
 <br> Bringing joy and love to your work is really life’s key. 
@@ -225,7 +225,7 @@ Inspiring confidence in students is her duty,
 <br> helping them learn things like where is Djibouti.
 
 Students' love of learning she hopes to instill,
-<br> for hs e hopes they can live lives that are fulfilled.
+<br> for she hopes they can live lives in which they feel fulfilled.
 
 <br>
  
