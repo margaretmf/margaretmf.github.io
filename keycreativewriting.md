@@ -415,7 +415,7 @@ Then Gabby said, “Thinking of all these things sure is a mood enhancer.
 
 <br>
 
-## A World Filled with Love - version 2 ##
+## A World Filled with Love ##
 A mailman takes letters to each house in town. 
 <br> While walking he smiles at a woman with a frown. 
 
