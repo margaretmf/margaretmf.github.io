@@ -127,6 +127,19 @@ So choose to see you in the way God sees you.
 
 <br> 
 
+## No Need to Compare ##
+Sometimes I struggle with the tendency to compare,
+and I struggle with the suggestion that life is unfair.
+But I stop to recognize this as as the tempter's snare,
+and I wake up to see that God provides for me too.
+So if you're struggling as well, be true to you,
+and don't let the illusion skew your view.
+There's no need to compare; there's no need to plead.
+I hope that you find that you've got all you need...
+because God gives to you too when you follow his lead.
+
+<br>
+
 ## Most People are Kind ##
 When I open my eyes there’ a truth that I find.
 <br> The fact that I find is that most people are kind.
