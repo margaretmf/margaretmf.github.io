@@ -187,6 +187,27 @@ I’m going to introduce you to six different workers.
 
 <br>
 
+## The Architect ##
+He starts work every morning by eight-thirty 
+<br> with some tea before getting his hands dirty. 
+
+His job requires him to be analytical and creative. 
+<br> He also gets to be original and innovative. 
+
+He shares these traits by producing plans for structures. 
+<br> He’s the one who designs the building for constructors.
+
+Every type of building from a home to a skyscraper 
+<br> is what he sketches and draws on draft paper. 
+
+Intricate details for a foundation he lays,
+<br> helping create spaces for people to spend their days. 
+
+And something else he does is make sure designs follow laws.
+<br> He must ensure they are safe and have no flaws. 
+
+<br>
+
 ## The Police Officer ##
 She’s also a professional who works day and night,
 <br> making sure everyone is safe and alright. 
