@@ -5,8 +5,6 @@ layout: default
 ## PROFILE 
 I am a versatile entrepreneurship, education, and nonprofit professional interested in technological development, analyzing data, interviewing people, reading and writing, tutoring, and taking photos. I am a graduate of the University of Virginia, a public university founded by the author of the Declaration of Independence, and I received dual degrees in the liberal arts and sciences from the school. I believe in the core values of lifelong learning and a renaissance education, which the founder of the University of Virginia taught and shared with both students and the country's citizens. I also recognize that there have been injustices in our history, and I work daily to contribute to a more equitable world.
 
-[Resume](InstituteofInternationalEducation_Resume_MargaretFurr.pdf)
-
 <br>
 
 ## EDUCATION
