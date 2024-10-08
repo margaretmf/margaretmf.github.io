@@ -128,17 +128,23 @@ So choose to see you in the way God sees you.
 <br> 
 
 ## No Need to Compare ##
-Sometimes I struggle with the tendency to compare,
-<br> and I struggle with the suggestion that life is unfair.
+Sometimes I struggle with the tendency to compare, 
+<br> and I struggle with the suggestion that life is unfair. 
 
-<br> But I stop to recognize this as as the tempter's snare,
-<br> and I wake up to see that God provides for me too.
+But I stop to see this as the tempter’s snare, 
+<br> for God provides for me and all everywhere. 
 
-<br> So if you're struggling as well, be true to you,
-<br> and don't let the illusion skew your view.
+So if you’re struggling as well, be true to you, 
+<br> and don’t let the illusion skew your view. 
 
-<br> There's no need to compare; you've got all that you need.
-<br> God gives to you too when you follow His lead.
+There’s no need to compare; you’ve got all you need. 
+<br> God gives to you when you follow His lead. 
+
+Do I master this goal every day that I’m alive? 
+<br> Well surely it’s an endeavor for which I strive. 
+
+And writing this poem helped me express my voice. 
+<br> In these ideas that God gave me I do rejoice.
 
 <br>
 
