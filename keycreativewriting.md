@@ -187,6 +187,27 @@ I’m going to introduce you to six different workers.
 
 <br>
 
+## The Police Officer ##
+She’s also a professional who works day and night,
+<br> making sure everyone is safe and alright. 
+
+She does her work by enforcing the laws;
+<br> by upholding them, she serves a good cause. 
+
+Sometimes she has to find people to arrest,
+<br> or take people to hospitals when they are distressed. 
+
+And sometimes she does research to investigate crimes, 
+<br> or print out tickets to give to people as fines. 
+
+She does all this work with good morals and principles. 
+<br> For she hopes people are good citizens, not criminals. 
+
+At the end of the day she hopes to protect lives. 
+<br> Helping fight transgressions is for what she strives. 
+
+<br> 
+
 ## The Truckdriver ##
 He’s a professional that works day and night; 
 <br> so sometimes he’s working when there is no light.
