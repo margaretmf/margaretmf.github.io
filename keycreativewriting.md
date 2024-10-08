@@ -137,10 +137,8 @@ Sometimes I struggle with the tendency to compare,
 <br> So if you're struggling as well, be true to you,
 <br> and don't let the illusion skew your view.
 
-<br> There's no need to compare; there's no need to plead.
-
-<br> I hope that you find that you've got all you need...
-<br> because God gives to you too when you follow his lead.
+<br> There's no need to compare; you've got all that you need.
+<br> God gives to you too when you follow His lead.
 
 <br>
 
