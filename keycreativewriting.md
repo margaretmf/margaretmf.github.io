@@ -131,7 +131,7 @@ So choose to see you in the way God sees you.
 Sometimes I struggle with the tendency to compare, 
 <br> and I struggle with the suggestion that life is unfair. 
 
-But I stop to see this as the tempter’s snare, 
+But I stop to see this as the tempter’s great snare, 
 <br> for God provides for me and all everywhere. 
 
 So if you’re struggling as well, be true to you, 
