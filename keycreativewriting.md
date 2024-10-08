@@ -140,11 +140,11 @@ And strangers make room for me when I’m driving in traffic.
 And people I know make space to listen to me.
 <br> I can tell what they want for me is for me to feel free.
 
-These are just a few ways that people have been kin.
+These are just a few ways that people have been kind.
 <br> They give me hope in the goodness of mankind.
 
 So if you’re having a rough time in life, it’s ok.
-<br> But know there are many people making this day be a better day.
+<br> But know there are many making this be a better day.
 
 <br>
 
