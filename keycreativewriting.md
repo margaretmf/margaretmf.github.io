@@ -355,6 +355,18 @@ And at the end of the day he cleans up the store,
 
 <br>
 
+## Career Closing ##
+After reading about all of these different careers,
+<br> do you know what you want to do in future years?
+
+It's ok if you don't; you have many years to decide.
+<br> Hopefully the poems in this book served as a guide.
+
+There are many types of careers out there that you can explore.
+<br> Maybe you will find something you have never thought of before.
+
+<br>
+
 ## Gabby's Gratitude List - version 1 ##
 One night, Gabby complained to mama, "I had a terrible day today".
 <br> Gabby then said, "nothing at all went my way!"
