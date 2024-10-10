@@ -36,13 +36,13 @@ Incoming Data Analyst | October 2024-Present
 
 ### HORIZONS HAMPTON ROADS
 Teacher Assistant | June-July 2024
-* Assisted a 1st grade teacher in the classroom to help maintain order.
-* Graded classwork to help students 		understand what they did correctly or incorrectly.
-* Led small group reading activities with up to 4 students at a time.
-* Built relationships with students in the classroom to support them socially, emotionally, and academically.
-* Received and applied training on positive discipline to engage students in the learning process while disciplining them.
-* Taught students to be responsible stewards of the earth by exposing them to science concepts related to sustainability and helping them create an upcycled art project throughout the summer.
-* Took photos of students engaging in activities to support the organization’s communications.
+* Assisted a 1st grade teacher in the classroom to help maintain order
+* Graded classwork to help students 		understand what they did correctly or incorrectly
+* Led small group reading activities with up to 4 students at a time
+* Built relationships with students in the classroom to support them socially, emotionally, and academically
+* Received and applied training on positive discipline to engage students in the learning process while disciplining them
+* Taught students to be responsible stewards of the earth by exposing them to science concepts related to sustainability and helping them create an upcycled art project throughout the summer
+* Took photos of students engaging in activities to support the organization’s communications
 
 ### THE LITERACY LAB
 Literacy Tutor | August 2022-June 2024
@@ -56,15 +56,15 @@ Literacy Tutor | August 2022-June 2024
 
 ###	FORKIDS
 Volunteer Data Analyst | August-December 2023
-* Gathered data online from public sources on affordable housing in Hampton Roads to prepare for data analysis.
-* Converted addresses to geographic coordinates and analyzed data to prepare for mapping the data.
-* Created a map of affordable housing to help the organization understand how to serve families.
+* Gathered data online from public sources on affordable housing in Hampton Roads to prepare for data analysis
+* Converted addresses to geographic coordinates and analyzed data to prepare for mapping the data
+* Created a map of affordable housing to help the organization understand how to serve families
 
 ### HORIZONS HAMPTON ROADS
 Substitute Teacher Assistant | June-August 2023
-* Assisted 3rd, 5th, 7th grade, and 8th grade teachers in the classroom to help maintain order.
-* Co-taught for a part of the day to lead class through worksheets and material they were learning.
-* Built relationships with students in the classroom to support them socially, emotionally, and academically. 
+* Assisted 3rd, 5th, 7th grade, and 8th grade teachers in the classroom to help maintain order
+* Co-taught for a part of the day to lead class through worksheets and material they were learning
+* Built relationships with students in the classroom to support them socially, emotionally, and academically
 
 ### HARNESS MAGAZINE
 Contributing Writer | August 2022
