@@ -171,7 +171,7 @@ So if you’re having a rough time in life, it’s ok.
 
 ## Careers Introduction ##
 Every day on the earth people everywhere work,
-<br> with some making artwork; and some working as a clerk. 
+<br> with some making art; and some working as a clerk. 
 
 In the world there are over 12,000 types of jobs. 
 <br> People everywhere work because they don’t want to be slobs. 
