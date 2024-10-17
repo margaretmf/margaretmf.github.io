@@ -28,9 +28,6 @@
 - name: "Contact"
   link: "contact"
   
-- name: "Calendar"
-  link: "calendar"
-
 - name: "Creative Writing"
   link: "keycreativewriting"
 
