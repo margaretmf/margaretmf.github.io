@@ -22,7 +22,8 @@ layout: default
 * [There Was a Country: A Memoir](https://www.amazon.com/There-Was-Country-Chinua-Achebe/dp/014312403X/ref=pd_sbs_d_sccl_1_1/130-1851096-6754965?pd_rd_w=BrcSr&content-id=amzn1.sym.f7f035a5-ff07-4412-8a3c-9301028ec36b&pf_rd_p=f7f035a5-ff07-4412-8a3c-9301028ec36b&pf_rd_r=R8F7JZR9R7ARMX2F5A90&pd_rd_wg=t2MKo&pd_rd_r=398e9188-4e6d-42a5-b6a4-bde20bc9b778&pd_rd_i=014312403X&psc=1) by Chinua Achebe
 * [The Science of Reading: Information, Media, and Mind in Modern America](https://www.amazon.com/s?k=the+science+of+reading+mind+media+information&i=stripbooks&crid=DGGRJZ2KN31Z&sprefix=the+science+of+reading+mind+media+information%2Cstripbooks%2C103&ref=nb_sb_noss) by Adrian Johns
 * [Nothing to Envy: Ordinary Lives in North Korea](https://www.amazon.com/Nothing-Envy-Ordinary-Lives-North/dp/0385523912) by Barbara Demick
-
+* [The Future is Analog: How to Create a More Human World](https://www.amazon.com/Future-Analog-Create-Human-World/dp/1541701550/ref=sr_1_1?crid=37XTCZ4TVF5TQ&dib=eyJ2IjoiMSJ9.f_gX621DP6_3K7KNaeRocsloN8fb1Ltrwi0Wbbf4c8tdv2GVEE7v75sM-7jLfQY5kcH4jl77DPlhAr-FeX6barr3r5bcY8GdHnWihcPYqbHgXmKqJuy5-JlRlDiJ0ilxK5KjtQnOmDkxYQuziX216j2Gt1m9TYE2qQJSMRPJVwpXWxqqnEdD3qt-NLnPmRAlADKOxxXzqgJkuYkybXOppt4mxmGgxTJDZ105aV7fe5s.Pz8_2Nsd7WrRDwfRivbqiPmwcW4zs-YvnlXJbVrwUAI&dib_tag=se&keywords=the+future+is+analog&qid=1729344294&s=books&sprefix=the+future+is+analog%2Cstripbooks%2C159&sr=1-1) by David Sax
+  
 ## 2023
 
 ### Books
