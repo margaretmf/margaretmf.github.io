@@ -266,7 +266,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/horse-in-thewinter.jpg">
+<img class="profile-picture" src="photography/constructionsite9.jpg">
+
+
+
+<img class="profile-picture" src="photography/constructionsite10.jpg">
 
 
 
