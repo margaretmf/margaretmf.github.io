@@ -222,6 +222,21 @@ layout: default
 <img class="profile-picture" src="photography/lightinthedarkness7.jpg">
 
 
+<img class="profile-picture" src="photography/lightinthedarkness8.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness9.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness10.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness11.jpg">
+
+
 
 <img class="profile-picture" src="photography/constructionsite1.jpg">
 
