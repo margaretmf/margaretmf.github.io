@@ -242,10 +242,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/lightinthedarkness12.jpg">
-
-
-
 <img class="profile-picture" src="photography/constructionsite3.jpg">
 
 
