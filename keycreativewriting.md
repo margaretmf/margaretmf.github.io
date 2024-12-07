@@ -59,9 +59,9 @@ Past,
 <br> 
 
 ## Working in the Truckstop Diner ##
-I'm reminiscing about the good odl days
+I'm reminiscing about the good old days
 <br> when this work didn't feel so lonely.
-<br> I am grateful strangers who come,
+<br> I am grateful for the strangers who come,
 <br> but not as many come these days.
 
 I'm cleaning up some greasy food.
