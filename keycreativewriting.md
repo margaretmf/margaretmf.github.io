@@ -58,6 +58,24 @@ Past,
 
 <br> 
 
+## Working in the Truckstop Diner ##
+I'm reminiscing about the good odl days
+<br> when this work didn't feel so lonely.
+<br> I am grateful strangers who come,
+<br> but not as many come these days.
+
+I'm cleaning up some greasy food.
+<br> I'm throwing away uneaten pie.
+<br> I was happier back then,
+<br> but I've got to be grateful for the good.
+
+At least one couple sat in this booth,
+<br> leaving a napkin on the checkered floors.
+<br> The reastraurant hasn't totally been forgotten;
+<br> it's just not as good as wehn it was in its youth.
+
+<br>
+
 ## A New Day ##
 It's a new day for the sun to shine.
 <br> Wake up, and be free. The day is yours, and the day is mine.
