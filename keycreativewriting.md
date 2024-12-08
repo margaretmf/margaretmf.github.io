@@ -72,7 +72,7 @@ I'm cleaning up some greasy food.
 At least one couple sat in this booth,
 <br> leaving a napkin on the checkered floors.
 <br> The reastraurant hasn't totally been forgotten;
-<br> it's just not as good as wehn it was in its youth.
+<br> it's just not as good as when it was in its youth.
 
 <br>
 
