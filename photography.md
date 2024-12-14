@@ -259,10 +259,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
-
-
-
 <img class="profile-picture" src="photography/constructionsite7.jpg">
 
 
@@ -288,6 +284,14 @@ layout: default
 
 
 <img class="profile-picture" src="photography/rainonthewindow1.jpg">
+
+
+
+<img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
+
+
+
+<img class="profile-picture" src="photography/window-reflection3jpg">
 
 
 
