@@ -103,6 +103,21 @@ On this new day I wear a smile on my face.
 
 <br>
 
+## It's a Beautiful Thing ##
+It’s a beautiful thing to share a smile with someone on the street and see and feel the light in a stranger that you greet.
+
+It’s a beautiful thing to hold the door open for someone and lighten their load as they are carrying a ton. 
+
+It’s a beautiful thing to buy flowers for a friend and have them delivered at the day’s end. 
+
+It’s a beautiful thing to write a handwritten note and share some kind words and an inspiring quote. 
+
+It’s a beautiful thing to let someone go in front of you and help them not wait so long in the queue. 
+
+It’s a beautiful thing to buy a gift for your family member and show that you care and that them you remember. 
+
+<br>
+
 ## How Will I Best Use the Moment? ##
 How will I best use the moment?
 <br> Will I pray?….or will I vent?
