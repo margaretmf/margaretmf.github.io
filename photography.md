@@ -55,7 +55,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/coloredwall1.jpg">
+<img class="profile-picture" src="photography/americanflag17.jpg">
 
 
 
@@ -91,7 +91,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/christmas-flowers-against-wall.jpg">
+<img class="profile-picture" src="photography/coloredwall1.jpg">
 
 
 
@@ -108,6 +108,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/rose.jpg">
+
+
+
+<img class="profile-picture" src="photography/christmas-flowers-against-wall.jpg">
 
 
 
