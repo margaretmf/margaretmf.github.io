@@ -291,10 +291,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/window-reflection3jpg">
-
-
-
 <img class="profile-picture" src="photography/historytour.jpg">
 
 
