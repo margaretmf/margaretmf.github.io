@@ -235,7 +235,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/clightinthedarkness13.jpg">
+<img class="profile-picture" src="photography/constructionsite2.jpg">
 
 
 
@@ -244,10 +244,6 @@ layout: default
 
 
 <img class="profile-picture" src="photography/lightinthedarkness11.jpg">
-
-
-
-<img class="profile-picture" src="photography/constructionsite2.jpg">
 
 
 
