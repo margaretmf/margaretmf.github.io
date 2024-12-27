@@ -202,6 +202,58 @@ So if you’re having a rough time in life, it’s ok.
 
 <br>
 
+## Emotions ##
+I feel a little exhausted emotionally, honestly
+<br> I’ve been through all the highs and lows
+<br> One big feeling after the next 
+<br> I just can’t get a break from the throes
+
+These feelings feel like a hurricane 
+<br> I just don’t know what to do with them
+<br> These feelings feel like a whirlwind too
+<br> They sure do cause me a lot of mayhem 
+
+But sometimes I find a glimpse of peace 
+<br> As I hear God’s voice when I pray 
+<br> Sometimes I find a glimpse of goodness 
+As a glimmer hope shines through my day
+
+The peace within shows me what’s real
+<br> And the glimpse of goodness stills my heart 
+<br> The glimmer of hope eases my pain 
+<br> And shows me that from love I can never part  
+
+These stormy feelings are not really mine 
+<br> They’re just trying to stop me from being me  
+<br> These feelings are just destructive feelings  
+<br> that pull me away from what makes me feel free 
+
+<br>
+
+## Don't Foret to Look Up ##
+Don’t forget to look up at the sky.
+<br> And when you do, look up high,
+<br> pay attention to the birds soaring by,
+<br> and see how in a flock they orderly fly.
+
+<br>
+
+## Don't Forget to Open Your Eyes ## 
+Don’t forget to open your eyes, 
+<br> see the new day dawning in the sunrise,
+<br> and how all of nature is harmonized. 
+<br> There’s beauty all around that you may realize. 
+
+<br>
+
+## Don't Forget to Open Your Heart ##
+Don’t forget to open your heart
+<br> with a fresh attitude at each day’s start. 
+<br> Be willing to give freely and do your part,
+<br> and live your life like it’s a work of art
+
+<br>
+
 ## Careers Introduction ##
 Every day on the earth people everywhere work,
 <br> with some making art; and some working as a clerk. 
@@ -557,6 +609,41 @@ The other man was delighted with what the man said.
 So the lesson is that one small thing can lead to a world filled with love.
 <br> For love is what we’re all truly born of.
 
+<br> 
+
+## Life is Forever Evolving ##
+rivers flow into the sea 
+<br> a seed can become a tree 
+<br> leaves change from green to gold
+<br> humans grow from young to old 
+
+life is forever evolving
+<br> no day is ever the same 
+<br> the world is continuously revolving 
+<br> so nature can keep on reaching its aim 
+
+caterpillars transform into butterflies 
+<br> the same Sun that sets will rise 
+<br> the moon turns from a crescent to whole
+<br> the Earth is always spinning its poles 
+
+life is forever evolving
+<br> no day is ever the same 
+<br> the world is continuously revolving 
+<br> so nature can keep on reaching its aim 
+
+a blue sky becomes one of rainshowers 
+<br> buds blossom into flowers 
+<br> bees create honey out of nectar 
+<br> all of the earth is connected 
+
+life is forever evolving
+<br> no day is ever the same 
+<br> the world is continuously revolving 
+<br> so nature can keep on reaching its aim 
+
+<br> 
+
 ## Good Going On Today #
 I wake up and make the bed
 <br> I make sure that I am fed 
@@ -591,6 +678,49 @@ There’s good going on today, so why don’t I sing
 <br> I am glad about all the things that the good Lord brings 
 <br> The sun is shining, the birds are chirping 
 <br> The world is moving,  the people are smiling 
+
+<br> 
+
+## Because I'm a Woman, I Can ##
+I’m driving my car with no place to go 
+<br> I’m flipping through stations on the radio
+<br> I’m finding joy in the journey of flying solo 
+<br> And learning to be free and let the past go
+
+I’m going through Tennessee and Indiana 
+<br> Wisconsin, Missouri, and Louisiana  
+<br> Like JCash, I’m going everywhere man 
+<br> I’m going all these places because as a woman I can 
+
+I’ve been through my share of breakups and heartbreaks
+<br> I’ve also made my share of dreadful mistakes 
+<br> But I’m putting the past in the rearview mirror
+<br> And I’m ready to see life a little bit clearer 
+
+I’m going through Tennessee and Indiana 
+<br> Wisconsin, Missouri, and Louisiana  
+<br> Like JCash, I’m going everywhere man 
+<br> I’m going all these places because as a woman I can 
+
+Traveling these roads brings freedom to me 
+<br> I feel like I can truly and independently be
+<br> I’ve been singing in my heart every day’s a new day 
+<br> Every day is a new day for life on the highway 
+
+I’ve been to Tennessee, Missouri, and Indiana 
+<br> Wisconsin, Georgia, and Louisiana  
+<br> Like JCash, I’ve been going everywhere man
+<br> I’m going all these places; as a woman I can 
+
+I’ve been meeting all sorts of people here and there 
+<br> I’ve been learning that there are good people everywhere 
+<br> The people, they come from many different walks of life 
+<br> Stories to tell with which they are rife 
+
+I’ve been to Tennessee, Missouri, and Indiana 
+<br> Wisconsin, Georgia, and Louisiana  
+<br> Like JCash, I’ve been going everywhere man 
+<br> I’m going all these places because as a woman I can 
 
 <br> 
 
@@ -707,4 +837,35 @@ Learning to leave it in yesterday <br>
 
 <br>
 
+## Big Red Bow ##
+There is nothing like a big red bow
+<br> that I can put on top of a gift for you
+<br> or tie in my hair for a classic do
+<br> or wrap around the church pew. 
+
+<br> 
+
+## Peaceful Chaos ##
+From jam-packed parking lots to long lines in the airport, it is the time of year of peaceful chaos. People are rushing to buy ingredients for their holiday party, shopping at the last minute for the presents for their family, and arriving to the airport extra early to make their flight on time…like everyone else is. It also can feel like the to do list is so long that one never checks everything off…the things to do are endless. But amidst all the hustle and bustle, there are glimmers of good cheer, with people excited to give and receive, and the promise of Jesus Christ, who brought peace and good will to all mankind, motivating the season. 
+
+<br> 
+
+## Hanging Up Ornaments ##
+‘Tis the season for hanging up Christmas ornaments 
+<br> and decorating the house with other adornments. 
+<br> My favorite I’d say are wreaths and peppermints. 
+
+‘Tis the season for stockings filled with presents galore,
+<br> thanks to Santa who bought everything in the store. 
+<br> The best gift I’ve gotten is a book on folklore. 
+
+‘‘Tis the season for going with neighbors caroling 
+<br> and then drinking some eggnog and reveling. 
+<br> There’s the good news of Christ we can enjoy heralding. 
+
+‘Tis the season for lights, both fire and candlelight. 
+<br> And ‘tis the season for twinkling stars shining at night. 
+<br> In the darkness there’s a world filled with things merry and bright. 
+
+<br>
 ---------------------------------------------------------------------------------------------------------------------
