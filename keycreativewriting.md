@@ -612,35 +612,35 @@ So the lesson is that one small thing can lead to a world filled with love.
 <br> 
 
 ## Life is Forever Evolving ##
-rivers flow into the sea 
-<br> a seed can become a tree 
-<br> leaves change from green to gold
-<br> humans grow from young to old 
+Rivers flow into the sea 
+<br> A seed can become a tree 
+<br> Leaves change from green to gold
+<br> Humans grow from young to old 
 
-life is forever evolving
-<br> no day is ever the same 
-<br> the world is continuously revolving 
-<br> so nature can keep on reaching its aim 
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim
 
-caterpillars transform into butterflies 
-<br> the same Sun that sets will rise 
-<br> the moon turns from a crescent to whole
-<br> the Earth is always spinning its poles 
+Caterpillars transform into butterflies 
+<br> The same Sun that sets will rise 
+<br> The moon turns from a crescent to whole
+<br> The Earth is always spinning its poles 
 
-life is forever evolving
-<br> no day is ever the same 
-<br> the world is continuously revolving 
-<br> so nature can keep on reaching its aim 
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim
 
-a blue sky becomes one of rainshowers 
-<br> buds blossom into flowers 
-<br> bees create honey out of nectar 
-<br> all of the earth is connected 
+A blue sky becomes one of rainshowers 
+<br> Buds blossom into flowers 
+<br> Bees create honey out of nectar 
+<br> All of the earth is connected 
 
-life is forever evolving
-<br> no day is ever the same 
-<br> the world is continuously revolving 
-<br> so nature can keep on reaching its aim 
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim
 
 <br> 
 
