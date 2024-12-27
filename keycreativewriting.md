@@ -624,7 +624,7 @@ Life is forever evolving
 
 Caterpillars transform into butterflies 
 <br> The same Sun that sets will rise 
-<br> The moon turns from a crescent to whole
+<br> The moon turns from a crescent to a whole
 <br> The Earth is always spinning its poles 
 
 Life is forever evolving
