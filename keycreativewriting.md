@@ -871,12 +871,13 @@ From jam-packed parking lots to long lines in the airport, it is the time of yea
 
 ## Driving Home for the Holiday ##
 eager to travel home
-<br> to see family for the holiday 
+<br> to see family for 
+<br> the holiday 
 <br> that is filled with all things 
 <br> merry 
 <br> and bright, 
-<br> and hues of green
-<br> and red,
+<br> and hues of red
+<br> and green,
 <br> a throng of cars
 <br> drive 
 <br> as flocks of birds 
@@ -895,14 +896,13 @@ every other mile,
 <br> a blue sign 
 <br> marking the next gas station 
 <br> or fast food restaurant,
-<br> where gracious people 
-<br> stand behind 
+<br> where gracious people stand
+<br> behind 
 <br> logos 
 <br> like Cracker Barrell, McDonald’s, and Exxon
 <br> and are ready 
 <br> to let you use the restroom,
-<br> if not 
-<br> take your cash 
+<br> if not take your cash 
 <br> in exchange for a meal.
 
 <br>
