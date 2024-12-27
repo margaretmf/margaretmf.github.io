@@ -613,7 +613,7 @@ So the lesson is that one small thing can lead to a world filled with love.
 
 ## Life is Forever Evolving ##
 Rivers flow into the sea 
-<br> A seed can become a tree 
+<br> A seed becomes a tree 
 <br> Leaves change from green to gold
 <br> Humans grow from young to old 
 
