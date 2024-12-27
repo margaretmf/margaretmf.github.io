@@ -867,5 +867,43 @@ From jam-packed parking lots to long lines in the airport, it is the time of yea
 <br> And ‘tis the season for twinkling stars shining at night. 
 <br> In the darkness there’s a world filled with things merry and bright. 
 
+<br> 
+
+## Driving Home for the Holiday ##
+eager to travel home
+<br> to see family for the holiday 
+<br> that is filled with all things 
+<br> merry 
+<br> and bright, 
+<br> and hues of green
+<br> and red,
+<br> a throng of cars
+<br> drive 
+<br> as flocks of birds 
+<br> fly in the sky,
+<br> along winding roads,
+<br> and between white dotted lines. 
+
+the golden sun shines through 
+<br> the brown and barren trees,
+<br> and every radio station plays 
+<br> Christmas music, 
+<br> at least intermittently.
+
+every other mile,
+<br> there stands 
+<br> a blue sign 
+<br> marking the next gas station 
+<br> or fast food restaurant,
+<br> where gracious people 
+<br> stand behind 
+<br> logos 
+<br> like Cracker Barrell, McDonald’s, and Exxon
+<br> and are ready 
+<br> to let you use the restroom,
+<br> if not 
+<br> take your cash 
+<br> in exchange for a meal.
+
 <br>
 ---------------------------------------------------------------------------------------------------------------------
