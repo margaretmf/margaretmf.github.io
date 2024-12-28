@@ -689,7 +689,7 @@ I’m driving my car with no place to go
 
 I’m going through Tennessee and Indiana 
 <br> Wisconsin, Missouri, and Louisiana  
-<br> Like JCash, I’m going everywhere man 
+<br> Like Geoff Mack and JCash, I’m going everywhere, man 
 <br> I’m going all these places because as a woman I can 
 
 I’ve been through my share of breakups and heartbreaks
@@ -699,7 +699,7 @@ I’ve been through my share of breakups and heartbreaks
 
 I’m going through Tennessee and Indiana 
 <br> Wisconsin, Missouri, and Louisiana  
-<br> Like JCash, I’m going everywhere man 
+<br> Like Geoff Mack and JCash, I’m going everywhere, man 
 <br> I’m going all these places because as a woman I can 
 
 Traveling these roads brings freedom to me 
@@ -709,7 +709,7 @@ Traveling these roads brings freedom to me
 
 I’ve been to Tennessee, Missouri, and Indiana 
 <br> Wisconsin, Georgia, and Louisiana  
-<br> Like JCash, I’ve been going everywhere man
+<br> Like Geoff Mack and JCash, I’ve been going everywhere, man
 <br> I’m going all these places; as a woman I can 
 
 I’ve been meeting all sorts of people here and there 
@@ -719,7 +719,7 @@ I’ve been meeting all sorts of people here and there
 
 I’ve been to Tennessee, Missouri, and Indiana 
 <br> Wisconsin, Georgia, and Louisiana  
-<br> Like JCash, I’ve been going everywhere man 
+<br> Like Geoff Mack and JCash, I’ve been going everywhere, man 
 <br> I’m going all these places because as a woman I can 
 
 <br> 
