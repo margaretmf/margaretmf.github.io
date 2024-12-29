@@ -1,6 +1,6 @@
 
 
-## Through creative writing, I practice observation and use words thoughtfully. Check out my creative writing below. ##
+## Through creative writing, I practice observation and use words thoughtfully. I am particularly experimenting with writing country music song lyrics, children's books, and spiritual or Christian poetry. Check out my creative writing below. ##
 
 ---------------------------------------------------------------------------------------------------------------------
 
@@ -611,7 +611,7 @@ So the lesson is that one small thing can lead to a world filled with love.
 
 <br> 
 
-## Life is Forever Evolving ##
+## Life is Forever Evolving - version 1 ##
 Rivers flow into the sea 
 <br> A seed becomes a tree 
 <br> Leaves change from green to gold
@@ -643,6 +643,49 @@ Life is forever evolving
 <br> So nature can reach its aim
 
 <br> 
+
+## Life is Forever Evolving - version 2 ##
+Rivers flow into the sea 
+<br> A seed becomes a tree 
+<br> Leaves change from green to gold
+<br> Humans grow from young to old 
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+Caterpillars transform into butterflies 
+<br> Other creatures also metamorphosize
+<br> Chemicals and metals alchemize 
+<br> Life continues when a plant dies 
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+A blue sky becomes one of rainshowers 
+<br> Buds blossom into flowers 
+<br> Bees create honey out of nectar 
+<br> All of the earth is connected 
+
+<br> Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+<br> The same Sun that sets will rise
+<br> And it’s light leads things to energize 
+<br> The moon turns from a crescent to a whole
+<br> The Earth is always spinning its poles 
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+<br>
 
 ## Good Going On Today #
 I wake up and make the bed
@@ -721,6 +764,81 @@ I’ve been to Tennessee, Missouri, and Indiana
 <br> Wisconsin, Georgia, and Louisiana  
 <br> Like Geoff Mack and JCash, I’ve been going everywhere, man 
 <br> I’m going all these places because as a woman I can 
+
+<br> 
+
+# Hey Cowboy, I'm Strong on My Own ##
+Hey cowboy, you left your boots and hat behind. 
+<br> You left your guitar here too for me to find. 
+<br> Hey cowboy, what were you doing here?
+<br> What were you doing here in all of your gear?
+
+I’ve got a heart of a cowgirl 
+<br> I don’t need a cowboy 
+<br> Like my ancestors 
+<br> I explore the land 
+
+Hey cowboy, no need to come riding in. 
+<br> I’m riding by myself now on my new buckskin.
+<br> Hey cowboy, no need to leave me your boots.
+<br> I’ve got my own boots tied to my countryeastern roots. 
+
+I’ve got a heart of a cowgirl 
+<br> I don’t need a cowboy
+<br> Like my ancestors 
+<br> I ride a horse astride 
+
+Hey cowboy, you don’t need to save me.
+<br> I’m on my own now, and I’m free. 
+<br> Hey cowboy, don’t sing me your song. 
+<br> I’ve got my own song to sing out strong. 
+
+I’ve got a heart of a cowgirl 
+<br> I don’t need a cowboy 
+<br> Like my ancestors 
+<br> I can carry a tune 
+
+Hey cowboy, we don’t need to dance. 
+<br> I can dance in line without the romance.
+<br> Hey cowboy, don’t sweep me off my feet. 
+<br> On my own, I am whole and complete. 
+
+I’ve got a heart of a cowgirl 
+<br> I don’t need a cowboy 
+<br> Like my ancestors 
+<br> I’m strong on my own  
+
+## My Heart Lies in the Country ##
+For a few days I’ve been in the city 
+<br> Enjoying the skyline which is so pretty 
+<br> But my heart must return to the country now 
+<br> I’ve got to get back to the farm somehow  
+
+There’s nothing like the fields of grass that grows 
+<br> There’s nothing like the nearby river that flows 
+<br> There’s nothing like the cows that moo
+<br> There’s nothing like the sky so blue 
+
+This farm is my home
+<br> Wherever I roam 
+<br> My heart lives in the country forever 
+
+There’s nothing like the truck that’s red
+<br> There’s nothing like the cornbread 
+<br> There’s nothing like the fresh grown food 
+<br> There’s nothing like the quietude 
+
+This farm is my home
+<br> Wherever I roam 
+<br> My heart forever lives in the country 
+
+I’ll take a train southbound
+<br> Into this small town
+<br> So that I can return home 
+
+This farm is my home
+<br> Wherever I roam 
+<br> My heart lives in the country forever 
 
 <br> 
 
