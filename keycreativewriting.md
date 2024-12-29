@@ -988,40 +988,11 @@ From jam-packed parking lots to long lines in the airport, it is the time of yea
 <br> 
 
 ## Driving Home for the Holiday ##
-eager to travel home
-<br> to see family for 
-<br> the holiday 
-<br> that is filled with all things 
-<br> merry 
-<br> and bright, 
-<br> and hues of red
-<br> and green,
-<br> a throng of cars
-<br> drive 
-<br> as flocks of birds 
-<br> fly in the sky,
-<br> along winding roads,
-<br> and between white dotted lines. 
+Eager to travel home to see family for the holiday that is filled with all things merry and bright, and shades of red and green, a throng of car drive like flocks of birds flying in the sky, along winding roads, and between white dotted lines. 
 
-the golden sun shines through 
-<br> the brown and barren trees,
-<br> and every radio station plays 
-<br> Christmas music, 
-<br> at least intermittently.
+The golden sun shines through the brown and barren trees, and every radio station plays Christmas music, at least intermittently.
 
-every other mile,
-<br> there stands 
-<br> a blue sign 
-<br> marking the next gas station 
-<br> or fast food restaurant,
-<br> where gracious people stand
-<br> behind 
-<br> logos 
-<br> like Cracker Barrell, McDonald’s, and Exxon
-<br> and are ready 
-<br> to let you use the restroom,
-<br> if not take your cash 
-<br> in exchange for a meal.
+Every other mile, there stands a blue sign marking the next gas station or fast food restaurant, where gracious people stand behind logos like Cracker Barrell, McDonald’s, and Exxon and are ready to let you use the restroom, if not take your cash in exchange for a meal.
 
 <br>
 ---------------------------------------------------------------------------------------------------------------------
