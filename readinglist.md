@@ -24,6 +24,7 @@ layout: default
 * [Nothing to Envy: Ordinary Lives in North Korea](https://www.amazon.com/Nothing-Envy-Ordinary-Lives-North/dp/0385523912) by Barbara Demick
 * [The Future is Analog: How to Create a More Human World](https://www.amazon.com/Future-Analog-Create-Human-World/dp/1541701550/ref=sr_1_1?crid=37XTCZ4TVF5TQ&dib=eyJ2IjoiMSJ9.f_gX621DP6_3K7KNaeRocsloN8fb1Ltrwi0Wbbf4c8tdv2GVEE7v75sM-7jLfQY5kcH4jl77DPlhAr-FeX6barr3r5bcY8GdHnWihcPYqbHgXmKqJuy5-JlRlDiJ0ilxK5KjtQnOmDkxYQuziX216j2Gt1m9TYE2qQJSMRPJVwpXWxqqnEdD3qt-NLnPmRAlADKOxxXzqgJkuYkybXOppt4mxmGgxTJDZ105aV7fe5s.Pz8_2Nsd7WrRDwfRivbqiPmwcW4zs-YvnlXJbVrwUAI&dib_tag=se&keywords=the+future+is+analog&qid=1729344294&s=books&sprefix=the+future+is+analog%2Cstripbooks%2C159&sr=1-1) by David Sax
 * [The Message](https://www.amazon.com/s?k=the+message+ta-nehisi+coates&hvadid=700311114154&hvdev=c&hvlocphy=9008456&hvnetw=g&hvqmt=e&hvrand=4725370104189847165&hvtargid=kwd-2309587625430&hydadcr=10028_13483876&tag=googhydr-20&ref=pd_sl_7m2x7byaq8_e) by Ta-Nehisi Coates
+* [The Sun and Her Flowers](https://www.amazon.com/Sun-Her-Flowers-Rupi-Kaur/dp/1449486797/ref=sr_1_1?crid=3MW06BZ8R44GE&dib=eyJ2IjoiMSJ9.DXgGlll7-WDEPlFri29debHKFV__6lEXpR_r8m6-Mi7CnBCXpOOUahQz0c93paNHGxsjM3nRVDVcLaUmzG18EFdLKAxKU4uaR8SrML8lVW1Oej_xN5xN53z8TI4hSmRU3jN0j5jnpQCJ2vlenrfO95lkix4mnhGsPJ7FkT_tRYRTbto9rFoTSilb7VhRXHsuB3nl2pzuBy3b3U3DJ8oJSFeV_TlRxX-TpE0aL22Iv64.CWa3GpbzVReBn1v5-DOzMUO2aiO32IfX7KkWg-ebbZw&dib_tag=se&keywords=the+sun+and+her+flowers&qid=1735477392&sprefix=the+sun+and+her+flowers%2Caps%2C96&sr=8-1) by Rupi Kaur
   
 ## 2023
 
