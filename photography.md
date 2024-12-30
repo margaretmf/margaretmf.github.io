@@ -2,7 +2,7 @@
 layout: default
 ---
 
-## With strong vision, and with a love for color and perspective, an open eye, and a heart filled with gratitude, I capture beauty everywhere. Check out my photography below. ##
+## With strong vision, and with a love for color and perspective, an open eye, and a heart filled with gratitude, I capture beauty everywhere. I am particularly experimenting with capturing light in the darkness, American flags, leaves, and nature. Check out my photography below. ##
 
 <br>
 
