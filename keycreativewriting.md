@@ -216,7 +216,7 @@ These feelings feel like a hurricane
 But sometimes I find a glimpse of peace 
 <br> As I hear God’s voice when I pray 
 <br> Sometimes I find a glimpse of goodness 
-As a glimmer hope shines through my day
+<br> As a glimmer hope shines through my day
 
 The peace within shows me what’s real
 <br> And the glimpse of goodness stills my heart 
