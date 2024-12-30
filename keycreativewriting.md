@@ -767,9 +767,9 @@ I’ve been to Tennessee, Missouri, and Indiana
 
 <br> 
 
-# Hey Cowboy, I'm Strong on My Own ##
-Hey cowboy, you left your boots and hat behind. 
-<br> You left your guitar here too for me to find. 
+# Hey Cowboy, I'm Strong on My Own - version 1 ##
+Hey cowboy, you left your boots and hat behind
+<br> You left your guitar here too for me to find 
 <br> Hey cowboy, what were you doing here?
 <br> What were you doing here in all of your gear?
 
@@ -778,35 +778,93 @@ I’ve got a heart of a cowgirl
 <br> Like my ancestors 
 <br> I explore the land 
 
-Hey cowboy, no need to come riding in. 
-<br> I’m riding by myself now on my new buckskin.
-<br> Hey cowboy, no need to leave me your boots.
-<br> I’ve got my own boots tied to my countryeastern roots. 
+Hey cowboy, no need to come riding in
+<br> I’m riding by myself now on my new buckskin
+<br> Hey cowboy, no need to leave me your boots
+<br> I’ve got my own boots tied to my countryeastern roots
 
 I’ve got a heart of a cowgirl 
 <br> I don’t need a cowboy
 <br> Like my ancestors 
 <br> I ride a horse astride 
 
-Hey cowboy, you don’t need to save me.
-<br> I’m on my own now, and I’m free. 
-<br> Hey cowboy, don’t sing me your song. 
-<br> I’ve got my own song to sing out strong. 
+Hey cowboy, you don’t need to save me
+<br> I’m on my own now, and I’m free 
+<br> Hey cowboy, don’t sing me your song 
+<br> I’ve got my own song to sing out strong 
 
 I’ve got a heart of a cowgirl 
 <br> I don’t need a cowboy 
 <br> Like my ancestors 
 <br> I can carry a tune 
 
-Hey cowboy, we don’t need to dance. 
-<br> I can dance in line without the romance.
-<br> Hey cowboy, don’t sweep me off my feet. 
-<br> On my own, I am whole and complete. 
+Hey cowboy, we don’t need to dance
+<br> I can dance in line without the romance
+<br> Hey cowboy, don’t sweep me off my feet 
+<br> On my own, I am whole and complete
 
 I’ve got a heart of a cowgirl 
 <br> I don’t need a cowboy 
 <br> Like my ancestors 
 <br> I’m strong on my own  
+
+# Hey Cowboy, I'm Strong on My Own - version 2 ##
+Hey cowboy, I see that you came riding in 
+<br> I’m riding by myself now on my new buckskin
+<br> Hey cowboy, you sure made my heart whirl
+<br> But my heart’s not broken; I’m a country girl
+
+I’ve got a heart of a country girl
+<br> But I don’t need a cowboy
+<br> Like my ancestors,
+<br> I ride a horse astride
+
+Hey cowboy, you left your boots and hat behind
+<br> You left your guitar here too for me to find
+<br> Hey cowboy, what were you doing here?
+<br> What were you doing here in all of your gear?
+
+I’ve got a heart of a country girl
+<br> I don’t need a cowboy
+<br> Like my ancestors,
+<br> I’m strong on my own
+
+Hey cowboy, I don’t need your hat or boots
+<br> I’ve got my own tied to my eastcoast roots.
+<br> Hey cowboy, you don’t need to save me
+<br> I’m on my own now, and I’m free as can be
+
+I’ve got a heart of a country girl
+<br> I don’t need a cowboy
+<br> Like my ancestors,
+<br> I explore the land
+
+Hey cowboy, no need to sweep me off my feet
+<br> On my own, I am whole and complete
+<br> Hey cowboy, with someone else you can dance
+<br> I can enjoy linedancing without the romanc
+
+I’ve got a heart of a country girl
+<br> I don’t need a cowboy
+<br> Like my ancestors,
+<br> I love dancing on my own
+
+Hey cowboy, you don’t need to sing me your song
+<br> I’ve got my own song to sing, and sing out strong 
+<br> Hey cowboy, I hope you pick up your things
+<br> But thanks for empowering me to strum some strings
+
+I’ve got a heart of a country girl
+<br> I don’t need a cowboy
+<br> Like my ancestors,
+<br> I can carry a tune
+
+I’ve got a heart of a country girl
+<br> I don’t need a cowboy
+<br> Like my ancestors,
+<br> I’m strong on my own
+
+<br>
 
 ## My Heart Lies in the Country ##
 For a few days I’ve been in the city 
