@@ -687,6 +687,54 @@ Life is forever evolving
 
 <br>
 
+## Life is Forever Evolving - version 3 ##
+Rivers flow into the sea 
+<br> Where they meet’s an estuary 
+<br> A seed becomes a tree 
+<br> Where birds can nest and be free
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+Leaves change from green to gold
+<br> Humans grow from young to old 
+<br> They too grow from naive to wise 
+<br> And life continues when a leaf dies 
+
+<br> Caterpillars transform into butterflies
+<br> Other creatures also metamorphosize
+<br> Chemicals and metals alchemize 
+<br> Dreams are born and then crystallize 
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+A blue sky becomes one of rainshowers 
+<br> Which lead buds to blossom into flowers 
+<br> Bees create honey out of nectar 
+<br> All of the earth is connected 
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+The same Sun that sets will rise
+<br> And it’s light leads things to energize 
+<br> The moon turns from a crescent to a whole
+<br> The Earth is always spinning its poles 
+
+Life is forever evolving
+<br> No day is ever the same 
+<br> The world is continuously revolving 
+<br> So nature can reach its aim 
+
+<br>
+
 ## Good Going On Today #
 I wake up and make the bed
 <br> I make sure that I am fed 
@@ -815,7 +863,7 @@ Hey cowboy, I see that you came riding in
 <br> But my heart’s not broken; I’m a country girl
 
 I’ve got a heart of a country girl
-<br> But I don’t need a cowboy
+<br> I don’t need a cowboy
 <br> Like my ancestors,
 <br> I ride a horse astride
 
@@ -837,7 +885,7 @@ Hey cowboy, I don’t need your hat or boots
 I’ve got a heart of a country girl
 <br> I don’t need a cowboy
 <br> Like my ancestors,
-<br> I explore the land
+<br> I explore all the land
 
 Hey cowboy, no need to sweep me off my feet
 <br> On my own, I am whole and complete
@@ -851,8 +899,8 @@ I’ve got a heart of a country girl
 
 Hey cowboy, don’t need to sing me your song
 <br> I’ve got my own song to sing, and sing out strong 
-<br> Hey cowboy, I hope you pick up your things
-<br> But thanks for empowering me to strum some strings
+<br> Hey cowboy, I hope you come pick up your things
+<br> But thanks for inpiring me to strum some strings
 
 I’ve got a heart of a country girl
 <br> I don’t need a cowboy
