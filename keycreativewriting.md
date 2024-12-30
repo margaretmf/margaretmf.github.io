@@ -700,7 +700,7 @@ Life is forever evolving
 
 Leaves change from green to gold
 <br> Humans grow from young to old 
-<br> They too grow from naive to wise 
+<br> They too grow from simple to wise 
 <br> And life continues when a leaf dies 
 
 <br> Caterpillars transform into butterflies
