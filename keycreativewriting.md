@@ -827,10 +827,10 @@ Hey cowboy, you left your boots and hat behind
 I’ve got a heart of a country girl
 <br> I don’t need a cowboy
 <br> Like my ancestors,
-<br> I’m strong on my own
+<br> I’ve got strength on my own
 
 Hey cowboy, I don’t need your hat or boots
-<br> I’ve got my own tied to my eastcoast roots.
+<br> I’ve got my own tied to my eastcoast roots
 <br> Hey cowboy, you don’t need to save me
 <br> I’m on my own now, and I’m free as can be
 
@@ -842,14 +842,14 @@ I’ve got a heart of a country girl
 Hey cowboy, no need to sweep me off my feet
 <br> On my own, I am whole and complete
 <br> Hey cowboy, with someone else you can dance
-<br> I can enjoy linedancing without the romanc
+<br> I can enjoy linedancing without the romance
 
 I’ve got a heart of a country girl
 <br> I don’t need a cowboy
 <br> Like my ancestors,
 <br> I love dancing on my own
 
-Hey cowboy, you don’t need to sing me your song
+Hey cowboy, don’t need to sing me your song
 <br> I’ve got my own song to sing, and sing out strong 
 <br> Hey cowboy, I hope you pick up your things
 <br> But thanks for empowering me to strum some strings
@@ -862,7 +862,7 @@ I’ve got a heart of a country girl
 I’ve got a heart of a country girl
 <br> I don’t need a cowboy
 <br> Like my ancestors,
-<br> I’m strong on my own
+<br> I’ve got strength on my own
 
 <br>
 
