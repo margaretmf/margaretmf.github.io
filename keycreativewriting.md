@@ -714,7 +714,7 @@ Life is forever evolving
 <br> So nature can reach its aim 
 
 A blue sky becomes one of rainshowers 
-<br> Which lead buds to blossom into flowers 
+<br> Which leads buds to blossom into flowers 
 <br> Bees create honey out of nectar 
 <br> All of the earth is connected 
 
@@ -724,7 +724,7 @@ Life is forever evolving
 <br> So nature can reach its aim 
 
 The same Sun that sets will rise
-<br> And it’s light leads things to energize 
+<br> And it’s light causes things to energize 
 <br> The moon turns from a crescent to a whole
 <br> The Earth is always spinning its poles 
 
