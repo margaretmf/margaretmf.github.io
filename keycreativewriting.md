@@ -991,6 +991,32 @@ I’m here for Taylor, I’m here for Kasey
 
 <br> 
 
+## Headed towards Memphis ##
+I’m heading to Memphis to dig into my roots 
+<br> I’ve got on a country hat and some worn in boots 
+<br> I’m driving westward on the highway known as music highway 
+<br> There’s nothing better than this; it’s a beautiful day
+
+I’m looking forward to seeing family and eating some bbq
+<br> I’m hoping to go to Beale street and listen to great music too
+<br> I used to come here in the summers when I was a young child 
+<br> This is where the heat in the summers was not mild
+
+In the car, I’m listening to Elvis, the King and some JCash
+<br> I’m listening to “Walking in Memphis” too and having a bash 
+<br> When I get to the city my cousins will all be there 
+<br> There’s 13 of us and boy do we’ve got a prayer 
+
+Our grandparents’ stories we all love to hear 
+<br> It’s fun to learn of what it used to be like here 
+<br> They tell tales of how Memphis used to be the country 
+<br> Where people’s spirits could more easily be free 
+
+Now it’s become more developed they say
+<br> But it’s still fun to come here to stay 
+
+<br>
+
 ## Boots ##
 These boots of mine that I love...they've been everywhere. <br>
 They've walked down many roads. <br>
