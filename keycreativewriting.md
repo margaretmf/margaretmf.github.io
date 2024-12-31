@@ -948,6 +948,49 @@ This farm is my home
 
 <br> 
 
+## Nashville #
+Some people come here from the west 
+<br> I’m coming here from the east 
+<br> I’m coming to Nashville for music fest 
+<br> There’s no place better to say the least 
+
+I’m here for Taylor, I’m here for Kasey
+<br> I’m here for Dolly, I’m here for Johnny
+<br> I’m here for bluegrass and country western
+<br> I’m here for guitars and also mandolins 
+
+Once I get here I’ll have fun downtown
+<br> I can’t wait to see all the red neon signs 
+<br> With my boots I’ll stomp on the ground 
+<br> And meet some people dancing in lines 
+
+I’m here for Taylor, I’m here for Kasey
+<br> I’m here for Dolly, I’m here for Johnny
+<br> I’m here for cowboys, I’m here for guitars
+<br> I’m here for bluegrass, I’m here for country 
+
+I’ll put in requests on the jukebox
+<br> And I’ll sing along to my favorite tune
+<br> I’ll sing the song about the boondocks
+<br> And also about the stars and the moon
+
+I’m here for Taylor, I’m here for Kasey
+<br> I’m here for Dolly, I’m here for Johnny
+<br> I’m here for cowboys, I’m here for guitars
+<br> I’m here for bluegrass, I’m here for country 
+
+I’ll take a turn at writing here a lyric 
+<br> About God and romance and country skies 
+<br> I’ll learn from all the legend’s music 
+<br> As I compose a song in my blue Levi’s 
+
+I’m here for Taylor, I’m here for Kasey
+<br> I’m here for Dolly, I’m here for Johnny
+<br> I’m here for cowboys, I’m here for guitars
+<br> I’m here for bluegrass, I’m here for country 
+
+<br> 
+
 ## Boots ##
 These boots of mine that I love...they've been everywhere. <br>
 They've walked down many roads. <br>
