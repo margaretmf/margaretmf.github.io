@@ -856,6 +856,8 @@ I’ve got a heart of a cowgirl
 <br> Like my ancestors 
 <br> I’m strong on my own  
 
+<br> 
+
 # Hey Cowboy, I'm Strong on My Own - version 2 ##
 Hey cowboy, I see that you came riding in 
 <br> I’m riding by myself now on my new buckskin
