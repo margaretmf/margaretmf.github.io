@@ -2,6 +2,13 @@
 layout: default
 ---
 
+## 2025
+
+
+### Books
+#### Completed
+* [We Are Home: Becoming American in the 21st Century: an Oral History](https://www.amazon.com/We-Are-Home-Becoming-American/dp/0316353760/ref=sr_1_2?crid=RQM7GRP9ITWW&dib=eyJ2IjoiMSJ9.PTWCmvd21SGsRmZUi3vtgiFoPlhhHk_Sm0xSWWSMcb1elbZ_UvIeWyGw1wyio52_FutgpSxq-QU0Wn75m31cu6pmgqPutumJZnUA1bRoNmVh6AzVa-5zPoxhZCMfo_4F0vi8VCvn63qzglL-6zRQDhO4mKyMU76MhHj415uCeOOi3La8KPouhEnQp0Hbv4ekK7yfxJ-pmHnJncYNMKT4HZ5ig7hfd9ryehjTq9dfJz4.F3OwrHMMVnndogHbUIbiK06BzdlOkk01hHM-plPz4eQ&dib_tag=se&keywords=immigration+america+oral+history&qid=1737383502&sprefix=immigration+america+oral+history%2Caps%2C91&sr=8-2) by Ray Suarez
+
 ## 2024
 
 ### Books 
