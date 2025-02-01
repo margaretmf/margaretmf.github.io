@@ -58,6 +58,20 @@ Past,
 
 <br> 
 
+## The American Flag ##
+Standing high, it represents the home of the brave.
+<br> And with each blow of the wind, you'll see it flap and wave.
+<br> Not only does it stand high; it stands big and tall.
+<br> Not just one person it stands for; it stands for all.
+<br> It's a flag for everyone from sea to shining sea.
+<br> It's a flag for freedom, unity, and democracy.
+<br> You can find it all over the place across the country.
+<br> You'll find it near truck stops, on windmills, and even in a tree.
+<br> It has 13 stripes that are bright red and white.
+<br> And it has 50 stars like the ones you see at night.
+
+<br>
+
 ## Working in the Truckstop Diner ##
 I'm reminiscing about the good old days
 <br> when this work didn't feel so lonely.
@@ -292,6 +306,27 @@ And something else he does is make sure designs follow laws.
 <br> He must ensure they are safe and have no flaws. 
 
 <br>
+
+## The Data Analyst ##
+With a coffee in hand, she gets to work by eight,
+<br> and then begins to analyze metrics and rates.
+
+Her job is to report statstics to her business
+<br> and make sense of data that looks like a big mess.
+
+She codes in tools like R, SQL, and Stat.
+<br> These tools help her create order in the data.
+
+As she works to run computations and calculations,
+<br> she does so with a mind full of dedication.
+
+She loves to solve all the company's math problems
+<br> and find relationships between a dataset's columns.
+
+By understanding if there are statistical correlations,
+<br> she helps provide leaders with key information.
+
+<br> 
 
 ## The Police Officer ##
 She’s also a professional who works day and night,
