@@ -291,7 +291,7 @@ So let’s go on an adventure and learn about careers,
 <br> to help you decide what you can do in future years. 
 
 From a truck driver to a teacher there’s many things you can be. 
-<br> Bringing joy and love to your work is really life’s key. 
+<br> I hope you can find the work that lets you feel free.
 
 I’m going to introduce you to six different workers. 
 <br> They work hard every day; they surely aren’t shirkers!
@@ -321,7 +321,7 @@ And something else he does is make sure designs follow laws.
 
 ## The Data Analyst ##
 With a coffee in hand, she gets to work by eight,
-<br> and then begins to analyze metrics and rates.
+<br> and then analzyes metrics like the customer retention rate.
 
 Her job is to report statstics to her business
 <br> and make sense of data that looks like a big mess.
