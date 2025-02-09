@@ -209,12 +209,12 @@ This month I'm tuning into myself.
 
 # A Self-Love Potion Recipe ##
 I have a new self-love potion recipe.
-<br> It's better than any other remedy.
-<br> It consists of some ways to seek love within
+<br> It's better than any other prescribed remedy.
+<br> It consists of some ways to seek love within;
 <br> rather than chase the love from women or men.
 
 Ingredients:
-<br> rA handful of mindful moments
+<br> A handful of mindful moments
 <br> A cup of the love deep within
 <br> 10 sprinkles of affirmations
 <br> A gift to myself 
@@ -235,10 +235,10 @@ Step 1:
 <br> Amidst fulfilling all my duties, give myself a lift.
 <br> Step 5:
 <br> Remember I am worthy of all this joy and love.
-<br> Remember it is joy and love that I am born of.
+<br> And remember it is joy and love that I am born of.
 <br> Step 6: 
 <br> Set aside a time to follow these steps each week.
-<br> And most of all cherish the ways I am unique.
+<br> And most of all cherish the ways that I am unique.
 
 ## Most People are Kind ##
 When I open my eyes there’ a truth that I find.
