@@ -208,37 +208,38 @@ This month I'm tuning into myself.
 <br>
 
 # A Self-Love Potion Recipe ##
+A Self-Love Potion Recipe
 I have a new self-love potion recipe.
-<br> It's better than any other prescribed remedy.
+<br> It’s better than any other prescribed remedy.
 <br> It consists of some ways to seek love within;
-<br> rather than chase the love from women or men.
+<br> so mix them together, and pour them in. 
 
 Ingredients:
 <br> A handful of mindful moments
 <br> A cup of the love deep within
 <br> 10 sprinkles of affirmations
-<br> A gift to myself 
+<br> A gift to yourself
 <br> A spoonful of self-worthiness
-<br> A time set aside each week
+<br> 30 minutes to make and drink this potion each week
 
 Step 1:
-<br> Take the time ot enjoy a mindful moment
-<br> and tune into everything in at-one-ment.
-<br< Step 2:
-<br> Become aware of the love within my soul,
-<br> and feel that love make me deeply whole.
+<br> Take the time to enjoy some mindful moments,
+<br> and mix them in; they are a core component.
+<br> Step 2:
+<br> Pour in a cup of the love within you’re soul; 
+<br> this love in the drink will make you feel whole.
 <br> Step 3:
-<br> Affirm all the things about myself that are good,
-<br> including aspects of myself that go misunderstood.
+<br> Sprinkle in affirmations about you that are good,
+<br> including aspects of yourself that go misunderstood.
 <br> Step 4:
-<br> Do what makes me happy, and give myself a gift.
-<br> Amidst fulfilling all my duties, give myself a lift.
+<br> Add in what makes you happy, and give yourself a gift.
+<br> Amidst fulfilling all your duties, give yourself a lift.
 <br> Step 5:
-<br> Remember I am worthy of all this joy and love.
-<br> And remember it is joy and love that I am born of.
-<br> Step 6: 
+<br> Gush in a spoonful of remembrance, of how you’re worthy of love. 
+<br> for it is love that this potion is born of.
+<br> Step 6:
 <br> Set aside a time to follow these steps each week.
-<br> And most of all cherish the ways that I am unique.
+<br> And enjoy the potion, letting it make you feel unique. 
 
 ## Most People are Kind ##
 When I open my eyes there’ a truth that I find.
