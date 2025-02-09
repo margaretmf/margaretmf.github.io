@@ -207,6 +207,39 @@ This month I'm tuning into myself.
 
 <br>
 
+# A Self-Love Potion Recipe ##
+I have a new self-love potion recipe.
+<br> It's better than any other remedy.
+<br> It consists of some ways to seek love within
+<br> rather than chase the love from women or men.
+
+Ingredients:
+<br> rA handful of mindful moments
+<br> A cup of the love deep within
+<br> 10 sprinkles of affirmations
+<br> A gift to myself 
+<br> A spoonful of self-worthiness
+<br> A time set aside each week
+
+Step 1:
+<br> Take the time ot enjoy a mindful moment
+<br> and tune into everything in at-one-ment.
+<br< Step 2:
+<br> Become aware of the love within my soul,
+<br> and feel that love make me deeply whole.
+<br> Step 3:
+<br> Affirm all the things about myself that are good,
+<br> including aspects of myself that go misunderstood.
+<br> Step 4:
+<br> Do what makes me happy, and give myself a gift.
+<br> Amidst fulfilling all my duties, give myself a lift.
+<br> Step 5:
+<br> Remember I am worthy of all this joy and love.
+<br> Remember it is joy and love that I am born of.
+<br> Step 6: 
+<br> Set aside a time to follow these steps each week.
+<br> And most of all cherish the ways I am unique.
+
 ## Most People are Kind ##
 When I open my eyes there’ a truth that I find.
 <br> The fact that I find is that most people are kind.
