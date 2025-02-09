@@ -208,7 +208,6 @@ This month I'm tuning into myself.
 <br>
 
 # A Self-Love Potion Recipe ##
-A Self-Love Potion Recipe
 I have a new self-love potion recipe.
 <br> It’s better than any other prescribed remedy.
 <br> It consists of some ways to seek love within;
