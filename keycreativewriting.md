@@ -207,7 +207,7 @@ This month I'm tuning into myself.
 
 <br>
 
-# A Self-Love Potion Recipe ##
+## A Self-Love Potion Recipe ##
 I have a new self-love potion recipe.
 <br> It’s better than any other prescribed remedy.
 <br> It consists of some ways to seek love within;
@@ -239,6 +239,47 @@ Step 1:
 <br> Step 6:
 <br> Set aside a time to follow these steps each week.
 <br> And enjoy the potion, letting it make you feel unique. 
+
+<br>
+
+## I Love Me, I Love Me Not ##
+I love me, I love me not…
+<br> the push and pull that leaves me distraught…
+<br> like I’ll have one loving thought…
+<br> and then comes hate’s onslaught…
+<br> trying to compete, playing on repeat, and working to defeat…
+<br> all the thoughts towards myself of love that I’ve had
+<br> to make me again feel bad…and sad… rather than glad. 
+<br> Do I listen to the hate? Do I take the bait?
+<br> If I’m wise, with love, I can argue back,
+<br> and overcome, with love, the hateful attack. 
+<br> I love me, I love me not…
+<br> it’s like a childhood game…
+<br> of picking flower petals in love’s name…
+<br> but this time, it’s not over a boy…
+<br> it’s over self-hatred’s ploy:
+<br> the ploy to steal my joy.  
+<br> I love me, I love me not…
+<br> Which one do I choose?
+<br> Do I withstand the hateful abuse? 
+<br> Or towards myself do I seek higher views?
+<br> I love me, I love me not…
+<br> At last, I choose I love me…
+<br> because it’s love that sets me free. 
+
+<br>
+
+## Framing This Moment ##
+I'm framing this moment…
+because it was a moment well-spent,
+as I felt contentment…
+and a higher sense of fulfillment.
+I'll hang the frame on the wall…
+so that I'll be able to recall,
+and see a remnant…
+of this glorious moment.
+
+<br>
 
 ## Most People are Kind ##
 When I open my eyes there’ a truth that I find.
