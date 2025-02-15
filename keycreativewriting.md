@@ -1182,8 +1182,8 @@ Learning to leave it in yesterday <br>
 In my home, there’s a window, through which the sun can shine. 
 <br> The red, heart-shaped center represents St. Valentine. 
 <br> Surrounding the heart is a stained glass handiwork.
-<br> It's a clouded, blue, green, and yellow patchwork. 
-<br> The colors grow bright, when steeped in sunbeams,
+<br> Of blue, green, and yellow, it's a clouded patchwork. 
+<br> The colors grow bright, when steeped in the sun's beams,
 <br> and the floor courts it’s shadows as the light gleams. 
 
 <br> 
