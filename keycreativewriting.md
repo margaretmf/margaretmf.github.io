@@ -207,6 +207,32 @@ This month I'm tuning into myself.
 
 <br>
 
+## Weaving Webs with ‘What If?’ ##
+What if for good God is working all things out?
+<br> What if I have nothing really to worry about?
+<br> What if I stop worrying about all of the mishaps?
+<br> And what if God weaves his web for good, perhaps?
+<br> …like what if I find a dollar in my washed jeans today?
+<br> And what if this helps me pay for a latte at the cafe? 
+<br> What if I have a good convo with the barista?
+<br> And what if we talk about being an artiste?
+<br> What if she then invites me to see a dance show?
+<br> What if the show is about the work of Van Gogh?
+<br> And then what if I begin learning to paint?
+<br> What if I paint a brown cottage that’s quaint?
+<br> What if I go visit a real one in the country?
+<br> What if its owner invites me in for tea?
+<br> What if we talk about spirituality and fine art? 
+<br> What if she shares a book about the heart?
+<br> What if I buy the book to read to myself?…
+<br> and then donate the book to the community bookshelf? 
+<br> What if someone else finds this book to read too?
+<br> And what if he shares online a five star review?
+<br> And what if the what ifs go on infinitely?
+<br> As God weaves his web for good intricately? 
+
+<br> 
+
 ## A Self-Love Potion Recipe ##
 I have a new self-love potion recipe.
 <br> It’s better than any other prescribed remedy.
@@ -262,7 +288,7 @@ I love me, I love me not…
 <br> I love me, I love me not…
 <br> Which one do I choose?
 <br> Do I withstand the hateful abuse? 
-<br> Or towards myself do I seek higher views?
+<br> Or towards myself do I seek clearer views?
 <br> I love me, I love me not…
 <br> At last, I choose I love me…
 <br> because it’s love that sets me free. 
@@ -1151,6 +1177,16 @@ But not today <br>
 Learning to leave it in yesterday <br>
 
 <br>
+
+## The Stained-Glass Window ##
+In my home, there’s a window, through which the sun can shine. 
+<br> The red, heart-shaped center represents St. Valentine. 
+<br> Surrounding the heart is a stained glass handiwork.
+<br> It's a clouded, blue, green, and yellow patchwork. 
+<br> The colors grow bright, when steeped in sunbeams,
+<br> and the floor courts it’s shadows as the light gleams. 
+
+<br> 
 
 ## Big Red Bow ##
 There is nothing like a big red bow
