@@ -195,6 +195,18 @@ And writing this poem helped me express my voice.
 
 <br>
 
+## I'm Afraid the Masquerade Is Over ##
+I’m afraid the masquerade is over. 
+<br> The enemies have had an exposure.
+<br> I see behind the mask of lies,
+<br> despite how sneaky is the guise. 
+<br> Covering up the legit self with error,
+<br> the mask mocks the true light bearer.  
+<br> As the mask falls off, the foes flee, 
+<br> leaving the real face for all to see. 
+
+<br>
+
 ## Tuning into Myself ##
 This month I'm tuning into myself.
 <br> I'm tapping into what brings me health.
@@ -1177,6 +1189,16 @@ But not today <br>
 Learning to leave it in yesterday <br>
 
 <br>
+
+## Joy Sprouts from the Earth ##
+As the tulips trumpet and the daisies dance,
+<br> I feel the joy sprouting from the earth. 
+<br> As the birds chirp and the rabbits hop, 
+<br> I witness this season’s worth. 
+<br> As souls rejuvenate in sunbeams and beings renew their hope,
+<br> I sing along in gratitude for a spiritual rebirth.  
+
+<br> 
 
 ## The Stained-Glass Window ##
 In my home, there’s a window, through which the sun can shine. 
