@@ -214,7 +214,7 @@ This month I'm tuning into myself.
 <br> I'm focusing on areas where I thrive.
 <br> I'm no longer saying yes to people blindly.
 <br> I'm instead choosing things designedly.
-<br> I'm no longer suppressing the ngative feelings.
+<br> I'm no longer suppressing the negative feelings.
 <br> I'm being aware of them to experience healings.
 
 <br>
@@ -298,7 +298,7 @@ I love me, I love me not…
 <br> it’s over self-hatred’s ploy:
 <br> the ploy to steal my joy.  
 <br> I love me, I love me not…
-<br> Which one do I choose?
+Which one do I choose?
 <br> Do I withstand the hateful abuse? 
 <br> Or towards myself do I seek clearer views?
 <br> I love me, I love me not…
