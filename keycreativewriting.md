@@ -202,7 +202,7 @@ I’m afraid the masquerade is over.
 <br> despite how sneaky is the guise. 
 <br> Covering up the legit self with error,
 <br> the mask mocks the true light bearer.  
-<br> As the mask falls off, the foes flee, 
+As the mask falls off, the foes flee, 
 <br> leaving the real face for all to see. 
 
 <br>
