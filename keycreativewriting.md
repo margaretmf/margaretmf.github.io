@@ -195,6 +195,16 @@ And writing this poem helped me express my voice.
 
 <br>
 
+## to reveal all, i - ##
+to reval all, i -
+<br> love the night sky.
+<br> the stars shining, and twinkling
+<br> give me a hopeful inkling
+<br> of a God so large
+<br> that only he's in charge.
+
+<br>
+
 ## still a happy ending ##
 it was no fairytale ending:
 <br> it was one, rather, of heart mending and soul tending.
@@ -1241,6 +1251,16 @@ You are wonderful.
 You are beautiful.
 So mirror, mirror,
 please see a little clearer.
+
+<br>
+
+## to reveal all, i - ##
+to reveal all, i -
+<br> sometimes cry, and then sigh.
+<br> i sometimes can't stop
+<br> but let the tears drop
+<br> and then feel a huge release
+<br> before i sigh, and regain my peace.
 
 <br>
 
