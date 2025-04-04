@@ -195,6 +195,34 @@ And writing this poem helped me express my voice.
 
 <br>
 
+## still a happy ending ##
+it was no fairytale ending:
+<br> it was one, rather, of heart mending and soul tending.
+<br> she did not marry her prince with a happily ever after;
+<br> instead she blossomed and began a new chapter.
+<br> in the sky, she still saw her rainbow smiling.
+<br> but it was the divine with which she was reconciling.
+<br> she still found happiness; but she found it in herself.
+<br> she realized she could not find it in anyone else.
+<br> she still found true love; a love that grew and grew.
+<br> but it was a love deep from God that she wedded to.
+<br> so as I said before, it was no fairytale ending;
+<br> but nevertheless, it was still a happy ending.
+
+<br>
+
+## let us claim how right we each are ##
+how about we, women, especially, dare to rebuff...
+<br> the awful notion that we're either too much or not enough?
+<br> instead let us claim how just right we each are,
+<br> recognizing within each one of us the gold, inner star.
+<br> by claiming this for ourselves, we will yield so much power.
+<br> and an inner strength for us all that no one can devour.
+<br> we can encourage each other to be who we're born to be.
+<br> and celebrate in eahc other what makes each of us more free.
+
+<br>
+
 ## I'm Afraid the Masquerade Is Over ##
 I’m afraid the masquerade is over. 
 <br> The enemies have had an exposure.
@@ -894,7 +922,48 @@ Life is forever evolving
 
 <br>
 
-## Good Going On Today #
+## Poetry Blooms in Spring ##
+the divinity of Spring's artistry
+<br> leads poetry to bloom,
+<br> as buds do in May,
+<br> with flowery words,
+<br> which writers use fullheartedly
+<br> to color, to illume,
+<br> and to make fresh eash day.
+
+with the trees blossoming, and the grass growing,
+<br> and with the people frolicking, and gladness o'erflowing,
+<br> for poets,
+<br> there's a world of delight
+<br> to sew into seams,
+<br> of a tapestry of words
+<br> that express renewed gleams.
+
+as the word is rejuvenating, after a season of hibernating,
+<br> it's that time of year,
+<br> when,
+<br> one can find poetry
+<br> in all things;
+<br> and lucky is the poet,
+<br> whose career it is,
+<br> to capture nature's flourishing.
+
+as words tumble from florets,
+<br> it's hard for poets to ignore it;
+<br> the flower's composites
+<br> can't help but rouse
+<br> the next winning laureates.
+
+so listen intently during this season:
+<br> you'll hear
+<br> not only the songs of the birds,
+<br> but also the writer's words
+<br> that capture
+<br> that capture life's rhythm, rhyme, and reason.
+
+<br>
+
+## Good Going On Today ##
 I wake up and make the bed
 <br> I make sure that I am fed 
 <br> I put on my boots and walk out the door 
