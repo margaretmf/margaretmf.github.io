@@ -4,6 +4,16 @@ layout: default
 
 <br>
 
+## Humanities versus Engineering Majors: How Do They Feel about Their Careers?
+
+I worked as a student of an Interviews and Focus Groups class with Montclair State University. As a student, I asked the following research question: How does what adults decided to major in, and their intentionality behind what they decided to major in, during their time in a college or at a university, influence their career experience and satisfaction? To answer this question, I developed the following interview guide to gain insights from graduates who were 10-20 years out of their college or university.
+
+<br> 
+<img class="picture" src="InterviewGuide_MargaretFurr_1.jpg">
+<img class="picture" src="InterviewGuide_MargaretFurr_2.jpg">
+<img class="picture" src="InterviewGuide_MargaretFurr_3.jpg">
+<br> 
+
 ## Affordable Housing Units in Hampton Roads
 
 I worked as a volunteer to support ForKids in Hampton Roads, VA. As a volunteer, I gathered geospatial data on affordable housing in the area, and I created a map with the data.
