@@ -4,13 +4,21 @@ layout: default
 
 <br>
 
-## Humanities versus Engineering Majors: How Do They Feel about Their Careers?
+## Humanities versus Engineering Majors: How Do They Feel about Their Careers? Interview Guide
 
 I worked as a student of an Interviews and Focus Groups class with Montclair State University. As a student, I asked the following research question: How does what adults decided to major in, and their intentionality behind what they decided to major in, during their time in a college or at a university, influence their career experience and satisfaction? To answer this question, I developed the following interview guide to gain insights from graduates who were 10-20 years out of their college or university.
 
 <img class="picture" src="InterviewGuide_MargaretFurr_1.jpg">
 <img class="picture" src="InterviewGuide_MargaretFurr_2.jpg">
 <img class="picture" src="InterviewGuide_MargaretFurr_3.jpg">
+
+## Babysitting App Experiences Mixed Methods Research Design
+
+I worked as a student of UX and CX Management class with Montclair State University. As a student, I developed the following interview guide and survey link inserted into the interview guide to design a mixed methods research project. I did not end up selecting this project as my capstone project for the final class because it was not feasible, but I am still sharing the questions I asked.
+
+<img class="picture" src="BabysitterAppExperienceProjectInterviewGuide-images-0.jpg">
+<img class="picture" src="BabysitterAppExperienceProjectInterviewGuide-images-1.jpg">
+<img class="picture" src="BabysitterAppExperienceProjectInterviewGuide-images-2.jpg">
 
 ## Affordable Housing Units in Hampton Roads
 
