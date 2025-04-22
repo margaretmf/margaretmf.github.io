@@ -92,12 +92,12 @@ Design Researcher | February-May 2019
 ### Compass Pro Bono
 Strategic Alignment Consultant | October 2016 - June 2019
 * Clients: Jubilee Jumpstart, Homeless Children's Playtime Project, The Welders
-* Write client engagement letters to communicate the organizational challenge, project goal, and project plan
-* Develop and design surveys to understand organizational stakeholders' opinions on organizational change (expansion and relocation)
-* Conduct interviews and focus groups with organizational stakeholders to understand their experiences and the organizational needs
-* Collect and analyze data to develop strategic recommendations on organizational change (expansion and relocation)
-* Participate in board's strategic planning and alignment meetings
-* Meet with a team of MBA and JD graduates once to twice per month
+* Wrote client engagement letters to communicate the organizational challenge, project goal, and project plan
+* Developed and designed surveys to understand organizational stakeholders' opinions on organizational change (expansion and relocation)
+* Conducted interviews and focus groups with organizational stakeholders to understand their experiences and the organizational needs
+* Collected and analyzed data to develop strategic recommendations on organizational change (expansion and relocation)
+* Participated in board's strategic planning and alignment meetings
+* Met with a team of MBA and JD graduates once to twice per month
 
 ### DataKind
 Data Analyst, Data Ambassador, Project Manager | July 2016 - May 2019
