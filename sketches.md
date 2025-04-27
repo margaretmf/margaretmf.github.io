@@ -71,6 +71,10 @@
 
 <img class="profile-picture" src="sketches/sketch45.jpg">
 
+<img class="profile-picture" src="sketches/sketch48.jpg">
+
+<img class="profile-picture" src="sketches/sketch48-chatgpt.jpg">
+
 
 
 
