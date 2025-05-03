@@ -1301,10 +1301,12 @@ As the tulips trumpet and the daisies dance,
 
 ## getting better ##
 it is may now.
-<br> the weather no longer demans i wear a sweater, so i am getting better.
-<br> i can wear short-sleeved tops, along with my flio-flops; and in the sun, i can sit for hours amdist the grass and the flowers.
-<br> i can drink my favorite drinks with ice, like i am in paradise, and i can go pick fresh strawberries to eat with ice cream from the dairies.
-<br> what more cna i love than to enjoy the warmth that comes during the year's best month?
+<br> the weather no longer demands i wear a sweater, so i am getting better.
+<br> i can wear short-sleeved tops, along with my flip-flops; and in the sun, i can sit for hours amdist the grass and the flowers.
+<br> i can drink my favorite drinks with ice, like i am in paradise, and i can go pick fresh berries to eat with ice cream from the dairies.
+<br> i can put my car window down while i'm driving all through town; and i can have a picnic in the park while hearing the sound of the meadowlark.
+<br> i can clean out my house while pulling out my favorite blouse; and i can have an outside yard sale, selling things like a painting of a whale.
+<br> what more can i love than to enjoy the warmth that comes during the year's best month?
 <br> it is may now.
 <br> the weather no longer demands i wear a sweater, so i am getting better.
 
