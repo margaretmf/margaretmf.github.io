@@ -357,6 +357,16 @@ of this glorious moment.
 
 <br>
 
+## Love's Ripples ##
+Humans' love for each other expands like ripples on the water's surface.
+<br> One person smiles, or wave stheir hand, or helps another through an active of service;
+<br> and the one impacted by the act of service passes it forward, leading the next affected to pass it also forward...
+<br> ...until all of humanity joins together in creating a more beautiful world,
+<br> consisting of concentric cirlces of love forever dilating....
+<br> all because of kindness begetting kindness in a way that's radiating and regenerating.
+
+<br>
+
 ## Most People are Kind ##
 When I open my eyes there’ a truth that I find.
 <br> The fact that I find is that most people are kind.
@@ -1288,6 +1298,17 @@ As the tulips trumpet and the daisies dance,
 <br> I sing along in gratitude for a spiritual rebirth.  
 
 <br> 
+
+## getting better ##
+it is may now.
+<br> the weather no longer demans i wear a sweater, so i am getting better.
+<br> i can wear short-sleeved tops, along with my flio-flops; and in the sun, i can sit for hours amdist the grass and the flowers.
+<br> i can drink my favorite drinks with ice, like i am in paradise, and i can go pick fresh strawberries to eat with ice cream from the dairies.
+<br> what more cna i love than to enjoy the warmth that comes during the year's best month?
+<br> it is may now.
+<br> the weather no longer demands i wear a sweater, so i am getting better.
+
+<br>
 
 ## The Stained-Glass Window ##
 In my home, there’s a window, through which the sun can shine. 
