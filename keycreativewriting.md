@@ -406,7 +406,7 @@ that pull me away from what makes me feel free
 
 <br>
 
-## Don't Foret to Look Up ##
+## Don't Forget to Look Up ##
 Don’t forget to look up at the sky.
 <br> And when you do, look up high,
 <br> pay attention to the birds soaring by,
@@ -450,7 +450,7 @@ I’m going to introduce you to six different workers.
 
 ## The Architect ##
 He starts work every morning by eight-thirty 
-<br> with some tea before getting his hands dirty. 
+<br> with some tea to drink before getting his hands dirty. 
 
 His job requires him to be analytical and creative. 
 <br> He also gets to be original and innovative. 
@@ -462,7 +462,7 @@ Every type of building from a home to a skyscraper
 <br> is what he sketches and draws on draft paper. 
 
 Intricate details for a foundation he lays,
-<br> helping create spaces for people to spend their days. 
+<br> of spaces in which people can spend their days.
 
 And something else he does is make sure designs follow laws.
 <br> He must ensure they are safe and have no flaws. 
@@ -473,10 +473,10 @@ And something else he does is make sure designs follow laws.
 With a coffee in hand, she gets to work by eight,
 <br> and then analzyes metrics like the customer retention rate.
 
-Her job is to report statstics to her business
+Her job is to report numbers to supoort her business
 <br> and make sense of data that looks like a big mess.
 
-She codes in tools like R, SQL, and Stat.
+She codes in tools like R, SQL, and Stata.
 <br> These tools help her create order in the data.
 
 As she works to run computations and calculations,
