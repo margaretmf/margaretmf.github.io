@@ -574,19 +574,19 @@ She greets every student with a handshake or hug.
 <br> She then collects cellphones; there's a school rule to unplug.
 
 After chapel, begins class, filled with new concepts to learn;
-<br> students study their books, one page at a time they turn.
+<br> students study their books, and page after page they turn.
 
 Inspiring confidence in students is her duty,
 <br> helping them learn things like where is Djibouti.
 
 Students' love of learning she hopes to instill,
-<br> for she hopes they can live lives in which they feel fulfilled.
+<br> for she hopes they can gain key knowlege and skills.
 
 <br>
  
 ## The Journalist ##
 He starts each workday a little before nine,
-<br> completing projects due to meet the deadline.
+<br> completing projects to meet the deadline.
 
 His job is to write about the news in the world,
 <br> shining a light on events that have unfurled.
