@@ -233,14 +233,14 @@ how about we, women, especially, dare to rebuff...
 
 <br>
 
-## I'm Afraid the Masquerade Is Over ##
-I’m afraid the masquerade is over. 
-<br> The enemies have had an exposure.
-<br> I see behind the mask of lies,
+## i'm afraid the masquerade is over ##
+i’m afraid the masquerade is over. 
+<br> the enemies have had an exposure.
+<br> i see behind the mask of lies,
 <br> despite how sneaky is the guise. 
-<br> Covering up the legit self with error,
+<br> covering up the legit self with error,
 <br> the mask mocks the true light bearer.  
-As the mask falls off, the foes flee, 
+as the mask falls off, the foes flee, 
 <br> leaving the real face for all to see. 
 
 <br>
@@ -437,6 +437,20 @@ Don’t forget to open your heart
 <br> with a fresh attitude at each day’s start. 
 <br> Be willing to give freely and do your part,
 <br> and live your life like it’s a work of art
+
+<br>
+
+## the smell of cinnamon ##
+there's something about the smell of cinnamon...
+<br> on Sunday mornings, on freshly baked buns...
+<br> it's such a joy to smell it when opening the oven...
+<br> with the scent making it hard not to eat more than one.
+<br> as i soak the bun in my joe so that it's nice and soft,
+<br> and bring it up to my mouth, i love the spice's waft.
+<br> i switch from picking up the bun and "The Age",
+<br> leaving a trail of the smell on every newspaper page.
+<br> and then for hours after breakfast is finished,
+<br> the scent's still on my hands; it has't diminished. 
 
 <br>
 
