@@ -102,8 +102,8 @@ hot cocoa is better with a little whipped cream
 <br> peanut butter is better when it's nutty
 
 <br> marshmallows are better with chocolate and grahams
-<br> and toast is better with butter and jams
-<br> popcorn is better with some m&ms
+<br> and toast is better with some butter and jams
+<br> popcorn is better with a handful of m&ms
 <br> and pudding's better with some sweet, fruit gems 
 
 ## A New Day ##
