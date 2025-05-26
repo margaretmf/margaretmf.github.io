@@ -90,6 +90,22 @@ At least one couple sat in this booth,
 
 <br>
 
+## the cherry on top ##
+sudays are better with the cherry on top
+<br> and gingerbread houses with the gum drops
+<br> cookies are better with chocolate chips baked in
+<br> and cake's better with thick icing, not thin
+
+hot cocoa is better with a little whipped cream
+<br> and sodas are better with a scoop of ice cream
+<br> tea is better with some milk and honey
+<br> peanut butter is better when it's nutty
+
+<br> marshmallows are better with chocolate and grahams
+<br> and toast is better with butter and jams
+<br> popcorn is better with some m&ms
+<br> and pudding's better with some sweet, fruit gems 
+
 ## A New Day ##
 It's a new day for the sun to shine.
 <br> Wake up, and be free. The day is yours, and the day is mine.
@@ -320,7 +336,7 @@ Step 1:
 
 ## I Love Me, I Love Me Not ##
 I love me, I love me not…
-<br> the push and pull that leaves me distraught…
+<br> this is the push and pull that leaves me distraught…
 <br> like I’ll have one loving thought…
 <br> and then comes hate’s onslaught…
 <br> trying to compete, playing on repeat, and working to defeat…
