@@ -90,7 +90,7 @@ At least one couple sat in this booth,
 
 <br>
 
-## the cherry on top ##
+## everything's better with a little bit of butter ## 
 sudaes are better with the cherry on top
 <br> and gingerbread houses, with some gum drops
 <br> cookies are better with chocolate chips baked in
