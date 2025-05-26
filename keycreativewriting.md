@@ -104,7 +104,7 @@ hot cocoa is better with a little whipped cream
 <br> marshmallows are better with chocolate and grahams
 <br> and toast is better with some butter and jams
 <br> popcorn is better with a handful of m&ms
-<br> and pudding's better with some sweet, fruit gems 
+<br> and pudding's better with assorted fruit gems 
 
 ## A New Day ##
 It's a new day for the sun to shine.
