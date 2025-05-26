@@ -92,7 +92,7 @@ At least one couple sat in this booth,
 
 ## the cherry on top ##
 sudaes are better with the cherry on top
-<br> and gingerbread houses with the gum drops
+<br> and gingerbread houses with a few gum drops
 <br> cookies are better with chocolate chips baked in
 <br> and cake's better with thick icing, not thin
 
@@ -101,10 +101,17 @@ hot cocoa is better with a little whipped cream
 <br> tea is better with some milk and honey
 <br> peanut butter is better when it's nutty
 
-<br> marshmallows are better with chocolate and grahams
-<br> and toast is better with some butter and jams
+marshmallows are better with chocolate and grahams
+<br> and toast is better with some cream cheese and jams
 <br> popcorn is better with a handful of m&ms
 <br> and pudding's better with assorted fruit gems 
+
+peppermint sticks are better with lemons
+<br> and custard's better with fresh melons
+<br sweet potatoes are better with brown sugar
+<br> and everything's better with some butter
+
+<br>
 
 ## A New Day ##
 It's a new day for the sun to shine.
