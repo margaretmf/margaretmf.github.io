@@ -108,7 +108,7 @@ marshmallows are better with chocolate and grahams
 
 peppermint sticks are better with lemons
 <br> and custard's better with fresh melons
-<br sweet potatoes are better with brown sugar
+<br> sweet potatoes are better with brown sugar
 <br> and everything's better with some butter
 
 <br>
