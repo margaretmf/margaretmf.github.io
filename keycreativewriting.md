@@ -92,7 +92,7 @@ At least one couple sat in this booth,
 
 ## the cherry on top ##
 sudaes are better with the cherry on top
-<br> and gingerbread houses, with some drops
+<br> and gingerbread houses, with some gum drops
 <br> cookies are better with chocolate chips baked in
 <br> and cake's better with thick icing, not thin
 
