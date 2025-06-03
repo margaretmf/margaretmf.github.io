@@ -306,6 +306,22 @@ What if for good God is working all things out?
 
 <br> 
 
+## blossoming is my blueprint ##
+i think i belong to a God who said that "blossoming is my blueprint"...
+<br> because every one of life's elements is designed to support the earth's development.
+<br> from the flowers growing in nature's ecosystem...
+<br> to the creatures evolving in the animal kingdom,
+<br> everything is outlined to support one another,
+<br> and aid in recovery when forces try to smother.
+<br> i think i belong to a God who said that "the world's growth is my plan"...
+<br> just look at mankind's unfoldment and ever-increasing lifespan.
+<br> from the unvierse of sky and stars forver expanding outwardly
+<br> to the constant deepening of people's minds inwardly,
+<br> everything is modeled to go on and on and on 
+<br> as there is never a place on earth without a new dawn.
+
+<br>
+
 ## A Self-Love Potion Recipe ##
 I have a new self-love potion recipe.
 <br> It’s better than any other prescribed remedy.
