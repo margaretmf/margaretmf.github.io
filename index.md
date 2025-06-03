@@ -6,7 +6,7 @@ layout: default
 
 ## Hello! Welcome to Margaret Furr's site. 
 
-<img class="profile-picture" src="methree.jpg">
+<img class="profile-picture" src="mefour.jpg">
 
 ## Short Biography ##
 I am **Margaret Furr**, a graduate of the University of Virginia. Currently, I am preparing to work as an **Incoming Data Analyst** with **[Richmond National](https://www.richmondnational.com/)**, an excess and surplus insurance business. I am excited to repivot into data analytics and technology after working as a **Literacy Tutor** with **[The Literacy Lab](https://theliteracylab.org/)**, as part of a second **AmeriCorps service year**, because The Literacy Lab's program is discontinuing. While I am not tutoring, I have worked as a **Substitute Teacher Assistant** with **[Horizons Hampton Roads](https://www.horizonshamptonroads.org)** and as a **Glee Club and Cabin Counselor** with **[Camp Nakanawa](https://campnakanawa.org/)**. Previously, I worked as a **Data Analyst** with **[EVERFI](https://everfi.com/)**, an educational technology company, which provides courses that help students to become financially and digitally literate, engage civically, and develop healthy relationships. I then worked as a **Freelance Researcher** for **the social sector**.
