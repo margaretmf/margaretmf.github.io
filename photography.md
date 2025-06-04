@@ -299,8 +299,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/window-reflection-wall.jpg">
-
 <b>
 
 <b>
