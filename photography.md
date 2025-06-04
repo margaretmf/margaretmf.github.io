@@ -235,7 +235,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/constructionsite2.jpg">
+<img class="profile-picture" src="photography/purplelightsinthedarkness.jpg">
 
 
 
@@ -244,6 +244,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/lightinthedarkness11.jpg">
+
+
+
+<img class="profile-picture" src="photography/constructionsite2.jpg">
 
 
 
@@ -271,10 +275,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/driving.jpg">
-
-
-
 <img class="profile-picture" src="photography/constructionsite9.jpg">
 
 
@@ -288,6 +288,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
+
+
+
+<img class="profile-picture" src="photography/driving.jpg">
 
 
 
