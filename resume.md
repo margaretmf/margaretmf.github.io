@@ -32,7 +32,12 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 ## WORK EXPERIENCE
 
 ### RICHMOND NATIONAL
-Incoming Data Analyst | October 2024-Present
+Data Analyst | October 2024-Present
+* Analyzing SQL queries and dbt models to fix computing errors and to ensure data quality and integrity using AWS Athena, dbt and Python
+* Modularizing SQL common table expressions (CTEs) to improve code readability and to break code into smaller, manageable chunks
+* Analyzing insurance pricing data and risks, some of which come from JSON structured data, to help the business better make decisions about providing insurance
+* Creating data dashboards using AWS Quicksight to support Claims, Underwriting, and Finance teams' abilities to make data-driven decisions
+* Working cross-functionally with finance, undewriting, claims, and IT teams to address data issues and build data solutions.
 
 ### HORIZONS HAMPTON ROADS
 Teacher Assistant | June-July 2024
