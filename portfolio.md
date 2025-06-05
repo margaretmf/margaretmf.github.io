@@ -12,6 +12,19 @@ I worked as a student of an Interviews and Focus Groups class with Montclair Sta
 <img class="picture" src="InterviewGuide_MargaretFurr_2.jpg">
 <img class="picture" src="InterviewGuide_MargaretFurr_3.jpg">
 
+And below is my presentation that I delivered highlighting key findings.
+
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-0.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-1.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-2.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-3.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-4.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-5.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-6.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-7.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-8.jpg">
+<img class="picture" src="HumanitiesversusEngineeringGraduates_HowTheyFeelAboutTheirCareers-images-9.jpg">
+
 ## Babysitting App Experiences Mixed Methods Research Design
 
 I worked as a student of UX and CX Management class with Montclair State University. As a student, I developed the following interview guide and survey link inserted into the interview guide to design a mixed methods research project. I did not end up selecting this project as my capstone project for the final class because it was not feasible, but I am still sharing the questions I asked.
