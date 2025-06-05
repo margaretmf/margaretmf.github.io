@@ -4,6 +4,15 @@ layout: default
 
 <br>
 
+## A Comparison of How Family Household Leaders across Generations Experience Task Management, Project Management, and Communication Systems ##
+
+I worked as a student, in Montclair State University's UX/CX ResearcH Certificate program, and completed a capstone project. I asked the following research question: How do household leaders from different generations compare in their experiences with and perceptions of task management, project management, and communication systems tailored to supporting their families? To answer this question, I developed 7 main questions, additional probing questions, and 1 demographic question, and I recruited 6 research participants to interview. Below is my interview guide.
+
+<img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-0.jpg">
+<img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-1.jpg">
+<img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-2.jpg">
+<img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-3.jpg">
+
 ## Humanities versus Engineering Majors: How Do They Feel about Their Careers? Interview Guide
 
 I worked as a student of an Interviews and Focus Groups class with Montclair State University. As a student, I asked the following research question: How does what adults decided to major in, and their intentionality behind what they decided to major in, during their time in a college or at a university, influence their career experience and satisfaction? To answer this question, I developed the following interview guide to gain insights from graduates who were 10-20 years out of their college or university.
