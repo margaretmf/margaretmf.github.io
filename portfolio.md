@@ -13,6 +13,22 @@ I worked as a student, in Montclair State University's UX/CX ResearcH Certificat
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-2.jpg">
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-3.jpg">
 
+My final presentation document is below.
+
+<img class="picture" src="CapstoneProjectPresentation1.jpg">
+<img class="picture" src="CapstoneProjectPresentation2.jpg">
+<img class="picture" src="CapstoneProjectPresentation3.jpg">
+<img class="picture" src="CapstoneProjectPresentation4.jpg">
+<img class="picture" src="CapstoneProjectPresentation5.jpg">
+<img class="picture" src="CapstoneProjectPresentation6.jpg">
+<img class="picture" src="CapstoneProjectPresentation7.jpg">
+<img class="picture" src="CapstoneProjectPresentation8.jpg">
+<img class="picture" src="CapstoneProjectPresentation9.jpg">
+<img class="picture" src="CapstoneProjectPresentation10.jpg">
+<img class="picture" src="CapstoneProjectPresentation11.jpg">
+<img class="picture" src="CapstoneProjectPresentation12.jpg">
+<img class="picture" src="CapstoneProjectPresentation13.jpg">
+
 ## Humanities versus Engineering Majors: How Do They Feel about Their Careers? Interview Guide
 
 I worked as a student of an Interviews and Focus Groups class with Montclair State University. As a student, I asked the following research question: How does what adults decided to major in, and their intentionality behind what they decided to major in, during their time in a college or at a university, influence their career experience and satisfaction? To answer this question, I developed the following interview guide to gain insights from graduates who were 10-20 years out of their college or university.
