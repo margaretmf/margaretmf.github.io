@@ -295,15 +295,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/constructionsite1.jpg">
+<img class="profile-picture" src="photography/historytour.jpg">
 
 
 
 <img class="profile-picture" src="photography/driving.jpg">
-
-
-
-<img class="profile-picture" src="photography/historytour.jpg">
 
 
 
