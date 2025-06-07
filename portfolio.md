@@ -6,14 +6,12 @@ layout: default
 
 ## A Comparison of How Family Household Leaders across Generations Experience Task Management, Project Management, and Communication Systems ##
 
-I worked as a student, in Montclair State University's UX/CX ResearcH Certificate program, and completed a capstone project. I asked the following research question: How do household leaders from different generations compare in their experiences with and perceptions of task management, project management, and communication systems tailored to supporting their families? To answer this question, I developed 7 main questions, additional probing questions, and 1 demographic question, and I recruited 6 research participants to interview. Below is my interview guide.
+I worked as a student, in Montclair State University's UX/CX Research Certificate program, and completed a capstone project. I asked the following research question: How do household leaders from different generations compare in their experiences with and perceptions of task management, project management, and communication systems tailored to supporting their families? To answer this question, I developed 7 main questions, additional probing questions, and 1 demographic question, and I recruited 6 research participants to interview. Below is my interview guide, and below that is my final presentation slides that I delivered.
 
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-0.jpg">
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-1.jpg">
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-2.jpg">
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-3.jpg">
-
-My final presentation document is below.
 
 <img class="picture" src="CapstoneProjectPresentation1.jpg">
 <img class="picture" src="CapstoneProjectPresentation2.jpg">
