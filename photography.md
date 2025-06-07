@@ -255,7 +255,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/purpleredbluelightsinthedarkness.jpg">
+<img class="profile-picture" src="photography/purplelightsinthedarkness.jpg">
 
 
 
