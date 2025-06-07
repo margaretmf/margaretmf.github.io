@@ -255,6 +255,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/purpleredbluelightsinthedarkness.jpg">
+
+
+
 <img class="profile-picture" src="photography/constructionsite1.jpg">
 
 
@@ -288,6 +292,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/HappinessIsLikeACloud.jpg">
+
+
+
+<img class="profile-picture" src="photography/constructionsite1.jpg">
 
 
 
