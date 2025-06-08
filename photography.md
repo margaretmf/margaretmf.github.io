@@ -15,7 +15,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/america-gas-station.jpg">
+<img class="profile-picture" src="photography/americanflag-cowboyhatjpg">
 
 
 
@@ -300,6 +300,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/driving.jpg">
+
+
+
+<img class="profile-picture" src="photography/america-gas-station.jpg">
 
 
 
