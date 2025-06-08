@@ -15,7 +15,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/americanflag-cowboyhatjpg">
+<img class="profile-picture" src="photography/americanflag-cowboyhat.jpg">
 
 
 
