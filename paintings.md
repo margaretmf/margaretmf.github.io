@@ -50,6 +50,10 @@
 
 
 
+<img class="profile-picture" src="paintings/painting12.jpg">
+
+
+
 
 <br>
 
