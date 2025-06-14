@@ -66,7 +66,7 @@ Standing high, it represents the home of the brave.
 <br> It's a flag for everyone from sea to shining sea.
 <br> It's a flag for freedom, unity, and democracy.
 <br> You can find it all over the place across the country.
-<br> You'll find it near truck stops, on windmills, and even in a tree.
+<br> You'll find it near truck stops, or even in a tree.
 <br> It has 13 stripes that are bright red and white.
 <br> And it has 50 stars like the ones you see at night.
 
