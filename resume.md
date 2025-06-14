@@ -37,7 +37,8 @@ Data Analyst | October 2024-Present
 * Modularizing SQL common table expressions (CTEs) to improve code readability and to break code into smaller, manageable chunks
 * Analyzing insurance pricing data and risks, some of which come from JSON structured data, to help the business better make decisions about providing insurance
 * Creating data dashboards using AWS Quicksight to support Claims, Underwriting, and Finance teams' abilities to make data-driven decisions
-* Working cross-functionally with finance, undewriting, claims, and IT teams to address data issues and build data solutions.
+* Working cross-functionally with finance, undewriting, claims, and IT teams to address data issues and build data solutions
+* Participating as a member of the employee engagement committee, specifically the community service/relations subcomittee, attending events like a corporate 5K, and volunteering at Feedmore in Richmond, VA with the company
 
 ### HORIZONS HAMPTON ROADS
 Teacher Assistant | June-July 2024
@@ -141,7 +142,13 @@ Project Management Systems Analyst and Chatbot Designer Intern | December 2015 -
 <br>
  
 ## LEADERSHIP, VOLUNTEER, AND EXTRACURRICULAR EXPERIENCE
- 
+
+### Podium
+Young Professionals Board Member | April 2025-Present
+
+### The Doorways
+Young Professionals Council Member | October 2024-April 2025
+
 ### America India Foundation
 Event Particpant and Committee Member | March 2018 - June 2019
 
