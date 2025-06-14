@@ -995,6 +995,22 @@ Life is forever evolving
 
 <br>
 
+## poetic lifelines ##
+my life's dependent on reading and writing poetry;
+<br> poems are my lifeline: they compliment psychiatry.
+<br> bringing words together in rhyme and rhythm
+<br> helps me face down any psychological schism.
+<br> capturing feelings, observations, and sights,
+<br> like the light shining on the darknest of nights,
+<br> is what gives me my spark despite the darkness in my soul,
+<br> and is what helps me feel more fulfilled, engaged, and whole.
+<br> plus, i think the God of the universe is a poet
+<br> and all the psalms, and songs, really go to show it.
+<br> so i think God, who is Life's measured author,
+<br> wants us to hang onto poems and all that they offer.
+
+<br>
+
 ## Poetry Blooms in Spring ##
 the divinity of Spring's artistry
 <br> leads poetry to bloom,
