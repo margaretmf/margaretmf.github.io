@@ -451,7 +451,7 @@ The peace within shows me what’s real
 These stormy feelings are not really mine 
 <br> They’re just trying to stop me from being me  
 <br> These feelings are just destructive feelings  
-that pull me away from what makes me feel free 
+<br> that pull me away from what makes me feel free 
 
 <br>
 
