@@ -1424,7 +1424,7 @@ From jam-packed parking lots to long lines in the airport, it is the time of yea
 <br> 
 
 ## Driving Home for the Holiday ##
-Eager to travel home to see family for the holiday that is filled with all things merry and bright, and shades of red and green, a throng of car drive like flocks of birds flying in the sky, along winding roads, and between white dotted lines. 
+Eager to travel home to see family for the holiday that is filled with all things merry and bright, and shades of red and green, a throng of cars drive like flocks of birds flying in the sky, along winding roads, and between white dotted lines. 
 
 The golden sun shines through the brown and barren trees, and every radio station plays Christmas music, at least intermittently.
 
