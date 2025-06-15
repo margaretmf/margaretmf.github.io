@@ -219,12 +219,26 @@ And writing this poem helped me express my voice.
 <br>
 
 ## to reveal all, i - ##
-to reval all, i -
+to reveal all, i -
 <br> love the night sky.
 <br> the stars shining, and twinkling
 <br> give me a hopeful inkling
 <br> of a God so large
 <br> that only he's in charge.
+
+<br>
+
+## the night sky knows my secrets ##
+when i look up to the night sky, i deeply commune with it;
+<br> i wish upon the stars, telling the sky every secret.
+<br> as i share my desires with the universe each night,
+<br> i know the stars hold my hopes, and dreams in their light.
+<br> trusting the stars with things i tell no one but them,
+<br> i know they'll find a way to emit back what i've dreamt.
+<br> many people have said that the stars hold our fate;
+<br> so why not tell the sky what i wish the universe would create?
+<br> i trust that the sky cares about my life's design;
+<br> so this is why i tell it secrets and let the stars align.
 
 <br>
 
