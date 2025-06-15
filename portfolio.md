@@ -13,19 +13,19 @@ I worked as a student, in Montclair State University's UX/CX Research Certificat
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-2.jpg">
 <img class="picture" src="ExperienceManagementResearchProject2-InterviewGuide-images-3.jpg">
 
-<img class="picture" src="CapstoneProjectPresentation1.jpg">
-<img class="picture" src="CapstoneProjectPresentation2.jpg">
-<img class="picture" src="CapstoneProjectPresentation3.jpg">
-<img class="picture" src="CapstoneProjectPresentation4.jpg">
-<img class="picture" src="CapstoneProjectPresentation5.jpg">
-<img class="picture" src="CapstoneProjectPresentation6.jpg">
-<img class="picture" src="CapstoneProjectPresentation7.jpg">
-<img class="picture" src="CapstoneProjectPresentation8.jpg">
-<img class="picture" src="CapstoneProjectPresentation9.jpg">
-<img class="picture" src="CapstoneProjectPresentation10.jpg">
-<img class="picture" src="CapstoneProjectPresentation11.jpg">
-<img class="picture" src="CapstoneProjectPresentation12.jpg">
-<img class="picture" src="CapstoneProjectPresentation13.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-0.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-1.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-2.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-3.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-4.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-5.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-6.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-7.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-8.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-9.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-10.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-11.jpg">
+<img class="picture" src="FamilyHouseholdLeaderProjectManagementExperience-FinalPresentation-images-12.jpg">
 
 ## Humanities versus Engineering Majors: How Do They Feel about Their Careers? Interview Guide
 
