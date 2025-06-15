@@ -1025,7 +1025,7 @@ my life's dependent on reading and writing poetry;
 
 <br>
 
-## Poetry Blooms in Spring ##
+## poetry blooms in spring ##
 the divinity of Spring's artistry
 <br> leads poetry to bloom,
 <br> as buds do in May,
