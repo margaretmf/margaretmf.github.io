@@ -1418,7 +1418,7 @@ From jam-packed parking lots to long lines in the airport, it is the time of yea
 
 <br> 
 
-## Hanging Up Ornaments ##
+## 'Tis the Season ##
 ‘Tis the season for hanging up Christmas ornaments 
 <br> and decorating the house with other adornments. 
 <br> My favorite I’d say are wreaths and peppermints. 
@@ -1427,13 +1427,17 @@ From jam-packed parking lots to long lines in the airport, it is the time of yea
 <br> thanks to Santa who bought everything in the store. 
 <br> The best gift I’ve gotten is a book on folklore. 
 
-‘‘Tis the season for going with neighbors caroling 
+'Tis the season for going with neighbors caroling 
 <br> and then drinking some eggnog and reveling. 
 <br> There’s the good news of Christ we can enjoy heralding. 
 
 ‘Tis the season for lights, both fire and candlelight. 
 <br> And ‘tis the season for twinkling stars shining at night. 
 <br> In the darkness there’s a world filled with things merry and bright. 
+
+'Tis the season for traveling home to see family for the holiday
+<br> and driving miles and miles on winding roads and the highway,
+<br> while listening to Christmas music that radio stations play.
 
 <br> 
 
