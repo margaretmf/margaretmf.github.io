@@ -235,7 +235,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/lightinthedarkness16.jpg">
+<img class="profile-picture" src="photography/lightinthedarkness15.jpg">
 
 
 
