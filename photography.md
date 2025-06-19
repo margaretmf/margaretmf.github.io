@@ -307,6 +307,10 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/NYC-train-station-windows.jpg">
+
+
+
 <img class="profile-picture" src="photography/historytour.jpg">
 
 <b>
