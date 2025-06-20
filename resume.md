@@ -59,6 +59,7 @@ Literacy Tutor | August 2022-June 2024
 * Helped children improve their reading skills and abilities to support them reaching grade level expectations
 * Entered data for all current and exited students into a system to contribute to a data-driven approach
 * Received training on topics related to diversity, equity, and inclusion to contribute to a more inclusive school system
+* Engaged in educational opportunities like learning about the history of the Norfolk Botanical Gardens and the history of a Baptist church in Williamsburg, VA, where Martin Luther King, Jr. once spoke
 
 ###	FORKIDS
 Volunteer Data Analyst | August-December 2023
