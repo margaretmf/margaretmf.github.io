@@ -22,12 +22,12 @@ layout: default
 * [Graceland, At Last: Notes on Hope and Heartache From the American South](https://www.amazon.com/dp/1571311858/?bestFormat=true&k=graceland%20at%20last&ref_=nb_sb_ss_w_scx-ent-pd-bk-d_de_k0_1_17&crid=1DR9P8GXK43AY&sprefix=graceland%20at%20last) by Margaret Renkl
 * [Queen Bey: A Celebration of the Power and Creativity of Beyoncé Knowles-Carter](https://www.amazon.com/dp/1250231450/?bestFormat=true&k=queen%20bey&ref_=nb_sb_ss_w_scx-ent-pd-bk-d_de_k0_1_9&crid=2CKTZILUVFQ4H&sprefix=queen%20bey) by Veronica Chambers
 * [Project Management for Parents: Engage the Family, Build Teamwork, Succeed Together](https://www.amazon.com/Project-Management-Parents-Teamwork-Together/dp/1631956337/ref=sr_1_3?crid=FMWR4FY0XZL4&dib=eyJ2IjoiMSJ9.a0zRV6mQo9pB0B1vG3Jl5yVmI9NKeoSAVzUy2Oze_O6jhWqLmzeMuV2qSaN_xAkWTKWfDpXl2Wam8dr7QnNlp1YyAdh7s-JQoi0iqtV8TYTWo1D3D2BnO6d-F92wsKlNWe321mjh14p8Ur6mWFke7L7XnQA_AN-ho4IwWCyOGe2i7CIiMGhu5-n52ArJMfiGUgWHN7m3Cv-shncdYia6L7CPWH7QfUPA7j4uuU8VJUI.7cRitrI65MUSen-nY0lGHzwHWz5pVRcQFWUjLPI7ro0&dib_tag=se&keywords=project+management+parents&qid=1738412482&s=books&sprefix=project+management+parents+%2Cstripbooks%2C75&sr=1-3) by Hilary Kinney
+* [Still Life at Eighty: The Next Interesting Thing](https://www.amazon.com/dp/1668054655/?bestFormat=true&k=still%20life%20at%20eighty&ref_=nb_sb_ss_w_scx-ent-pd-bk-d_de_k0_1_18&crid=5HRQDJ8XX05F&sprefix=still%20life%20at%20eigh) by Abigail Thomas
+
 
 #### Reading
 * [At Home: A Short History of Private Life](https://www.amazon.com/At-Home-Short-History-Private/dp/0767919394/ref=sr_1_1?crid=2RT8ZI8A1KC21&dib=eyJ2IjoiMSJ9.Yc3ZzF4R5kVhj1U7sm14NckwoqJ4lAPqU50eKOnTumEgjywtuQdMgkPUNatO8FxhXt5FXTMmCJW5v-ponyLJYag2Jkl_nx39pSbTnz1sKBubi0CefV95FejGaJ7_AfjjBkDDVz_H0AaAY_NJ2FNA6tb_Xb6WmVjY0pBreVxZE_lXqoBjlEG138DmRZKeJjby7ofRORrRNuswbdJgXqnXiOL9zKob9Hoqo0nunwcSNK8.rzX7PsWERHnlekq4ZhZPcP90-7LO-jWrC27bNuJD9Ow&dib_tag=se&keywords=at+home+bill+bryson+book&qid=1749942542&sprefix=at+home+bill+b%2Caps%2C89&sr=8-1) by Bill Bryson
 * [Last Night A DJ Saved My Life: The History of the Disc Jockey](https://www.amazon.com/Last-Night-DJ-Saved-Life/dp/0802163904?adgrpid=186996871868&hvpone=&hvptwo=&hvadid=748008426870&hvpos=&hvnetw=g&hvrand=13006935905629920464&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9008456&hvtargid=dsa-2414841786686&hydadcr=&mcid=&hvocijid=13006935905629920464--&hvexpln=67&tag=googhydr-20&hvsb=Arts_d&hvcampaign=dsadesk) by Bill Brewster & Frank Broughton
-* [Still Life at Eighty: The Next Interesting Thing](https://www.amazon.com/dp/1668054655/?bestFormat=true&k=still%20life%20at%20eighty&ref_=nb_sb_ss_w_scx-ent-pd-bk-d_de_k0_1_18&crid=5HRQDJ8XX05F&sprefix=still%20life%20at%20eigh) by Abigail Thomas
-
   
 ## 2024
 
