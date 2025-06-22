@@ -26,6 +26,7 @@ layout: default
 #### Reading
 * [At Home: A Short History of Private Life](https://www.amazon.com/At-Home-Short-History-Private/dp/0767919394/ref=sr_1_1?crid=2RT8ZI8A1KC21&dib=eyJ2IjoiMSJ9.Yc3ZzF4R5kVhj1U7sm14NckwoqJ4lAPqU50eKOnTumEgjywtuQdMgkPUNatO8FxhXt5FXTMmCJW5v-ponyLJYag2Jkl_nx39pSbTnz1sKBubi0CefV95FejGaJ7_AfjjBkDDVz_H0AaAY_NJ2FNA6tb_Xb6WmVjY0pBreVxZE_lXqoBjlEG138DmRZKeJjby7ofRORrRNuswbdJgXqnXiOL9zKob9Hoqo0nunwcSNK8.rzX7PsWERHnlekq4ZhZPcP90-7LO-jWrC27bNuJD9Ow&dib_tag=se&keywords=at+home+bill+bryson+book&qid=1749942542&sprefix=at+home+bill+b%2Caps%2C89&sr=8-1) by Bill Bryson
 * [Last Night A DJ Saved My Life: The History of the Disc Jockey](https://www.amazon.com/Last-Night-DJ-Saved-Life/dp/0802163904?adgrpid=186996871868&hvpone=&hvptwo=&hvadid=748008426870&hvpos=&hvnetw=g&hvrand=13006935905629920464&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9008456&hvtargid=dsa-2414841786686&hydadcr=&mcid=&hvocijid=13006935905629920464--&hvexpln=67&tag=googhydr-20&hvsb=Arts_d&hvcampaign=dsadesk) by Bill Brewster & Frank Broughton
+* [Still Life at Eighty: The Next Interesting Thing](https://www.amazon.com/dp/1668054655/?bestFormat=true&k=still%20life%20at%20eighty&ref_=nb_sb_ss_w_scx-ent-pd-bk-d_de_k0_1_18&crid=5HRQDJ8XX05F&sprefix=still%20life%20at%20eigh) by Abigail Thomas
 
   
 ## 2024
