@@ -1246,29 +1246,28 @@ I’m here for Taylor, I’m here for Kasey
 
 <br> 
 
-## Headed towards Memphis ##
-I’m heading to Memphis to dig into my roots 
-<br> I’ve got on a country hat and some worn in boots 
-<br> I’m driving westward on the highway known as music highway 
-<br> There’s nothing better than this; it’s a beautiful day
+## headed towards memphis ##
+i'm heading to Memphis to dig into my roots 
+<br> i've got on a country hat and some worn in boots 
+<br> i’m driving westward on the highway known as music highway 
+<br> there’s nothing better than this; it’s a beautiful day
 
-I’m looking forward to seeing family and eating some bbq
-<br> I’m hoping to go to Beale street and listen to great music too
-<br> I used to come here in the summers when I was a young child 
-<br> This is where the heat in the summers was not mild
+i’m looking forward to seeing family and eating some bbq
+<br> i’m hoping to go to beale street and listen to great music too
+<br> i used to come here in the summers when I was a young child 
+<br> this is where the heat in the summers was not mild
 
-In the car, I’m listening to Elvis, the King and some JCash
-<br> I’m listening to “Walking in Memphis” too and having a bash 
-<br> When I get to the city my cousins will all be there 
-<br> There’s 13 of us and boy do we’ve got a prayer 
+in the car, I’m listening to elvis, the king and some jcash
+<br> i’m listening to “walking in memphis” too and having a bash 
+<br> when I get to the city my cousins will all be there 
+<br> there’s 13 of us and boy do we’ve got a prayer 
 
-Our grandparents’ stories we all love to hear 
-<br> It’s fun to learn of what it used to be like here 
-<br> They tell tales of how Memphis used to be the country 
-<br> Where people’s spirits could more easily be free 
-
-Now it’s become more developed they say
-<br> But it’s still fun to come here to stay 
+our grandparents’ stories we all love to hear 
+<br> tt’s fun to learn of what it used to be like here 
+<br> they tell tales of how Memphis used to be the country 
+<br> where people’s spirits could more easily be free 
+<br> now it’s become more developed they say
+<br> but it’s still fun to come here for a great stay 
 
 <br>
 
@@ -1300,37 +1299,37 @@ Can't you see? There's some pep in every step with them. <br>
 
 <br>
 
-## Just Live ##
-Just live. <br>
-It's all you have got to do. <br>
-Truly live. <br>
-Take it all in. <br>
-Do something new. <br>
-Have a good laugh. <br>
-Dance on the street. <br>
-Play some great music. <br>
-Live. <br>
-Really live. <br>
+## just live ##
+just live. <br>
+it's all you have got to do. <br>
+truly live. <br>
+take it all in. <br>
+do something new. <br>
+have a good laugh. <br>
+dance on the street. <br>
+play some great music. <br>
+live. <br>
+really live. <br>
 
 <br>
 
-## I Am One in A Sea ##
-I am a voice in a sea of voices yearning to say something kind.
+## i am one in a sea ##
+i am a voice in a sea of voices yearning to say something kind.
 
-I am a conscience in a sea of consciences desiring to do the right thing.
+i am a conscience in a sea of consciences desiring to do the right thing.
 
-I am a body in a sea of bodies learning to be free.
+i am a body in a sea of bodies learning to be free.
 
-I am a heart in a sea of hearts seeking to love more.
+i am a heart in a sea of hearts seeking to love more.
 
-I am a set of eyes in a sea of eyes looking to see the good.
+i am a set of eyes in a sea of eyes looking to see the good.
 
 <br>
 
 ## Flying Solo - Rough Draft ##
-There's a bird sitting on the fence alone. <br>
-She lifts her wings so gracefully. <br>
-How I long to be like this lone bird, peacefully knowing who I am. <br>
+there's a bird sitting on the fence alone. <br>
+<br> she lifts her wings so gracefully. <br>
+<br> how I long to be like this lone bird, peacefully knowing who I am. <br>
 
 <br>
 
@@ -1357,16 +1356,16 @@ The lone bird skates on the ice. <br>
 
 <br>
 
-## Girl, Stop ##
-Girl, stop, and take a look.
-You got a smile to wear.
-You got a style to share.
-Please take a hard look.
+## girl, stop ##
+girl, stop, and take a look.
+<br> you've got a smile to wear.
+<br> you've got a style to share.
+<br> please take a hard look.
 
-You are wonderful.
-You are beautiful.
-So mirror, mirror,
-please see a little clearer.
+<br> you are wonderful.
+<br> you are beautiful.
+<br> so mirror, mirror,
+<br> please see a little clearer.
 
 <br>
 
@@ -1380,28 +1379,28 @@ to reveal all, i -
 
 <br>
 
-## My Own Way ##
-Momma’s never left Shelby County <br>
-And don’t want nobody telling her what to do <br>
-But I got faraway dreams, ain’t no townie <br>
-This place is just for passing through <br>
+## my own way ##
+momma’s never left shelby county <br>
+<br> and don’t want nobody telling her what to do <br>
+<br> but I got faraway dreams, ain’t no townie <br>
+<br> this place is just for passing through <br>
 
 <br>
 
-## But Not Today ##
-I’ve been crying, crying, crying <br>
-But not today <br>
-Learning to leave it in yesterday <br>
+## but not today ##
+i’ve been crying, crying, crying <br>
+but not today <br>
+learning to leave it in yesterday <br>
 
 <br>
 
-## Joy Sprouts from the Earth ##
-As the tulips trumpet and the daisies dance,
-<br> I feel the joy sprouting from the earth. 
-<br> As the birds chirp and the rabbits hop, 
-<br> I witness this season’s worth. 
-<br> As souls rejuvenate in sunbeams and beings renew their hope,
-<br> I sing along in gratitude for a spiritual rebirth.  
+## joy sprouts from the earth ##
+as the tulips trumpet and the daisies dance,
+<br> i feel the joy sprouting from the earth. 
+<br> as the birds chirp and the rabbits hop, 
+<br> i witness this season’s worth. 
+<br> as souls rejuvenate in sunbeams and beings renew their hope,
+<br> i sing along in gratitude for a spiritual rebirth.  
 
 <br> 
 
@@ -1418,12 +1417,22 @@ it is may now.
 
 <br>
 
-## The Stained-Glass Window ##
-In my home, there’s a window, through which the sun can shine. 
-<br> The red, heart-shaped center represents St. Valentine. 
-<br> Surrounding the heart is a stained glass handiwork.
-<br> Of blue, green, and yellow, it's a clouded patchwork. 
-<br> The colors grow bright, when steeped in the sun's beams,
+## summer did not start off hesitantly ##
+what is going on? it's 100 degrees in june.
+<br> how's it so hot? how's it so hot this soon?
+<br> thus, i'd say summer did not start off hesitantly.
+<br> no, not with this whether...it started rather unquestioningly.
+<br> we've still got two months left, and it's only getting hotter.
+<br> so  make sure each day to dirnk all of your water.
+
+<br> 
+
+## the stained-glass window ##
+in my home, there’s a window, through which the sun can shine. 
+<br> the red, heart-shaped center represents st. valentine. 
+<br> surrounding the heart is a stained glass handiwork.
+<br> of blue, green, and yellow, it's a clouded patchwork. 
+<br> the colors grow bright, when steeped in the sun's beams,
 <br> and the floor courts it’s shadows as the light gleams. 
 
 <br> 
