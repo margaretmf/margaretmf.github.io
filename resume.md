@@ -27,6 +27,19 @@ MS in [Data Science](https://dsi.virginia.edu/) | July 2014 - December 2015
 * Studied and worked in Ireland
 * Received straight As
 
+### MONTCLAIR STATE UNIVERSITY
+Certificate in [UX and CX Research](https://www.montclair.edu/graduate/programs-of-study/customer-experience-and-user-experience-research-certificate-online/) | January 2025-December 2026
+* Advisor: Chris Donoghue
+* Relevant Classwork: Qualitative Research, Experience Management, Survey Research, UX and CX Researcher
+* Designed and implemented a qualitative research project to research the relationship between the intentionality behind what people decided to major in at a university and their career satisfaction	10-20 years later
+* Designed a mixed-methods research capstone project to research the relationship between the overall experience of users of babysitter search and hiring products and their likelihood to recommend the product
+* Designed and implemented a qualitative research project to research the relationship between someone’s generation and how they experience or don’t experience project management systems tailored to managing household work
+* Led a usability test with five people to understand their feelings about, reactions to, and interactions with bookofthemonth.com
+
+### DUKE UNIVERSITY
+Certificate in [Business Analysis](https://learnmore.duke.edu/management/business-analysis-online)
+* Completing modules on business analysis completely online
+  
 <br>
  
 ## WORK EXPERIENCE
