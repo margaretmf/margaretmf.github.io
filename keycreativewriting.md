@@ -1423,7 +1423,7 @@ what is going on? it's 100 degrees in june.
 <br> thus, i'd say summer did not start off hesitantly.
 <br> no, not with this whether...it started rather unquestioningly.
 <br> we've still got two months left, and it's only getting hotter.
-<br> so  make sure each day to dirnk all of your water.
+<br> so  make sure each day to drink all of your water.
 
 <br> 
 
