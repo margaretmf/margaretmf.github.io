@@ -291,15 +291,15 @@ as the mask falls off, the foes flee,
 
 <br>
 
-## Tuning into Myself ##
-This month I'm tuning into myself.
-<br> I'm tapping into what brings me health.
-<br> I'm doing what makes me come alive.
-<br> I'm focusing on areas where I thrive.
-<br> I'm no longer saying yes to people blindly.
-<br> I'm instead choosing things designedly.
-<br> I'm no longer suppressing the negative feelings.
-<br> I'm being aware of them to experience healings.
+## tuning into myself ##
+this month I'm tuning into myself.
+<br> i'm tapping into what brings me health.
+<br> i'm doing what makes me come alive.
+<br> i'm focusing on areas where I thrive.
+<br> i'm no longer saying yes to people blindly.
+<br> i'm instead choosing things designedly.
+<br> i'm no longer suppressing the negative feelings.
+<br> i'm being aware of them to experience healings.
 
 <br>
 
