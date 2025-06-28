@@ -38,7 +38,7 @@ Certificate in [UX and CX Research](https://www.montclair.edu/graduate/programs-
 
 ### DUKE UNIVERSITY
 Certificate in [Business Analysis](https://learnmore.duke.edu/management/business-analysis-online)
-* Completing modules on business analysis completely online
+* Completing modules on business analysis completely online to learn about the project life cycle, requirements gathering techniques, and more
   
 <br>
  
