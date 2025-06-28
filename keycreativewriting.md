@@ -270,6 +270,15 @@ how about we, women, especially, dare to rebuff...
 
 <br>
 
+# i am a ____ before i am ____ ##
+i am a human before i am a woman, and all of mankind shares being human with me in common.
+<br> like all mankind, both men and women, i can think with my head...and in the morning, rise, with joy, out of bed.
+<br> like both men and women, i am here on earth to learn. and as i apply what i learn, hopefully a full life i earn.
+<br> like all mankind, both men and women, i can feel with my heart and fill up with love, at each day's start.
+<br> and finally, like all men and women, i am never alon on the earth, and i can see others' worth while they can see my worth.
+
+<br>
+
 ## i'm afraid the masquerade is over ##
 i’m afraid the masquerade is over. 
 <br> the enemies have had an exposure.
@@ -395,6 +404,20 @@ I love me, I love me not…
 <br> I love me, I love me not…
 <br> At last, I choose I love me…
 <br> because it’s love that sets me free. 
+
+<br>
+
+## does my mind repeat itself? ##
+does my mind repeat itself? and do i seriously need help?
+<br> because i can't, for the life of me, put the recurring thoughts on the shelf.
+
+i seem to entertain some thoughts obsessively.
+<br> the thoughts occur to me pretty aggresively.
+<br> they even echo when i look at them objectively.
+
+my thoughts reiterate like a broken record.
+<br> the same thoughts play in a way that's absurd.
+<br> but i know my thought patterns can be conquered.
 
 <br>
 
