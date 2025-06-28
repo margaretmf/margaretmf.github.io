@@ -275,7 +275,7 @@ i am a human before i am a woman, and all of mankind shares being human with me 
 <br> like all mankind, both men and women, i can think with my head...and in the morning, rise, with joy, out of bed.
 <br> like both men and women, i am here on earth to learn. and as i apply what i learn, hopefully a full life i earn.
 <br> like all mankind, both men and women, i can feel with my heart and fill up with love, at each day's start.
-<br> and finally, like all men and women, i am never alon on the earth, and i can see others' worth while they can see my worth.
+<br> and finally, like all men and women, i am never alone on the earth, and i can see others' worth while they can see my worth.
 
 <br>
 
