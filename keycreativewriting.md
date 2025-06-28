@@ -421,21 +421,21 @@ my thoughts reiterate like a broken record.
 
 <br>
 
-## Framing This Moment ##
-I'm framing this moment…
+## framing this moment ##
+i'm framing this moment…
 because it was a moment well-spent,
 as I felt contentment…
 and a higher sense of fulfillment.
-I'll hang the frame on the wall…
+i'll hang the frame on the wall…
 so that I'll be able to recall,
 and see a remnant…
 of this glorious moment.
 
 <br>
 
-## Love's Ripples ##
-Humans' love for each other expands like ripples on the water's surface.
-<br> One person smiles, or wave stheir hand, or helps another through an active of service;
+## love's ripples ##
+humans' love for each other expands like ripples on the water's surface.
+<br> one person smiles, or wave stheir hand, or helps another through an active of service;
 <br> and the one impacted by the act of service passes it forward, leading the next affected to pass it also forward...
 <br> ...until all of humanity joins together in creating a more beautiful world,
 <br> consisting of concentric cirlces of love forever dilating....
