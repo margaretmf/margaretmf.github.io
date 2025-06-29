@@ -240,16 +240,16 @@ and writing this poem helped me express my voice.
 <br>
 
 ## glorious mornings in my own company ##
-at 5 before the rest of the world has awakened,
+at 5am, before the rest of the world has awakened,
 <br> i sometimes arise to tap into a faith unshaken.
 <br> while reading a bit and drinking milk with honey,
 <br> there's nothing more glorious than my own company.
-<br> it's quiet - no loud cars on the highway can i hear.
+<br> it's quiet - there are no loud cars i can hear.
 <br> it's a time for me to be at peace with our God, whose dear.
 <br> i can hear no other voices but my still, inner voice.
-<br> a new days has begun, and in this i do rejoice.
+<br> a new day has begun, and in this i do rejoice.
 <br> at this time of day, there's nothing competing for attention.
-<br> it's just me, myself, and God, enjoying a higher dimension.
+<br> it's just me and God, enjoying a higher dimension.
 <br> this time alone is the fuel for the day ahead,
 <br> as i sit alone in gratitude for my daily bread.
 
