@@ -218,6 +218,22 @@ And writing this poem helped me express my voice.
 
 <br>
 
+## glorious mornings in my own company ##
+at 5 before the rest of the world has awakened,
+<br> i sometimes arise to tap into a faith unshaken.
+<br> while reading a bit and drinking milk with honey,
+<br> there's nothing more glorious than my own company.
+<br> it's quiet - no loud cars on the highway can i hear.
+<br> it's a time for me to be at peace with our God, whose dear.
+<br> i can hear no other voices but my still, inner voice.
+<br> a new days has begun, and in this i do rejoice.
+<br> at this time of day, there's nothing competing for attention.
+<br> it's just me, myself, and God, enjoying a higher dimension.
+<br> this time alone is the fuel for the day ahead,
+<br> as i sit alone in gratitude for my daily bread.
+
+<br>
+
 ## to reveal all, i - ##
 to reveal all, i -
 <br> love the night sky.
@@ -1424,6 +1440,22 @@ what is going on? it's 100 degrees in june.
 <br> no, not with this whether...it started rather unquestioningly.
 <br> we've still got two months left, and it's only getting hotter.
 <br> so  make sure each day to drink all of your water.
+
+<br> 
+
+## this month radiates prismatic energy ##
+this month is june. do you know what that means?
+<br> it's the month for rainbow colors from red to purple to green.
+<br> it's the month for prismatic energy to radiate...
+<br> ...through the diverse ways people march and celebrate.
+<br> it's the month for people to raise the flag...
+<br> ...and pull out all of their colorful swag.
+<br> it's the month for lgbtqia+ fully to take pride...
+<br> ...and feel love for themselves; they've got nothing to hide.
+<br> at least lgbtqia+ have got nothing to hide from me...
+<br> for i have grown more aware through members of my family.
+<br> so if you identify as lgbqia+, don't let  your glow be extinguished...
+<br> ...and don't let your way of loving be ever relinquished.
 
 <br> 
 
