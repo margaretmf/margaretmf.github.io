@@ -1106,8 +1106,8 @@ so listen intently during this season:
 <br>
 
 ## Good Going On Today ##
-I wake up and make the bed
-<br> I make sure that I am fed 
+i wake up and make the bed.
+<br> i make sure that I am fed 
 <br> I put on my boots and walk out the door 
 <br> I am ready to see what this day has in store 
 
@@ -1124,7 +1124,7 @@ I arrive at my workplace and walk in and say hello
 Someone comes over and invites me to lunch
 <br> I say of course I’ll go and enjoy a munch 
 <br> We talk about work and how the day is 
-<br> The day is going well, gee-whiz 
+<br> The day is going well, I've been down to biz
 
 In the pm I leave work and go for a walk
 <br> I get on the phone with my mom for a talk 
