@@ -290,7 +290,7 @@ how about we, women, especially, dare to rebuff...
 i am a human before i am a woman, and all of mankind shares being human with me in common.
 <br> like all mankind, both men and women, i can think with my head...and in the morning, rise, with joy, out of bed.
 <br> like both men and women, i am here on earth to learn. and as i apply what i learn, hopefully a full life i earn.
-<br> like all mankind, both men and women, i can feel with my heart and fill up with love, at each day's start.
+<br> like all mankind, both men and women, i can feel with my heart, filling it up with love at each day's start.
 <br> and finally, like all men and women, i am never alone on the earth, and i can see others' worth while they can see my worth.
 
 <br>
@@ -508,26 +508,26 @@ These stormy feelings are not really mine
 
 <br>
 
-## Don't Forget to Look Up ##
-Don’t forget to look up at the sky.
-<br> And when you do, look up high,
+## don't forget to look up ##
+don’t forget to look up at the sky.
+<br> and when you do, look up high,
 <br> pay attention to the birds soaring by,
 <br> and see how in a flock they orderly fly.
 
 <br>
 
-## Don't Forget to Open Your Eyes ## 
-Don’t forget to open your eyes, 
+## don't forget to open your eyes ## 
+don’t forget to open your eyes, 
 <br> see the new day dawning in the sunrise,
 <br> and how all of nature is harmonized. 
 <br> There’s beauty all around that you may realize. 
 
 <br>
 
-## Don't Forget to Open Your Heart ##
-Don’t forget to open your heart
+## don't forget to open your heart ##
+don’t forget to open your heart
 <br> with a fresh attitude at each day’s start. 
-<br> Be willing to give freely and do your part,
+<br> be willing to give freely and do your part,
 <br> and live your life like it’s a work of art
 
 <br>
