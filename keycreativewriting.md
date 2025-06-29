@@ -4,35 +4,56 @@
 
 ---------------------------------------------------------------------------------------------------------------------
 
-## The Friend ##
-Sitting in a dark room, she sits alone
+## the traffic guard (a poem I wrote as a senior in high school) ##
+she stands there every day
+<br> in the distress of crying clouds,
+<br> in the frigid darkness of naked trees,
+<br> and in the stifling heat which signals
+<br> the last day on the calendar drawing near.
+
+but every day
+<br> she stands as if the sun is singing.
+<br> she raises her hand and brushes it through the air
+<br> sharing an infinity of smiles.
+
+<br> some mornings, i feel upbeat.
+<br> and i return the smile.
+<br> other ays, i feel gloomy, stressed
+<br> so i quickly avert my eyes
+<br> as i slip into a lonely, black rectangle
+<br> between two silver SUVs.
+
+<br>
+
+## the friend (a poem I wrote in high school) ##
+sitting in a dark room, she sits alone
 <br> with a heart yearning to express itself.
 <br>
-<br> In another dark room nearby, a piano sits alone
+<br> in another dark room nearby, a piano sits alone
 <br> with ivory yearning to be tickled.
 <br>
-<br>'Why cannot the piano be my friend?' she thinks.
+<br>'why cannot the piano be my friend?' she thinks.
 <br> with stiff legs she introduces herself to Steinway,
 <br> and in return she receives a great gift.
 <br>
-<br> Her body is no longer stiff, no longer limited.
-<br> Her eyes no longer shed tears.
-<br> Her fingers dance across the black and white keys.
-<br> Her ears open up and hear the sound of music.
-<br> Her soul spreads its wings and flies.
-<br> Her heart has found freedom.
-<br> And her mind has found relief.
+<br> her body is no longer stiff, no longer limited.
+<br> her eyes no longer shed tears.
+<br> her fingers dance across the black and white keys.
+<br> her ears open up and hear the sound of music.
+<br> her soul spreads its wings and flies.
+<br> her heart has found freedom.
+<br> and her mind has found relief.
 <br>
-<br> She is now content
+<br> she is now content
 <br> with the company of a friend.
 
 <br>
 
-## Children's Play ##
-Playing music on the keys,
+## children's play ##
+playing music on the keys,
 she discovers a joy and a light in the sound that reminds her of little children on a playground.
 
-The sound alone tells a colorful story of the youthfulness that bounces with joy.
+the sound alone tells a colorful story of the youthfulness that bounces with joy.
 
 <br>
 
