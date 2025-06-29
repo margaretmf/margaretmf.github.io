@@ -18,7 +18,7 @@ but every day
 
 <br> some mornings, i feel upbeat.
 <br> and i return the smile.
-<br> other ays, i feel gloomy, stressed
+<br> other days, i feel gloomy, stressed
 <br> so i quickly avert my eyes
 <br> as i slip into a lonely, black rectangle
 <br> between two silver SUVs.
