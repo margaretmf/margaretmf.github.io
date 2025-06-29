@@ -1469,8 +1469,8 @@ in my home, there’s a window, through which the sun can shine.
 
 <br> 
 
-## Big Red Bow ##
-There is nothing like a big red bow
+## big red bow ##
+there is nothing like a big red bow
 <br> that I can put on top of a gift for you
 <br> or tie in my hair for a classic do
 <br> or wrap around the church pew. 
@@ -1478,39 +1478,39 @@ There is nothing like a big red bow
 <br> 
 
 ## Peaceful Chaos ##
-From jam-packed parking lots to long lines in the airport, it is the time of year of peaceful chaos. People are rushing to buy ingredients for their holiday party, shopping at the last minute for the presents for their family, and arriving to the airport extra early to make their flight on time…like everyone else is. It also can feel like the to do list is so long that one never checks everything off…the things to do are endless. But amidst all the hustle and bustle, there are glimmers of good cheer, with people excited to give and receive, and the promise of Jesus Christ, who brought peace and good will to all mankind, motivating the season. 
+from jam-packed parking lots to long lines in the airport, it is the time of year of peaceful chaos. people are rushing to buy ingredients for their holiday party, shopping at the last minute for the presents for their family, and arriving to the airport extra early to make their flight on time…like everyone else is. it also can feel like the to do list is so long that one never checks everything off…the things to do are endless. but amidst all the hustle and bustle, there are glimmers of good cheer, with people excited to give and receive, and the promise of Jesus Christ, who brought peace and good will to all mankind, motivating the season. 
 
 <br> 
 
-## 'Tis the Season ##
-‘Tis the season for hanging up Christmas ornaments 
+## 'tis the season ##
+‘tis the season for hanging up Christmas ornaments 
 <br> and decorating the house with other adornments. 
-<br> My favorite I’d say are wreaths and peppermints. 
+<br> my favorite I’d say are wreaths and peppermints. 
 
-‘Tis the season for stockings filled with presents galore,
+‘tis the season for stockings filled with presents galore,
 <br> thanks to Santa who bought everything in the store. 
-<br> The best gift I’ve gotten is a book on folklore. 
+<br> the best gift I’ve gotten is a book on folklore. 
 
-'Tis the season for going with neighbors caroling 
+'tis the season for going with neighbors caroling 
 <br> and then drinking some eggnog and reveling. 
-<br> There’s the good news of Christ we can enjoy heralding. 
+<br> there’s the good news of Christ we can enjoy heralding. 
 
-‘Tis the season for lights, both fire and candlelight. 
-<br> And ‘tis the season for twinkling stars shining at night. 
-<br> In the darkness there’s a world filled with things merry and bright. 
+‘tis the season for lights, both fire and candlelight. 
+<br> and ‘tis the season for twinkling stars shining at night. 
+<br> in the darkness there’s a world filled with things merry and bright. 
 
-'Tis the season for traveling home to see family for the holiday
+'tis the season for traveling home to see family for the holiday
 <br> and driving miles and miles on winding roads and the highway,
 <br> while listening to Christmas music that radio stations play.
 
 <br> 
 
-## Driving Home for the Holiday ##
-Eager to travel home to see family for the holiday that is filled with all things merry and bright, and shades of red and green, a throng of cars drive like flocks of birds flying in the sky, along winding roads, and between white dotted lines. 
+## driving home for the holiday ##
+eager to travel home to see family for the holiday that is filled with all things merry and bright, and shades of red and green, a throng of cars drive like flocks of birds flying in the sky, along winding roads, and between white dotted lines. 
 
-The golden sun shines through the brown and barren trees, and every radio station plays Christmas music, at least intermittently.
+the golden sun shines through the brown and barren trees, and every radio station plays Christmas music, at least intermittently.
 
-Every other mile, there stands a blue sign marking the next gas station or fast food restaurant, where gracious people stand behind logos like Cracker Barrell, McDonald’s, and Exxon and are ready to let you use the restroom, if not take your cash in exchange for a meal.
+every other mile, there stands a blue sign marking the next gas station or fast food restaurant, where gracious people stand behind logos like cracker barrell, mcdonald’s, and exxon and are ready to let you use the restroom, if not take your cash in exchange for a meal.
 
 <br>
 ---------------------------------------------------------------------------------------------------------------------
