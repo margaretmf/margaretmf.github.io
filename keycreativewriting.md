@@ -58,34 +58,34 @@ Past,
 
 <br> 
 
-## The American Flag ##
-Standing high, it represents the home of the brave.
-<br> And with each blow of the wind, you'll see it flap and wave.
-<br> Not only does it stand high; it stands big and tall.
-<br> Not just one person it stands for; it stands for all.
-<br> It's a flag for everyone from sea to shining sea.
-<br> It's a flag for freedom, unity, and democracy.
-<br> You can find it all over the place across the country.
-<br> You'll find it near truck stops, or even in a tree.
-<br> It has 13 stripes that are bright red and white.
-<br> And it has 50 stars like the ones you see at night.
+## the american flag ##
+standing high, it represents the home of the brave.
+<br> and with each blow of the wind, you'll see it flap and wave.
+<br> not only does it stand high; it stands big and tall.
+<br> not just one person it stands for; it stands for all.
+<br> it's a flag for everyone from sea to shining sea.
+<br> it's a flag for freedom, unity, and democracy.
+<br> you can find it all over the place across the country.
+<br> you'll find it near truck stops, or even in a tree.
+<br> it has 13 stripes that are bright red and white.
+<br> and it has 50 stars like the ones you see at night.
 
 <br>
 
-## Working in the Truckstop Diner ##
-I'm reminiscing about the good old days
+## working in the truckstop diner ##
+i'm reminiscing about the good old days
 <br> when this work didn't feel so lonely.
-<br> I am grateful for the strangers who come,
+<br> i am grateful for the strangers who come,
 <br> but not as many come these days.
 
-I'm cleaning up some greasy food.
-<br> I'm throwing away uneaten pie.
-<br> I was happier back then,
+i'm cleaning up some greasy food.
+<br> i'm throwing away uneaten pie.
+<br> i was happier back then,
 <br> but I've got to be grateful for the good.
 
-At least one couple sat in this booth,
+at least one couple sat in this booth,
 <br> leaving a napkin on the checkered floors.
-<br> The restaurant hasn't totally been forgotten;
+<br> the restaurant hasn't totally been forgotten;
 <br> it's just not as good as when it was in its youth.
 
 <br>
@@ -113,108 +113,108 @@ peppermint sticks are better with lemons
 
 <br>
 
-## A New Day ##
-It's a new day for the sun to shine.
-<br> Wake up, and be free. The day is yours, and the day is mine.
+## a new day ##
+it's a new day for the sun to shine.
+<br> wake up, and be free. the day is yours, and the day is mine.
 
-It's a really great day for the sky to be blue.
-<br> Look up high! And see the birds soaring too!
+it's a really great day for the sky to be blue.
+<br> look up high! and see the birds soaring too!
 
-On this new day the birds really sing.
-<br> It's fun to sing with the birds and hear their songs ringaling.
+on this new day the birds really sing.
+<br> it's fun to sing with the birds and hear their songs ringaling.
 
-It's a new day for the earth to move.
-<br> It's amazing how all the people really get into a groove.
+it's a new day for the earth to move.
+<br> it's amazing how all the people really get into a groove.
 
-On this new day I've got two feet on the ground.
-<br> It's love that makes the world go around.
+on this new day i've got two feet on the ground.
+<br> it's love that makes the world go around.
 
-It's a really great day to go out and seize the day.
-<br> Neighbors wave, and people laugh and play.
+it's a really great day to go out and seize the day.
+<br> neighbors wave, and people laugh and play.
 
-It's a new day to run and skip outside.
-<br> It's more wonderful to do this with friends by my side.
+it's a new day to run and skip outside.
+<br> it's more wonderful to do this with friends by my side.
 
-On this new day I wear a smile on my face.
-<br> I do all that I need to do with a heart filled with grace.
-
-<br>
-
-## It's a Beautiful Thing ##
-It’s a beautiful thing to share a smile with someone on the street and see and feel the light in a stranger that you greet.
-
-It’s a beautiful thing to hold the door open for someone and lighten their load as they are carrying a ton. 
-
-It’s a beautiful thing to buy flowers for a friend and have them delivered at the day’s end. 
-
-It’s a beautiful thing to write a handwritten note and share some kind words and an inspiring quote. 
-
-It’s a beautiful thing to let someone go in front of you and help them not wait so long in the queue. 
-
-It’s a beautiful thing to buy a gift for your family member and show that you care and that them you remember. 
+on this new day i wear a smile on my face.
+<br> i do all that i need to do with a heart filled with grace.
 
 <br>
 
-## How Will I Best Use the Moment? ##
-How will I best use the moment?
-<br> Will I pray?….or will I vent?
+## it's a beautiful thing ##
+it’s a beautiful thing to share a smile with someone on the street and see and feel the light in a stranger that you greet.
 
-Will I think about all that’s going on?
-<br> Or will I think about all that’s going wrong?
+it’s a beautiful thing to hold the door open for someone and lighten their load as they are carrying a ton. 
 
-I must say that life is more joyous when I pray.
-<br> And living in gratitude for God is the way.
+it’s a beautiful thing to buy flowers for a friend and have them delivered at the day’s end. 
 
-So I will make the most of each minute, each day.
-<br> I will remember to love and thank God always.
+it’s a beautiful thing to write a handwritten note and share some kind words and an inspiring quote. 
 
-And I will find a way to help someone somewhere.
-<br> I will turn to God to help me show some care.
+it’s a beautiful thing to let someone go in front of you and help them not wait so long in the queue. 
+
+it’s a beautiful thing to buy a gift for your family member and show that you care and that them you remember. 
+
+<br>
+
+## how will i best use the moment? ##
+how will I best use the moment?
+<br> will I pray?….or will I vent?
+
+will I think about all that’s going on?
+<br> or will I think about all that’s going wrong?
+
+i must say that life is more joyous when I pray.
+<br> and living in gratitude for God is the way.
+
+so i will make the most of each minute, each day.
+<br> i will remember to love and thank God always.
+
+and i will find a way to help someone somewhere.
+<br> i will turn to God to help me show some care.
 
 <br> 
 
-## God's Grand Story ##
-For your life, eternally to God be the glory;
+## God's grand story ##
+for your life, eternally to God be the glory;
 <br> so let Him conceive of and write your whole story.
 
-Your story He’s been writing since the beginning of time.
-<br> He’s been thinking you up as someone loved and divine.
+your story He’s been writing since the beginning of time.
+<br> he’s been thinking you up as someone loved and divine.
 
-This story never ends; it’s always unfolding.
-<br> In His eyes you’re amazing; your character he’s molding.
+this story never ends; it’s always unfolding.
+<br> in His eyes you’re amazing; your character he’s molding.
 
-There’s never been a minute when you’ve been separated from Him.
+there’s never been a minute when you’ve been separated from Him.
 <br> God has not created you without thought on a whim.
 
-Yes, sometimes mortal lies sure do like to creep in.
-<br> Like “I’m lacking, I’ve been fired, or I’m full of sin!”.
+yes, sometimes mortal lies sure do like to creep in.
+<br> like “I’m lacking, I can't succeed, or I’m full of sin!”.
 
-But God can reveal a world full of His plans.
-<br> For in reality everything is ordered in His hands.
+but God can reveal a world full of His plans.
+<br> for in reality everything is ordered in His hands.
 
-So choose to see you in the way God sees you.
-<br> Be part of what He’s crafting with the grand view.
+so choose to see you in the way God sees you.
+<br> be part of what He’s crafting with the grand view.
 
 <br> 
 
-## No Need to Compare ##
-Sometimes I struggle with the tendency to compare, 
-<br> and I struggle with the suggestion that life is unfair. 
+## no need to compare ##
+sometimes i struggle with the tendency to compare, 
+<br> and i struggle with the suggestion that life is unfair. 
 
-But I stop to see this as the tempter’s great snare, 
+but I stop to see this as the tempter’s great snare, 
 <br> for God provides for me and all everywhere. 
 
-So if you’re struggling as well, be true to you, 
+so if you’re struggling as well, be true to you, 
 <br> and don’t let the illusion skew your view. 
 
-There’s no need to compare; you’ve got all you need. 
+there’s no need to compare; you’ve got all you need. 
 <br> God gives to you when you follow His lead. 
 
-Do I master this goal every day that I’m alive? 
-<br> Well surely it’s an endeavor for which I strive. 
+do I master this goal every day that i’m alive? 
+<br> well surely it’s an endeavor for which i strive. 
 
-And writing this poem helped me express my voice. 
-<br> In these ideas that God gave me I do rejoice.
+and writing this poem helped me express my voice. 
+<br> in these ideas that God gave me I do rejoice.
 
 <br>
 
