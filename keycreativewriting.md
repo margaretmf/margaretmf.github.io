@@ -1128,38 +1128,38 @@ so listen intently during this season:
 
 ## Good Going On Today ##
 i wake up and make the bed.
-<br> i make sure that I am fed 
-<br> I put on my boots and walk out the door 
-<br> I am ready to see what this day has in store 
+<br> i make sure that i am fed.
+<br> i put on my boots and walk out the door.
+<br> i am ready to see what this day has in store.
 
-I get in my car, and I put in the keys 
-<br> I’ve got my window down, and I’m feeling the breeze 
-<br> The radio is on; I’m listening to the news 
-<br> There are stories of people creating new products to use  
+i get in my car, and i put in the keys.
+<br> i’ve got my window down, and i’m feeling the breeze.
+<br> the radio is on; I’m listening to the news.
+<br> there are stories of people creating new products to use. 
 
-I arrive at my workplace and walk in and say hello
-<br> It’s a new day on the grind; this I know 
-<br> So I turn on my laptop and I get to work 
-<br> I put my mind on my projects and refuse to shirk
+i arrive at my workplace and walk in and say hello.
+<br> it’s a new day on the grind; this i know.
+<br> so i turn on my laptop and I get to work.
+<br> i put my mind on my projects and refuse to shirk.
 
-Someone comes over and invites me to lunch
-<br> I say of course I’ll go and enjoy a munch 
-<br> We talk about work and how the day is 
-<br> The day is going well, I've been down to biz
+someone comes over and invites me to lunch.
+<br> i say of course i’ll go and enjoy a munch.
+<br> we talk about work and how the day is.
+<br> the day's going well, i've been down to biz.
 
-In the pm I leave work and go for a walk
-<br> I get on the phone with my mom for a talk 
-<br> Outside I see someone doing a kind deed
-<br> Every kind deed is a little seed
+in the pm i leave work and go for a walk.
+<br> i get on the phone with my mom for a talk. 
+<br> outside i see someone doing a kind deed.
+<br> every kind deed is a little seed.
 
-After the walk I get home, and I rest 
-<br> I remember all the good things that make me feel blessed 
+after the walk i get home, and i rest.
+<br> i remember all the good things that make me feel blessed.
 
 Chorus: 
-There’s good going on today, so why don’t I sing
-<br> I am glad about all the things that the good Lord brings 
-<br> The sun is shining, the birds are chirping 
-<br> The world is moving,  the people are smiling 
+there’s good going on today, so why don’t i sing.
+<br> i am glad about all the things that the good Lord brings.
+<br> the sun is shining, the birds are chirping.
+<br> the world is moving,  the people are smiling.
 
 <br> 
 
@@ -1241,45 +1241,45 @@ This farm is my home
 <br> 
 
 ## Nashville #
-Some people come here from the west 
-<br> I’m coming here from the east 
-<br> I’m coming to Nashville for music fest 
-<br> There’s no place better to say the least 
+some people come here from the west 
+<br> i’m coming here from the east 
+<br> i’m coming to Nashville for music fest 
+<br> there’s no place better to say the least 
 
-I’m here for Taylor, I’m here for Kasey
-<br> I’m here for Dolly, I’m here for Johnny
-<br> I’m here for bluegrass and country western
-<br> I’m here for guitars and also mandolins 
+i’m here for Taylor, i’m here for Kasey
+<br> i’m here for Dolly, i’m here for Johnny
+<br> i’m here for bluegrass and country western
+<br> i’m here for guitars and also mandolins 
 
-Once I get here I’ll have fun downtown
-<br> I can’t wait to see all the red neon signs 
-<br> With my boots I’ll stomp on the ground 
-<br> And meet some people dancing in lines 
+once i get here i’ll have fun downtown
+<br> i can’t wait to see all the red neon signs 
+<br> with my boots i’ll stomp on the ground 
+<br> and meet some people dancing in lines 
 
-I’m here for Taylor, I’m here for Kasey
-<br> I’m here for Dolly, I’m here for Johnny
-<br> I’m here for cowboys, I’m here for guitars
-<br> I’m here for bluegrass, I’m here for country 
+i’m here for Taylor, i’m here for Kasey
+<br> i’m here for Dolly, i’m here for Johnny
+<br> i’m here for cowboys, i’m here for guitars
+<br> i’m here for bluegrass, i’m here for country 
 
-I’ll put in requests on the jukebox
-<br> And I’ll sing along to my favorite tune
-<br> I’ll sing the song about the boondocks
-<br> And also about the stars and the moon
+i’ll put in requests on the jukebox
+<br> and i’ll sing along to my favorite tune
+<br> i’ll sing the song about the boondocks
+<br> and also about the stars and the moon
 
-I’m here for Taylor, I’m here for Kasey
-<br> I’m here for Dolly, I’m here for Johnny
-<br> I’m here for cowboys, I’m here for guitars
-<br> I’m here for bluegrass, I’m here for country 
+i’m here for Taylor, i’m here for Kasey
+<br> i’m here for Dolly, i’m here for Johnny
+<br> i’m here for cowboys, i’m here for guitars
+<br> i’m here for bluegrass, i’m here for country 
 
-I’ll take a turn at writing here a lyric 
-<br> About God and romance and country skies 
-<br> I’ll learn from all the legend’s music 
-<br> As I compose a song in my blue Levi’s 
+i’ll take a turn at writing here a lyric 
+<br> about God and romance and country skies 
+<br> i’ll learn from all the legend’s music 
+<br> as i compose a song in my blue Levi’s 
 
-I’m here for Taylor, I’m here for Kasey
-<br> I’m here for Dolly, I’m here for Johnny
-<br> I’m here for cowboys, I’m here for guitars
-<br> I’m here for bluegrass, I’m here for country 
+i’m here for Taylor, i’m here for Kasey
+<br> i’m here for Dolly, i’m here for Johnny
+<br> i’m here for cowboys, i’m here for guitars
+<br> i’m here for bluegrass, i’m here for country 
 
 <br> 
 
@@ -1309,30 +1309,30 @@ our grandparents’ stories we all love to hear
 <br>
 
 ## Boots ##
-These boots of mine that I love...they've been everywhere. <br>
-They've walked down many roads. <br>
-They've dug their heels into the dirt. <br>
-Can't you see? They've really been worn. <br>
+these boots of mine that i love...they've been everywhere. <br>
+they've walked down many roads. <br>
+they've dug their heels into the dirt. <br>
+can't you see? they've really been worn. <br>
 
-These worn-down boots that I love...they've traveled the world. <br>
-They've stepped on rocks. <br>
-They've run through grass. <br>
-Can't you see? They have some holes in the soles. <br>
+these worn-down boots that I love...they've traveled the world. <br>
+they've stepped on rocks. <br>
+they've run through grass. <br>
+can't you see? they have some holes in the soles. <br>
 
-These beloved boots are mine...they've been my best friend. <br>
-They've gone down lonely pathways. <br>
-They've skipped across sidewalks. <br>
-Can't you see? They've become sturdy and strong. <br>
+these beloved boots are mine...they've been my best friend. <br>
+they've gone down lonely pathways. <br>
+they've skipped across sidewalks. <br>
+can't you see? they've become sturdy and strong. <br>
 
-These wonderful boots that I love...I keep them tied real tight. <br>
-They've kept me feeling snug. <br>
-They're as comfortable as can be. <br>
-Can't you see? They're my favorite. <br>
+these wonderful boots that i love...i keep them tied real tight. <br>
+they've kept me feeling snug. <br>
+they're as comfortable as can be. <br>
+can't you see? they're my favorite. <br>
 
-These boots of mine that I love...They've gone the extra mile. <br>
-They've done more than I could've asked for. <br>
-They've survived the hard work. <br>
-Can't you see? There's some pep in every step with them. <br>
+thhese boots of mine that i love...they've gone the extra mile. <br>
+they've done more than I could've asked for. <br>
+they've survived the hard work. <br>
+can't you see? there's some pep in every step with them. <br>
 
 <br>
 
@@ -1371,25 +1371,25 @@ there's a bird sitting on the fence alone. <br>
 <br>
 
 ## The Lone Bird ##
-The lone bird flies high through the spring trees. <br>
-The lone bird sits still on the ground. <br>
-The lone bird sails gracefully on the yellow driving sign. <br>
-The lone bird rests on a walking sign. <br>
-The lone bird launches and lands onto a brown tree branch.  <br>
-The lone bird flutters with the wind amongst the green leaves. <br>
-The lone bird rises high in the sky. <br>
-The lone bird perches on the electric wire. <br>
-The lone bird glides with the wind. <br>
-The lone bird pecks at the lead.  <br>
-The lone bird flaps his wings just above the ground. <br>
-The lone bird stands on a fence. <br>
-The lone bird finds her support on the power line. <br>
-The lone bird scurries through the grass. <br>
-The lone bird expands her wings. <br>
-The lone bird swoops down to hover over the river. <br>
-The lone bird feathers her wings above the water. <br>
-The lone bird stands on the grass. <br>
-The lone bird skates on the ice. <br>
+the lone bird flies high through the spring trees. <br>
+the lone bird sits still on the ground. <br>
+the lone bird sails gracefully on the yellow driving sign. <br>
+the lone bird rests on a walking sign. <br>
+the lone bird launches and lands onto a brown tree branch.  <br>
+the lone bird flutters with the wind amongst the green leaves. <br>
+the lone bird rises high in the sky. <br>
+the lone bird perches on the electric wire. <br>
+the lone bird glides with the wind. <br>
+the lone bird pecks at the lead.  <br>
+the lone bird flaps his wings just above the ground. <br>
+the lone bird stands on a fence. <br>
+the lone bird finds her support on the power line. <br>
+the lone bird scurries through the grass. <br>
+the lone bird expands her wings. <br>
+the lone bird swoops down to hover over the river. <br>
+the lone bird feathers her wings above the water. <br>
+the lone bird stands on the grass. <br>
+the lone bird skates on the ice. <br>
 
 <br>
 
