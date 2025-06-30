@@ -279,6 +279,21 @@ when i look up to the night sky, i deeply commune with it;
 
 <br>
 
+## a poem including the words "asterisk", "burnt", and "devotion" ##
+each night, i look up
+<br> to the burnt yellow stars
+<br> that look like asterisks in the sky,
+<br> which God has written with Her handwriting,
+<br> and then i say,
+<br> "good night moon",
+<br> thinking of just how much
+<br> the Divine Author of the universe
+<br> loves humanity, to it and back to earth,
+<br> as
+<br> my devotion.
+
+<br>
+
 ## still a happy ending ##
 it was no fairytale ending:
 <br> it was one, rather, of heart mending and soul tending.
@@ -292,6 +307,11 @@ it was no fairytale ending:
 <br> but it was a love deep from God that she wedded to.
 <br> so as I said before, it was no fairytale ending;
 <br> but nevertheless, it was still a happy ending.
+
+<br>
+
+## if you can imagine it, imagine it ##
+if you can imagine it, imagine it, and maybe you will achieve it, because you never know if your dreams will become reality, until you keep taking steps to achieve what you imagine in its totaly, and then, as what you wished for is happening, you'll realize the audacity of your imagining 
 
 <br>
 
