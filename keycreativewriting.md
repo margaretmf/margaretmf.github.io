@@ -208,7 +208,7 @@ there’s never been a minute when you’ve been separated from Him.
 <br> God has not created you without thought on a whim.
 
 yes, sometimes mortal lies sure do like to creep in.
-<br> like “I’m lacking, I can't succeed, or I’m full of sin!”.
+<br> like “i’m lacking, i can't succeed, or i’m full of sin!”.
 
 but God can reveal a world full of His plans.
 <br> for in reality everything is ordered in His hands.
