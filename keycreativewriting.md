@@ -945,127 +945,51 @@ So the lesson is that one small thing can lead to a world filled with love.
 
 <br> 
 
-## Life is Forever Evolving - version 1 ##
-Rivers flow into the sea 
-<br> A seed becomes a tree 
-<br> Leaves change from green to gold
-<br> Humans grow from young to old 
+## life is forever evolving ##
+rivers flow into the sea.
+<br> where they meet’s an estuary.
+<br> a seed becomes a tree,
+<br> where birds can nest and be free.
 
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim
+life is forever evolving.
+<br> no day is ever the same.
+<br> the world is continuously revolving,
+<br> so nature can reach its aim.
 
-Caterpillars transform into butterflies 
-<br> The same Sun that sets will rise 
-<br> The moon turns from a crescent to a whole
-<br> The Earth is always spinning its poles 
+leaves change from green to gold.
+<br> humans grow from young to old;
+<br> they too grow from simple to wise.
+<br> and life continues when a leaf dies. 
 
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim
+<br> caterpillars transform into butterflies.
+<br> other creatures also metamorphosize.
+<br> chemicals and metals alchemize.
+<br> dreams are born and then crystallize.
 
-A blue sky becomes one of rainshowers 
-<br> Buds blossom into flowers 
-<br> Bees create honey out of nectar 
-<br> All of the earth is connected 
+life is forever evolving.
+<br> no day is ever the same.
+<br> the world is continuously revolving,
+<br> so nature can reach its aim.
 
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim
+a blue sky becomes one of rainshowers,
+<br> which leads buds to blossom into flowers. 
+<br> bees create honey out of nectar.
+<br> all of the earth is connected.
 
-<br> 
+life is forever evolving.
+<br> no day is ever the same.
+<br> the world is continuously revolving,
+<br> so nature can reach its aim.
 
-## Life is Forever Evolving - version 2 ##
-Rivers flow into the sea 
-<br> A seed becomes a tree 
-<br> Leaves change from green to gold
-<br> Humans grow from young to old 
+the same sun that sets will rise.
+<br> and it’s light causes things to energize.
+<br> the moon turns from a crescent to a whole.
+<br> the earth is always spinning its poles.
 
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-Caterpillars transform into butterflies 
-<br> Other creatures also metamorphosize
-<br> Chemicals and metals alchemize 
-<br> Life continues when a plant dies 
-
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-A blue sky becomes one of rainshowers 
-<br> Buds blossom into flowers 
-<br> Bees create honey out of nectar 
-<br> All of the earth is connected 
-
-<br> Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-<br> The same Sun that sets will rise
-<br> And it’s light leads things to energize 
-<br> The moon turns from a crescent to a whole
-<br> The Earth is always spinning its poles 
-
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-<br>
-
-## Life is Forever Evolving - version 3 ##
-Rivers flow into the sea 
-<br> Where they meet’s an estuary 
-<br> A seed becomes a tree 
-<br> Where birds can nest and be free
-
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-Leaves change from green to gold
-<br> Humans grow from young to old 
-<br> They too grow from simple to wise 
-<br> And life continues when a leaf dies 
-
-<br> Caterpillars transform into butterflies
-<br> Other creatures also metamorphosize
-<br> Chemicals and metals alchemize 
-<br> Dreams are born and then crystallize 
-
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-A blue sky becomes one of rainshowers 
-<br> Which leads buds to blossom into flowers 
-<br> Bees create honey out of nectar 
-<br> All of the earth is connected 
-
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
-
-The same Sun that sets will rise
-<br> And it’s light causes things to energize 
-<br> The moon turns from a crescent to a whole
-<br> The Earth is always spinning its poles 
-
-Life is forever evolving
-<br> No day is ever the same 
-<br> The world is continuously revolving 
-<br> So nature can reach its aim 
+life is forever evolving.
+<br> no day is ever the same.
+<br> the world is continuously revolving,
+<br> so nature can reach its aim.
 
 <br>
 
