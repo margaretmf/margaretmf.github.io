@@ -176,6 +176,23 @@ it’s a beautiful thing to buy a gift for your family member and show that you 
 
 <br>
 
+## God stays relentless ##
+God is a God,
+<br> who in the pursuit of you,
+<br> stays relentless.
+<br> the effort, with which
+<br> God loves you
+<br> is endless;
+<br> God stays relentless.
+<br> God never quits,
+<br> and to the force of the enemy,
+<br> God never submits.
+<br> God rather commits.
+<br> God commits to you,
+<br> and stays relentless.
+
+<br> 
+
 ## how will i best use the moment? ##
 how will I best use the moment?
 <br> will I pray?….or will I vent?
@@ -312,6 +329,23 @@ it was no fairytale ending:
 
 ## if you can imagine it, imagine it ##
 if you can imagine it, imagine it, and maybe you will achieve it, because you never know if your dreams will become reality, until you keep taking steps to achieve what you imagine in its totaly, and then, as what you wished for is happening, you'll realize the audacity of your imagining 
+
+<br>
+
+## stay relentless ##
+go after your goals,
+<br> and in the pursuit of them,
+<br> stay relentless.
+<br> the efforts, which
+<br> you put in
+<br> may be endless,
+<br> but stay relentless.
+<br> don't ever quit,
+<br> and to the force of the enemy,
+<br> don't ever submit.
+<br> rather commit.
+<br> commit to your goals,
+<br> and stay relentless.
 
 <br>
 
