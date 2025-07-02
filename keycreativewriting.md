@@ -1341,14 +1341,14 @@ i am a set of eyes in a sea of eyes looking to see the good.
 
 <br>
 
-## Flying Solo - Rough Draft ##
+## flying solo ##
 there's a bird sitting on the fence alone. <br>
 <br> she lifts her wings so gracefully. <br>
 <br> how I long to be like this lone bird, peacefully knowing who I am. <br>
 
 <br>
 
-## The Lone Bird ##
+## the lone bird ##
 the lone bird flies high through the spring trees. <br>
 the lone bird sits still on the ground. <br>
 the lone bird sails gracefully on the yellow driving sign. <br>
