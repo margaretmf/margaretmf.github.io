@@ -67,6 +67,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/americanflag18.jpg">
+
+
+
+<img class="profile-picture" src="photography/prideflag1.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag119.jpg">
+
+
+
 <img class="profile-picture" src="photography/coloredwall2.jpg">
 
 
@@ -244,6 +256,46 @@ layout: default
 
 
 <img class="profile-picture" src="photography/lightinthedarkness11.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness17.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness18.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness19.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness20.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness21.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness23.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness24.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness25.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness26.jpg">
+
+
+
+<img class="profile-picture" src="photography/lightinthedarkness27.jpg">
 
 
 
