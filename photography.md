@@ -293,7 +293,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/constructionsite2.jpg">
+<img class="profile-picture" src="photography/purplelightsinthedarkness.jpg">
 
 
 
@@ -301,7 +301,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/purplelightsinthedarkness.jpg">
+<img class="profile-picture" src="photography/constructionsite2.jpg">
 
 
 
