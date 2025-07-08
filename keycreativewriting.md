@@ -1403,7 +1403,7 @@ it’s amazing
 <br> some red, smudgy words
 <br> remind me 
 <br> to look through the mirror  
-<br> with a view that’s clearer,
+with a view that’s clearer,
 <br> doing the trick. 
 <br> and also
 <br> hopefully the thoughts,
