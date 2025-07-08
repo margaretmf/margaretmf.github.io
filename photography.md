@@ -297,7 +297,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/lightinthedarkness16.jpg">
+<img class="profile-picture" src="photography/constructionsite1.jpg">
 
 
 
@@ -305,7 +305,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/constructionsite1.jpg">
+<img class="profile-picture" src="photography/lightinthedarkness16.jpg">
 
 
 
@@ -334,7 +334,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/constructionsite3.jpg">
+<img class="profile-picture" src="photography/rainonthewindow1.jpg">
 
 
 
@@ -342,7 +342,8 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/rainonthewindow1.jpg">
+<img class="profile-picture" src="photography/constructionsite3.jpg">
+
 
 
 
