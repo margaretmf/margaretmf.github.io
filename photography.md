@@ -67,15 +67,11 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/americanflag18.jpg">
+<img class="profile-picture" src="photography/americanflag19.jpg">
 
 
 
 <img class="profile-picture" src="photography/prideflag1.jpg">
-
-
-
-<img class="profile-picture" src="photography/americanflag119.jpg">
 
 
 
@@ -172,6 +168,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/whiteflowers.jpg">
+
+
+
+<img class="profile-picture" src="yellow&redflowers.jpg">
 
 
 
