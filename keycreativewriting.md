@@ -394,6 +394,47 @@ this month I'm tuning into myself.
 
 <br>
 
+## to all of me, who i was before ##
+to all of me, 
+<br> who i was before, 
+<br> i say thank you. 
+<br> thank you so much 
+<br> for getting me 
+<br> to where i’m now. 
+
+at that time then, 
+<br> you didn’t know, 
+<br> just where you’d be 
+<br> in future years; 
+<br> but thanks because 
+<br> you truly have 
+<br> led me so far.
+
+thank you so much 
+<br> for all the times 
+<br> that you pushed through 
+<br> for me, even 
+<br> when i felt that
+<br> i must give up. 
+<br> by pressing onward, 
+<br> you have shown me 
+<br> how much better 
+<br> life can become.
+
+without you, i 
+<br> would not be here, 
+<br> so i’m grateful 
+<br> for all you were. 
+<br> you did not know 
+<br> at that time then 
+<br> who you were or
+<br> would grow into. 
+<br> you’d be surprised 
+<br> how great you were 
+<br> and who i’m, now. 
+
+<br> 
+
 ## Weaving Webs with ‘What If?’ ##
 What if for good God is working all things out?
 <br> What if I have nothing really to worry about?
@@ -1429,10 +1470,10 @@ to reveal all, i -
 <br>
 
 ## my own way ##
-momma’s never left shelby county <br>
-<br> and don’t want nobody telling her what to do <br>
-<br> but I got faraway dreams, ain’t no townie <br>
-<br> this place is just for passing through <br>
+momma’s never left shelby county
+<br> and don’t want nobody telling her what to do
+<br> but I got faraway dreams, ain’t no townie 
+<br> this place is just for passing through 
 
 <br>
 
