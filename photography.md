@@ -199,7 +199,8 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/nature.jpg">
+<img class="profile-picture" src="photography/lightinthedarkness1.jpg">
+
 
 
 
@@ -207,7 +208,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/lightinthedarkness1.jpg">
+<img class="profile-picture" src="photography/nature.jpg">
 
 
 
@@ -261,9 +262,6 @@ layout: default
 
 <img class="profile-picture" src="photography/lightinthedarkness18.jpg">
 
-
-
-<img class="profile-picture" src="photography/lightinthedarkness19.jpg">
 
 
 
