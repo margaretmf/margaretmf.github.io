@@ -67,7 +67,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/americanflag19.jpg">
+<img class="profile-picture" src="photography/coloredwall2.jpg">
 
 
 
@@ -75,7 +75,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/coloredwall2.jpg">
+<img class="profile-picture" src="photography/americanflag19.jpg">
 
 
 
@@ -168,10 +168,6 @@ layout: default
 
 
 <img class="profile-picture" src="photography/whiteflowers.jpg">
-
-
-
-<img class="profile-picture" src="yellow&redflowers.jpg">
 
 
 
