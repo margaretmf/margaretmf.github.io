@@ -1384,6 +1384,40 @@ girl, stop, and take a look.
 
 <br>
 
+## written in lipstick on the mirror ##
+it’s amazing 
+<br> how often i go to the bathroom, 
+<br> thinking the thoughts,
+<br> “i am ugly”. 
+<br> but what use is it 
+<br> to carry these thoughts around each day. 
+<br> if you can’t change yourself, 
+<br> change your perception;
+<br> at least those are some words of wisdom. 
+<br> so i’ve written the words,
+<br> “i”
+<br> “am”
+<br> “beautiful”
+<br> in red lipstick on the mirror, 
+<br> with the hope that 
+<br> some red, smudgy words
+<br> remind me 
+<br> to look through the mirror  
+<br> with a view that’s clearer,
+<br> doing the trick. 
+<br> and also
+<br> hopefully the thoughts,
+<br> “i am ugly”
+<br> go down the drain 
+<br> with the makeup that 
+<br> i wash off of my hands. 
+<br> “i’m not a woman, 
+<br> i’m a beautiful woman”,
+<br> i learn 
+<br> to proclaim in the bathroom. 
+
+<br> 
+
 ## to reveal all, i - ##
 to reveal all, i -
 <br> sometimes cry, and then sigh.
