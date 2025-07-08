@@ -335,7 +335,8 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/rainonthewindow1.jpg">
+<img class="profile-picture" src="photography/constructionsite11.jpg">
+
 
 
 
@@ -344,6 +345,10 @@ layout: default
 
 
 <img class="profile-picture" src="photography/constructionsite10.jpg">
+
+
+
+<img class="profile-picture" src="photography/rainonthewindow1.jpg">
 
 
 
@@ -364,6 +369,22 @@ layout: default
 
 
 <img class="profile-picture" src="photography/historytour.jpg">
+
+
+
+<img class="profile-picture" src="photography/nyc-park.jpg">
+
+
+
+<img class="profile-picture" src="photography/nyc-street.jpg">
+
+
+
+<img class="profile-picture" src="photography/nyc-restaurant.jpg">
+
+
+
+
 
 <b>
 
