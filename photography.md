@@ -175,7 +175,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/fountain2.jpg">
+<img class="profile-picture" src="photography/greenery1.jpg">
 
 
 
@@ -183,7 +183,7 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/greenery1.jpg">
+<img class="profile-picture" src="photography/fountain2.jpg">
 
 
 
