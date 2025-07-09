@@ -161,6 +161,38 @@ on this new day i wear a smile on my face.
 
 <br>
 
+## in love's absence ##
+in love's absence,
+<br> there's hatred;
+<br> and hatred is like darkness:
+<br> the absence of the light.
+<br> both are like death, and evil,
+<br> the absence of life, and goodness.
+
+all are a negation
+<br> of what is really real;
+<br> and all are a contradiction
+<br> of the true ideal.
+<br> this is why,
+<br> when light shines thorugh the darkness,
+<br> the light casts out the dark.
+<br> so,
+<br> likewise,
+<br> when love expresses itself,
+<br> through the hateful heart,
+<br> love penetrates the hate,
+<br> causing it to transform
+<br> into compassion, and then love.
+
+the word absence connotes not
+<br> that something else exists;
+<br> and rather it connotes
+<br> that something is failing to exist.
+<br> the something is the only substance
+<br> that can displace the absence
+<br> of what is failing to exist.
+
+<br>
 ## it's a beautiful thing ##
 it’s a beautiful thing to share a smile with someone on the street and see and feel the light in a stranger that you greet.
 
@@ -1504,6 +1536,17 @@ it is may now.
 <br> what more can i love than to enjoy the warmth that comes during the year's best month?
 <br> it is may now.
 <br> the weather no longer demands i wear a sweater, so i am getting better.
+
+<br>
+
+## another version of you ##
+on this day of independence, America, i am envisioning another version of you: a version where everyone, *truly*, can find the life, liberty, and happiness, which the declaration gives all the right to pursue.
+
+while the old version of you excluded some, based on race, religion, ethnicity, and gender, i hope that peace, safety, and security, and creativity, abundance, and joy are what for all you render.
+
+no longer i want to see the systemic violence breaking our people apart at the seams; rahter i want to see the fruition of even young children's fresh dreams.
+
+i believe in you, America, for all that you stand, and my wish this day is for all of us to belong to your land.
 
 <br>
 
