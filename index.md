@@ -33,8 +33,6 @@ I believe that the stories that families share about ancestors are the most spir
 
 It is interesting how movements start from the ground-up. I am interested in the world cultures, narratives, and archetypes around engineering as well as STEAM education. 
 
-Finally, as a student at the University of Virginia and the University of Glasgow, I used to row. I used to wake up by 5am and drive team members to practice in Charlottesville. I'd love to get back into shape and row with a team. Rowing on a river is the best thing to appreciate being a team member, to commit to goals, to express diligence, intelligence, a sense of unity and oneness, and strength, and to love nature - the water, the trees, the birds.
-
 Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
 **How Do I Improve Myself?**
