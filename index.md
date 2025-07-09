@@ -23,7 +23,7 @@ I love working on photography of light in the darkness, American flags, leaves, 
 
 With a love for writing and reading, I have been continuing the work on the American Credo project that students started in 11th grade at Norfolk Academy. Continuing the American Credo project consists of writing creatively, examining beliefs, understanding the country, and creating art. My true passion is writing about engineering, STEAM, and educational content, and I dream of writing at least one book on how people with liberal arts degrees work in the real world or entrepreneuriship. I love children's books and how people turn them into films. My other true passion is connecting to people through authentic conversations and eye-to-eye level meetings. I am working to understand all the government leaders by reading about them, and I am interested in how poetry supports coding and coding supports poetry. Finally, I am researching themes in books like oneness, unity, faith in politics, women's role in elections, the story of America, republican-democratic party dynamics, and what the American States are. I also love exploring how people create music.
 
-Little children are healing, organizing things gives me life, and expressing good cheer in the Post Office and the Fed Ex is fun.
+Little children are healing, organizing things gives me life, and expressing good cheer through all things is what gives me life.
 
 I love world cultures.
 
