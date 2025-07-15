@@ -58,6 +58,10 @@
 
 
 
+<img class="profile-picture" src="paintings/painting14.jpg">
+
+
+
 
 
 <br>
