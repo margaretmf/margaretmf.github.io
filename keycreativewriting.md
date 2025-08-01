@@ -193,6 +193,7 @@ the word absence connotes not
 <br> of what is failing to exist.
 
 <br>
+
 ## it's a beautiful thing ##
 it’s a beautiful thing to share a smile with someone on the street and see and feel the light in a stranger that you greet.
 
