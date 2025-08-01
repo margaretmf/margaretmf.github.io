@@ -134,6 +134,28 @@ peppermint sticks are better with lemons
 
 <br>
 
+## so i wrote a novel ##
+you told me i could not write well,
+<br> so i turned around,
+<br> and i wrote a novel.
+<br> and to be quite honest,
+<br> i'm so glad that i did
+<br> because in this disbelief,
+<br> i did not wallow.
+<br> in my humble opinion,
+<br> i don't think that
+<br> it was thaaat bad of writing.
+<br> i think it was actually pretty good,
+<br> with some parts that were even exciting,
+<br> like when Johnny met a new friend on Mars
+<br> or when the two traveled the universe in spacecars.
+<br> so through this experience,
+<br> I've learned a lesson,
+<br> which is
+<br> not to let others stifle my expression.
+
+<br>
+
 ## a new day ##
 it's a new day for the sun to shine.
 <br> wake up, and be free. the day is yours, and the day is mine.
