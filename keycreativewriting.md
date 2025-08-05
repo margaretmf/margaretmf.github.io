@@ -360,6 +360,22 @@ it was no fairytale ending:
 
 <br>
 
+## the queen of unconventional ##
+she's the queen of unconventional; she's not one-dimensional;
+<br> she lives a life that's her own, in a way that's intentional.
+<br> her style is known as sleek; no one can copy her mystique.
+<br> she holds her head up high and stays distinct and unique.
+<br> no one can be her, for she's an entrepreneur;
+<br> she's created her own life; she's not a poseur.
+<br> she's a Jane of all trades that she's been mastering for decades.
+<br> in all the work she does, her mastery pervades.
+<br> outside the box, she thinks, drawing between dots, links,
+<br> doing this all with some smiles and some winks.
+<br> and on every street she walks down, she's well known in town,
+<br> for she's so kind that she will fix too another's crown.
+
+<br>
+
 ## if you can imagine it, imagine it ##
 if you can imagine it, imagine it, and maybe you will achieve it, because you never know if your dreams will become reality, until you keep taking steps to achieve what you imagine in its totaly, and then, as what you wished for is happening, you'll realize the audacity of your imagining 
 
