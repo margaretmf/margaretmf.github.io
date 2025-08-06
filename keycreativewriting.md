@@ -161,6 +161,21 @@ on this new day i wear a smile on my face.
 
 <br>
 
+## i'm okay if you're okay ##
+if you're okay, i'm okay;
+<br> in fact, seeing you okay
+<br> is the spark in my day.
+<br> and not jsut that...
+<br> because we are affined,
+<br> and intertwined,
+<br> my joy and peace of mind
+<br> depends on your joy, and peace of mind.
+<br> so keep on living life to the fullest,
+<br> for if you smile, i'll smile
+<br> and if you're okay, i'm okay.
+
+<br>
+
 ## in love's absence ##
 in love's absence,
 <br> there's hatred;
