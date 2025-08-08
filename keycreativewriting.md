@@ -93,21 +93,21 @@ School days began with some good morning greetings.
 <br> before helping students learn the skill of reading.
 
 I worked with students to learn their letter sounds,
-<br> and I enjoyed some days with them on the playground.
+<br> and I enjoyed some days with them on the playgrounds.
 
 I also worked with students to learn word decoding; 
-the ability in each one of them I was promoting. 
+<br> the ability in each one of them I was promoting. 
 
 I loved learning all of the children's unique interests;
-<br> and in my life, too, they surely amde a difference.
+<br> and in my life, too, they surely made a difference.
 
 Building relationships with teachers, students, and staff,
 <br> I did not end the years without a hug or a laugh.
 
-AmeriCorps, AmeriCorps, this poem is to say thnak you.
-<br. I'm grateful for how you boradened my worldview.
+AmeriCorps, AmeriCorps, this poem is to say thank you.
+<br> I'm grateful for how you broadened my worldview.
 
-All the people I met are forever in my heart.
+All of the people I met are forever in my heart.
 <br> Of my service to America this was only the start.
 
 <br>
@@ -141,6 +141,24 @@ at least one couple sat in this booth,
 <br> leaving a napkin on the checkered floors.
 <br> the restaurant hasn't totally been forgotten;
 <br> it's just not as good as when it was in its youth.
+
+<br>
+
+## remember a raincoat ##
+let's wake up early, so that we can leave by eight.
+<br> we've got a long day ahead; let's not be late.
+<br> it's supposed to rian, so remember a raincoat.
+<br> you've got plenty of room ot tuck it in your tote...
+<br> unless you want to sing without it in the rain...
+<br> but if you don't bring it, to me you can't compalin.
+<br> i have some time to prepare our lunches
+<br> so that we can have a little food to munch on
+<br> i can't wait to get there, it will be so fun.
+<br> we'll have plenty of time too to enjoy the sun.
+<br> so bring your book to read and also some sunscreen;
+<br> i know that you joke that you're hte sunburning queen.
+<br> once we get there we'll have the best time;
+<br> thank you for being the best partner in crime.
 
 <br>
 
