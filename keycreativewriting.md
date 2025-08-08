@@ -115,6 +115,9 @@ I loved learning all of the children's unique interests;
 Building relationships with teachers, students, and staff,
 <br> I did not end the years without a hug or a laugh.
 
+I also had the chance to participate in special days of service;
+<br> for giving back to the community is what preserves us.
+
 AmeriCorps, AmeriCorps, this poem is to say thank you.
 <br> I'm grateful for how you broadened my worldview.
 
