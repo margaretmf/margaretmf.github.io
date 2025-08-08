@@ -98,7 +98,7 @@ Serving the country, I worked with young children,
 <br> with a love for nurturing each little one.
 
 I worked in two schools in my home community;
-how amazing this was of a learning opportunity!
+<br> how amazing this was of a learning opportunity!
 
 School days began with some good morning greetings.
 <br> before helping students learn the skill of reading.
