@@ -932,7 +932,7 @@ She then leaves her house, arriving by eight to school.
 She greets every student with a handshake or hug.
 <br> She then collects cellphones; there's a school rule to unplug.
 
-After chapel, begins class, filled with new concepts to learn;
+After assembly, begins class, filled with new concepts to learn;
 <br> students study their books, and page after page they turn.
 
 Inspiring confidence in students is her duty,
