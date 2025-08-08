@@ -79,6 +79,39 @@ Past,
 
 <br> 
 
+## AmeriCorps, AmeriCorps, I Say Thank You (a poem I wrote for the AmeriCorps community) ##
+In the past years, I served with AmeriCorps,
+<br> having an impact that made my heart soar.
+
+Serving the country, I worked with young children,
+<br> with a love for nurturing each little one.
+
+I worked in two schools in my home community;
+how amazing this was of a learning opportunity!
+
+School days began with some good morning greetings.
+<br> before helping students learn the skill of reading.
+
+I worked with students to learn their letter sounds,
+<br> and I enjoyed some days with them on the playground.
+
+I also worked with students to learn word decoding; 
+the ability in each one of them I was promoting. 
+
+I loved learning all of the children's unique interests;
+<br> and in my life, too, they surely amde a difference.
+
+Building relationships with teachers, students, and staff,
+<br> I did not end the years without a hug or a laugh.
+
+AmeriCorps, AmeriCorps, this poem is to say thnak you.
+<br. I'm grateful for how you boradened my worldview.
+
+All the people I met are forever in my heart.
+<br> Of my service to America this was only the start.
+
+<br>
+
 ## the american flag ##
 standing high, it represents the home of the brave.
 <br> and with each blow of the wind, you'll see it flap and wave.
