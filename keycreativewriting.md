@@ -79,6 +79,17 @@ Past,
 
 <br> 
 
+## A Life of Service ##
+Self,
+<br> preoccupied, unaware,
+<br> withdrawing, monopolizing, exploiting,
+<br> transformation, change, reconstruction, rebuilding,
+<br> connecting, giving, serving,
+<br> engaged, aware,
+<br> Community.
+
+<br> 
+
 ## AmeriCorps, AmeriCorps, I Say Thank You (a poem I wrote for the AmeriCorps community) ##
 In the past years, I served with AmeriCorps,
 <br> having an impact that made my heart soar.
