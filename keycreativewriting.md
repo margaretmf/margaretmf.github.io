@@ -161,7 +161,7 @@ at least one couple sat in this booth,
 ## remember a raincoat ##
 let's wake up early, so that we can leave by eight.
 <br> we've got a long day ahead; let's not be late.
-<br> it's supposed to rian, so remember a raincoat.
+<br> it's supposed to rain, so remember a raincoat.
 <br> you've got plenty of room ot tuck it in your tote...
 <br> unless you want to sing without it in the rain...
 <br> but if you don't bring it, to me you can't compalin.
@@ -169,8 +169,8 @@ let's wake up early, so that we can leave by eight.
 <br> so that we can have a little food to munch on
 <br> i can't wait to get there, it will be so fun.
 <br> we'll have plenty of time too to enjoy the sun.
-<br> so bring your book to read and also some sunscreen;
-<br> i know that you joke that you're hte sunburning queen.
+<br> so bring your book to read and some sunscreen;
+<br> i know that you joke that you're the sunburning queen.
 <br> once we get there we'll have the best time;
 <br> thank you for being the best partner in crime.
 
