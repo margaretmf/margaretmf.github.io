@@ -1456,21 +1456,21 @@ i’m here for Taylor, i’m here for Kasey
 ## headed towards memphis ##
 i'm heading to Memphis to dig into my roots 
 <br> i've got on a country hat and some worn in boots 
-<br> i’m driving westward on the highway known as music highway 
+<br> i’m driving westward on music highway 
 <br> there’s nothing better than this; it’s a beautiful day
 
-i’m looking forward to seeing family and eating some bbq
+i’m looking forward to eating some bbq
 <br> i’m hoping to go to beale street and listen to great music too
-<br> i used to come here in the summers when I was a young child 
+<br> i used to come here in the summers as a child 
 <br> this is where the heat in the summers was not mild
 
-in the car, I’m listening to elvis, the king and some jcash
+i’m listening to elvis and some jcash
 <br> i’m listening to “walking in memphis” too and having a bash 
-<br> when I get to the city my cousins will all be there 
-<br> there’s 13 of us and boy do we’ve got a prayer 
+<br> when i get to the city my cousins will be there 
+<br> there’s 13 of us and boy we’ve got a prayer 
 
 our grandparents’ stories we all love to hear 
-<br> tt’s fun to learn of what it used to be like here 
+<br> it’s fun to learn of what it used to be like here 
 <br> they tell tales of how Memphis used to be the country 
 <br> where people’s spirits could more easily be free 
 <br> now it’s become more developed they say
