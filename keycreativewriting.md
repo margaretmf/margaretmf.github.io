@@ -534,7 +534,7 @@ as the mask falls off, the foes flee,
 <br>
 
 ## tuning into myself ##
-this month I'm tuning into myself.
+this month i'm tuning into myself.
 <br> i'm tapping into what brings me health.
 <br> i'm doing what makes me come alive.
 <br> i'm focusing on areas where I thrive.
