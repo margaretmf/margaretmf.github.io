@@ -385,6 +385,33 @@ at 5am, before the rest of the world has awakened,
 
 <br>
 
+## nights like this, when i can't sleep ##
+on nights like this, when i can't fall asleep,
+<br> i spend it in prayer, doing some metaphysical upkeep.
+<br> i pray for myself and what leads me to struggle,
+<br> and i pray for the world and what's giving it trouble.
+<br> i think of how loved the world's people and myself are,
+<br> hoping that they'll feel God's love from afar.
+<br> no place is too far for God's peace and joy to reach.
+<br> that God lights all hearts up is what i beseech.
+<br> so instead of counting sheep or eating some cereal,
+<br> on nights like this, i keep thoughts on things spiritual.
+
+<br>
+
+## anxiety is an unwelcome guest ##
+anxiety is an unwelcome guest, who tries to creep into my chest and make me feel stressed, rather than blessed.
+
+he routinely pounds on my heart's door, and mistakenly, i've let him in before; but i now let him in no more, and it's him that i deplore.
+
+when i have before let him in, he tells peace that he's sovereign, suggesting that she cannot win at reigning under my skin.
+
+but i know better now what in my home to disallow. down to anxeity i do not bow; through my heart he cannot plow.
+
+the other guests do not like him; for he causes so much mayhem, and he attepmpts to slay them; thus thorugh the door he's now unwelcome.
+
+<br>
+
 ## to reveal all, i - ##
 to reveal all, i -
 <br> love the night sky.
