@@ -775,30 +775,30 @@ So if you’re having a rough time in life, it’s ok.
 <br>
 
 ## Emotions ##
-I feel a little exhausted emotionally, honestly
-<br> I’ve been through all the highs and lows
-<br> One big feeling after the next 
-<br> I just can’t get a break from the throes
+I feel a little exhausted emotionally.
+<br> I’ve been through all the highs and lows.
+<br> There's one big feeling after the next;
+<br> I just can’t get a break from the throes.
 
-These feelings feel like a hurricane 
-<br> I just don’t know what to do with them
-<br> These feelings feel like a whirlwind too
-<br> They sure do cause me a lot of mayhem 
+These feelings feel like a hurricane.
+<br> I just don’t know what to do with them.
+<br> These feelings feel like a whirlwind too.
+<br> They sure do cause me a lot of mayhem.
 
-But sometimes I find a glimpse of peace 
-<br> As I hear God’s voice when I pray 
-<br> Sometimes I find a glimpse of goodness 
-<br> As a glimmer hope shines through my day
+But sometimes I find a glimpse of peace,
+<br> as I hear God’s voice when I pray.
+<br> Sometimes I find a glimpse of goodness,
+<br> as a glimmer hope shines through my day.
 
-The peace within shows me what’s real
-<br> And the glimpse of goodness stills my heart 
-<br> The glimmer of hope eases my pain 
-<br> And shows me that from love I can never part  
+The peace within shows me what’s real,
+<br> and the glimpse of goodness stills my heart.
+<br> The glimmer of hope eases my pain,
+<br> and shows me that from love I can never part. 
 
-These stormy feelings are not really mine 
-<br> They’re just trying to stop me from being me  
-<br> These feelings are just destructive feelings  
-<br> that pull me away from what makes me feel free 
+These stormy feelings are not really mine.
+<br> They’re just trying to stop me from being me.
+<br> These feelings are just destructive feelings
+<br> that pull me away from what makes me feel free.
 
 <br>
 
