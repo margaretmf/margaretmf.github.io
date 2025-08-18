@@ -717,6 +717,29 @@ I love me, I love me not…
 
 <br>
 
+## blooming on my own ##
+since you've left me all alone,
+<br> i've been blooming on my own,
+<br> into a version of me, that's a little freer,
+<br> which i could not do if you were still here.
+
+i've been reading poetry books,
+<br> growing more comfortable with my looks,
+<br> speaking kindly to myself,
+<br> and putting the old me on the shelf.
+
+i've taken myself dancing,
+<br> engaged in some self-enhancing,
+<br> and planted new seeds of joy,
+<br> which the loss of you can't destroy.
+
+i'm glad for who i'm becoming,
+<br> i've become a bit more loving,
+<br> i've become a little more hopeful too
+<br> that life will go on without you.
+
+<br>
+
 ## does my mind repeat itself? ##
 does my mind repeat itself? and do i seriously need help?
 <br> because i can't, for the life of me, put the recurring thoughts on the shelf.
@@ -1265,6 +1288,24 @@ life is forever evolving.
 <br> so nature can reach its aim.
 
 <br>
+
+## confessions of a poet ##
+recovering the voice i didn't use much as a girl,
+<br> i now put words to feelings, which make my heart whirl.
+<br> i also capture the world that with my senses i pereceive;
+<br> and i write with God the inspiration that i receive.
+<br> i express the truths that i've learned to live by,
+<br> like "look up high at the beauty in the sky".
+<br> these are confessions of me, a young poet.
+<br> i used to be the shy girl, though you may not know it.
+<br> writing is honestly a way i fight depression.
+<br> i find joy in each day that i find my own expression.
+<br> days are filled with grinding life away.
+<br> why not enjoy a bit of creativity each day?
+<br> if you listen to your heart, you may find poems too.
+<br> when you  dare to write, lines may flow out of you.
+
+<br> 
 
 ## poetic lifelines ##
 my life's dependent on reading and writing poetry;
