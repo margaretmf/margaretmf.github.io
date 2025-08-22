@@ -135,7 +135,7 @@ Data Analyst | April 2016 - January 2019
 * Gathered and synthesized information from sales and support teams to develop research services solutions proposals
 * Partnered with product stakeholders and software engineers to support generating initial platform vision and requirements
 * Delivered knowledge management documents to support teamwork and deliver epics, user stories, feature specification documents, and acceptance criteria to articulate platform and dashboard requirements
-* Tracked tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
+* Tracked tasks, projects, processes, and roadmaps using Jira, agile sprints, and story prints to influence personal commitments within the company (completed [online training on Jira usage best practices](https://training.atlassian.com/course/learn-jira-basics-cloud))
 * Participated in three weekly team manager-led scrum meetings to share goals, obstacles, and retrospectives
 * Collaborated with a database expert in India to deliver data requests to internal stakeholders and work with engineers to help maintain data integrity in database
 
