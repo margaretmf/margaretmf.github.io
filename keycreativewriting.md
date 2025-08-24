@@ -158,6 +158,27 @@ at least one couple sat in this booth,
 
 <br>
 
+## airport, 4am ##
+i'm at the airport,
+<br> at 4am,
+<br> standing in line,
+<br> with a lot of other people also.
+<br> i'm at the back of the line,
+<br> and my flight leaves at 4:30.
+<br> i know i won't make it.
+<br> i'm pulling out my hair.
+<br> i slept in too long.
+<br> i pressed snooze too many times.
+<br> my family's expecting me,
+<br> and i am scarmbling.
+<br> is it too late?
+<br> will i find antoher flight?
+<br> what do i do?
+<br> i'm. about. to. miss. my. flight.
+<br> and i NEED to get to NYC by 10am.
+
+<br>
+
 ## remember a raincoat ##
 let's wake up early, so that we can leave by eight.
 <br> we've got a long day ahead; let's not be late.
