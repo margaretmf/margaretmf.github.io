@@ -863,6 +863,33 @@ there's something about the smell of cinnamon...
 
 <br>
 
+## lavender ##
+in the spring and summer,
+<br> the thing i love the most
+<br> is a good iced lavender latte.
+<br> it's even more satisfying
+<br> than the aroma of
+<br> a lavender-scented sachet.
+<br> it's sweeter,
+<br> and more floral,
+<br> a gift to my taste buds,
+<br> and it's more gratifying than
+<br> any lavender-scented soapsuds.
+<br> i love to sip on the latte
+<br> as the warm sun beats on my face,
+<br> just enjoying each moment
+<br> of the sugary drink 
+<br> that resembeles lavender lace.
+<br> and sometimes,
+<br> on special days,
+<br> i'll ad a spoonful
+<br> of honey 
+<br> to this lavendear drink,
+<br> before drinking every last bit
+<br> and pouring the ice in the sink.
+
+<br>
+
 ## Careers Introduction ##
 Every day on the earth people everywhere work,
 <br> with some making art; and some working as a clerk. 
