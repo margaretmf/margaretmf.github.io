@@ -876,15 +876,15 @@ in the spring and summer,
 <br> and it's more gratifying than
 <br> any lavender-scented soapsuds.
 <br> i love to sip on the latte
-<br> as the warm sun beats on my face,
+<br> as the warm sun hits my face,
 <br> just enjoying each moment
-<br> of the sugary drink 
-<br> that resembeles lavender lace.
+<br> of the sugary drink,
+<br> resembling lavender lace.
 <br> and sometimes,
 <br> on special days,
-<br> i'll ad a spoonful
+<br> i'll add a spoonful
 <br> of honey 
-<br> to this lavendear drink,
+<br> to this lavender drink,
 <br> before drinking every last bit
 <br> and pouring the ice in the sink.
 
