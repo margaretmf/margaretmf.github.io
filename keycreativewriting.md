@@ -149,7 +149,7 @@ i'm reminiscing about the good old days
 i'm cleaning up some greasy food.
 <br> i'm throwing away uneaten pie.
 <br> i was happier back then,
-<br> but I've got to be grateful for the good.
+<br> but i've got to be grateful for the good.
 
 at least one couple sat in this booth,
 <br> leaving a napkin on the checkered floors.
