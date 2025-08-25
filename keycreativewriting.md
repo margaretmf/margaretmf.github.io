@@ -172,7 +172,7 @@ i'm at the airport,
 <br> my family's expecting me,
 <br> and i am scarmbling.
 <br> is it too late?
-<br> will i find antoher flight?
+<br> will i find another flight?
 <br> what do i do?
 <br> i'm. about. to. miss. my. flight.
 <br> and i NEED to get to NYC by 10am.
