@@ -28,10 +28,11 @@ layout: default
 * [James: A Novel](https://www.amazon.com/dp/0593862732/?bestFormat=true&k=james%20book&ref_=nb_sb_ss_w_scx-ent-bk-ww_k2_1_5_de&crid=2GMPJK5OR5H9X&sprefix=James) by Percival Everett
 * [Expressive Arts for Social Work and Social Change](https://www.amazon.com/Expressive-Arts-Social-Work-Change/dp/0190912405/ref=sr_1_1?crid=1T7O83Q0B9J87&dib=eyJ2IjoiMSJ9.W0YYCnqc0whtCCBKOqila2ttKPHGSGDtDYHVJtUxL8NqOUqbIrhBMpIvnFTMiSOIkEg9z-nVSOSSHQeCySrs4TTSf4wWJRauQ-8DwHZJUSp598aM7V-THUqvIbBbLqm1jRIH6x-6QIXESvYaR-uUIR8wlJ7zQkqOXlWcHx8ZntPzuBpC7xyqBWgMjLaUF7wa-xR647IMCgnlAeAMCO2-lkEjl4GcXdXToBFpr3gEsUI._KraLSCwl4o1BbGlaDu5wrTQ64UqprJoyWvw4DB2Ho8&dib_tag=se&keywords=Expressive+Arts+for+Social+Work+and+Social+Change&qid=1753870833&sprefix=expressive+arts+for+social+work+and+social+change%2Caps%2C129&sr=8-1) by by Tuula Heinonen, Deana Halonen, & Elizabeth Krahn
 * [A Single Revolution: Don't look for a match. Light one.](https://www.amazon.com/dp/B09VQ4YYR7/?bestFormat=true&k=a%20single%20revolution&ref_=nb_sb_ss_w_scx-ent-pd-bk-d_k0_1_19_de&crid=1IVTXDLNN1UR&sprefix=a%20single%20revolution) by Shani Silver
+* [The Happiness Advantage: How a Positive Brain Fuels Success in Work and Life](https://www.amazon.com/s?k=the+happiness+advantage&crid=337NP3PX205Y7&sprefix=the+happiness+advantage%2Caps%2C90&ref=nb_sb_noss_1) by Shawn Achor
+* [People, Care and Work in the Home](https://www.amazon.com/dp/0367495023?ref=ppx_yo2ov_dt_b_fed_asin_title) by Mohamed Gamal Abdelmonem & Antonio Argandoña
 
 #### Reading
-* [At Home: A Short History of Private Life](https://www.amazon.com/At-Home-Short-History-Private/dp/0767919394/ref=sr_1_1?crid=2RT8ZI8A1KC21&dib=eyJ2IjoiMSJ9.Yc3ZzF4R5kVhj1U7sm14NckwoqJ4lAPqU50eKOnTumEgjywtuQdMgkPUNatO8FxhXt5FXTMmCJW5v-ponyLJYag2Jkl_nx39pSbTnz1sKBubi0CefV95FejGaJ7_AfjjBkDDVz_H0AaAY_NJ2FNA6tb_Xb6WmVjY0pBreVxZE_lXqoBjlEG138DmRZKeJjby7ofRORrRNuswbdJgXqnXiOL9zKob9Hoqo0nunwcSNK8.rzX7PsWERHnlekq4ZhZPcP90-7LO-jWrC27bNuJD9Ow&dib_tag=se&keywords=at+home+bill+bryson+book&qid=1749942542&sprefix=at+home+bill+b%2Caps%2C89&sr=8-1) by Bill Bryson
-  
+
 ## 2024
 
 ### Books 
