@@ -1795,6 +1795,36 @@ what is going on? it's 100 degrees in june.
 
 <br> 
 
+## summer, don't go ##
+from the excited shouts of little students, announcing the season's start in june,
+<br> to the sound of the ice cream trucks catchy children's tune,
+<br> summer, i've enjoyed you so.
+
+from the feeling of sand between my toes, as i run through brown, sand dunes,
+<br> to the taste of fresh plums, turned into dried prunes,
+<br> summer, i've enjoyed you so.
+
+from the farm grown tomatoes that i eat with bread and mayonnaise,
+<br> to the burns i get because of the sun's hot rays,
+<br> summer, i've enjoyed you so.
+
+from going on bike rides through the town,
+<br> to increased time with family around,
+<br> summer, i've enjoyed you so.
+
+from the cookouts and the campfires, with hamburgers and s'mores,
+<br> to more time available to spend outdoors,
+<br> summer, i've enjoyed you so.
+
+from baseball games and Cracker Jack,
+<br> to trunks for camp to pack... and then unpack,
+<br> summer, i've enjoyed you so.
+
+the list goes on and on. summer, i've enjoyed you so.
+<br> summer do you have to go? summer, please don't go.
+
+<br>
+
 ## this month radiates prismatic energy ##
 this month is june. do you know what that means?
 <br> it's the month for rainbow colors from red to purple to green.
