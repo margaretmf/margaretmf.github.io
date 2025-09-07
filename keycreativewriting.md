@@ -1825,6 +1825,29 @@ the list goes on and on. summer, i've enjoyed you so.
 
 <br>
 
+## the notes of autumn's song ##
+one last cookout's enjoyed at the pool, 
+<br> with beginnings lingering in the breeze:
+<br> tomorrow children head back to school,
+<br> for a new year filled of completing degrees.
+
+the weather's becoming a bit more cool,
+<br> as colors are shifting in the trees.
+<br> out in the yards, you may see a ghoul,
+<br> as a good old Halloween tease.
+
+pumpkin spice coffees can provide you with fuel,
+<br> if you don't like fall-spiced teas.
+<br> there are sales int he stores on clothes and jewels,
+<br> making it the best time for shopping sprees.
+
+these are the notes of autumn's song,
+<br> as life seeks to rearrange.
+<br> it's the song that lasts all season long,
+<br> so enjoy each day's rhythmic change.
+
+<br>
+
 ## this month radiates prismatic energy ##
 this month is june. do you know what that means?
 <br> it's the month for rainbow colors from red to purple to green.
