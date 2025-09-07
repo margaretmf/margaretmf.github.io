@@ -251,7 +251,7 @@ on this new day i wear a smile on my face.
 if you're okay, i'm okay;
 <br> in fact, seeing you okay
 <br> is the spark in my day.
-<br> and not jsut that...
+<br> and not just that...
 <br> because we are affined,
 <br> and intertwined,
 <br> my joy and peace of mind
