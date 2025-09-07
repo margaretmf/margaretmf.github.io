@@ -1693,8 +1693,7 @@ girl, stop, and take a look.
 <br>
 
 ## written in lipstick on the mirror ##
-it’s amazing 
-<br> how often i go to the bathroom, 
+it’s amazing how often i go to the bathroom, 
 <br> thinking the thoughts,
 <br> “i am ugly”. 
 <br> but what use is it 
@@ -1707,22 +1706,19 @@ it’s amazing
 <br> “am”
 <br> “beautiful”
 <br> in red lipstick on the mirror, 
-<br> with the hope that 
+<br> with the hope 
+<br> that 
 <br> some red, smudgy words
 <br> remind me 
 <br> to look through the mirror  
 with a view that’s clearer,
 <br> doing the trick. 
-<br> and also
+<br> and also,
 <br> hopefully the thoughts,
 <br> “i am ugly”
-<br> go down the drain 
-<br> with the makeup that 
-<br> i wash off of my hands. 
-<br> “i’m not a woman, 
-<br> i’m a beautiful woman”,
-<br> i learn 
-<br> to proclaim in the bathroom. 
+<br> go down the drain with the makeup that i wash off of my hands. 
+<br> “i’m not a woman, i am a beautiful woman”,
+<br> i learn to proclaim in the bathroom. 
 
 <br> 
 
