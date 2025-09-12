@@ -70,7 +70,7 @@ Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinki
 
 **Software and Programming Languages:** R, Python, SQL, ArcGIS, QGIS, Periscope, Anaconda, Weka, Git/Github, Jira, Trello; familiar with Tableau, MapReduce, Java, AWS, SAS, Ruby on Rails
 
-**Soft:** cross-functional teamwork, international teamwork; familiar with Spanish language and gaining exposure to India
+**Soft:** cross-functional teamwork, international teamwork; familiar with Spanish language
 
 **Training:** ISO 9001 Quality Management Systems, SCRUMstudy Scrum Master, Human-Centric Leading, Systems Practice, Civil Dialogues
 
