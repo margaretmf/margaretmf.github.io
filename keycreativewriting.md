@@ -472,6 +472,22 @@ each night, i look up
 
 <br>
 
+## as the world caves in ##
+we're at a period of time with violence
+<br> as the world's caving in.
+<br> a new world's being born,
+<br> and the old world's torn.
+<br> but as the world grows more stark,
+<br> remember your spark
+<br> because without your spark,
+<br> the world would become fully dark.
+<br> and you've got a light that's strong;
+<br> that can shine through what's wrong,
+<br> as the news shows each day the world blowing up,
+<br> suggesting your light's just not enough.
+
+<br>
+
 ## still a happy ending ##
 it was no fairytale ending:
 <br> it was one, rather, of heart mending and soul tending.
