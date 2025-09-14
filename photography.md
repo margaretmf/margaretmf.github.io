@@ -79,6 +79,18 @@ layout: default
 
 
 
+<img class="profile-picture" src="photography/americanflag20.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag21.jpg">
+
+
+
+<img class="profile-picture" src="photography/americanflag22.jpg">
+
+
+
 <img class="profile-picture" src="photography/colors2.jpg">
 
 
