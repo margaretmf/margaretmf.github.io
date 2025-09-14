@@ -62,6 +62,14 @@
 
 
 
+<img class="profile-picture" src="paintings/painting15.jpg">
+
+
+
+<img class="profile-picture" src="paintings/painting16.jpg">
+
+
+
 
 
 <br>
