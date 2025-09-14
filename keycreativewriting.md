@@ -547,6 +547,25 @@ you told me i could not write well,
 
 <br>
 
+## cursive writing ##
+i used to write in cursive writing when i was in third grade. now my hand hurts when i write, so i write using the computer.
+
+i used to write with pen and paper notes to my friends. now i just text them or send them dms on instagram.
+
+i used to search for things using encyclopedias and libraries. now i look up everything hastily on google.
+
+i used to eat tomatoes given to me by my neighbor. no i'm distrustful of the people living next door.
+
+i used to use a record player to listen with people to good music. now i listen with earbuds to all my songs on one device.
+
+i used to have a landline phone hanging on my wall. now i have a phone everywhere clinging to me in my pocket.
+
+i used to walk into blockbuster to pick out a good movie. now in one click on netflix i can watch just anything.
+
+technology's changing at a rapid pace, making us do things differently. some things are changing for the better, but i wish i could still write in cursive.
+
+<br>
+
 ## stay relentless ##
 go after your goals,
 <br> and in the pursuit of them,
