@@ -1458,7 +1458,6 @@ so listen intently during this season:
 <br> you'll hear
 <br> not only the songs of the birds,
 <br> but also the writer's words
-<br> that capture
 <br> that capture life's rhythm, rhyme, and reason.
 
 <br>
