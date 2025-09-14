@@ -1371,6 +1371,22 @@ my life's dependent on reading and writing poetry;
 
 <br>
 
+## taken on like a second job ##
+like a second job, i take on poetry writing,
+<br> pouring out words in a way that's soul-delighting.
+<br> responding to prompts each moment of my free time,
+<br> i think up creative ways to use words that rhyme.
+<br> thorugh the word, i write what gives life its vitality,
+<br> and express experiences like ones i've had with spirituality.
+<br> to write is freedom in a world with oppression;
+<br> i fight back through words as a second profession.
+<br> a little each day, i practice this skill.
+<br> i've got a rhythm down; i've got a drill.
+<br> each day i show up to the practice of it;
+<br> evenn if i suck at it, i refuse to quit.
+
+<br>
+
 ## poetry blooms in spring ##
 the divinity of Spring's artistry
 <br> leads poetry to bloom,
@@ -1638,14 +1654,15 @@ really live. <br>
 
 ## i am one in a sea ##
 i am a voice in a sea of voices yearning to say something kind.
-
-i am a conscience in a sea of consciences desiring to do the right thing.
-
-i am a body in a sea of bodies learning to be free.
-
-i am a heart in a sea of hearts seeking to love more.
-
 i am a set of eyes in a sea of eyes looking to see the good.
+i am a set of ears in a sea of ears hoping to understand what someone's saying.
+and i am a conscience in a sea of consciences desiring to do the right thing.
+i am a body in a sea of bodies learning to be free.
+i am a pair of hands in a sea of hands working to build something new.
+i am a pair of feet in a sea of feet walking forward each glorioius day.
+and i am a heart in a sea of hearts seeking to love more.
+i am one in a sea.
+i am one in a sea of people doing their best to live this life.
 
 <br>
 
