@@ -1383,7 +1383,7 @@ like a second job, i take on poetry writing,
 <br> a little each day, i practice this skill.
 <br> i've got a rhythm down; i've got a drill.
 <br> each day i show up to the practice of it;
-<br> evenn if i suck at it, i refuse to quit.
+<br> even if i suck at it, i refuse to quit.
 
 <br>
 
