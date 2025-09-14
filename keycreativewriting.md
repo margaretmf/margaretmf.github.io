@@ -521,7 +521,7 @@ she's the queen of unconventional; she's not one-dimensional;
 <br>
 
 ## if you can imagine it, imagine it ##
-if you can imagine it, imagine it, and maybe you will achieve it, because you never know if your dreams will become reality, until you keep taking steps to achieve what you imagine in its totaly, and then, as what you wished for is happening, you'll realize the audacity of your imagining 
+if you can imagine it, imagine it, and maybe you will achieve it, because you never know if your dreams will become reality, until you keep taking steps to achieve what you imagine in its totality, and then, as what you wished for is happening, you'll realize the audacity of your imagining 
 
 <br>
 
