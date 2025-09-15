@@ -978,7 +978,7 @@ Every type of building from a home to a skyscraper
 <br> is what he sketches and draws on draft paper. 
 
 Intricate details for a foundation he lays,
-<br> of spaces in which people can spend their days.
+<br> of spaces in which people can spend all their days.
 
 And something else he does is make sure designs follow laws.
 <br> He must ensure they are safe and have no flaws. 
