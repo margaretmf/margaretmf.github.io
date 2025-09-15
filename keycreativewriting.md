@@ -1153,6 +1153,27 @@ And at the end of the day he cleans up the store,
 
 <br>
 
+## THe Painter ##
+He's a professional who uses paint to make art.
+<br> Splashing colors together, he works from the heart.
+
+He turns scenes in his mind's eye into a filled canvas,
+<br> like a scene of fields he's seen when driving through Kansas.
+
+When doing this there are many types of paints for him
+<br> like watercolor, acrylic, or some other medium.
+
+Mixing colors he relies on some theory and a wheel.
+<br> His favorite color to mix has to be teal.
+
+And then with the colors he strokes his brush.
+<br> He strokes the brush carefully without the need to rush.
+
+Sometimes his art is so good he can sell it,
+<br> because he worked hard to capture imagery with a palette.
+
+<br>
+
 ## Career Closing ##
 After reading about all of these different careers,
 <br> do you know what you want to do in future years?
