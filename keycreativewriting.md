@@ -1008,7 +1008,7 @@ By understanding if there is a statistical correlation,
 
 ## The Police Officer ##
 She’s also a professional who works day and night,
-<br> making sure everyone is safe and alright. 
+<br> making sure everyone is safe, secure, and alright. 
 
 She does her work by enforcing the laws;
 <br> by upholding them, she serves a good cause. 
