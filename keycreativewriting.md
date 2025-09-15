@@ -1153,7 +1153,7 @@ And at the end of the day he cleans up the store,
 
 <br>
 
-## THe Painter ##
+## The Painter ##
 He's a professional who uses paint to make art.
 <br> Splashing colors together, he works from the heart.
 
@@ -1169,7 +1169,7 @@ Mixing colors he relies on some theory and a wheel.
 And then with the colors he strokes his brush.
 <br> He strokes the brush carefully without the need to rush.
 
-Sometimes his art is so good he can sell it,
+Sometimes his art is so good he can even sell it,
 <br> because he worked hard to capture imagery with a palette.
 
 <br>
