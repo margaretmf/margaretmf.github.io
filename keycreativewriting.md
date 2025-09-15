@@ -956,7 +956,7 @@ In the world there are over 12,000 types of jobs.
 So let’s go on an adventure and learn about careers,
 <br> to help you decide what you can do in future years. 
 
-From a truck driver to a teacher there’s many things you can be. 
+From a truck driver to a teacher there are many things you can be. 
 <br> I hope you can find the work that lets you feel free.
 
 I’m going to introduce you to six different workers. 
