@@ -1160,7 +1160,7 @@ He's a professional who uses paint to make art.
 He turns scenes in his mind's eye into a filled canvas,
 <br> like a scene of fields he's seen when driving through Kansas.
 
-When doing this there are many types of paints for him
+When doing this, there are many types of paints for him
 <br> like watercolor, acrylic, or some other medium.
 
 Mixing colors he relies on some theory and a wheel.
@@ -1169,7 +1169,7 @@ Mixing colors he relies on some theory and a wheel.
 And then with the colors he strokes his brush.
 <br> He strokes the brush carefully without the need to rush.
 
-Sometimes his art is so good he can even sell it,
+Sometimes his art is so good he can even sell it
 <br> because he worked hard to capture imagery with a palette.
 
 <br>
