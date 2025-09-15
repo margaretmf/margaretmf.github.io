@@ -1053,7 +1053,7 @@ She wakes up at six to get to work by eight.
 <br> With ten families on her caseload, there’s a lot on her plate!
 
 Every day she helps children stay healthy and well.
-<br> Sicknesses they experience she helps them to quell.
+<br> Sicknesses they experience is what she helps to quell.
 
 Heights, weights, and eyesights every day she measures; 
 <br> little hearts and minds is what she most treasures.
