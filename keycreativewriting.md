@@ -989,7 +989,7 @@ And something else he does is make sure designs follow laws.
 With a coffee in hand, she gets to work by eight,
 <br> and then analzyes metrics like the customer retention rate.
 
-Her job is to report numbers to supoort her business
+Her job is to report numbers to support her business
 <br> and make sense of data that looks like a big mess.
 
 She codes in tools like R, SQL, and Stata.
@@ -1001,7 +1001,7 @@ As she works to run computations and calculations,
 She loves to solve all the company's math problems
 <br> and find relationships between a dataset's columns.
 
-By understanding if there are statistical correlations,
+By understanding if there is a statistical correlation,
 <br> she helps provide leaders with key information.
 
 <br> 
