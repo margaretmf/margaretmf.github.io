@@ -824,7 +824,7 @@ of this glorious moment.
 
 ## love's ripples ##
 humans' love for each other expands like ripples on the water's surface.
-<br> one person smiles, or wave stheir hand, or helps another through an active of service;
+<br> one person smiles, or waves their hand, or helps another through an active of service;
 <br> and the one impacted by the act of service passes it forward, leading the next affected to pass it also forward...
 <br> ...until all of humanity joins together in creating a more beautiful world,
 <br> consisting of concentric cirlces of love forever dilating....
