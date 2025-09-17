@@ -591,7 +591,7 @@ how about we, women, especially, dare to rebuff...
 <br> by claiming this for ourselves, we will yield so much power.
 <br> and an inner strength for us all that no one can devour.
 <br> we can encourage each other to be who we're born to be.
-<br> and celebrate in eahc other what makes each of us more free.
+<br> and celebrate in each other what makes each of us more free.
 
 <br>
 
