@@ -222,7 +222,7 @@ peppermint sticks are better with lemons
 
 ## a new day ##
 it's a new day for the sun to shine.
-<br> wake up, and be free. the day is yours, and the day is mine.
+<br> wake up, and be free. the day's yours, the day's mine.
 
 it's a really great day for the sky to be blue.
 <br> look up high! and see the birds soaring too!
