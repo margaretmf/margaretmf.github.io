@@ -170,7 +170,7 @@ i'm at the airport,
 <br> i slept in too long.
 <br> i pressed snooze too many times.
 <br> my family's expecting me,
-<br> and i am scarmbling.
+<br> and i am scrambling.
 <br> is it too late?
 <br> will i find another flight?
 <br> what do i do?
