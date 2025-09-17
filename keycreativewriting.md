@@ -395,8 +395,8 @@ at 5am, before the rest of the world has awakened,
 <br> i sometimes arise to tap into a faith unshaken.
 <br> while reading a bit and drinking milk with honey,
 <br> there's nothing more glorious than my own company.
-<br> it's quiet - there are no loud cars i can hear.
-<br> it's a time for me to be peaceful with God, whose dear.
+<br> it's quiet, and there are no cars i can hear.
+<br> it's a time for me to be peaceful with God, so dear.
 <br> i can hear no other voices but my still, inner voice.
 <br> a new day has begun, and in this i do rejoice.
 <br> at this time of day, there's nothing competing for attention.
