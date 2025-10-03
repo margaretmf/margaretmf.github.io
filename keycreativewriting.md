@@ -1916,6 +1916,42 @@ these are the notes of autumn's song,
 
 <br>
 
+## the ghosts' trick or treat ##
+"i'm gonna haunt you" is what the ghosts whisper in my ears,
+<br> with reminders of what happened in my past years.
+<br> screeching, they say, "your body will become a haunted house,"
+<br> "filled with negative memories to chill, and to arouse."
+<br> "i'll make alive all the skeletons in your closet,
+<br> and i'll bring back the darkness beneath your eye sockets."
+<br> because i'll make you so hollowed, not hallowed,"
+<br> "you'll become one in the midst of evil shadows."
+<br> taunting, they say, "everyone will be scared of you",
+<br> "i will cause your darkness to make them eschew you."
+<br> "happy halloween" they say before exclaiming "it's a trick."
+<br> "you can take a treat; and any treat you can pick."
+
+<br>
+
+## the witch's necromancy ##
+there's a witch, who loves writing, in the middle of cemeteries,
+<br> where she can sit and commune with the dead and buried.
+<br> in this secret spot, so dark, grim, and quiet,
+<br> she can connect to the spirits alone, in private.
+<br> they whisper to her ancient legends and lessons,
+<br> right down through the heavens, so she can put them on record.
+<br> at this time of year, around halloween time,
+<br> is when they tell the most about clowns that mime.
+<br> they pass down stories of the ancient mummers' play
+<br> in which performers work masks and costumes in a parade.
+<br> these parades, they said, influenced our modern day holiday,
+<br> and led to all the costumes people wear and display.
+<br> other old, spooky tales she's heard from the ghosts
+<br> and then she writes them down and keeps them in her notes.
+<br> a practitioner of necromancy she's known to be,
+<br> and thanks to her we can share a festive story.
+
+<br>
+
 ## this month radiates prismatic energy ##
 this month is june. do you know what that means?
 <br> it's the month for rainbow colors from red to purple to green.
