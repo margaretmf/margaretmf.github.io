@@ -35,29 +35,6 @@ It is interesting how movements start from the ground-up. I am interested in the
 
 Words that inspire me from Daniel J. Levitin's book, [The Organized Mind: Thinking Straight in the Age of Information Overload](https://www.amazon.com/Organized-Mind-Thinking-Straight-Information/dp/0147516315), is "Where art, technology, or science alone cannot solve problems, the combination of the three is perhaps the most powerful of all." 
 
-**How Do I Improve Myself?**
-* Daily, I work to express gratitude for people and appreciate the latent talents I see in people.
-* Daily, I work to explore beliefs and believing.
-* Daily, I work to listen to the feedback I receive from people.
-* Daily, I work to know how I can better work with people.
-* Daily, I work to know how I can set healthy boundaries with people.
-* Daily, I work to forgive people who have hurt me.
-* Daily, I work to move outside of my comfort zone in some way.
-* Daily, I work to commit to people who I already know.
-* Daily, I work to appreciate and expand upon the work already completed.
-* Daily, I work to give credit to people.
-* Daily, I work to let go of the past.
-* Daily, I work to love someone better.
-* Daily, I work to give up personal ambition.
-* Daily, I work to listen to the needs of others.
-* Daily, I work to appreciate how Christian Science inspires my work, all Christian faiths, other religions, and the work done in the medical world.
-* Daily, I work to appreciate my family.
-* Daily, I work to appreciate the names of people I meet.
-* Daily, I believe that people from the ground floor can share ideas that support an organization grow, improve, and move forward.
-* Daily, I am grateful for democracy and democratization.
-  
-<br>
-
 ## Skills
 
 **Data Analytics**: data-driven storytelling, analytical dashboard development, data wrangling and management framework development, advanced statistical modeling (regression, clustering, principal components, association rules, random forest), geospatial analysis, survey analysis; familiar with machine learning concepts (neural networks, training and testing datasets, cross-fold validation), and social network analysis
