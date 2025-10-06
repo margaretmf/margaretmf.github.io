@@ -1448,8 +1448,8 @@ the divinity of Spring's artistry
 <br> leads poetry to bloom,
 <br> as buds do in May,
 <br> with flowery words,
-<br> which writers use fullheartedly
-<br> to color, to illume,
+<br> which writers fullheartedly
+<br> use to color and illume,
 <br> and to make fresh eash day.
 
 with the trees blossoming, and the grass growing,
