@@ -504,6 +504,26 @@ it was no fairytale ending:
 
 <br>
 
+## spilling it like pumpkin guts ##
+i've been spilling out all the things that make me go nuts
+<br> like after carving a pumpkin when i divulge the guts.
+<br> with people, i've shared some of my darkest secrets:
+<br> but i've got to admit that spilling them out is my weakness.
+<br> i can't help but to erupt with what's deep inside,
+<br> and find just anyone in whom to confide.
+<br> i've got to learn to write quietly in a journal,
+<br> confiding in a God who hears all in the eternal.
+<br> he's the one who can heal what eats at my soul,
+<br> giving me the peace that makes me feel whole.
+<br> he's the one who can keep my concerns sound and safe,
+<br> and stop me from oversharing in ways that chafe.
+<br> and he's the one who hears my every deisre and thought,
+<br> deciding which ones are real versus which ones are not.
+<br> don't get me wrong; it's sometimes good to share,
+<br> but it's got to be with somebody ready to care.
+<br> so i'm learning to practice better discernment
+<br> and open up in a way that's thoughtful, not recurrent.
+
 ## the queen of unconventional ##
 she's the queen of unconventional; she's not one-dimensional;
 <br> she lives a life that's her own, in a way that's intentional.
