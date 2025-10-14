@@ -517,7 +517,7 @@ i've been spilling out all the things that make me go nuts
 <br> giving me the peace that makes me feel whole.
 <br> he's the one who can keep my concerns sound and safe,
 <br> and stop me from oversharing in ways that chafe.
-<br> and he's the one who hears my every deisre and thought,
+<br> and he's the one who hears my every desire and thought,
 <br> deciding which ones are real versus which ones are not.
 <br> don't get me wrong; it's sometimes good to share,
 <br> but it's got to be with somebody ready to care.
@@ -1460,6 +1460,26 @@ like a second job, i take on poetry writing,
 <br> i've got a rhythm down; i've got a drill.
 <br> each day i show up to the practice of it;
 <br> even if i suck at it, i refuse to quit.
+
+<br>
+
+## thank you to the poets ##
+i am a poet, with a heart, mind, and soul,
+<br> who loves a good sonnet over a robot's control.
+<br> there's original thought behind each poem's line;
+<br> tech can't compete with the intelligence of rhyme.
+<br> each poem is written with a dynamic voice
+<br> that a bot can't automate; in this i rejoice.
+<br> i value the works of those like Shakespeare and Chaucer.
+<br> that certainly no data system could begin to author.
+<br> in them i cherish great metaphors and similes
+<br> rather than utilize the latest technologies.
+<br> i am in awe with the choice of vocabulary too.
+<br> it's more innovative than any big tech breakthrough.
+<br> thank you to the poets that bring healing to life
+<br> in times on this earth of great change and strife.
+<br> we owe it to you all who bring us all meaning
+<br> in a world where AI in the world is teeming.
 
 <br>
 
