@@ -297,14 +297,6 @@ layout: default
 
 
 
-<img class="profile-picture" src="photography/lightinthedarkness26.jpg">
-
-
-
-<img class="profile-picture" src="photography/lightinthedarkness27.jpg">
-
-
-
 <img class="profile-picture" src="photography/purplelightsinthedarkness.jpg">
 
 
